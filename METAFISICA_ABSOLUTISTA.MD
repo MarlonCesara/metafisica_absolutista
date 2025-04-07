@@ -293,9 +293,9 @@
 
 - Se estava prevista a possibilidade de imanencia devido à liberdade dos transcendidos de Deus, e se foi o próprio Deus quem transcendeu, porque deveria existir a necessidade de reparação? Não faria parte da harmonia o homem ser livre, mesmo que transcendido? Vamos investigar este fato analisando uma irrealidade que a própria biblia supõe. 
 
-1. Deus é pleno.
-2. Deus somente é realidade.
-3. Deus possui a alma relativa. 
+1. Deus é pleno. (Representado por uma alma dualistica, capaz de gerar distinção)
+2. Deus somente é realidade. (Representado como algma dualistica que conservou apenas sua realidade) 
+3. Deus possui a alma relativa. (Representado como alma dualistica cujo em si foi aniquilado)
 
 - Ao retrocedermos em um passado irreal, o qual antecede a Deus concomitantemente à sua existencia, Estes três requisitos correspondem a uma alma dualistica que sofreu uma corrupção destrutiva, porém, que deixou a realidade de si, no sentido de que, sem os corpos, tornaram-se relativos em alma. A alma precisa ser dualistica para representar o total potencial de Deus, o potencial de gerar distinções. 
 
