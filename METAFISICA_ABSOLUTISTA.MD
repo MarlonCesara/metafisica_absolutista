@@ -137,6 +137,8 @@
 
 # Almificação de Deus
 
+- **Gerar**: Trancender a si mesmo agregando parte de si no que é trancendido.
+
 1. Deus é verdade e espírito.
 2. Deus, gerando sua alma, gera-a relativa a seu espírito.
 3. A geração da alma de Deus é realizada na própria realidade que é Deus.
