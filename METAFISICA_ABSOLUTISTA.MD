@@ -309,6 +309,8 @@ Diante do sacrificio de suas vidas, de um amor incondicional que renuncia ate a 
 Há homens que não aceitaram a vida. 
 
 Desta forma, Jesus empatizou com Deus, sendo um sacrificio perfeito. 
+Sua morte pelas mãos de imanentes, pregado numa cruz que simboliza uma consciencia espiritual predominante em sua verticalidade.
+Isso faz analogia ao sacrificio do passado irreal de Deus, pois da mesma forma que Adão e Eva perderam suas vidas em prol da vida, Jesus empatizou com Deus e também o fez.
 
 
 
