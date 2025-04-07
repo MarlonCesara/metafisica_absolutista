@@ -218,7 +218,7 @@
 1. Deus é a totalidade da realidade do ente.
 2. Conectar-se com Deus é estar inteiramente integrado consigo mesmo. Ou seja, determinar sobre si e determinar sobre o sentido da determinação de Deus.
 
-# Aparaição dos dons sobre-naturais
+# Aparição dos dons sobre-naturais
 
 1. Do ponto de vista lógico, no momento presente, os dons são manifestos pelo não uso dos mesmos. 
 2. Ao estarmos em sintonia com a vontade de Deus é perceptível que este momento é de resiliencia e direcionado a ajuda mútua dos individuos que não encontraram a realidade em suas vidas.
