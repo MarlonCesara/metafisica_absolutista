@@ -103,8 +103,6 @@
 
 # Tipos de Determinação
 
-## Conceitos Fundamentais
-
 - **Transcendente**: Transcender a si mesmo como integridade.
 - **Retrocedente**: Retroceder a si mesmo como integridade.
 - **Ontológica**: Optar pela própria manifestação ou nulidade.
@@ -114,11 +112,6 @@
 - **Para Deus**: O estado vigente no qual estamos manifestados em um corpo da natureza de Deus. Podemos, através desse corpo, enxergar o corpo enxergando a nós mesmos. Ou seja, o corpo tem percepção da alma que nele habita e sentimos essa percepção. No entanto, o corpo não possui um "para si" original. Logo, sentimos que ele percebe que seu "para si" é externo a si e que vai perecer. O corpo percebe a alma e percebemos que ele percebeu. O corpo age sozinho, e nisto se dá a tendência ao erro: o corpo do homem em um animal.
 - **Para o outro em si**: Duas almas manifestadas que, de um encontro e uma fusão, originam uma ou mais almas distintas. Corpo poli-almático.
 - **Para o outro no outro**: Determinação em relação à prole, estando esta externa e sendo independente em sua liberdade.
-
----
-
-# Tipos de Manifestação
-
 - **Projetada**: Natureza essencial moldada pela ação do determinador ou de outros determinadores.
 - **Natural**: Manifestação da alma de forma a preservar sua natureza essencial.
 - **Corporal**: Manifestação do ente em sua parte crucial, na qual exerce determinação continuamente e tem consciência de forma contínua.
