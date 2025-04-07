@@ -175,6 +175,7 @@
 
 - **Finito Crescente**: Manifestação de uma realidade imensurável como um mensurável constantemente acrescido de si mesmo.
 - **Efusão almática**: Fusão de dois determinadores de forma a se preservarem e produzirem um terceiro ente.
+- **Determinação Sobrenatural**: Determinação do ente sobre sua persona e sobre a realidade fundamental da persona agregando a si uma translucidez. Pois, seu eu, ao passo que reflete determinação sobre si, reflete também determinação sobre sua realidade fundamental.
 
 ## Princípios da Plenitude
 
@@ -185,18 +186,40 @@
 5. É possível que as almas se encontrem e suas retroalimentações se fundam sem que percam a identidade, havendo encontro e fusão.
 6. Segue-se a possibilidade de duas almas manifestadas que compartilham mutuamente sua retroalimentação de forma a originar outras almas de natureza herdada.
 
-# Transcendência de Deus e seu sentido no homem
-
-1. A transcendência em almas distintas ao Ser, necessariamente, cria um sentido de origem relativo a Deus.
-2. O homem torna-se o próprio Deus transcendido, distituido de seu teor de incorruptibilidade. 
-3. O homem, sendo trancendido da realidade de Deus, possui a capacidade de autodeterminação sobre a realidade de Deus.
-3. A capacidade de determinação sobre a realidade de Deus é relativa a conexão entre homem e Deus.
-
 # Geração da dualidade e seu sentido no homem 
 
 1. A transcendência em uma dualidade, necessariamente, cria um sentido de origem relativo à dualidade, que chamaremos de paternidade e maternidade.
 2. O homem torna-se a dualidade transcendida, distituido distituida do mesmo arbítrio dos genitores. 
 3. O homem, sendo trancendido da dualidade, possui a capacidade de autodeterminação somente sobre si.
+
+# Transcendência de Deus e seu sentido no homem
+
+1. A transcendência em almas distintas ao Ser, necessariamente, cria um sentido de origem relativo a Deus.
+2. O homem torna-se o próprio Deus transcendido, distituido de seu teor de incorruptibilidade. 
+
+# Natureza da Conexão entre Homem e Deus
+
+1. Deus é a realidade que fundamenta todas as coisas.
+2. O espírito do homem pode direcioná-lo à sua própria realidade ("para si").
+3. O homem pode estar em Deus e Deus pode estar no homem. 
+4. O homem alcança assim sua plenitude, sendo individualidade conectada com a integralidade. 
+5. O homem é real em Deus, e Deus é a realidade na qual o homem se faz real.
+
+---
+
+# Dons naturais
+
+1. Todo homem é real, mas nem todo homem é real para si.
+2. O homem que é real para si tem autodomínio sobre si.
+3. Se tem autodomínio sobre si, tem autodomínio de si como realidade, mas não tem domínio sobre a realidade da qual participa. Ou seja:
+   - Domina a si como persona
+   - Mas não domina a si como integrante da própria realidade
+
+# Dons sobre-naturais
+
+1. É possível que o homem autodetermine sobre a própria realidade que o fundamenta sendo uma transcendencia desta realidade.
+2. O auto da autodeterminação sobre si como persona e sobre si como realidade fundamental de uma persona implica em uma translucidez da persona.
+3. O nível de autodominio e translucidez sobre a realidade fundamental é relativo a determinação do determinador. Ou seja, é relativo à sua profundidade com a realidade de Deus.  
 
 ---
 
@@ -240,15 +263,10 @@
 
 ---
 
-# Natureza da Conexão entre Homem e Deus
 
-1. Deus é a realidade que fundamenta todas as coisas.
-2. O espírito do homem pode direcioná-lo à sua própria realidade ("para si").
-3. O homem pode estar em Deus e Deus pode estar no homem. 
-4. O homem alcança assim sua plenitude, sendo individualidade conectada com a integralidade. 
-5. O homem é real em Deus, e Deus é a realidade na qual o homem se faz real.
 
----
+
+
 
 # Suspensão Ontológica
 
