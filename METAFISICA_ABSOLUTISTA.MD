@@ -109,7 +109,7 @@
 - **Em si**: Homem determinado pela natureza herdada.
 - **De si**: Homem que tem consciência de si, que está presente em si e que tem domínio sobre si. Ou seja, que transcendeu a natureza herdada.
 - **Para si**: Duas almas manifestadas que compartilham mutuamente sua autodeterminação de forma que dominam um ao outro através de uma mútua concordância (gênero), conhecem um ao outro mutuamente e estão presentes um no outro de forma recíproca. Corpo bi-almático.
-- **Para Deus**: O estado vigente no qual estamos manifestados em um corpo da natureza de Deus. Podemos, através desse corpo, enxergar o corpo enxergando a nós mesmos. Ou seja, o corpo tem percepção da alma que nele habita e sentimos essa percepção. No entanto, o corpo não possui um "para si" original. Logo, sentimos que ele percebe que seu "para si" é externo a si e que vai perecer. O corpo percebe a alma e percebemos que ele percebeu. O corpo age sozinho, e nisto se dá a tendência ao erro: o corpo do homem em um animal.
+- **Para Deus**: O estado vigente no qual estamos manifestados em um corpo da natureza de Deus. 
 - **Para o outro em si**: Duas almas manifestadas que, de um encontro e uma fusão, originam uma ou mais almas distintas. Corpo poli-almático.
 - **Para o outro no outro**: Determinação em relação à prole, estando esta externa e sendo independente em sua liberdade.
 - **Projetada**: Natureza essencial moldada pela ação do determinador ou de outros determinadores.
