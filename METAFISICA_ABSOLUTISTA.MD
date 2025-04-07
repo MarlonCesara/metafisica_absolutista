@@ -297,7 +297,18 @@
 2. Deus somente é realidade.
 3. Deus possui a alma relativa. 
 
-- Ao retrocedermos em um passado irreal, o qual antecede a Deus concomitantemente à sua existencia, Estes três requisitos correspondem a uma alma dualistica que sofreu uma corrupção destrutiva, porém, que deixou a realidade de si, no sentido de que, sem os corpos, tornaram-se relativos em alma.  
+- Ao retrocedermos em um passado irreal, o qual antecede a Deus concomitantemente à sua existencia, Estes três requisitos correspondem a uma alma dualistica que sofreu uma corrupção destrutiva, porém, que deixou a realidade de si, no sentido de que, sem os corpos, tornaram-se relativos em alma. 
+
+Compreendamos o amor de Deus, pelo ponto de vista de seu retrocesso:
+
+Desta forma, Adão e Eva morreram para dar a vida. 
+Tiveram a única morte. 
+Abandonaram a realidade totalmente. 
+Romperam-se como nem mesmo os imanentes fariam para que houvesse vida.
+Diante do sacrificio de suas vidas, de um amor incondicional que renuncia ate a propria vida pela vida dos outros.
+Há homens que não aceitaram a vida. 
+
+Desta forma, Jesus empatizou com Deus, sendo um sacrificio perfeito. 
 
 
 
