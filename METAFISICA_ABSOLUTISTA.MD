@@ -100,3 +100,77 @@
 1. O livre-arbítrio, na neutralidade, subentende todas as possibilidades hipotéticas manifestadas ao mesmo tempo, possibilitando versões infinitas da realidade, contanto que só uma delas envolvesse a atuação da autodeterminação do ente.
 2. Se somente uma das hipóteses envolve a autodeterminação do ente, todas as outras hipóteses são irreais, pois carecem da verdade plena.
 3. As hipóteses carecendo da verdade plena não correspondem a uma realidade concreta, pois uma realidade com meia verdade ainda é falsa.
+
+# Tipos de Determinação
+
+## Conceitos Fundamentais
+
+- **Transcendente**: Transcender a si mesmo como integridade.
+- **Retrocedente**: Retroceder a si mesmo como integridade.
+- **Ontológica**: Optar pela própria manifestação ou nulidade.
+- **Em si**: Homem determinado pela natureza herdada.
+- **De si**: Homem que tem consciência de si, que está presente em si e que tem domínio sobre si. Ou seja, que transcendeu a natureza herdada.
+- **Para si**: Duas almas manifestadas que compartilham mutuamente sua autodeterminação de forma que dominam um ao outro através de uma mútua concordância (gênero), conhecem um ao outro mutuamente e estão presentes um no outro de forma recíproca. Corpo bi-almático.
+- **Para Deus**: O estado vigente no qual estamos manifestados em um corpo da natureza de Deus. Podemos, através desse corpo, enxergar o corpo enxergando a nós mesmos. Ou seja, o corpo tem percepção da alma que nele habita e sentimos essa percepção. No entanto, o corpo não possui um "para si" original. Logo, sentimos que ele percebe que seu "para si" é externo a si e que vai perecer. O corpo percebe a alma e percebemos que ele percebeu. O corpo age sozinho, e nisto se dá a tendência ao erro: o corpo do homem em um animal.
+- **Para o outro em si**: Duas almas manifestadas que, de um encontro e uma fusão, originam uma ou mais almas distintas. Corpo poli-almático.
+- **Para o outro no outro**: Determinação em relação à prole, estando esta externa e sendo independente em sua liberdade.
+
+---
+
+# Tipos de Manifestação
+
+- **Projetada**: Natureza essencial moldada pela ação do determinador ou de outros determinadores.
+- **Natural**: Manifestação da alma de forma a preservar sua natureza essencial.
+- **Corporal**: Manifestação do ente em sua parte crucial, na qual exerce determinação continuamente e tem consciência de forma contínua.
+- **Natureza**: Manifestação do ente em sua parte periférica, da qual não exerce determinação contínua e não tem consciência contínua.
+- **Idealização**: Manifestação de hipóteses irreais, projeção da imaginação na realidade.
+- **Bivalente**: Manifestar-se com uma segunda alma, tendo esta determinada concordância em si. Ex.: estado do homem na natureza, em convivência com a manifestação da natureza de Deus.
+
+---
+
+# Almas Relativas ao Absoluto
+
+- **Alma gerada de Deus**: Alma que conserva características de seu genitor divino com a incorruptibilidade que é qualidade de seu espírito, porém, sua alma é relativa ao determinador. Ex.: Alma de Jesus.
+- **Alma transcendida de Deus**: Alma que não conserva necessariamente características de seu genitor. Ex.: Alma do homem, que é corruptível.
+- **Alma gerada da dualidade**: Alma que foi gerada de duas distinções, ocasionando uma terceira distinção.
+
+---
+
+# Transcendência de Deus
+
+1. A alma do Ser é manifestada pelo próprio Ser em quantidade e em distinção, podendo ter uma natureza relativa a si (incorruptível) ou distinta de si (corruptível), pois é totalmente relativa ao Ser.
+2. A alma do Ser pode transfigurar a própria natureza do Ser ou uma natureza que seja diferente de si.
+3. Não há, fundamentalmente, um número ou um arquétipo para o Ser, sendo este responsável pela sua própria definição.
+
+---
+
+# Almificação de Deus
+
+1. Deus é verdade e espírito.
+2. Deus, gerando sua alma, gera-a relativa a seu espírito.
+3. Deus, gerada sua alma, é Deus e é homem.
+4. A geração da alma de Deus é realizada na própria realidade que é Deus.
+
+---
+
+# Manifestação da Alma do Homem Paralela à Manifestação de Deus
+
+1. A manifestação da alma do homem na manifestação da natureza de Deus é uma fusão de almas. Portanto, a manifestação da alma do homem deve ser paralela à manifestação da natureza de Deus.
+2. Não há como cortar um espaço da natureza de Deus para inserir uma nova natureza, pois não há como formar um espaço que seria o "nada".
+3. A manifestação da alma do homem deveria se dar em um universo paralelo relativo à sua verdade.
+
+---
+
+# Plenitude de Alma
+
+- **Finito Crescente**: Manifestação de uma realidade imensurável como um mensurável constantemente acrescido de si mesmo.
+- **Efusão almática**: Fusão de dois determinadores de forma a se preservarem e produzirem um terceiro ente.
+
+## Princípios da Plenitude
+
+1. A manifestação da alma é a manifestação de um infinito crescente. Havendo tempo, o ente é entregue a si em sua manifestação sem a totalidade de si.
+2. A autodeterminação do ente é uma unidade.
+3. Há uma unidade da alma manifestada e uma extensão de si constantemente retroalimentada na própria manifestação.
+4. A retroalimentação não agrega consciência, mas agrega o teor do indivíduo não consciente.
+5. É possível que as almas se encontrem e suas retroalimentações se fundam sem que percam a identidade, havendo encontro e fusão.
+6. Segue-se a possibilidade de duas almas manifestadas que compartilham mutuamente sua retroalimentação de forma a originar outras almas de natureza herdada.
