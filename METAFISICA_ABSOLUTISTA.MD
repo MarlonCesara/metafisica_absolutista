@@ -117,7 +117,7 @@
 - **Corporal**: Manifestação do ente em sua parte crucial, na qual exerce determinação continuamente e tem consciência de forma contínua.
 - **Natureza**: Manifestação do ente em sua parte periférica, da qual não exerce determinação contínua e não tem consciência contínua.
 - **Idealização**: Manifestação de hipóteses irreais, projeção da imaginação na realidade.
-- **Bivalente**: Manifestar-se com uma segunda alma, tendo esta determinada concordância em si. Ex.: estado do homem na natureza, em convivência com a manifestação da natureza de Deus.
+- **Espectral**: Manifestar-se em uma segunda natureza, sem que se manifeste em sua própria essencia. Estado do homem na natureza, em convivência com a manifestação da natureza de Deus.
 
 ---
 
