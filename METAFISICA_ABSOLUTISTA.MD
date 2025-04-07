@@ -15,6 +15,8 @@
 4. A manifestação deve ser temporalmente recuável e avançável de forma infinita.
 5. A manifestação deve ter um espaço infinitamente percorrível.
 6. A manifestação, em sua totalidade, é sempre uma infinitude.
+7. A neutralidade consome uma extensão infinita de espaço.
+8. O tempo existe como tempo expresso e potencial de expressão (tempo inexpresso). A neutralidade consome o tempo em sua expressão e inexpressão.
 
 ---
 
@@ -91,8 +93,7 @@
 - A realidade idealizada é construída conforme o campo das possibilidades inerentes ao ser.
 - A manifestação é um estado de existência baseado na verdade do determinador.
 - O estado de nada (infinitude) ou manifestação (finitude) é relativo ao determinador.
-- A neutralidade consome uma extensão infinita de espaço.
-- O tempo existe como tempo expresso e potencial de expressão (tempo inexpresso). A neutralidade consome o tempo em sua expressão e inexpressão.
+
 
 ## Liberdade na Neutralidade
 
