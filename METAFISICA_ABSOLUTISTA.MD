@@ -148,7 +148,7 @@
 2. O espírito de Deus é relativo à sua integralidade.
 3. Há um espírito relativo a duas pessoas distintas.
 4. Há uma fusão espiritual decorrente da distinção entre Jesus e Deus.
-5. Há uma terceira pessoa transcendida de Jesus e de Deus.
+5. Há uma terceira pessoa transcendida de Jesus e de Deus e essa pessoa é um espirito distinto de Jesus e Deus.
 
 ---
 
