@@ -85,19 +85,12 @@
 
 # Estrutura Básica da Manifestação
 
+- O estado não causado (lógico) para o absoluto é o estado de não manifestação (ser).
 - A manifestação é composta por realidade (verdade) e determinador.
 - A realidade é idealizada e manifestada na própria realidade (verdade) do determinador.
 - A realidade idealizada é construída conforme o campo das possibilidades inerentes ao ser.
 - A manifestação é um estado de existência baseado na verdade do determinador.
-
-## Neutralidade da Manifestação
-
-1. O estado não causado (lógico) para o absoluto é o estado de não manifestação (ser).
-2. Portanto, a manifestação existe expressa na neutralidade (ser).
-3. O estado de nada (infinitude) ou manifestação (finitude) é relativo ao determinador.
-
-### Conclusões:
-
+- O estado de nada (infinitude) ou manifestação (finitude) é relativo ao determinador.
 - A neutralidade consome uma extensão infinita de espaço.
 - O tempo existe como tempo expresso e potencial de expressão (tempo inexpresso). A neutralidade consome o tempo em sua expressão e inexpressão.
 
