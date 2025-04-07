@@ -297,7 +297,7 @@
 2. Deus somente é realidade.
 3. Deus possui a alma relativa. 
 
-- Ao retrocedermos em um passado irreal, o qual antecede a Deus concomitantemente à sua existencia, Estes três requisitos correspondem a uma alma dualistica que sofreu uma corrupção destrutiva, porém, que deixou a realidade de si, no sentido de que, sem os corpos, tornaram-se relativos em alma. 
+- Ao retrocedermos em um passado irreal, o qual antecede a Deus concomitantemente à sua existencia, Estes três requisitos correspondem a uma alma dualistica que sofreu uma corrupção destrutiva, porém, que deixou a realidade de si, no sentido de que, sem os corpos, tornaram-se relativos em alma. A alma precisa ser dualistica para representar o total potencial de Deus, o potencial de gerar distinções. 
 
 Compreendamos o amor de Deus, pelo ponto de vista de seu retrocesso:
 
@@ -311,6 +311,7 @@ Há homens que não aceitaram a vida.
 Desta forma, Jesus empatizou com Deus, sendo um sacrificio perfeito. 
 Sua morte pelas mãos de imanentes, pregado numa cruz que simboliza uma consciencia espiritual predominante em sua verticalidade.
 Isso faz analogia ao sacrificio do passado irreal de Deus, pois da mesma forma que Adão e Eva perderam suas vidas em prol da vida, Jesus empatizou com Deus e também o fez.
+Jesus honrou o sacrificio de Deus, de forma a empatizar-se se sacrificando como simbolo de sua compreensão.
 
 
 
