@@ -106,7 +106,7 @@
 
 - **Transcendente**: Transcender a si mesmo como integridade.
 - **Retrocedente**: Retroceder a si mesmo como integridade.
-- **Ontológica**: Optar pela própria manifestação ou nulidade.
+- **Ontológica**: Optar pela própria manifestação ou nulidade. Condição em que o determinador suspende a manifestação dos fluxos mentais, alcançando quietude onde a percepção do tempo se dissolve na eternidade do instante presente.
 - **Em si**: Homem determinado pela natureza herdada.
 - **De si**: Homem que tem consciência de si, que está presente em si e que tem domínio sobre si. Ou seja, que transcendeu a natureza herdada.
 - **Para si**: Duas almas manifestadas que compartilham mutuamente sua autodeterminação de forma que dominam um ao outro através de uma mútua concordância (gênero), conhecem um ao outro mutuamente e estão presentes um no outro de forma recíproca. Corpo bi-almático.
@@ -119,7 +119,6 @@
 - **Natureza**: Manifestação do ente em sua parte periférica, da qual não exerce determinação contínua e não tem consciência contínua.
 - **Idealização**: Manifestação de hipóteses irreais, projeção da imaginação na realidade.
 - **Espectral**: Manifestar-se em uma segunda natureza, sem que se manifeste em sua própria essencia. Estado do homem na natureza, em convivência com a manifestação da natureza de Deus.
-- **Suspensão ontológica**: Condição em que o determinador suspende a manifestação dos fluxos mentais, alcançando quietude onde a percepção do tempo se dissolve na eternidade do instante presente.
 ---
 
 # Os três tipos de origem das almas
@@ -162,12 +161,6 @@
 3. A manifestação da alma do homem deveria se dar em um universo paralelo relativo à sua verdade.
 4. A manifestação relativa a verdade individual do determinador A pode ser paralela à manifestação relativa do determinador B.
 5. Não há separação, somente há fusão, encontro ou paralelismo. 
-
-# Paralelismo dos determinadores
-
-1. ?
-2. ?
-3. ?
 
 ---
 
@@ -298,7 +291,18 @@
 
 # Investigando o mistério da rendeção
 
-1. Se o homem, mesmo sendo transcendencia de Deus, foi criado para ser livre, porque houve a necessidade de reparação?
-2. Se estava prevista a possibilidade de imanencia devido à liberdade dos transcendidos de Deus, e se foi o próprio Deus quem transcendeu, porque deveria existir a necessidade de reparação?
+1. Se estava prevista a possibilidade de imanencia devido à liberdade dos transcendidos de Deus, e se foi o próprio Deus quem transcendeu, porque deveria existir a necessidade de reparação? Não faria parte da harmonia o homem ser livre, mesmo que transcendido? Vamos investigar este fato analisando uma irrealidade que a própria biblia supõe. 
+
+1- Deus é pleno.
+2- Deus somente é realidade.
+3- Deus possui a alma relativa. 
+
+Ao retrocedermos em um passado irreal, o qual antecede a Deus concomitantemente à sua existencia, Estes três requisitos correspondem a uma alma dualistica que sofreu uma corrupção destrutiva, porém, que deixou a realidade de si, no sentido de que, sem os corpos, tornaram-se relativos em alma.  
+
+
+
+
+
+
 
 
