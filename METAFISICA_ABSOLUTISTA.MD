@@ -184,3 +184,75 @@
 4. A retroalimentação não agrega consciência, mas agrega o teor do indivíduo não consciente.
 5. É possível que as almas se encontrem e suas retroalimentações se fundam sem que percam a identidade, havendo encontro e fusão.
 6. Segue-se a possibilidade de duas almas manifestadas que compartilham mutuamente sua retroalimentação de forma a originar outras almas de natureza herdada.
+
+# Transcendência e Corrupção Genealógica
+
+1. A transcendência em almas distintas ao Ser, necessariamente, cria uma corrupção genealógica, pois é uma transcendência e não uma geração. O que corrompe a genealogia do próprio transcendido.
+2. Apenas o ente transcendido é corrupto. Porém, o Ser que transcendeu permanece incorrupto.
+3. Há uma quebra na harmonia de Deus, no sentido de que existe uma necessidade de restauração. Sendo o homem parte de um sistema integral (Deus).
+4. Para restaurar a genealogia paternal e maternal, o Ser necessita atribuir um teor divino aos transcendidos. Ou seja, agregar um valor de "gerados" a estes entes.
+
+---
+
+# A Liberdade
+
+## Tipos de Corruptibilidade
+
+- **Destrutiva**: Aniquilação do ente ou das partes que corroboram para sua não-aniquilação, uma vez que o ente é real.
+- **Semi-destrutiva**: Ferida na essência do ente que interfere em sua eternidade ou nas partes que concorrem para sua sustentação.
+- **Direcional**: Ausência de favorecimento do ente ou das partes que concorrem para sua sustentação.
+- **Imanente**: Ausência de transcendência de forma a causar desarmonia e sofrimento ao ente.
+- **Liberdade**: Uso completo das estruturas lógicas da autodeterminação.
+
+---
+
+# Liberdade de Deus
+
+1. Deus é incorruptível pois necessariamente existe e corrobora para si e para o sistema do qual faz parte.
+2. Deus não possui liberdade.
+
+## Contra-argumento:
+
+1. O Ser pleno, ou seja, que escolhe eternamente a si mesmo, possui autodeterminação completa, pois escolheu ser incorruptível sendo eternamente necessário e desejado por si. Isso pode ser compreendido através do amor conjugal, onde a entrega mútua não é prisão, mas expressão de liberdade. Portanto, Deus possui liberdade completa.
+
+---
+
+# Liberdade do Homem
+
+É possível definir a autodeterminação vertical em dois níveis: negação da autodeterminação e negação do ser autodeterminante.
+
+## Negação da Autodeterminação (Corrupção Imanente)
+
+1. O homem que não opta por sua existência, não opta por sua própria autodeterminação.
+2. Ao não optar pela autodeterminação, permanece em seu "em si". Ou seja, é guiado por sua natureza herdada. Sua ação é completamente instintiva.
+
+## Negação do Ente Autodeterminante (Corrupção Destrutiva)
+
+1. O homem que opta por sua existência, opta também por sua autodeterminação.
+2. Ao optar pela autodeterminação, permanece em seu "para si". Suas ações são guiadas por si como ente autêntico.
+3. Não sendo guiado por vontade instintiva, só poderia optar pelo não-existir como ação dotada de identidade. Optar pela irrealidade significaria causar ou consentir com a aniquilação de si de forma integral.
+
+---
+
+# Natureza da Conexão entre Homem e Deus
+
+1. Deus é a realidade que fundamenta todas as coisas.
+2. O espírito do homem pode direcioná-lo à sua própria realidade ("para si").
+3. Segue-se que o homem pode estar em Deus e Deus pode estar no homem. O homem alcança assim sua plenitude, sendo individualidade conectada com a integralidade. O homem é real em Deus, e Deus é a realidade na qual o homem se faz real.
+
+---
+
+# Suspensão Ontológica
+
+## Conceitos Fundamentais
+
+- **Suspensão ontológica**: Condição em que o determinador suspende a manifestação dos fluxos mentais, alcançando quietude onde a percepção do tempo se dissolve na eternidade do instante presente.
+- **Determinador apático**: Que não se determinou real para si.
+- **Determinador vívido**: Que se determinou real para si.
+
+## Suspensão Ontológica Primordial
+
+1. Deus é a realidade dotada de espírito, capaz de despertar a si mesmo de sua suspensão ontológica primordial (nada absoluto), como ente necessariamente vivo em si.
+2. Jesus é a manifestação almática da realidade como homem.
+3. Deus permanece em suspensão ontológica enquanto Jesus manifesta Seu fluxo mental. Ambos coexistem na mesma realidade.
+4. O estado de suspensão ontológica é uma realidade compartilhada entre Deus e outros determinadores, transcendendo números, tempo e espaço - estado de unidade não limitado por dimensões físicas ou temporais.
