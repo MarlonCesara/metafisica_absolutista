@@ -140,17 +140,15 @@
 1. Deus é verdade e espírito.
 2. Deus, gerando sua alma, gera-a relativa a seu espírito.
 3. A geração da alma de Deus é realizada na própria realidade que é Deus.
-4. Deus, gerada sua alma, é Deus e é homem. 
-5. Sendo o espirito de Jesus relativo a sua alma e o espirito de Deus relativo à sua integralidade, ambos com a mesma qualidade de incorruptibilidade e ambos sendo um só espirito. Consideremos uma terceira pessoa referente a integralidade do espirito. 
+4. Deus, transcendido em alma, é Deus e é homem. 
 
-O espirito de Jesus é A.
-O espirito de Deus é B.
+# Terceira pessoa de Deus
 
-Ambos são incorruptiveis e tem teor divino.
-
-Logo, se ambos são um só.
-Consideremos o espirito da fusão C. Que chamaremos de Espirito Santo.
-
+1.O espírito de Jesus é relativo à sua alma.
+2.O espírito de Deus é relativo à sua integralidade.
+3.Há um espírito relativo a duas pessoas distintas.
+4.Há uma fusão espiritual decorrente da distinção entre Jesus e Deus.
+5.Há uma terceira pessoa transcendida de Jesus e de Deus.
 
 ---
 
