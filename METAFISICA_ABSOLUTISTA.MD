@@ -296,4 +296,4 @@
      - Pertence exclusivamente à relação entre Deus e Jesus  
      - Não é plenamente compreensível ao entendimento humano  
 
-
+# Investigando o mistério da rendeção
