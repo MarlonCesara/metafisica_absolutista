@@ -169,6 +169,7 @@
 - **Finito Crescente**: Manifestação de uma realidade imensurável como um mensurável constantemente acrescido de si mesmo.
 - **Efusão almática**: Fusão de dois determinadores de forma a se preservarem e produzirem um terceiro ente.
 - **Determinação Sobrenatural**: Determinação do ente sobre sua persona e sobre a realidade fundamental da persona agregando a si uma translucidez. Pois, seu eu, ao passo que reflete determinação sobre si, reflete também determinação sobre sua realidade fundamental.
+- **Determinação natural**: Se tem autodomínio sobre si, tem autodomínio de si como realidade, mas não tem domínio sobre a realidade da qual participa. Domina a si como persona, Mas não domina a si como integrante da própria realidade
 
 ## Princípios da Plenitude
 
@@ -182,8 +183,9 @@
 # Geração da dualidade e seu sentido no homem 
 
 1. A transcendência em uma dualidade, necessariamente, cria um sentido de origem relativo à dualidade, que chamaremos de paternidade e maternidade.
-2. O homem torna-se a dualidade transcendida, distituido distituida do mesmo arbítrio dos genitores. 
+2. O homem torna-se a dualidade transcendida, destituido do mesmo arbítrio dos genitores. 
 3. O homem, sendo trancendido da dualidade, possui a capacidade de autodeterminação somente sobre si.
+3. O homem, sendo trancendido da dualidade, pode ter dominío sobre a realidade fundamental por determinação de outrem que o tenha.
 
 # Transcendência de Deus e seu sentido no homem
 
@@ -204,15 +206,23 @@
 
 1. Todo homem é real, mas nem todo homem é real para si.
 2. O homem que é real para si tem autodomínio sobre si.
-3. Se tem autodomínio sobre si, tem autodomínio de si como realidade, mas não tem domínio sobre a realidade da qual participa. Ou seja:
-   - Domina a si como persona
-   - Mas não domina a si como integrante da própria realidade
 
 # Dons sobre-naturais
 
 1. É possível que o homem autodetermine sobre a própria realidade que o fundamenta sendo uma transcendencia desta realidade.
-2. O auto da autodeterminação sobre si como persona e sobre si como realidade fundamental de uma persona implica em uma translucidez da persona.
+2. O ato da autodeterminação sobre si como persona e sobre si como realidade fundamental de uma persona implica em uma translucidez da persona.
 3. O nível de autodominio e translucidez sobre a realidade fundamental é relativo a determinação do determinador. Ou seja, é relativo à sua profundidade com a realidade de Deus.  
+
+# Profundidade dos Dons sobre-naturais
+
+1. Deus é a totalidade da realidade do ente.
+2. Conectar-se com Deus é estar inteiramente integrado consigo mesmo. Ou seja, determinar sobre si e determinar sobre o sentido da determinação de Deus.
+
+# Aparaição dos dons sobre-naturais
+
+1. Do ponto de vista lógico, no momento presente, os dons são manifestos pelo não uso dos mesmos. 
+2. Ao estarmos em sintonia com a vontade de Deus é perceptível que este momento é de resiliencia e direcionado a ajuda mútua dos individuos que não encontraram a realidade em suas vidas.
+
 
 ---
 
