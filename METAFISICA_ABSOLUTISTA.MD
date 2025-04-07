@@ -1,0 +1,108 @@
+# Infinitude e Manifestação
+
+## Conceitos Fundamentais
+
+- **Infinitude**: Aquilo que não pode ser mensurável, portanto, só pode ser expresso em potencial, pois não se pode encontrar seu fim nem mesmo seu começo para que tenha expressão de sua totalidade.
+- **Finitude**: Manifestação em sua forma não integral, localizada e delimitada. Delimitação de uma infinitude de forma que possa ser manifestada.
+- **Manifestação**: Infinitude expressa de forma referencial, com uma finitude fracionada. Infinitude expressa de forma não integral.
+- **Potencial**: Infinitude expressa de forma integral. Manifestação expressa em sua totalidade de forma integrada.
+
+## Princípios da Manifestação
+
+1. Não há um primeiro tempo para a manifestação ter começado, portanto, a manifestação não possui um começo.
+2. Não há um lugar para a manifestação ter se manifestado, portanto, a manifestação não pode se originar em um lugar.
+3. Não há manifestação que dê continuidade à fronteira da manifestação, portanto, não é possível atravessar a fronteira da manifestação.
+4. A manifestação deve ser temporalmente recuável e avançável de forma infinita.
+5. A manifestação deve ter um espaço infinitamente percorrível.
+6. A manifestação, em sua totalidade, é sempre uma infinitude.
+
+---
+
+# Infinitude e o Nada
+
+## Conceitos Fundamentais
+
+- **Nada**: Manifestação em potencial. Potencial. Neutralidade. Nulidade.
+
+## Princípios do Nada
+
+1. O "nada" (ausência de manifestação) é definido como a não-expressão de A (manifestação). Exemplo: Se A é "luz", sua ausência é "escuridão".
+2. A ausência de A pressupõe que A tenha existido ou possa existir. Não se pode negar ou remover algo que não tem referência possível.
+3. A e B não podem coexistir na mesma dimensão se forem opostos absolutos (ex.: "existência" vs. "nada"). Isso não impede relações de complementaridade (como yin/yang), desde que não sejam contraditórios simultaneamente.
+4. A manifestação necessariamente deve ser infinita em sua totalidade.
+5. A manifestação, ao não envolver limites, só pode ser expressa em potencial em sua totalidade.
+6. A manifestação se anula em sua própria totalidade.
+
+---
+
+# Princípios Causais Metafísicos
+
+- **Princípio da Razão de Ser**: A tem um motivo para ser A e não B.
+- **Princípio da Causa Existencial**: A tem um motivo para existir como A.
+
+## Conceitos Fundamentais
+
+- **Absoluto**: Conjunto de todas as possibilidades lógicas ou ilógicas, verdadeiras ou falsas.
+- **Realidade**: Subconjunto do absoluto que compreende todas as possibilidades verdadeiras ou lógicas.
+- **Irrealidade**: Subconjunto do absoluto que compreende todas as possibilidades falsas ou ilógicas.
+- **Estado**: Configuração vigente no absoluto.
+- **Poder sobre si**: Potencial do ente de se direcionar a todas as possibilidades inerentes à sua realidade.
+- **Presença em si**: Potencial do ente de ser presente em sua própria realidade, de forma a ser presente para si e não somente em si.
+- **Conhecimento de si**: Potencial do ente de ser consciente para si e não somente em si.
+- **Autodeterminação**: Qualidade do ente que é presente em si, tem poder sobre si e tem consciência de si.
+- **Deus**: Realidade autodeterminada.
+
+## Princípio da Causa Existencial Aplicado ao Nada
+
+1. O nada não requer uma causa anterior ou exterior.
+2. O nada é uma possibilidade verdadeira e lógica dentro do conjunto de possibilidades do absoluto, pois não necessita de uma causa existencial.
+
+## Princípio da Razão de Ser Aplicado ao Absoluto
+
+1. Embora o nada não necessite de uma causa para sua realidade, necessita de uma causa para seu estado, conforme postula o Princípio da Razão de Ser.
+2. A razão de ser do estado do absoluto só pode advir do próprio absoluto, já que não há nada anterior, posterior ou paralelo a ele que possa conferir-lhe uma natureza específica ou uma determinação. O absoluto já é, em si, a totalidade da realidade de que dispõe.
+3. Conclui-se que o absoluto existe como realidade (verdade) e autodeterminação (Ser).
+
+## Princípio da Razão de Ser Aplicado à Autodeterminação
+
+- **Determinação vertical**: Qualidade do ente de ir contra ou em prol de sua existência ou do sistema que o sustenta. Espiritualidade do determinador. Espírito.
+- **Determinação horizontal**: Qualidade do ente de determinar-se na total amplitude de sua estrutura. Pessoalidade do determinador. Alma.
+- **Corruptibilidade**: Qualidade do ente que pode ir contra a si mesmo ou contra o sistema que o sustenta.
+
+### Verticalidade do Determinador
+
+1. O Ser necessariamente existe.
+2. O Ser se autodetermina Ser, pois a razão de Seu ser está em si mesmo.
+3. O Ser possui espírito e é incorruptível. Ou seja, necessariamente direcionado à existência ou à sustentação do sistema do qual faz parte.
+
+### Horizontalidade do Determinador
+
+1. A autodeterminação horizontal é constituída de alma e espírito.
+2. A realidade somente possui espírito.
+3. Não há uma ou mais almas herdadas para o Ser, sendo esta ou estas, portanto, inteiramente relativas ao Ser (determinação do ser).
+
+---
+
+# Estrutura Básica da Manifestação
+
+- A manifestação é composta por realidade (verdade) e determinador.
+- A realidade é idealizada e manifestada na própria realidade (verdade) do determinador.
+- A realidade idealizada é construída conforme o campo das possibilidades inerentes ao ser.
+- A manifestação é um estado de existência baseado na verdade do determinador.
+
+## Neutralidade da Manifestação
+
+1. O estado não causado (lógico) para o absoluto é o estado de não manifestação (ser).
+2. Portanto, a manifestação existe expressa na neutralidade (ser).
+3. O estado de nada (infinitude) ou manifestação (finitude) é relativo ao determinador.
+
+### Conclusões:
+
+- A neutralidade consome uma extensão infinita de espaço.
+- O tempo existe como tempo expresso e potencial de expressão (tempo inexpresso). A neutralidade consome o tempo em sua expressão e inexpressão.
+
+## Liberdade na Neutralidade
+
+1. O livre-arbítrio, na neutralidade, subentende todas as possibilidades hipotéticas manifestadas ao mesmo tempo, possibilitando versões infinitas da realidade, contanto que só uma delas envolvesse a atuação da autodeterminação do ente.
+2. Se somente uma das hipóteses envolve a autodeterminação do ente, todas as outras hipóteses são irreais, pois carecem da verdade plena.
+3. As hipóteses carecendo da verdade plena não correspondem a uma realidade concreta, pois uma realidade com meia verdade ainda é falsa.
