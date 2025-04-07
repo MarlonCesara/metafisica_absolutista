@@ -12,6 +12,7 @@
 1. Não há um primeiro tempo para a manifestação ter começado, portanto, a manifestação não possui um começo.
 2. Não há um lugar para a manifestação ter se manifestado, portanto, a manifestação não pode se originar em um lugar.
 3. Não há manifestação que dê continuidade à fronteira da manifestação, portanto, não é possível atravessar a fronteira da manifestação.
+3. Não há separação de fenomenos, pois a separação aponta um divisor que tende ao infinito. Ex: entre A e B são divididos por C. A e C por D, e assim infinitamente. 
 4. A manifestação deve ser temporalmente recuável e avançável de forma infinita.
 5. A manifestação deve ter um espaço infinitamente percorrível.
 6. A manifestação, em sua totalidade, é sempre uma infinitude.
@@ -142,7 +143,7 @@
 1. Deus é verdade e espírito.
 2. Deus, gerando sua alma, gera-a relativa a seu espírito.
 3. A geração da alma de Deus é realizada na própria realidade que é Deus.
-4. Deus, transcendido em alma, é Deus e é homem. 
+4. Deus, gerado em alma, é Deus e é homem. 
 
 # Terceira pessoa de Deus
 
@@ -154,11 +155,19 @@
 
 ---
 
-# Manifestação da Alma do Homem Paralela à Manifestação de Deus
+# Paralelismo da Manifestação
 
-1. A manifestação da alma do homem na manifestação da natureza de Deus é uma fusão de almas. Portanto, a manifestação da alma do homem deve ser paralela à manifestação da natureza de Deus.
-2. Não há como cortar um espaço da natureza de Deus para inserir uma nova natureza, pois não há como formar um espaço que seria o "nada".
+1. A manifestação do determinador A deve ser paralela à manifestação do determinador B, pois se A se manifesta em B obteriamos C. 
+2. Não há como cortar um espaço da natureza de um deterinador para inserir uma nova natureza neste espaço, pois não há como formar um espaço que seria o "nada" na própria manifestação.
 3. A manifestação da alma do homem deveria se dar em um universo paralelo relativo à sua verdade.
+4. A manifestação relativa a verdade individual do determinador A pode ser paralela à manifestação relativa do determinador B.
+5. Não há separação, somente há fusão, encontro ou paralelismo. 
+
+# Paralelismo dos determinadores
+
+1.
+2.
+3. ?
 
 ---
 
