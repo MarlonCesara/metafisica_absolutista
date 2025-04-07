@@ -121,11 +121,11 @@
 
 ---
 
-# Almas Relativas ao Absoluto
+# Os três tipos de origem das almas
 
-- **Alma gerada de Deus**: Alma que conserva características de seu genitor divino com a incorruptibilidade que é qualidade de seu espírito, porém, sua alma é relativa ao determinador. Ex.: Alma de Jesus.
-- **Alma transcendida de Deus**: Alma que não conserva necessariamente características de seu genitor. Ex.: Alma do homem, que é corruptível.
-- **Alma gerada da dualidade**: Alma que foi gerada de duas distinções, ocasionando uma terceira distinção.
+- **Alma de Deus**: Alma transcendida de Deus conservando a característica da incorruptibilidade — própria do espírito de Deus. Ex.: Alma de Jesus.
+- **Alma transcendida**: Alma transcendida de Deus que não conserva necessariamente a incorruptibilidade. Ex.: Alma do homem, que é corruptível.
+- **Alma da dualidade**: Alma transcendida de duas distinções (dois determinadores) , ocasionando uma terceira distinção (determinador).
 
 ---
 
