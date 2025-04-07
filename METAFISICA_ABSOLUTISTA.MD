@@ -287,7 +287,7 @@
      - Seu sofrimento redentor  
    - É um mistério que:  
      - Pertence exclusivamente à relação entre Deus e Jesus  
-     - Não é plenamente compreensível ao entendimento humano  
+     - Não é plenamente compreensível ao entendimento lógico
 
 # Investigando o mistério da rendeção
 
