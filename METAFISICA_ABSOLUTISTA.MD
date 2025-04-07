@@ -93,7 +93,7 @@
 - A realidade idealizada é construída conforme o campo das possibilidades inerentes ao ser.
 - A manifestação é um estado de existência baseado na verdade do determinador.
 - O estado de nada (infinitude) ou manifestação (finitude) é relativo ao determinador.
-
+- Qualquer manifestação é relativa ao determinador.
 
 ## Liberdade na Neutralidade
 
