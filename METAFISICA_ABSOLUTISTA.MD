@@ -119,7 +119,7 @@
 - **Natureza**: Manifestação do ente em sua parte periférica, da qual não exerce determinação contínua e não tem consciência contínua.
 - **Idealização**: Manifestação de hipóteses irreais, projeção da imaginação na realidade.
 - **Espectral**: Manifestar-se em uma segunda natureza, sem que se manifeste em sua própria essencia. Estado do homem na natureza, em convivência com a manifestação da natureza de Deus.
-
+- **Suspensão ontológica**: Condição em que o determinador suspende a manifestação dos fluxos mentais, alcançando quietude onde a percepção do tempo se dissolve na eternidade do instante presente.
 ---
 
 # Os três tipos de origem das almas
@@ -263,22 +263,37 @@
 
 ---
 
+# Princípios da Incorruptibilidade Divina e Restauração
+
+1. **Natureza Incorruptível de Deus**  
+   - Deus é incorruptível  
+   - Necessariamente direcionado a si mesmo  
+   - Direcionado à integralidade de suas partes  
+
+2. **Transcendência Divina no Homem**  
+   - Ao transcender em homem, Deus necessitava que:  
+     - O homem correspondesse integralmente  
+     - Mantivesse sua natureza reta em direção ao existir  
+
+3. **Queda e Corrupção Original**  
+   - O primeiro homem permaneceu na imanência  
+   - Corrompeu a harmonia divina  
+   - Tornou-se uma integração em Deus que:  
+     - Não correspondia à natureza fundamental de integralidade  
+     - Representou uma quebra na ordem criada  
+
+4. **Restauração através de Cristo**  
+   - Jesus restaurou a desarmonia através de:  
+     - Seu amor  
+     - Seu sofrimento  
+   - A eficácia redentora se manifestou particularmente na cruz  
+
+5. **Mistério da Redenção**  
+   - O entendimento completo sobre:  
+     - A morte de Jesus  
+     - Seu sofrimento redentor  
+   - É um mistério que:  
+     - Pertence exclusivamente à relação entre Deus e Jesus  
+     - Não é plenamente compreensível ao entendimento humano  
 
 
-
-
-
-# Suspensão Ontológica
-
-## Conceitos Fundamentais
-
-- **Suspensão ontológica**: Condição em que o determinador suspende a manifestação dos fluxos mentais, alcançando quietude onde a percepção do tempo se dissolve na eternidade do instante presente.
-- **Determinador apático**: Que não se determinou real para si.
-- **Determinador vívido**: Que se determinou real para si.
-
-## Suspensão Ontológica Primordial
-
-1. Deus é a realidade dotada de espírito, capaz de despertar a si mesmo de sua suspensão ontológica primordial (nada absoluto), como ente necessariamente vivo em si.
-2. Jesus é a manifestação almática da realidade como homem.
-3. Deus permanece em suspensão ontológica enquanto Jesus manifesta Seu fluxo mental. Ambos coexistem na mesma realidade.
-4. O estado de suspensão ontológica é uma realidade compartilhada entre Deus e outros determinadores, transcendendo números, tempo e espaço - estado de unidade não limitado por dimensões físicas ou temporais.
