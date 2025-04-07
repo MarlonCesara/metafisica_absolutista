@@ -125,7 +125,7 @@
 
 - **Alma de Deus**: Alma transcendida de Deus conservando a característica da incorruptibilidade — própria do espírito de Deus. Ex.: Alma de Jesus.
 - **Alma transcendida**: Alma transcendida de Deus que não conserva necessariamente a incorruptibilidade. Ex.: Alma do homem, que é corruptível.
-- **Alma da dualidade**: Alma transcendida de duas distinções (dois determinadores) , ocasionando uma terceira distinção (determinador).
+- **Alma da dualidade**: Alma transcendida de duas distinções (dois determinadores) , ocasionando uma terceira distinção (terceiro determinador).
 
 ---
 
