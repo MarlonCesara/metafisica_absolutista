@@ -165,8 +165,8 @@
 
 # Paralelismo dos determinadores
 
-1.
-2.
+1. ?
+2. ?
 3. ?
 
 ---
@@ -185,12 +185,18 @@
 5. É possível que as almas se encontrem e suas retroalimentações se fundam sem que percam a identidade, havendo encontro e fusão.
 6. Segue-se a possibilidade de duas almas manifestadas que compartilham mutuamente sua retroalimentação de forma a originar outras almas de natureza herdada.
 
-# Transcendência e Corrupção Genealógica
+# Transcendência de Deus e seu sentido no homem
 
-1. A transcendência em almas distintas ao Ser, necessariamente, cria uma corrupção genealógica, pois é uma transcendência e não uma geração. O que corrompe a genealogia do próprio transcendido.
-2. Apenas o ente transcendido é corrupto. Porém, o Ser que transcendeu permanece incorrupto.
-3. Há uma quebra na harmonia de Deus, no sentido de que existe uma necessidade de restauração. Sendo o homem parte de um sistema integral (Deus).
-4. Para restaurar a genealogia paternal e maternal, o Ser necessita atribuir um teor divino aos transcendidos. Ou seja, agregar um valor de "gerados" a estes entes.
+1. A transcendência em almas distintas ao Ser, necessariamente, cria um sentido de origem relativo a Deus.
+2. O homem torna-se o próprio Deus transcendido, distituido de seu teor de incorruptibilidade. 
+3. O homem, sendo trancendido da realidade de Deus, possui a capacidade de autodeterminação sobre a realidade de Deus.
+3. A capacidade de determinação sobre a realidade de Deus é relativa a conexão entre homem e Deus.
+
+# Geração da dualidade e seu sentido no homem 
+
+1. A transcendência em uma dualidade, necessariamente, cria um sentido de origem relativo à dualidade, que chamaremos de paternidade e maternidade.
+2. O homem torna-se a dualidade transcendida, distituido distituida do mesmo arbítrio dos genitores. 
+3. O homem, sendo trancendido da dualidade, possui a capacidade de autodeterminação somente sobre si.
 
 ---
 
@@ -208,8 +214,8 @@
 
 # Liberdade de Deus
 
-1. Deus é incorruptível pois necessariamente existe e corrobora para si e para o sistema do qual faz parte.
-2. Deus não possui liberdade.
+1. Deus trino é incorruptível pois necessariamente existe e corrobora para si e para o sistema do qual faz parte.
+2. Deus trino não possui liberdade.
 
 ## Contra-argumento:
 
@@ -238,7 +244,9 @@
 
 1. Deus é a realidade que fundamenta todas as coisas.
 2. O espírito do homem pode direcioná-lo à sua própria realidade ("para si").
-3. Segue-se que o homem pode estar em Deus e Deus pode estar no homem. O homem alcança assim sua plenitude, sendo individualidade conectada com a integralidade. O homem é real em Deus, e Deus é a realidade na qual o homem se faz real.
+3. O homem pode estar em Deus e Deus pode estar no homem. 
+4. O homem alcança assim sua plenitude, sendo individualidade conectada com a integralidade. 
+5. O homem é real em Deus, e Deus é a realidade na qual o homem se faz real.
 
 ---
 
