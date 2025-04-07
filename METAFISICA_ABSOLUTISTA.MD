@@ -297,3 +297,8 @@
      - Não é plenamente compreensível ao entendimento humano  
 
 # Investigando o mistério da rendeção
+
+1. Se o homem, mesmo sendo transcendencia de Deus, foi criado para ser livre, porque houve a necessidade de reparação?
+2. Se estava prevista a possibilidade de imanencia devido à liberdade dos transcendidos de Deus, e se foi o próprio Deus quem transcendeu, porque deveria existir a necessidade de reparação?
+
+
