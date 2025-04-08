@@ -184,15 +184,13 @@
 
 1. A transcendência em uma dualidade, necessariamente, cria um sentido de origem relativo à dualidade, que chamaremos de paternidade e maternidade.
 2. O homem torna-se a dualidade transcendida, destituido do mesmo arbítrio dos genitores. 
-3. O homem, sendo trancendido da dualidade, possui a capacidade de autodeterminação somente sobre si.
-3. O homem, sendo trancendido da dualidade, pode ter dominío sobre a realidade fundamental por determinação de outrem que o tenha.
 
 # Transcendência de Deus e seu sentido no homem
 
-1. A transcendência em almas distintas ao Ser, necessariamente, cria um sentido de origem relativo a Deus.
+1. A transcendência em almas distintas ao Ser, necessariamente, cria um sentido de origem relativo a Deus, que chamaremos de filiação divina. 
 2. O homem torna-se o próprio Deus transcendido, destituido de seu teor de incorruptibilidade. 
 3. O homem é feito a imagem e semelhança de Deus, no sentido de que, é a alma relativa de Deus.
-4. A alma da realidade, sendo incorrptível ou não, pode exercer dominio para si e para a realidade.
+4. A alma da realidade, sendo incorruptível ou não, pode exercer dominio para si e para a realidade.
 
 # Natureza da Conexão entre Homem e Deus
 
