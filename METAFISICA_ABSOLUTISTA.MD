@@ -224,9 +224,12 @@
 
 # Aparição dos dons sobre-naturais
 
-1. Do ponto de vista lógico, no momento presente, os dons são manifestos pelo não uso dos mesmos. 
-2. Ao estarmos em sintonia com a vontade de Deus é perceptível que este momento é de resiliencia e direcionado a ajuda mútua dos individuos que não encontraram a realidade em suas vidas.
-
+1. Do ponto de vista lógico, no momento presente, os dons não são manifestos não estarmos alinhados com a vontade de Deus. 
+2. A vontade de Deus é que ninguém use os dons neste instante.
+3. Logo, não estar usando os dons é estar fazendo o uso dos mesmos de forma latente.
+4. É perceptível que este momento é de resiliencia e direcionado a ajuda mútua dos individuos que não encontraram a realidade em suas vidas.
+5. Manifestar os dons sobre-naturais é uma grande discrepancia em detrimento àqueles que nem encontraram sua própria realidade.
+6. A evangelização é uma manifestação sobre-natural.
 
 ---
 
