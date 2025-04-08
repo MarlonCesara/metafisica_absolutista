@@ -211,14 +211,16 @@
 
 # Dons sobre-naturais
 
+1. O homem é uma alma relativa e trasncendida da realidade.
 1. É possível que o homem autodetermine sobre a própria realidade que o fundamenta sendo uma transcendencia desta realidade.
 2. O ato da autodeterminação sobre si como persona e sobre si como realidade fundamental de uma persona implica em uma translucidez da persona.
-3. O nível de autodominio e translucidez sobre a realidade fundamental é relativo a determinação do determinador. Ou seja, é relativo à sua profundidade com a realidade de Deus.  
+3. O nível de autodominio e translucidez sobre a realidade fundamental é relativo a qualidade da determinação do determinador. Ou seja, é relativo à sua profundidade com a realidade de Deus.  
 
 # Profundidade dos Dons sobre-naturais
 
 1. Deus é a totalidade da realidade do ente.
-2. Conectar-se com Deus é estar inteiramente integrado consigo mesmo. Ou seja, determinar sobre si e determinar sobre o sentido da determinação de Deus.
+2. Conectar-se com Deus é estar inteiramente integrado consigo mesmo.
+3. Autodeterminar-se profundamente em seu próprio sentido e trasncender a este sentido, envolve uma transcendencia ao sentido de Deus. Ou seja, determinar sobre si e determinar sobre o sentido da determinação de Deus e sobre o próprio sentido.
 
 # Aparição dos dons sobre-naturais
 
