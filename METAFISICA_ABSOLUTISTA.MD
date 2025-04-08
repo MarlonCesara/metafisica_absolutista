@@ -229,7 +229,7 @@
 3. Logo, não estar usando os dons é estar fazendo o uso dos mesmos de forma latente.
 4. É perceptível que este momento é de resiliencia e direcionado a ajuda mútua dos individuos que não encontraram a realidade em suas vidas.
 5. Manifestar os dons sobre-naturais é uma grande discrepancia em detrimento àqueles que nem encontraram sua própria realidade.
-6. A evangelização é uma manifestação sobre-natural.
+6. A evangelização é o começo da manifestação sobre-natural, pois o ser humano começa a se sintonizar com a realidade desta forma.
 
 ---
 
