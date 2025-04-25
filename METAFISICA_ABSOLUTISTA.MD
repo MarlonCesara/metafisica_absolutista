@@ -53,7 +53,7 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
 - **Características:**
-  - Requer uma razão suficiente para sua existência, encontrando-a em sua própria natureza necessária e auto-subsistente..
+  - Requer uma razão suficiente para sua existência, encontrando-a em sua própria natureza necessária e auto-subsistente.
   - Não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
   - Não é contingente (não poderia não existir).
 
