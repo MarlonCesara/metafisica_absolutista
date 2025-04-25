@@ -68,7 +68,6 @@ Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fu
 
 ## Estruturação do Absoluto
 
-*"O sistema é mais do que a soma de suas partes"* - Agente Smith
 
 ### O Absoluto como Realidade Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e verdadeiro de si mesmo).
