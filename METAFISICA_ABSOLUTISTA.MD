@@ -8,6 +8,8 @@ Essa fala é a **culminação da jornada de Neo** como o "Escolhido":
 2. **"Não precisaremos de navios, nem de armas"** → A libertação final não será física, mas **consciente** (como quando Neo para balas com a mente).  
 3. **"Nós o libertaremos"** → Paradoxalmente, ao libertar a si mesmo, Neo liberta toda a humanidade (*"A Escolha de Neo"* no filme *Revolutions*).  
 
+*"A Matrix é a pergunta que te persegue, Neo. É a mesma pergunta que me trouxe aqui. O que é a Matrix?"* - Morpheus
+
 ## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
 
 **"Assim como Neo aprendeu a ler o código-fonte da Matrix, estas Leis Metafísicas revelam os OPERADORES LÓGICOS da realidade - os comandos primordiais que definem: o que PODE existir [TRUE/FALSE], o que DEVE persistir [WHILE], e as condições para cada estado [IF/THEN] da existência."**  
@@ -47,7 +49,6 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 
 ## Detalhando Propriedades Essenciais do Absoluto
 
-*"A Matrix é a pergunta que te persegue, Neo. É a mesma pergunta que me trouxe aqui. O que é a Matrix?"* - Morpheus
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
