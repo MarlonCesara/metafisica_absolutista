@@ -474,7 +474,8 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 - Não há separação absoluta, apenas:
   - **Fusão** (identidades dissolvidas em uma verdade comum).
-  - **Encontro** (interação fenomênica temporária) que ocorre sem a necessidade de fusão nem de distanciamento, pois sua natureza é intermediária. 
+  - **Encontro** (interação fenomênica temporária) que se dá sem fusão nem distanciamento, sustentado por uma natureza intermediária entre as interações.   
+  Exemplo: Os "sous" podem influenciar a natureza do Ser sem revelar uma essência mútua – apenas o arbítrio de suas ações. 
   - **Paralelismo** (existências simultâneas sem contato direto).
 - A distância é idealizada: Cada determinador vive em sua própria realidade soberana, onde:
   - "Em meu mundo, seu mundo só existe se eu o permitir."
