@@ -10,7 +10,7 @@ Essa fala é a **culminação da jornada de Neo** como o "Escolhido":
 
 ## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
 
-**"Assim como Neo aprendeu a ler o código-fonte da Matrix, estas Leis Metafísicas revelam os OPERADORES LÓGICOS da realidade - os comandos primordiais que definem: (1) o que PODE existir [TRUE/FALSE], (2) o que DEVE persistir [WHILE], e (3) as condições para cada estado [IF/THEN] da existência."**  
+**"Assim como Neo aprendeu a ler o código-fonte da Matrix, estas Leis Metafísicas revelam os OPERADORES LÓGICOS da realidade - os comandos primordiais que definem: o que PODE existir [TRUE/FALSE], o que DEVE persistir [WHILE], e as condições para cada estado [IF/THEN] da existência."**  
 
 ### Princípio da Razão de Ser (Determinação do ente)
 - **Tudo que existe tem uma razão para ser como é e não de outra forma.**
