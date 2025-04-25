@@ -488,6 +488,23 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 # A Liberdade entre o Real e o Ilusório
 
+**Neo:** *"Você nunca vai entender... não é sobre controle. É sobre escolha."*  
+*(Neo se levanta, sangue escorrendo pelo rosto, a chuva caindo em câmera lenta)*  
+
+**Smith:** *"Escolha? (risada) Você já sabe como isso termina. Eu já sei o que você vai fazer. Então, onde está sua... escolha?"*  
+*(Desfere um golpe brutal, Neo bloqueia com dificuldade)*  
+
+**Neo:** *"Porque eu escolho isso."*  
+*(Ataque de Smith congela no ar - Neo agora o segura pelo pulso)*  
+
+**Smith:** *"Então morra por eles! Morra por essa 'escolha'!"*  
+*(Multiplica-se em centenas de clones, todos gritando em uníssono)*  
+
+**Neo:** *(Fechando os olhos, voz calma)*  
+*"Não é sobre viver ou morrer... é sobre ver a verdade. A verdade é que você também está preso. E eu... eu te liberto."*  
+
+*(Neo abre os braços, luz dourada irradiando de seu corpo - Smith grita enquanto seu código começa a se desintegrar)*  
+
 
 ## A Liberdade: Incorruptibilidade e Corrupção
 
@@ -499,11 +516,13 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ### Liberdade do Homem (Corruptibilidade)
 
 - **Negação da Autodeterminação (Corrupção Imanente)**:
-  - O homem que não escolhe existir permanece guiado por instintos herdados, sem autoconsciência, autodomínio e autopresença.
+  - O homem que não escolhe existir permanece guiado por uma personalidade (alma) herdada, sem autoconsciência, autodomínio e autopresença.
 - **Negação do Ente (Corrupção Destrutiva)**:
   - Aquele que se autodetermina só pode negar-se optando pela aniquilação de si mesmo.
 - **Negação pelo Ser (Corrupção Extrínseca)**:
-  - Se o "sou" não se sustenta, o Ser pode cessar sua sustentação, tornando-o irreal para si (ainda que real como possibilidade).
+  - Se o "sou" não se sustenta, - isto é, falha em se autodefinir como causa de sua própria continuidade e determinação - o Ser pode suspender sua sustentação ontológica, tornando-se irreal para si mesmo (embora permaneça real como pura possibilidade)."
+
+
 
 ## Liberdade e Neutralidade
 
