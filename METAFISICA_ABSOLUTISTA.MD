@@ -558,7 +558,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - *Exemplo:* Assim como uma onda, quanto mais me realizo como indivíduo, mais me integro ao oceano do Ser.
 
 ### Dons Sobrenaturais na natureza do Ser
-*"Escolher morrer é outra coisa"* - Oráculo
+
 - A natureza manifestada do Ser, sendo uma natureza de identidade relativa ao espírito perfeito ou à alma do Ser, pode se permitir o domínio desde que este esteja alinhado a uma vontade reta em direção a sua própria plenitude.
 - Quanto mais profunda a conexão do "sou" com o Ser, maior sua capacidade de influenciar a natureza do Ser e de ser translúcido ao Ser.
 
