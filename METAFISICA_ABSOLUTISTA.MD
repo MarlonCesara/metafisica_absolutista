@@ -430,7 +430,6 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 
 ## Princípio de Individuação
 
-*"Você acredita no destino, Neo?"* - Morpheus
 
 Cada realidade exige um determinador (observador) que a constitui. As relações entre realidades são:
 
@@ -489,7 +488,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Liberdade e Neutralidade
 
-*"Você acredita no destino, Neo?"* - Morpheus
+
 - O livre-arbítrio, em seu estado puro (neutralidade), implica a coexistência de todas as possibilidades hipotéticas simultaneamente.
 - No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
 - As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.
