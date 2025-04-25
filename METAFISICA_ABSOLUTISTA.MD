@@ -562,7 +562,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - *Exemplo:* Todos são no Ser, mas nem todos são em todos, cada um é em si e é no Ser.
 
 ### Dons Sobrenaturais (Transcendência)
-*"Eu vejo o código"* - Neo
+
 - O homem, como alma determinada do Ser, pode autodeterminar-se sobre o próprio Ser que o fundamenta.
 - Quanto mais profunda sua conexão com o Ser, maior sua capacidade de influenciar a natureza do Ser.
 - *Exemplo:* Assim como uma onda, quanto mais me realizo como indivíduo, mais me integro ao oceano do Ser.
@@ -580,4 +580,4 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - A imersão total do "sou" em si transcende no ser. A determinação sobre si não tem limite, pois este limite é extravasado no ser. E este seria a possibilidade aprofundar-se em si sem limitações.
 - Não é necessário ser translúcido para ter evolução espiritual, mas a translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.
 
-*"Lembre-se: tudo o que você vê não é o que é."* - Morpheus
+
