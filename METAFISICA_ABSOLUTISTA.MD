@@ -415,6 +415,8 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # Paralelismo Ontológico
 
+**Oráculo:** *"Nós somos todos parte do mesmo todo, Neo."*  
+
 ## Natureza Não-Numérica do Ser
 
 *"O Ser não é um, nem muitos - simplesmente É"*
