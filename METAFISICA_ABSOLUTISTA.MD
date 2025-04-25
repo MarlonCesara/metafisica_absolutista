@@ -662,7 +662,7 @@ Se o Ser é pleno e incorruptível, por que a liberdade humana geraria uma "qued
 - **Deus não precisa consertar-se** — pois sua perfeição é imutável.  
 - **Mas a apatia humana fere seu amor** — como um pai que vê o filho desperdiçar sua própria vida.  
 
-O "pecado original" não é um erro cósmico, mas **a recusa do homem em exercer sua liberdade de forma autêntica**. Adão e Eva simbolizam a escolha por uma **fusão ilusória** (o amor falso pela serpente, que promete autonomia sem responsabilidade). A Queda, portanto, não corrompeu o Ser, mas **afastou o homem de sua própria natureza**, mergulhando-o na apatia — o estado de existir sem autoconsciência.  
+O "pecado original" não foi um acidente cósmico, nem uma falha na estrutura do Ser — foi a primeira grande renúncia humana à própria liberdade. Adão e Eva, ao darem ouvidos à serpente, não cometeram um mero ato de desobediência, mas aceitaram uma mentira metafísica: a ilusão de que poderiam ser "como Deus" (Gn 3:5) sem assumir o peso glorioso da autodeterminação. A Queda, portanto, não corrompeu o Ser, mas **afastou o homem de sua própria natureza** mergulhando-o na apatia — o estado de existir sem autoconsciência.
 
 ### **2. A Encarnação: Deus como Resgate ao Apatético**  
 Jesus não veio porque o Absoluto estava quebrado. Veio porque **o homem estava perdido em si mesmo**. Sua missão:  
