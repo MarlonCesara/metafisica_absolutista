@@ -179,7 +179,7 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Conclusão: A Realidade como Processo
 
-*"Tudo o que tem princípio tem fim, Neo."* - Oracle
+
 
 - Não há "verdade estática", pois a realidade sempre se constitui na relação entre:
   - O determinador (Ser puro).
@@ -317,7 +317,7 @@ Como o infinito contém todas as possibilidades, as formas manifestadas podem va
 
 ## Particularidade do Infinito
 
-*"O tempo parece passar mais devagar aqui."* - Neo
+
 
 Todo infinito, apesar de possuir infinitas formas possíveis, não necessariamente manifestará todas as formas em sua aleatoriedade, sendo assim único.
 
@@ -380,7 +380,7 @@ A realidade é o produto dinâmico de três elementos irredutíveis:
 
 ## Criação a partir do Nada
 
-*"Tudo o que tem princípio tem fim, Neo."* - Oráculo
+
 
 Criar é tornar imanente o que estava latente no infinito. O observador cria ex nihilo, de forma a presenciar e observar possibilidades prévias:
 
@@ -456,7 +456,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Autonomia Ontológica
 
-*"Você tem que entender, a maioria dessas pessoas não está pronta para ser desconectada."* - Morpheus
 
 - Não há separação absoluta, apenas:
   - **Fusão** (identidades dissolvidas em uma verdade comum).
@@ -478,7 +477,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - Sua "liberdade" não é escolha, mas expressão pura de amor a si mesmo – como num matrimônio perfeito, onde a entrega é liberdade, não limitação. Isto é, a liberdade do Ser está em sua perfeição e não em sua estrutura.
 
 ### Liberdade do Homem (Corruptibilidade)
-*"Você tem que entender, a maioria dessas pessoas não está pronta para ser desconectada."* - Morpheus
+
 - **Negação da Autodeterminação (Corrupção Imanente)**:
   - O homem que não escolhe existir permanece guiado por instintos herdados, sem autoconsciência, autodomínio e autopresença.
 - **Negação do Ente (Corrupção Destrutiva)**:
@@ -519,7 +518,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição.
 
 ### Autodeterminação como Ato Espiritual
-*"Quando estiver pronto, não precisará desviar de balas."* - Morpheus
+
 - Toda escolha horizontal (existencial) implica um direcionamento vertical (espiritual).
 - Ao autodeterminar-se, o "sou" torna-se autor de sua continuidade e essência, alcançando:
   - Autopresença (estar em si mesmo).
@@ -534,11 +533,11 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.
 
 ### O Espírito Humano como Ponte
-*"Você é mais forte do que pensa."* - Morpheus
+
 - O espírito do homem pode direcioná-lo à sua própria autoconsciência, autonomia e autopresença, conectando-o ao Ser não apenas como projeção mental, mas como participante ativo de forma a ser a si no Ser.
 
 ### Plenitude na União
-*"Tudo o que temos é a escolha entre o desconhecido e o desconhecido."* - Neo
+
 - O "sou" alcança sua realização máxima quando, como individualidade, integra-se à integralidade do Ser.
 - O "sou" é real para si no Ser, e o Ser é a verdade na qual o "sou" se afirma como existente e verdadeiro.
 
@@ -564,7 +563,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - Quanto mais profunda a conexão do "sou" com o Ser, maior sua capacidade de influenciar a natureza do Ser e de ser translúcido ao Ser.
 
 ### Translucidez do "sou"
-*"Quando estiver pronto, não precisará desviar de balas."* - Morpheus
+
 - O eu do "sou", ao alinhar-se com o autodomínio do Ser, aprofunda-se em si mesmo ao passo que aprofunda-se no ser. Portanto, seu autodomínio passa a ser sobre si e sobre o Ser de forma que, seu eu passa a transfigurar o Ser. E isto confere luminosidade no sentido de que, o "sou" transparece uma transcendência de si e não somente a si.
 - Quanto mais profunda a conexão do "sou" com o Ser, maior sua translucidez, no sentido de que, sua cristalinidade passa a ser identificável em sua essência.
 - A translucidez não transgride o "sou", mas é um fundamento que transcende o "sou" de forma que o faça ser em si e ser no Ser.
