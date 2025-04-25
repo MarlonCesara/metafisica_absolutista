@@ -436,7 +436,6 @@ O Ser abrange:
 
 ## Determinação Temporal e Projeção do Ser
 
-*"O tempo sempre parece mais lento quando se está esperando."* - Trinity
 
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:
 - Atos temporais de observação (consciência que delimita).
