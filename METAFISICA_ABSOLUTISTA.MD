@@ -20,7 +20,6 @@ Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fu
 
 ## Definições Fundamentais
 
-*"O que é real? Como você define o real?"* - Morpheus
 
 ### Absoluto
 **Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
