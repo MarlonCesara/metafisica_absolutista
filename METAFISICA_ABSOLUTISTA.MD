@@ -121,7 +121,7 @@ Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fu
 
 ## Tríplice Ação do Espírito
 
-*"Há diferença entre conhecer o caminho e percorrer o caminho"* - Morpheus
+
 
 O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
@@ -139,7 +139,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Conclusão
 
-*"Tudo o que temos é a escolha entre o desconhecido e o desconhecido"* - Neo
 
 - O Absoluto é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
 - A Realidade é a manifestação lógica e verdadeira do Absoluto.
