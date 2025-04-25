@@ -1,6 +1,5 @@
 # MatrixDecode: Desvendando a Metafísica do Absoluto
 
-*"Você acha que isso é ar que você está respirando agora?"* - Morpheus, The Matrix
 
 Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fundamentais da realidade através das lentes do Absoluto. Assim como Neo descobriu que o mundo que conhecia era apenas uma simulação, nós investigamos a natureza mais profunda da existência.
 
