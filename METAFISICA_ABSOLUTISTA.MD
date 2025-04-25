@@ -43,7 +43,7 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 ### 3. Irrealidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas.
 
-## Princípios do Absoluto
+## Propriedades essenciais do Absoluto
 
 
 ### Auto fundamentação
