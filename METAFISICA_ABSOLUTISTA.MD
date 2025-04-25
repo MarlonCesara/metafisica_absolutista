@@ -571,7 +571,7 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 
 
 
-**A Ontologia do "Sou": Fusão e Autodeterminação**  
+## **A fusão de almas: aprisionamento e liberdade**  
 
 1. **A Limitação Fenomênica do "Sou"**  
    O *"sou"* individual não pode manifestar plenamente seu próprio infinito, pois toda aparição fenomênica é, por natureza, **um recorte do ilimitado**. Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — jamais a totalidade do Ser que a sustenta.  
