@@ -365,6 +365,8 @@ Assim, toda manifestação é, ao mesmo tempo:
 
 # A Convergência entre Nada e Manifestação
 
+**Órfão:** *"Não tente dobrar a colher. Isso é impossível. Em vez disso, apenas tente perceber a verdade... Não há colher."*  
+
 ## O Observador como Princípio de Manifestação
 
 *"Somos tanto criadores quanto criaturas do real"*
