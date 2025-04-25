@@ -118,7 +118,7 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 ### Autodeterminação diagonal (Espírito Incorruptível)
 - **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
 - **Características diagonais para absoluto:**
-  - Despersonalização do Ser: O ser se constrói sem tendências relativas a uma persona, de forma que, as suas escolhas são baseadas numa retidão rumo a sua própria existência e plenitude. Desta forma a personalidade do agente ativo é definido pela própria retidão e plenitude do seu agir.
+  - Despersonalização do Ser: O ser se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
   - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente a plenitude do ente já fundamentado.
   - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que, seus dons e tendências são relativos à plenitude.
 
