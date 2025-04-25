@@ -47,11 +47,12 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 
 ## Detalhando Propriedades Essenciais do Absoluto
 
+*"A Matrix é a pergunta que te persegue, Neo. É a mesma pergunta que me trouxe aqui. O que é a Matrix?"* - Morpheus
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
 - **Características:**
-  - Não depende de nada externo para existir.
+  - O Absoluto requer uma razão suficiente para sua existência, encontrando-a em sua própria natureza necessária e auto-subsistente..
   - Significa que o Absoluto não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
   - Garante que o Absoluto não é contingente (não poderia não existir).
 
