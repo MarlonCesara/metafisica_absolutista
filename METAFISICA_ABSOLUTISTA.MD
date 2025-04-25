@@ -80,7 +80,7 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 
 ## Estruturação do Absoluto
 
-*"O que é real? Como você define o real?"* – Morpheus  
+*"Bem-vindo ao mundo real, Neo. Você deve estar se perguntando: 'O que é real? Como defino o real?"* – Morpheus  
 
 ### O Absoluto como Realidade Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e verdadeiro de si mesmo).
