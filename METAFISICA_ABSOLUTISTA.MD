@@ -6,7 +6,6 @@ Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fu
 
 ## Princípios Causais Metafísicos
 
-*"Não há colher..." - O Órfão*
 
 ### Princípio da Razão de Ser (Determinação do ente)
 - **Tudo que existe tem uma razão para ser como é e não de outra forma.**
@@ -155,9 +154,8 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 *"Lembre-se: tudo o que você vê não é o que é"* - Morpheus
 
-# MatrixDecode: A Estrutura da Realidade e do Ser
+# A Estrutura da Realidade e do Ser
 
-*"O que é a Matrix? Controle."* - Morpheus
 
 ## A Pureza do Ser e a Necessidade do Determinado
 
@@ -382,7 +380,6 @@ A realidade é o produto dinâmico de três elementos irredutíveis:
 
 ## O Nada como Estado Relacional
 
-*"O que é a Matrix? Controle."* - Morpheus
 
 - O nada não é ausência absoluta, mas dormência da matéria ou suspensão de processos mentais.
 - Sua anulação só faz sentido para o observador, não em si mesmo.
@@ -526,7 +523,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - Sem direcionamento vertical (espiritual), não há sustentação para o horizontal (existencial), pois o espírito é a base da alma, isto é, o existir autenticamente é a base da ação, pois só age quem existe.
 
 ### Realidade e Irrealidade do Ente
-*"O que é a Matrix? Controle."* - Morpheus
+
 - O "sou", enquanto existente e definido pelo Ser em sua sustentação e fundamentação, não define sua existência ou inexistência (pois já é), mas sim a qualidade de sua determinação:
   - Herdada (determinada pelo Ser).
   - Autêntica (determinada por si mesmo).
