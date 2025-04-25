@@ -24,8 +24,10 @@ Essa fala é a **culminação da jornada de Neo** como o "Escolhido":
 - **Tudo que persiste no ser tem uma causa que sustenta sua existência.**
   - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo").
 
-## Definições Fundamentais
+## Definições Fundamentais - Os Domínios da Existência Revelados
 
+**Explicação:**  
+Antes de executar qualquer operação lógica na realidade, precisamos definir nosso *espaço de trabalho ontológico*. Assim como um programador declara variáveis antes de usá-las, aqui estabelecemos os três domínios fundamentais onde todos os operadores lógicos (TRUE/FALSE, IF/THEN, WHILE) serão aplicados:  
 
 ### Absoluto
 **Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
