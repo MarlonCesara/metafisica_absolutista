@@ -146,7 +146,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 **"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**
 
-*"Lembre-se: tudo o que você vê não é o que é"* - Morpheus
 
 # A Estrutura da Realidade e do Ser
 
