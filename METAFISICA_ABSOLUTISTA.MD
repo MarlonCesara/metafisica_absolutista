@@ -519,28 +519,6 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 - **Autodeterminação como ato gratuito**: O homem existe porque **escolhe existir**, não porque deve existir. Sua continuidade depende de um ato constante de autoafirmação.  
 - **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua própria sustentação como realidade subjetiva.  
 
-#### **Consequências da Arbitrariedade**  
-1. **O "Sou" como Ficção Necessária**  
-   - O homem que não se autodetermina vive como **personagem de uma alma herdada** (crenças, instintos, condicionamentos), sem jamais tornar-se **autor de si**.  
-   - *Exemplo no Matrix*: Os humanos presos ao sistema são "almas adormecidas", enquanto Neo acorda para a liberdade ao afirmar *"Eu sei quem sou"*.  
-
-2. **A Corrupção como Retorno ao Nada**  
-   - A autonegação radical (suicídio ontológico) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o *"sou"* humano se dissolva.  
-   - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
-
-3. **A Liberdade como Risco Absoluto**  
-   - Escolher existir é assumir o **fardo da autocriação contínua**, sem garantias externas.  
-   - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**. 
-
-
-## Liberdade e Neutralidade
-
-
-- O livre-arbítrio, em seu estado puro (neutralidade), implica a coexistência de todas as possibilidades hipotéticas simultaneamente.
-- No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
-- As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.
-- Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então Deus também teria infinitas possibilidades de ação em sua integralidade.
-
 ## Liberdade e Autodeterminação no Absoluto
 
 
@@ -573,6 +551,30 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
   - Autonomia (poder sobre si).
   - Autoconhecimento (consciência de si).
 - Isso não é apenas uma mudança essencial, mas transforma concretamente sua existência e ações, de forma a permitir que o "sou" revele sua personalidade autêntica.
+
+#### **Consequências da Arbitrariedade**  
+1. **O "Sou" como Ficção Necessária**  
+   - O homem que não se autodetermina vive como **personagem de uma alma herdada** (crenças, instintos, condicionamentos), sem jamais tornar-se **autor de si**.  
+   - *Exemplo no Matrix*: Os humanos presos ao sistema são "almas adormecidas", enquanto Neo acorda para a liberdade ao afirmar *"Eu sei quem sou"*.  
+
+2. **A Corrupção como Retorno ao Nada**  
+   - A autonegação radical (suicídio ontológico) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o *"sou"* humano se dissolva.  
+   - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
+
+3. **A Liberdade como Risco Absoluto**  
+   - Escolher existir é assumir o **fardo da autocriação contínua**, sem garantias externas.  
+   - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**. 
+
+
+## Liberdade e Neutralidade
+
+
+- O livre-arbítrio, em seu estado puro (neutralidade), implica a coexistência de todas as possibilidades hipotéticas simultaneamente.
+- No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
+- As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.
+- Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então Deus também teria infinitas possibilidades de ação em sua integralidade.
+
+
 
 ## Natureza da Conexão entre Homem e Deus
 
