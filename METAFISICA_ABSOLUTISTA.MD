@@ -29,7 +29,7 @@ Essa fala é a **culminação da jornada de Neo** como o "Escolhido":
 **Explicação:**  
 Antes de executar qualquer operação lógica na realidade, precisamos definir nosso *espaço de trabalho ontológico*. Assim como um programador declara variáveis antes de usá-las, aqui estabelecemos os três domínios fundamentais onde todos os operadores lógicos (TRUE/FALSE, IF/THEN, WHILE) serão aplicados:  
 
-###1. Absoluto
+### 1. Absoluto
 **Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
 
 **Propriedade Essencial:** Causa integral de si mesmo.
@@ -37,10 +37,10 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 - Sua existência, permanência e identidade são auto causadas.
 - O absoluto é auto fundamentado, autodeterminado e auto continuado.
 
-###2. Realidade
+### 2. Realidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas.
 
-###3. Irrealidade
+### 3. Irrealidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas.
 
 ## Princípios do Absoluto
