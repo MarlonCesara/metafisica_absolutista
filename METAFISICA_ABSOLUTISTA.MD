@@ -37,7 +37,7 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 - Sua existência, permanência e identidade são auto causadas.
 - O absoluto é auto fundamentado, autodeterminado e auto continuado.
 
-"O código do absoluto configura e compila a si mesmo de forma autônoma."
+*"O Código do Absoluto configura-se e compila-se autonomamente; já não se trata de uma máquina biológica — estamos diante de uma realidade viva"* - Marlon  
 
 ### 2. Realidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas.
