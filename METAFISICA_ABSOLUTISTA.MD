@@ -53,8 +53,8 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
 - **Características:**
   - O Absoluto requer uma razão suficiente para sua existência, encontrando-a em sua própria natureza necessária e auto-subsistente..
-  - Significa que o Absoluto não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
-  - Garante que o Absoluto não é contingente (não poderia não existir).
+  - O Absoluto não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
+  - O Absoluto não é contingente (não poderia não existir).
 
 ### Autodeterminação
 - **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
