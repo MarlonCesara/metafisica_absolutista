@@ -8,7 +8,7 @@ Essa fala é a **culminação da jornada de Neo** como o "Escolhido":
 2. **"Não precisaremos de navios, nem de armas"** → A libertação final não será física, mas **consciente** (como quando Neo para balas com a mente).  
 3. **"Nós o libertaremos"** → Paradoxalmente, ao libertar a si mesmo, Neo liberta toda a humanidade (*"A Escolha de Neo"* no filme *Revolutions*).  
 
-## Princípios Causais Metafísicos - Definindo as leis que regem a realidade
+## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
 
 
 ### Princípio da Razão de Ser (Determinação do ente)
