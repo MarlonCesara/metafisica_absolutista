@@ -474,7 +474,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ## A Liberdade: Incorruptibilidade e Corrupção
 
 ### Liberdade de Deus (Incorruptível)
-*"Eu sou o caminho, a verdade e a vida"* - Referência bíblica ecoada na jornada de Neo
+
 - O Ser necessariamente existe e é autodeterminado.
 - Sua "liberdade" não é escolha, mas expressão pura de amor a si mesmo – como num matrimônio perfeito, onde a entrega é liberdade, não limitação. Isto é, a liberdade do Ser está em sua perfeição e não em sua estrutura.
 
