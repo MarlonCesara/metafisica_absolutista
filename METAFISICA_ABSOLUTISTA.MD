@@ -552,7 +552,7 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
   - Autoconhecimento (consciência de si).
 - Isso não é apenas uma mudança essencial, mas transforma concretamente sua existência e ações, de forma a permitir que o "sou" revele sua personalidade autêntica.
 
-#### **Consequências da Arbitrariedade**  
+### **Consequências da Arbitrariedade**  
 1. **O "Sou" como Ficção Necessária**  
    - O homem que não se autodetermina vive como **personagem de uma alma herdada** (crenças, instintos, condicionamentos), sem jamais tornar-se **autor de si**.  
    - *Exemplo no Matrix*: Os humanos presos ao sistema são "almas adormecidas", enquanto Neo acorda para a liberdade ao afirmar *"Eu sei quem sou"*.  
