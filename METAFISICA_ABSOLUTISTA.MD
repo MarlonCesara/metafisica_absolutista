@@ -641,7 +641,7 @@ A resposta política radical — porém necessária — é a **separação absol
 
 2. **Criação de Dois Mundos:**  
    - **Mundo dos Despertos:** Onde a autodeterminação espiritual permite a construção de uma sociedade harmoniosa.  
-   - **Mundo dos Apáticos:** Onde continuariam sua busca vã, *sem contaminar os demais*.  
+   - **Mundo dos Apáticos:** Onde continuariam sua busca vã, *sem transgredir a harmonia social*.  
 
 ### **4. A Urgência da Exclusão**  
 - **Um só apático pode destruir uma civilização**, pois sua *mania* é **incontrolável** — não por maldade, mas por *desespero ontológico*.  
