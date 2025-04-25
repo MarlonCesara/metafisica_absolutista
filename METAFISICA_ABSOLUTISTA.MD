@@ -244,7 +244,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Espaço Infinito
 
-*"Alguns desses caminhos nunca terminam, Neo."* - Morpheus
 
 - O espaço da manifestação é infinitamente percorrível, sem bordas ou confinamento.
   - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.
@@ -442,7 +441,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Paralelismo sem Separação
 
-*"Há uma diferença entre conhecer o caminho e percorrer o caminho"* - Morpheus
 
 - **Coexistência de infinitos**: Dois determinadores (A e B) só interagem se um se torna fenômeno para o outro.
 - **O nada como limite**: O infinito de A é o nada de B, e vice-versa. Ambos são modos do mesmo Ser.
@@ -450,7 +448,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Paralelismo e Infinito
 
-*"Alguns desses caminhos nunca terminam, Neo."* - Morpheus
 
 - Infinitos determinadores coexistem sem negação mútua:
   - *Exemplo:* Determinador A e Determinador B podem interagir quando:
@@ -507,7 +504,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - O âmbito espiritual da alma determinada é relativo à sua própria existência, não se refere ao direcionamento espiritual do Ser que é essencialmente perfeito.
 
 ### Autodeterminação e Evolução Espiritual
-*"Há diferença entre conhecer o caminho e percorrer o caminho"* - Morpheus
+
 - A capacidade de autodeterminação está ligada ao desenvolvimento espiritual, permitindo ao ente governar-se pelo espírito.
 - Sem a atuação do espírito, o autodomínio fica restrito à essência herdada pela alma do Ser, tornando a realidade do "sou" uma mera possibilidade para Deus e outros, mas não uma verdade plena para o próprio "sou" (autoconsciência, autopresença e autonomia).
 
