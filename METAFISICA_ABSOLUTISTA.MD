@@ -2,6 +2,12 @@
 
 *"Ele é o Escolhido... Ele começou a ver além do Matrix. Quando estiver pronto, não precisaremos de navios, nem de armas. Nós o libertaremos."* - Morpheus  
 
+### **Contexto e Significado:**  
+Essa fala é a **culminação da jornada de Neo** como o "Escolhido":  
+1. **"Ver além do Matrix"** → Neo percebe a realidade como código (visão de "verde digital").  
+2. **"Não precisaremos de navios, nem de armas"** → A libertação final não será física, mas **consciente** (como quando Neo para balas com a mente).  
+3. **"Nós o libertaremos"** → Paradoxalmente, ao libertar a si mesmo, Neo liberta toda a humanidade (*"A Escolha de Neo"* no filme *Revolutions*).  
+
 ## Princípios Causais Metafísicos
 
 
