@@ -508,7 +508,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## A Liberdade: Incorruptibilidade e Corrupção
 
-### Liberdade do Ser (Incorruptível)
+### Liberdade do Ser (Incorruptibilidade)
 
 - O Ser necessariamente existe e é autodeterminado.
 - Sua "liberdade" não é escolha, mas expressão pura de direcionamento a si mesmo – como num matrimônio perfeito, onde a entrega é liberdade, não limitação. Isto é, a liberdade do Ser está em sua perfeição e não em sua estrutura.
