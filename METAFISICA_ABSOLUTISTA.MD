@@ -569,7 +569,7 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 ## Liberdade e Neutralidade
 
 
-- O livre-arbítrio, em seu estado puro (neutralidade), implica a coexistência de todas as possibilidades hipotéticas simultaneamente.
+- No contexto de um infinito, o livre-arbítrio implica a coexistência simultânea de todas as possibilidades hipotéticas.
 - No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
 - As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.
 - Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então Deus também teria infinitas possibilidades de ação em sua integralidade.
