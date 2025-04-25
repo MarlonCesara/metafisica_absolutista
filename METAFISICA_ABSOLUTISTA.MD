@@ -37,7 +37,6 @@ Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fu
 
 ## Princípios do Absoluto
 
-*"Conhece a ti mesmo"* - Oráculo
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
@@ -97,7 +96,6 @@ Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fu
 
 ## Estrutura da Autodeterminação
 
-*"Escolha. O problema é a escolha."* - Neo
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
