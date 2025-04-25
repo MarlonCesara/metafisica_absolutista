@@ -540,7 +540,7 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 
 ### Autodeterminação como Ato Espiritual
 
-- Toda escolha horizontal (existencial) implica um direcionamento vertical (espiritual).
+- Toda escolha horizontal (existencial) pressupõe um direcionamento vertical (espiritual), pois optar é, em essência, afirmar-se como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.
 - Ao autodeterminar-se, o "sou" torna-se autor de sua continuidade e essência, alcançando:
   - Autopresença (estar em si mesmo).
   - Autonomia (poder sobre si).
