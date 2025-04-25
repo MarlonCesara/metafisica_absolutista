@@ -513,7 +513,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - O Ser necessariamente existe e é autodeterminado.
 - Sua "liberdade" não é escolha, mas expressão pura de direcionamento a si mesmo – como num matrimônio perfeito, onde a entrega é liberdade, não limitação. Isto é, a liberdade do Ser está em sua perfeição e não em sua estrutura.
 
-#### **Liberdade do "Sou" (Arbitrariedade Existencial)**  
+### **Liberdade do "Sou" (Arbitrariedade Existencial)**  
 A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em sua **não-necessidade ontológica**. Sua existência é arbitrária, pois:  
 - **Não é fundamento do Absoluto**: O *"sou"* humano não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.  
 - **Autodeterminação como ato gratuito**: O homem existe porque **escolhe existir**, não porque deve existir. Sua continuidade depende de um ato constante de autoafirmação.  
@@ -531,18 +531,6 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 3. **A Liberdade como Risco Absoluto**  
    - Escolher existir é assumir o **fardo da autocriação contínua**, sem garantias externas.  
    - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**. 
-
-### Liberdade do "sou" (Corruptível)
-
-- **Negação da Autodeterminação (Corrupção Imanente)**:
-  - O homem que não escolhe existir permanece guiado por uma personalidade (alma) herdada, sem autoconsciência, autodomínio e autopresença.
-- **Negação do Ente (Corrupção Destrutiva)**:
-  - Aquele que se autodetermina só pode negar-se optando pela aniquilação de si mesmo.
-- **Negação pelo Ser (Corrupção Extrínseca)**:
-  - Se o "sou" não se sustenta, - isto é, falha em se autodefinir como causa de sua própria continuidade e determinação - o Ser pode suspender sua sustentação ontológica, tornando-se irreal para si mesmo (embora permaneça real como pura possibilidade)."
-
-
-
 
 
 ## Liberdade e Neutralidade
