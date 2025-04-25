@@ -275,11 +275,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
   - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.
   - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.
 
-## Não Fragmentação
-
-- Ao tentar retirar um fragmento de um infinito, percebe-se que não é possível medir esse infinito para considerar a retirada de uma parte. Portanto, o infinito não existe como fragmentável.
-  - *Exemplo:* Ao tentar medir um metro de uma rua que não se pode medir, percebe-se que a rua não é uma dimensão para se medir. Logo, a rua não existe de forma que se possa extrair dela um fragmento.
-
 
 # A Dialética do Infinito e do Nada
 
