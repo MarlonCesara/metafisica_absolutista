@@ -523,7 +523,7 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 
 
 ### Alma como Determinação Relativa
-- A alma é uma manifestação determinada do Absoluto, porém não necessária para a autofundamentação do Ser, ou seja, a alma é corruptível. É revelada no tempo sob determinação do Espírito Perfeito.
+- O "sou" (alma corruptível) é uma manifestação determinada do Absoluto, porém não necessária para a autofundamentação do Ser, ou seja, a alma é corruptível. É revelada no tempo sob determinação do Espírito Perfeito.
 - O âmbito espiritual da alma determinada é relativo à sua própria existência, não se refere ao direcionamento espiritual do Ser que é essencialmente perfeito.
 
 ### Autodeterminação e Evolução Espiritual
