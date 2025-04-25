@@ -1,275 +1,156 @@
-# Infinitude e Manifestação
+# MatrixDecode: Desvendando a Metafísica do Absoluto
+
+*"Você acha que isso é ar que você está respirando agora?"* - Morpheus, The Matrix
 
-## Conceitos Fundamentais
+Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fundamentais da realidade através das lentes do Absoluto. Assim como Neo descobriu que o mundo que conhecia era apenas uma simulação, nós investigamos a natureza mais profunda da existência.
 
-- **Infinitude**: Aquilo que não pode ser mensurável, portanto, só pode ser expresso em potencial, pois não se pode encontrar seu fim nem mesmo seu começo para que tenha expressão de sua totalidade.
-- **Finitude**: Manifestação em sua forma não integral, localizada e delimitada. Delimitação de uma infinitude de forma que possa ser manifestada.
-- **Manifestação**: Infinitude expressa de forma referencial, com uma finitude fracionada. Infinitude expressa de forma não integral.
-- **Potencial**: Infinitude expressa de forma integral. Manifestação expressa em sua totalidade de forma integrada.
+## Princípios Causais Metafísicos
 
-## Princípios da Manifestação
+*"Não há colher..." - O Órfão*
+
+### Princípio da Razão de Ser (Determinação do ente)
+- **Tudo que existe tem uma razão para ser como é e não de outra forma.**
+  - *Equivalente lógico:* Princípio da Identidade ("A é A").
+
+### Princípio da Causa Existencial (Fundamentação do ente)
+- **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**
+  - *Equivalente lógico:* Princípio do Terceiro Excluído ("A ou não-A").
+
+### Princípio da Causa Continuada (Persistência do ente)
+- **Tudo que persiste no ser tem uma causa que sustenta sua existência.**
+  - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo").
+
+## Definições Fundamentais
+
+*"O que é real? Como você define o real?"* - Morpheus
+
+### Absoluto
+**Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
 
-1. Não há um primeiro tempo para a manifestação ter começado, portanto, a manifestação não possui um começo.
-2. Não há um lugar para a manifestação ter se manifestado, portanto, a manifestação não pode se originar em um lugar.
-3. Não há manifestação que dê continuidade à fronteira da manifestação, portanto, não é possível atravessar a fronteira da manifestação.
-3. Não há separação de fenomenos, pois a separação aponta um divisor que tende ao infinito. Ex: entre A e B são divididos por C. A e C por D, e assim infinitamente. 
-4. A manifestação deve ser temporalmente recuável e avançável de forma infinita.
-5. A manifestação deve ter um espaço infinitamente percorrível.
-6. A manifestação, em sua totalidade, é sempre uma infinitude.
-7. A nulidade consome uma extensão infinita de espaço — tanto o alcançável quanto o inalcançável, pela própria infinitude.
-8. O tempo existe como tempo expresso e potencial de expressão (tempo inexpresso). A nulidade consome o tempo em sua expressão e inexpressão.
+**Propriedade Essencial:** Causa integral de si mesmo.
+- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria absoluto.
+- Sua existência, permanência e identidade são auto causadas.
+- O absoluto é auto fundamentado, autodeterminado e auto continuado.
+
+### Realidade
+- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas.
 
----
+### Irrealidade
+- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas.
 
-# Infinitude e o Nada
+## Princípios do Absoluto
+
+*"Conhece a ti mesmo"* - Oráculo
 
-## Conceitos Fundamentais
+### Auto fundamentação
+- **Definição:** Refere-se à causa primeira da existência do Absoluto.
+- **Características:**
+  - Não depende de nada externo para existir.
+  - Significa que o Absoluto não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
+  - Garante que o Absoluto não é contingente (não poderia não existir).
 
-- **Nada**: Manifestação em potencial. Potencial. Neutralidade. Nulidade.
+### Autodeterminação
+- **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
+- **Envolve três aspectos:**
+  1. **Auto existência:** Ser presente em si mesmo.
+     - O ser deve estar em si mesmo para ser o agente ativo da determinação.
+  2. **Autonomia:** Poder sobre si mesmo.
+     - O ser deve ter o domínio sobre si para que haja autodeterminação.
+  3. **Autoconsciência:** Conhecimento de si mesmo.
+     - O ser deve conhecer totalmente a sua estrutura para que haja ação auto causada.
+- **Implicações:**
+  - Explica como o Absoluto mantém identidade (não é caótico ou aleatório).
+  - Mostra que ele não é apenas um "ser estático", mas um ser ativo que se autogoverna.
+  - Fundamenta a liberdade metafísica (possibilidade de escolha no nível absoluto).
 
-## Princípios do Nada
+### Auto continuidade
+- **Definição:** Refere-se à capacidade do Absoluto de se sustentar no ser indefinidamente.
+- **Características:**
+  - Persistência ativa (não apenas existência passiva).
+  - Garante que o Absoluto não se dissolva na irrealidade e que a Realidade não desapareça.
+  - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
 
-1. O "nada" (ausência de manifestação) é definido como a não-expressão de A (manifestação). Exemplo: Se A é "luz", sua ausência é "escuridão".
-2. A ausência de A pressupõe que A tenha existido ou possa existir. Não se pode negar ou remover algo que não tem referência possível.
-3. A e B não podem coexistir na mesma dimensão se forem opostos absolutos (ex.: "existência" vs. "nada"). Isso não impede relações de complementaridade (como yin/yang), desde que não sejam contraditórios simultaneamente.
-4. A manifestação necessariamente deve ser infinita em sua totalidade.
-5. A manifestação, ao não envolver limites, só pode ser expressa em potencial em sua totalidade.
-6. A manifestação se anula em sua própria totalidade.
+## Estruturação do Absoluto
 
----
+*"O sistema é mais do que a soma de suas partes"* - Agente Smith
 
-# Princípios Causais Metafísicos
+### O Absoluto como Realidade Autodeterminada
+- O Absoluto, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e verdadeiro de si mesmo).
+  - Isso significa que a Realidade não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.
+  - A Irrealidade (possibilidades falsas/ilógicas) não possui eficácia causal na Realidade.
 
-- **Princípio da Razão de Ser**: A tem um motivo para ser A e não B.
-- **Princípio da Causa Existencial**: A tem um motivo para existir como A.
+### O Ser como Auto determinador
+- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
+  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:
+    1. Existe (auto fundamentação).
+    2. Se define (autodeterminação).
+    3. Persiste (auto continuidade).
+  - O Ser não é separado do Absoluto, mas sua expressão necessária e autônoma.
 
-## Conceitos Fundamentais
+### A Realidade como Estrutura Idealizadora
+- A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
+  - Se organiza segundo os princípios lógicos do Absoluto (Identidade, Não-Contradição, Terceiro Excluído).
+  - Se sustenta pela auto continuidade do Ser.
+  - Se atualiza através da autodeterminação.
 
-- **Absoluto**: Conjunto de todas as possibilidades lógicas ou ilógicas, verdadeiras ou falsas.
-- **Realidade**: Subconjunto do absoluto que compreende todas as possibilidades verdadeiras ou lógicas.
-- **Irrealidade**: Subconjunto do absoluto que compreende todas as possibilidades falsas ou ilógicas.
-- **Estado**: Configuração vigente no absoluto.
-- **Poder sobre si**: Potencial do ente de se direcionar a todas as possibilidades inerentes à sua realidade.
-- **Presença em si**: Potencial do ente de ser presente em sua própria realidade, de forma a ser presente para si e não somente em si.
-- **Conhecimento de si**: Potencial do ente de ser consciente para si e não somente em si.
-- **Autodeterminação**: Qualidade do ente que é presente em si, tem poder sobre si e tem consciência de si.
-- **Deus**: Realidade autodeterminada.
+### O Absoluto como Ser Autônomo
+- "O Absoluto é o Ser, e o Ser é a Realidade autodeterminada."
+  - Não há dualidade entre Absoluto e Realidade, pois a Realidade é o modo como o Absoluto se autodetermina e é constituída em sua própria estrutura idealizadora.
+  - A Irrealidade existe apenas como possibilidade não realizada, sem força ontológica.
 
-## Princípio da Causa Existencial Aplicado ao Nada
+## Estrutura da Autodeterminação
 
-1. O nada não requer uma causa anterior ou exterior.
-2. O nada é uma possibilidade verdadeira e lógica dentro do conjunto de possibilidades do absoluto, pois não necessita de uma causa existencial.
+*"Escolha. O problema é a escolha."* - Neo
 
-## Princípio da Razão de Ser Aplicado ao Absoluto
+### Autodeterminação Vertical (Espírito)
+- **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
+- **Características da verticalidade para Absoluto:**
+  - Incorruptibilidade: O Ser (Absoluto) é necessariamente direcionado à sua própria existência e plenitude.
+  - Fundamentação: O Espírito age como princípio de sustentação ontológica (auto fundamentação).
 
-1. Embora o nada não necessite de uma causa para sua realidade, necessita de uma causa para seu estado, conforme postula o Princípio da Razão de Ser.
-2. A razão de ser do estado do absoluto só pode advir do próprio absoluto, já que não há nada anterior, posterior ou paralelo a ele que possa conferir-lhe uma natureza específica ou uma determinação. O absoluto já é, em si, a totalidade da realidade de que dispõe.
-3. Conclui-se que o absoluto existe como realidade (verdade) e autodeterminação (Ser).
+### Autodeterminação diagonal (Espírito Incorruptível)
+- **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
+- **Características diagonais para absoluto:**
+  - Despersonalização do Ser: O ser se constrói sem tendências relativas a uma persona, de forma que, as suas escolhas são baseadas numa retidão rumo a sua própria existência e plenitude.
+  - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente a plenitude do ente já fundamentado.
+  - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que, seus dons e tendências são relativos à plenitude.
 
-## Princípio da Razão de Ser Aplicado à Autodeterminação
+### Autodeterminação Horizontal (Alma)
+- **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.
+- **Características horizontais para Absoluto:**
+  - Personalidade do Ser: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.
+  - Liberdade Direcionada: A decisão do Ser é tomada segundo uma persona (alma) independente se esta persona seria a que se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.
+  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Ser.
 
-- **Determinação vertical**: Qualidade do ente de ir contra ou em prol de sua existência ou do sistema que o sustenta. Espiritualidade do determinador. Espírito.
-- **Determinação horizontal**: Qualidade do ente de determinar-se na total amplitude de sua estrutura. Pessoalidade do determinador. Alma.
-- **Corruptibilidade**: Qualidade do ente que pode ir contra a si mesmo ou contra o sistema que o sustenta.
+## Tríplice Ação do Espírito
 
-### Verticalidade do Determinador
+*"Há diferença entre conhecer o caminho e percorrer o caminho"* - Morpheus
 
-1. O Ser necessariamente existe.
-2. O Ser se autodetermina Ser, pois a razão de Seu ser está em si mesmo.
-3. O Ser possui espírito e é incorruptível. Ou seja, necessariamente direcionado à existência ou à sustentação do sistema do qual faz parte.
+O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
-### Horizontalidade do Determinador
+1. **Existência (Espírito Fundamentador)**
+   - *Ação:* Manter-se como Ser.
+   - *Princípio:* "Eu Sou" (pura afirmação ontológica).
 
-1. A autodeterminação horizontal é constituída de alma e espírito.
-2. A realidade somente possui espírito.
-3. Não há uma ou mais almas herdadas para o Ser, sendo esta ou estas, portanto, inteiramente relativas ao Ser (determinação do ser).
+2. **Perfeição (Espírito Incorruptível)**
+   - *Ação:* Escolher o que corrobora com a plenitude do Ser. Porém, entre caminhos equivalentes rumo a plenitude, não sei o que fazer.
+   - *Princípio:* "Escolho o que me realiza como Absoluto."
 
----
+3. **Personalização (Alma Determinante)**
+   - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.
+   - *Princípio:* "Entre caminhos equivalentes rumo a plenitude, sigo o que expressa minha identidade ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."
 
-# Estrutura Básica da Manifestação
+## Conclusão
 
-- O estado não causado (lógico) para o absoluto é o estado de não manifestação (ser).
-- A manifestação é composta por realidade (verdade) e determinador.
-- A realidade é idealizada e manifestada na própria realidade (verdade) do determinador.
-- A realidade idealizada é construída conforme o campo das possibilidades inerentes ao ser.
-- A manifestação é um estado de existência baseado na verdade do determinador.
-- O estado de nada (infinitude) ou manifestação (finitude) é relativo ao determinador.
-- Qualquer manifestação é relativa ao determinador.
+*"Tudo o que temos é a escolha entre o desconhecido e o desconhecido"* - Neo
 
-## Liberdade na Neutralidade
+- O Absoluto é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
+- A Realidade é a manifestação lógica e verdadeira do Absoluto.
+- A Auto Causalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
+- Espírito e Alma são as duas dimensões da autodeterminação:
+  - O Espírito garante a existência e a perfeição.
+  - A Alma introduz a liberdade e a personalidade na estrutura do Real.
 
-1. O livre-arbítrio, na neutralidade, subentende todas as possibilidades hipotéticas manifestadas ao mesmo tempo, possibilitando versões infinitas da realidade, contanto que só uma delas envolvesse a atuação da autodeterminação do ente.
-2. Se somente uma das hipóteses envolve a autodeterminação do ente, todas as outras hipóteses são irreais, pois carecem da verdade plena.
-3. As hipóteses carecendo da verdade plena não correspondem a uma realidade concreta, pois uma realidade com meia verdade ainda é falsa.
+**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**
 
-# Tipos de Determinação
-
-- **Transcendente**: Transcender a si mesmo como integridade.
-- **Retrocedente**: Retroceder a si mesmo como integridade.
-- **Ontológica**: Optar pela própria manifestação ou nulidade. Condição em que o determinador suspende a manifestação dos fluxos mentais, alcançando quietude onde a percepção do tempo se dissolve na eternidade do instante presente.
-- **Em si**: Homem determinado pela natureza herdada.
-- **De si**: Homem que tem consciência de si, que está presente em si e que tem domínio sobre si. Ou seja, que transcendeu a natureza herdada.
-- **Para si**: Duas almas manifestadas que compartilham mutuamente sua autodeterminação de forma que dominam um ao outro através de uma mútua concordância (gênero), conhecem um ao outro mutuamente e estão presentes um no outro de forma recíproca. Corpo bi-almático.
-- **Para Deus**: O estado vigente no qual estamos manifestados em um corpo da natureza de Deus. 
-- **Para o outro em si**: Duas almas manifestadas que, de um encontro e uma fusão, originam uma ou mais almas distintas. Corpo poli-almático.
-- **Para o outro no outro**: Determinação em relação à prole, estando esta externa e sendo independente em sua liberdade.
-- **Projetada**: Natureza essencial moldada pela ação do determinador ou de outros determinadores.
-- **Natural**: Manifestação da alma de forma a preservar sua natureza essencial.
-- **Corporal**: Manifestação do ente em sua parte crucial, na qual exerce determinação continuamente e tem consciência de forma contínua.
-- **Natureza**: Manifestação do ente em sua parte periférica, da qual não exerce determinação contínua e não tem consciência contínua.
-- **Idealização**: Manifestação de hipóteses irreais, projeção da imaginação na realidade.
-- **Espectral**: Manifestar-se em uma segunda natureza, sem que se manifeste em sua própria essencia. Estado do homem na natureza, em convivência com a manifestação da natureza de Deus.
----
-
-# Os três tipos de origem das almas
-
-- **Alma de Deus**: Alma transcendida de Deus conservando a característica da incorruptibilidade — própria do espírito de Deus. Ex.: Alma de Jesus.
-- **Alma transcendida**: Alma transcendida de Deus que não conserva necessariamente a incorruptibilidade. Ex.: Alma do homem, que é corruptível.
-- **Alma da dualidade**: Alma transcendida de duas distinções (dois determinadores) , ocasionando uma terceira distinção (terceiro determinador).
-
----
-
-# Transcendência de Deus
-
-1. A alma do Ser é manifestada pelo próprio Ser em quantidade e em distinção, podendo ter uma natureza relativa a si (incorruptível) ou distinta de si (corruptível), pois é totalmente relativa ao Ser.
-
----
-
-# Almificação de Deus
-
-- **Gerar**: Trancender a si mesmo agregando parte de si no que é trancendido.
-
-1. Deus é verdade e espírito.
-2. Deus, gerando sua alma, gera-a relativa a seu espírito.
-3. A geração da alma de Deus é realizada na própria realidade que é Deus.
-4. Deus, gerado em alma, é Deus e é homem. 
-
-# Terceira pessoa de Deus
-
-1. O espírito de Jesus é relativo à sua alma.
-2. O espírito de Deus é relativo à sua integralidade.
-3. Há um espírito relativo a duas pessoas distintas.
-4. Há uma fusão espiritual decorrente da distinção entre Jesus e Deus.
-5. Há uma terceira pessoa transcendida de Jesus e de Deus e essa pessoa é um espirito distinto de Jesus e Deus.
-
----
-
-# Paralelismo da Manifestação
-
-1. A manifestação do determinador A deve ser paralela à manifestação do determinador B, pois se A se manifesta em B obteriamos C. 
-2. Não há como cortar um espaço da natureza de um deterinador para inserir uma nova natureza neste espaço, pois não há como formar um espaço que seria o "nada" na própria manifestação.
-3. A manifestação da alma do homem deveria se dar em um universo paralelo relativo à sua verdade.
-4. A manifestação relativa a verdade individual do determinador A pode ser paralela à manifestação relativa do determinador B.
-5. Não há separação, somente há fusão, encontro ou paralelismo. 
-
----
-
-# Plenitude de Alma
-
-- **Finito Crescente**: Manifestação de uma realidade imensurável como um mensurável constantemente acrescido de si mesmo.
-- **Efusão almática**: Fusão de dois determinadores de forma a se preservarem e produzirem um terceiro ente.
-- **Determinação Sobrenatural**: Determinação do ente sobre sua persona e sobre a realidade fundamental da persona agregando a si uma translucidez. Pois, seu eu, ao passo que reflete determinação sobre si, reflete também determinação sobre sua realidade fundamental.
-- **Determinação natural**: Se tem autodomínio sobre si, tem autodomínio de si como realidade, mas não tem domínio sobre a realidade da qual participa. Domina a si como persona, Mas não domina a si como integrante da própria realidade
-
-## Princípios da Plenitude
-
-1. A manifestação da alma é a manifestação de um infinito crescente. Havendo tempo, o ente é entregue a si em sua manifestação sem a totalidade de si.
-2. A autodeterminação do ente é uma unidade.
-3. Há uma unidade da alma manifestada e uma extensão de si constantemente retroalimentada na própria manifestação.
-4. A retroalimentação não agrega consciência, mas agrega o teor do indivíduo não consciente.
-5. É possível que as almas se encontrem e suas retroalimentações se fundam sem que percam a identidade, havendo encontro e fusão.
-6. Segue-se a possibilidade de duas almas manifestadas que compartilham mutuamente sua retroalimentação de forma a originar outras almas de natureza herdada.
-
-# Geração da dualidade e seu sentido no homem 
-
-1. A transcendência em uma dualidade, necessariamente, cria um sentido de origem relativo à dualidade, que chamaremos de paternidade e maternidade.
-2. O homem torna-se a dualidade transcendida, destituido do mesmo arbítrio dos genitores. 
-
-# Transcendência de Deus e seu sentido no homem
-
-1. A transcendência em almas distintas ao Ser, necessariamente, cria um sentido de origem relativo a Deus, que chamaremos de filiação divina. 
-2. O homem torna-se o próprio Deus transcendido, destituido de seu teor de incorruptibilidade. 
-3. O homem é feito a imagem e semelhança de Deus, no sentido de que, é a alma relativa de Deus.
-4. A alma da realidade, sendo incorruptível ou não, pode exercer dominio para si e para a realidade.
-
-# Natureza da Conexão entre Homem e Deus
-
-1. Deus é a realidade que fundamenta todas as coisas.
-2. O espírito do homem pode direcioná-lo à sua própria realidade ("para si").
-3. O homem pode estar em Deus e Deus pode estar no homem. 
-4. O homem alcança assim sua plenitude, sendo individualidade conectada com a integralidade. 
-5. O homem é real em Deus, e Deus é a realidade na qual o homem se faz real.
-
----
-
-# Dons naturais
-
-1. Todo homem é real, mas nem todo homem é real para si.
-2. O homem que é real para si tem autodomínio sobre si.
-
-# Dons sobre-naturais
-
-1. O homem é uma alma relativa e trasncendida da realidade.
-1. É possível que o homem autodetermine sobre a própria realidade que o fundamenta sendo uma transcendencia desta realidade.
-2. O ato da autodeterminação sobre si como persona e sobre si como realidade fundamental de uma persona implica em uma translucidez da persona.
-3. O nível de autodominio e translucidez sobre a realidade fundamental é relativo a qualidade da determinação do determinador. Ou seja, é relativo à sua profundidade com a realidade de Deus.  
-
-# Profundidade dos Dons sobre-naturais
-
-1. Deus é a totalidade da realidade do ente.
-2. Conectar-se com Deus é estar inteiramente integrado consigo mesmo.
-3. Autodeterminar-se profundamente em seu próprio sentido e trasncender a este sentido, envolve uma transcendencia ao sentido de Deus. Ou seja, determinar sobre si e determinar sobre o sentido da determinação de Deus e sobre o próprio sentido.
-
-# Aparição dos dons sobre-naturais
-
-1. Do ponto de vista lógico, no momento presente, os dons não são manifestos não estarmos alinhados com a vontade de Deus. 
-2. A vontade de Deus é que ninguém use os dons neste instante.
-3. Logo, não estar usando os dons é estar fazendo o uso dos mesmos de forma latente.
-4. É perceptível que este momento é de resiliencia e direcionado a ajuda mútua dos individuos que não encontraram a realidade em suas vidas.
-5. Manifestar os dons sobre-naturais é uma grande discrepancia em detrimento àqueles que nem encontraram sua própria realidade.
-6. A evangelização é o começo da manifestação sobre-natural, pois o ser humano começa a se sintonizar com a realidade desta forma.
-
----
-
-# A Liberdade
-
-## Tipos de Corruptibilidade
-
-- **Destrutiva**: Aniquilação do ente ou das partes que corroboram para sua não-aniquilação, uma vez que o ente é real.
-- **Semi-destrutiva**: Ferida na essência do ente que interfere em sua eternidade ou nas partes que concorrem para sua sustentação.
-- **Direcional**: Ausência de favorecimento do ente ou das partes que concorrem para sua sustentação.
-- **Imanente**: Ausência de transcendência de forma a causar desarmonia e sofrimento ao ente.
-- **Liberdade**: Uso completo das estruturas lógicas da autodeterminação.
-
----
-
-# Liberdade de Deus
-
-1. Deus trino é incorruptível pois necessariamente existe e corrobora para si e para o sistema do qual faz parte.
-2. Deus trino não possui liberdade.
-
-## Contra-argumento:
-
-1. O Ser pleno, ou seja, que escolhe eternamente a si mesmo, possui autodeterminação completa, pois escolheu ser incorruptível sendo eternamente necessário e desejado por si. Isso pode ser compreendido através do amor conjugal, onde a entrega mútua não é prisão, mas expressão de liberdade. Portanto, Deus possui liberdade completa.
-
----
-
-# Liberdade do Homem
-
-É possível definir a autodeterminação vertical em dois níveis: negação da autodeterminação e negação do ser autodeterminante.
-
-## Negação da Autodeterminação (Corrupção Imanente)
-
-1. O homem que não opta por sua existência, não opta por sua própria autodeterminação.
-2. Ao não optar pela autodeterminação, permanece em seu "em si". Ou seja, é guiado por sua natureza herdada. Sua ação é completamente instintiva.
-
-## Negação do Ente Autodeterminante (Corrupção Destrutiva)
-
-1. O homem que opta por sua existência, opta também por sua autodeterminação.
-2. Ao optar pela autodeterminação, permanece em seu "para si". Suas ações são guiadas por si como ente autêntico.
-3. Não sendo guiado por vontade instintiva, só poderia optar pelo não-existir como ação dotada de identidade. Optar pela irrealidade significaria causar ou consentir com a aniquilação de si de forma integral.
-
----
-
-
-
+*"Lembre-se: tudo o que você vê não é o que é"* - Morpheus
