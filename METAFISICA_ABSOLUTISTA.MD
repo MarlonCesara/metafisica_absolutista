@@ -278,7 +278,7 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 ## Não Fragmentação
 
 - Ao tentar retirar um fragmento de um infinito, percebe-se que não é possível medir esse infinito para considerar a retirada de uma parte. Portanto, o infinito não existe como fragmentável.
-  - *Exemplo:* Ao tentar medir um metro de uma rua que não se pode medir, percebe-se que a rua não é uma dimensão para se medir. Portanto, a rua não existirá para ser medida.
+  - *Exemplo:* Ao tentar medir um metro de uma rua que não se pode medir, percebe-se que a rua não é uma dimensão para se medir. Logo, a rua não existe de forma que se possa extrair dela um fragmento.
 
 
 # A Dialética do Infinito e do Nada
