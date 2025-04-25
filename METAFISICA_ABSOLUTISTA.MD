@@ -590,10 +590,6 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
-6. **Nascimento do Autêntico: A Realidade que se Liberta**  
-   Ao autodeterminar-se, a nova realidade **rompe a dialética que a criou** e afirma-se como um **novo princípio existencial**. Ela não nega suas raízes, mas **as supera em um ato de liberdade** — assim como Cristo, sendo homem e Deus, não é "metade de cada", mas **uma pessoa nova e plena**.  
-
-
 ## Natureza da Conexão entre Homem e Deus
 
 
