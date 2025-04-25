@@ -161,7 +161,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## A Pureza do Ser e a Necessidade do Determinado
 
-*"Há uma diferença entre conhecer o caminho e percorrer o caminho"* - Morpheus
 
 - O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.
   - Autodeterminação pura exige um termo relacional (aquilo que é determinado).
@@ -169,8 +168,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
   - Portanto, a própria negação (o nada) surge como contraparte necessária da autodeterminação.
 
 ## Dualidade Fundamental: Determinador e Nada
-
-*"Toda ação tem uma reação igual e oposta"* - Lei da Física que também se aplica à metafísica
 
 - O **Ser** (determinador) e o **Nada** (ausência do determinado) são coessenciais.
   - Não são opostos absolutos, mas pólos de uma mesma estrutura ontológica.
@@ -181,7 +178,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Realidade como Relação Dinâmica
 
-*"A Matrix é um sistema, Neo. Esse sistema é nosso inimigo."* - Morpheus
 
 - A **realidade (verdade)** não é um estado puro, mas uma tensão entre:
   1. **O Ser** (autodeterminação ativa) → Puro ato de existir.
@@ -204,7 +200,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 # Estruturando o Nada
 
-*"Só tentamos dizer a verdade, Neo."* - Trinity
 
 ## Definição por Negação
 
@@ -237,7 +232,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Tempo Potencial e Expresso (Atemporalidade)
 
-*"O tempo sempre parece mais lento quando se está esperando."* - Trinity
 
 - O tempo existe como:
   1. **Tempo expresso** (manifestado).
@@ -250,7 +244,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 # Estruturando a Manifestação
 
-*"Não há colher..." - O Órfão*
 
 ## Não-localidade
 
@@ -272,7 +265,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Temporalidade Infinita
 
-*"O tempo parece passar mais devagar aqui."* - Neo
 
 - O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.
   - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.
@@ -284,15 +276,12 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 - Ao tentar retirar um fragmento de um infinito, percebe-se que não é possível medir esse infinito para considerar a retirada de uma parte. Portanto, o infinito não existe como fragmentável.
   - *Exemplo:* Ao tentar medir um metro de uma rua que não se pode medir, percebe-se que a rua não é uma dimensão para se medir. Portanto, a rua não existirá para ser medida.
 
-*"Lembre-se: tudo o que você vê não é o que é."* - Morpheus
 
-# MatrixDecode: A Dialética do Infinito e do Nada
+# A Dialética do Infinito e do Nada
 
-*"O que é real? Como você define o real?"* - Morpheus
 
 ## O Infinito e o Nada: Princípios Indiscerníveis
 
-*"Há uma diferença entre conhecer o caminho e percorrer o caminho"* - Morpheus
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestação) e nada compartilham propriedades essenciais:
 
@@ -303,7 +292,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ### Dualidade Necessária
 
-*"Toda ação tem uma reação igual e oposta"* - Lei da Física aplicada à metafísica
 
 - Sem dualidade, ambos colapsam:
   - O nada é ininteligível sem a manifestação.
@@ -311,7 +299,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ### Conclusão
 
-*"Não há colher..."* - O Órfão
 
 - "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:
   - O nada é o infinito negado (ausência de forma).
@@ -322,7 +309,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 # A Natureza da Forma
 
-*"A Matrix é um sistema, Neo. Esse sistema é nosso inimigo."* - Morpheus
 
 Toda manifestação é, por definição, forma – pois forma é a expressão delimitada do infinito.
 
@@ -334,7 +320,6 @@ Toda manifestação é, por definição, forma – pois forma é a expressão de
 
 ## Variação Infinita das Formas
 
-*"Alguns desses caminhos nunca terminam, Neo."* - Morpheus
 
 Como o infinito contém todas as possibilidades, as formas manifestadas podem variar infinitamente em suas configurações.
 
@@ -358,7 +343,6 @@ Toda forma possui uma configuração única que a define em um dado contexto. Es
 
 ### Conclusão: A Forma como Expressão do Infinito
 
-*"Lembre-se: tudo o que você vê não é o que é."* - Morpheus
 
 A identidade da forma não é arbitrária – ela emerge da interação entre:
 
@@ -496,11 +480,9 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - "Em meu mundo, seu mundo só existe se eu o permitir."
   - "Meu universo é infinito, portanto, pode estar a uma distância infinita do seu. Ou seja, em seu ponto de vista posso fazê-lo nada."
 
-*"Tudo o que temos é a escolha entre o desconhecido e o desconhecido."* - Neo
 
-# MatrixDecode: A Liberdade entre o Real e o Ilusório
+# A Liberdade entre o Real e o Ilusório
 
-*"O que é real? Como você define o real?"* - Morpheus
 
 ## A Liberdade: Incorruptibilidade e Corrupção
 
@@ -528,7 +510,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Liberdade e Autodeterminação no Absoluto
 
-*"Conhece a ti mesmo"* - Oráculo
 
 ### Alma como Determinação Relativa
 - A alma é uma manifestação determinada do Absoluto, porém não necessária para a autofundamentação do Ser, ou seja, a alma é corruptível. É revelada no tempo sob determinação do Espírito Perfeito.
@@ -562,7 +543,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Natureza da Conexão entre Homem e Deus
 
-*"Tudo o que tem princípio tem fim, Neo."* - Oráculo
 
 ### O Ser como Fundamento
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.
@@ -578,7 +558,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Dons Naturais e Sobrenaturais
 
-*"Está tentando dizer que posso desviar de balas?"* - Neo
 
 ### Dons Naturais (Autodomínio Relativo)
 - Todo "sou" é existente, mas apenas o autodeterminado é consciente, presente e autônomo de si.
