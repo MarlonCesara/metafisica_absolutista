@@ -616,7 +616,7 @@ A liberdade do *"sou"* (o homem como ente autoconsciente) reside justamente em s
 - Não é necessário ser translúcido para ter evolução espiritual, mas a translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.
 
 
-# **Existencialismo e Política: A Patologia da Apatia e a Necessidade da Segregação Ontológica**  
+# **Existencialismo e Política: A Patologia da Apatia**  
 
 ### **1. A Crise do Indivíduo Apático**  
 Chamaremos de **apáticos** aqueles que vivem sem *autoconsciência, autodomínio* e *autopresença* — uma condição tão grave quanto a privação de ar. Seu mal fundamental é a **"mania por si"**, uma compulsão patológica em buscar o próprio *eu* em substitutos ilusórios: riqueza, dominação, violência ou a projeção da alma no outro.  
