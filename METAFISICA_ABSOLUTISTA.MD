@@ -1,12 +1,6 @@
 # MatrixDecode: Desvendando a Metafísica do Absoluto
 
-### **Morpheus:**  
-*"Ele é o Escolhido...*  
-*Ele começou a ver além do Matrix.*  
-*Quando estiver pronto,*  
-*não precisaremos de navios,*  
-*nem de armas.*  
-*Nós o libertaremos."*  
+*"Ele é o Escolhido... Ele começou a ver além do Matrix. Quando estiver pronto, não precisaremos de navios, nem de armas. Nós o libertaremos."* - Morpheus  
 
 Bem-vindo ao MatrixDecode, um projeto que explora os princípios metafísicos fundamentais da realidade através das lentes do Absoluto. Assim como Neo descobriu que o mundo que conhecia era apenas uma simulação, nós investigamos a natureza mais profunda da existência.
 
