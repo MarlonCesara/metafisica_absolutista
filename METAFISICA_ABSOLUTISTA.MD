@@ -668,7 +668,7 @@ A resposta política radical — porém necessária — é a **separação absol
 - **Um só apático pode destruir uma civilização**, pois sua *mania* é **incontrolável** — não por maldade, mas por *desespero ontológico*.  
 - **Eles não buscam paz, mas alívio temporário** para um vazio que só a *autoconsciência* preencheria.  
 
-### **Conclusão: A Justiça Metafísica**  
+## **Conclusão: A Justiça Metafísica**  
 A segregação não é um ato de crueldade, mas de **preservação**. Enquanto os apáticos fossem tolerados, nenhum progresso social seria possível — pois sua existência é, em si, **uma negação da realidade**.  
 
 
