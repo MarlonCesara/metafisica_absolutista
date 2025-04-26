@@ -593,6 +593,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ## Natureza da Conexão entre Homem e Deus
 
+**Morpheus :** *"Liberte sua mente."*  
 
 ### O Ser como Fundamento
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.
