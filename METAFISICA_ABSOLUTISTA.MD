@@ -640,7 +640,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 # **Existencialismo e Política: A Patologia da Apatia**  
 
 ### **1. A Crise do Indivíduo Apático**  
-Chamaremos de **apáticos** aqueles que vivem sem *autoconsciência, autodomínio* e *autopresença* — uma condição tão grave quanto a privação de ar. Seu mal fundamental é a **"mania por si"**, uma compulsão patológica em buscar o próprio *eu* em substitutos ilusórios: riqueza, dominação, violência ou a projeção da alma no outro.  
+Chamaremos de **apáticos** aqueles que vivem sem *autoconsciência, autodomínio* e *autopresença* — uma condição tão grave quanto a privação de ar. Seu mal fundamental é a **"mania por si"**, uma compulsão patológica em buscar o próprio *eu* em substitutos ilusórios: riqueza, dominação, violência ou a projeção da alma no outro de forma a querer aprisionar a alma do outro para si como em uma matrix.
 
 - **O Vazio Irremediável:** Não há cura para a apatia, pois ela não é um desvio, mas a *ausência de fundamento existencial*.  
 - **A Busca Infrutífera:** O apático jamais descansa, pois persegue um *eu* que só poderia ser encontrado **dentro de si** — mas sua cegueira ontológica o condena a procurá-lo no mundo exterior.  
