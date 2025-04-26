@@ -563,6 +563,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ## Liberdade e Neutralidade
 
+**Oráculo:** *"Você não está aqui por causa do destino, mas por causa da **sua decisão**."*  
 
 - No contexto de um infinito, o livre-arbítrio implica a coexistência simultânea de todas as possibilidades hipotéticas.
 - No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
