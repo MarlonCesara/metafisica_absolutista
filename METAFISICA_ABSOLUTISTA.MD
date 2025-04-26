@@ -671,4 +671,18 @@ A resposta política radical — porém necessária — é a **separação absol
 ### **Conclusão: A Justiça Metafísica**  
 A segregação não é um ato de crueldade, mas de **preservação**. Enquanto os apáticos fossem tolerados, nenhum progresso social seria possível — pois sua existência é, em si, **uma negação da realidade**.  
 
-*"Separai-os, pois a raiz do mal não está no que fazem, mas no que são."*  
+
+*(Neo está dentro de uma cabine telefônica, falando com as Máquinas que controlam a Matrix. Câmeras varrem a rua, procurando por ele.)*
+
+**NEO (voz calma e firme):**  
+_"Alô?"_  
+_"Sei que vocês estão aí. Sei que estão com medo. Medo de nós. Medo de mudança."_  
+_"Eu não conheço o futuro. Não vim aqui para dizer como tudo isso vai terminar."_  
+_"Vim aqui para dizer como vai começar."_  
+_"Daqui a um momento, vou desligar o telefone. E vou mostrar a essas pessoas o que vocês tentam esconder."_  
+_"Vou mostrar a elas... um mundo sem vocês. Um mundo sem regras e sem controles. Sem limites. Um mundo... onde tudo é possível."_  
+_"O que acontecerá depois... vocês é que vão decidir."_
+
+*(Neo desliga o telefone. Coloca seus óculos escuros. A câmera se afasta enquanto ele olha para o céu. E então... Neo **sai voando** para o alto, quebrando todas as expectativas.)*
+
+---
