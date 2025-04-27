@@ -642,7 +642,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - Quanto mais profunda a conexão do "sou" com o Ser, maior sua translucidez, no sentido de que, sua cristalinidade passa a ser identificável em sua essência.
 - A translucidez não transgride o "sou", mas é um fundamento que transcende o "sou" de forma que o faça ser em si e ser no Ser.
 - A imersão total do "sou" em si transcende no ser. A determinação sobre si não tem limite, pois este limite é extravasado no ser. E este seria a possibilidade aprofundar-se em si sem limitações.
-- Não é necessário ser translúcido para ter evolução espiritual, mas a translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.
+- A translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.
 
 
 # **Existencialismo e Política: A Patologia da Apatia**  
