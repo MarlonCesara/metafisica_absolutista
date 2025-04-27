@@ -164,8 +164,7 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 *"Não pense que é... saiba que é."*  — **Morpheus**
 
-## **A Identidade que Não É**  
-1. **O Nada como Único Fundamento**  
+## **O Nada como Único Fundamento**  
   - Só o nada pode auto-fundamentar-se, pois não carrega identidade que exija explicação. O nada simplesmente existe - não há um 'existente' (algo ou alguém que existe), há apenas o ato puro de existir, o verbo sem sujeito.
 
 
