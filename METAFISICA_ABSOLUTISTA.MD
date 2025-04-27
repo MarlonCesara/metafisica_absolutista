@@ -164,8 +164,14 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 *"Não pense que é... saiba que é."*  — **Morpheus**
 
+## **A Identidade que Não É**  
+1. **O Nada como Único Fundamento**  
+  - Só o nada pode auto-fundamentar-se, pois não carrega identidade que exija explicação. O nada simplesmente existe - não há um 'existente' (algo ou alguém que existe), há apenas o ato puro de existir, o verbo sem sujeito.
+
+
 ## A Pureza do Ser e a Necessidade do Determinado
 
+*"O Ser não é 'algo' que existe — é o próprio ato de existir, desprovido de 'quem' ou 'o quê'."*  
 
 - O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.
   - Autodeterminação pura exige um termo relacional (aquilo que é determinado).
