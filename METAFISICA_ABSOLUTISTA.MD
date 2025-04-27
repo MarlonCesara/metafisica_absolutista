@@ -448,7 +448,7 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 # Dualidade Estrutural: Determinadores e Realidades
 
 
-**Neo:** *"Seu mundo é tão real quanto o meu. A diferença é que eu vejo além dele."*
+**Oráculo:** *"Seu mundo é tão real quanto o meu. A diferença é que eu vejo além dele."*
 
 ## Princípio de Individuação
 
