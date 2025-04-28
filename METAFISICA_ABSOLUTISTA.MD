@@ -493,7 +493,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - "Meu universo é infinito, portanto, pode estar a uma distância infinita do seu. Ou seja, em seu ponto de vista posso fazê-lo nada."
 
 
-## **Autonomia na Integralidade e na Manifestação: A Ontologia dos Absolutos Perceptuais**  
+## **Autonomia na Integralidade e na Manifestação**  
 
 1. **Dissolução sem Corrupção**  
    - Cada autodeterminador possui a capacidade de **cessar sua manifestação específica**, retornando ao seu *nada particular* (a ausência de sua forma fenomenológica), **sem afetar o nada integral** (o fundamento indiferenciado do Ser).  
