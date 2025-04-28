@@ -593,6 +593,14 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
    - Escolher existir é assumir o **fardo da autocriação contínua**, sem garantias externas.  
    - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**. 
 
+### A Arbitrariedade na Integralidade  
+
+- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência - permanece em seu estado integral (nada individual). Pois, como fenômeno (fragmento) que existe, também existe enquanto integralidade.  
+
+- O "sou" sem autoconsciência, autopresença e autonomia, em sua forma integral, experimenta subjetivamente a sensação de aniquilação de si mesmo. Isso ocorre porque, em sua perspectiva, sua subsistência está fundamentada apenas em suas percepções sensoriais.  
+
+- Exemplo: O "sou" sem autonomia tem a impressão de que pode ser desligado da Matrix a qualquer momento, com sua existência sendo extinta para sempre.  
+
 
 ## Liberdade e Neutralidade
 
