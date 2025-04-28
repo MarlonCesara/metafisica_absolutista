@@ -493,6 +493,25 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - "Meu universo é infinito, portanto, pode estar a uma distância infinita do seu. Ou seja, em seu ponto de vista posso fazê-lo nada."
 
 
+## **Autonomia na Integralidade e na Manifestação: A Ontologia dos Absolutos Perceptuais**  
+
+1. **Dissolução sem Corrupção**  
+   - Cada autodeterminador possui a capacidade de **cessar sua manifestação específica**, retornando ao seu *nada particular* (a ausência de sua forma fenomenológica), **sem afetar o nada integral** (o fundamento indiferenciado do Ser).  
+   - Isso é possível porque sua existência é **perceptual**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Absoluto.  
+   - *Exemplo*: Um sonho que se dissolve sem apagar a consciência do sonhador.  
+
+2. **Composição de Realidades Absolutas**  
+   - Cada autodeterminador **cria mundos fenomenológicos completos e autocontidos**, sem fundi-los à realidade integral do Ser.  
+   - Sua **unicidade perceptual** garante que sua construção existencial permaneça **distinta**, ainda que emergindo do mesmo substrato ontológico.  
+   - *Exemplo*: Um programador que cria universos virtuais independentes dentro de uma mesma máquina.  
+
+3. **Paralelismo Ontológico**  
+   - **"Cada identidade é um absoluto perceptual"**:  
+     - Não há contradição entre a multiplicidade de realidades e a unidade do Ser, pois **cada autodeterminador opera como um centro de manifestação soberano**.  
+     - O *Ser* é o campo infinito; as *identidades* são as dobras ativas desse campo, cada uma **legislando sua própria realidade**.  
+   - *Analogia*: Luz branca (Ser) decomposta em espectros distintos (realidades autônomas), cada um existindo **em si** e **no todo** simultaneamente.  
+
+
 # A Liberdade entre o Real e o Ilusório
 
 **Neo:** *"Você nunca vai entender... não é sobre controle. É sobre escolha."*  
