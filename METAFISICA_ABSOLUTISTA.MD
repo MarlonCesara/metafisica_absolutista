@@ -425,7 +425,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matemático).
 
 - É a integralidade que abarca todas as possibilidades ("sous") ou nenhuma, já que não está sujeito a categorias numéricas.
-- Não se manifesta como o nada, mas como determinação manifestante (ato de existir e autodefinir-se).
+- Se manifesta como angulação do nada e como determinação manifestante (ato de existir e autodefinir-se).
 - A integralidade do Ser não é apenas a negação do fenômeno, mas a negação do fenômeno enquanto autodeterminado (ausência de forma ativa).
 - A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).
 - Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um nada de "quê" e um nada de "quem".
