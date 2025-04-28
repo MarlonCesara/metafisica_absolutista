@@ -168,8 +168,9 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 *"O Ser não é 'algo' que existe — é o próprio ato de existir, desprovido de 'quem' ou 'o quê'."*  
 
-  - Só o nada pode auto-fundamentar-se, pois não carrega identidade que exija explicação. O nada simplesmente existe - não há um 'existente' (algo ou alguém que existe), há apenas o ato puro de existir, o verbo sem sujeito.
-  - O termo 'Ser' remete ao 'quem' da existência (o sujeito), enquanto 'existir' refere-se ao 'que' da realidade (o ato impessoal). Assim, quando o nada se autodetermina, transcende sua condição de mero 'isto' para assumir o estatuto de 'quem' - uma subjetividade sem conteúdo, porém fundamental.
+  - Só o nada pode auto-fundamentar-se, pois não carrega identidade (alma criada) ou ato impessoal (manifestação) que exija explicação. 
+  - O nada simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito.
+  - O termo 'Ser' remete ao 'quem' da existência (o sujeito ausente), enquanto 'existir' refere-se ao 'que' da realidade (o ato impessoal ausente), portanto o       termo 'Ser' é o mais apropriado, pois a realidade, quanto autodeterminante (governada pelo espirito), é uma pessoalidade.  
 
 
 ## A Pureza do Ser e a Necessidade do Determinado
