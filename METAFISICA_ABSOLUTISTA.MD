@@ -583,7 +583,8 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
    - *Exemplo no Matrix*: Os humanos presos ao sistema são "almas adormecidas", enquanto Neo acorda para a liberdade ao afirmar *"Eu sei quem sou"*.  
 
 2. **A Corrupção como Retorno ao Nada**  
-   - A autonegação radical (suicídio ontológico) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o *"sou"* humano se dissolva.  
+   - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o *"sou"* humano se dissolva.  
+  - A autonegação radical involuntária (negação do próprio existir como ente autodeterminado) não desmerece o Ser, mas **revela sua potencialidade**: o Absoluto permanece, ainda que o *"sou"* humano seja indiferente a sua própria autonomia.  
    - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
 
 3. **A Liberdade como Risco Absoluto**  
