@@ -391,7 +391,6 @@ A realidade é o produto dinâmico de três elementos irredutíveis:
 ## O Nada como Estado Relacional
 
 
-- O nada não é ausência absoluta, mas dormência da matéria ou suspensão de processos mentais.
 - Sua anulação só faz sentido para o observador, não em si mesmo.
 - *Exemplo:* Um horizonte ilimitado é "nada" até que o observador defina um ângulo de visão, convertendo-o em paisagem.
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (nada). Quando focamos num barco específico (recorte), manifesta-se a forma particular.
