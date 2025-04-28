@@ -537,7 +537,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ### Liberdade do Ser (Incorruptibilidade)
 
 - O Ser necessariamente existe e é autodeterminado.
-- Sua "liberdade" não é escolha, mas expressão pura de direcionamento a si mesmo – como num matrimônio perfeito, onde a entrega é liberdade, não limitação. Isto é, a liberdade do Ser está em sua perfeição (subjetividade) e não em sua estrutura.
+- Sua "liberdade" (entre ser ou não ser) não é escolha, mas expressão pura de direcionamento a si mesmo – como num matrimônio perfeito, onde a entrega é liberdade, não limitação. Isto é, a liberdade do Ser está em sua perfeição (subjetividade) e não em sua estrutura.
 
 ### **Liberdade do "Sou" (Arbitrariedade Existencial)**  
 A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**. Sua existência é arbitrária, pois:  
