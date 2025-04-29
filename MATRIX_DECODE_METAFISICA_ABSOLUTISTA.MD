@@ -542,7 +542,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ### **Liberdade do "Sou" (Arbitrariedade Existencial)**  
 A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**. Sua existência é arbitrária, pois:  
 - **Não é fundamento do Absoluto**: O *"sou"* humano não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.  
-- **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua sustentação determinada pelo 'Ser'.  
+- **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua sustentação determinada pelo "Ser".  
 
 ## Liberdade e Autodeterminação no Absoluto
 
@@ -586,7 +586,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
    - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o 
      *"sou"* humano se dissolva.  
    - A autonegação radical involuntária (negação da própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Absoluto 
-     permanece, ainda que o *"sou"* seja indiferente a sua própria possibilidade de autonomia e liberdade.  
+     permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade de autonomia e liberdade.  
    - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
 
 3. **A Liberdade como Risco Absoluto**  
