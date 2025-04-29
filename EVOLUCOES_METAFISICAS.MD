@@ -1,13 +1,14 @@
-# **Definindo a Alma** 
+
+# **Definindo a Alma**  
 
 1. **A alma como identidade**  
-A alma por ser uma identidade no Ser é um infinito em si, e não ao contrário. Ou seja, a alma não necessita portar um infinito para ser uma identidade. Sendo uma identidade já é, em si, um infinito. 
+A alma, por ser uma identidade no Ser, é um infinito em si, e não o contrário. Ou seja, a alma não precisa portar um infinito para ser uma identidade. Sendo uma identidade, já é, em si, um infinito.  
 
-2. **A Substancia Pura da Alma**  
-A alma não necessita de um substrato de si, na verdade, é uma identidade no Ser que é viva em si. No sentido de que, essa identidade se autofundamenta ou é fundamentada pelo Ser como tal. Ou seja, a alma é o Ser em uma vida trancendida de si, de forma que, o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva. 
+2. **A Substância Pura da Alma**  
+A alma não necessita de um substrato de si; na verdade, é uma identidade no Ser que é viva em si. No sentido de que essa identidade se autofundamenta ou é fundamentada pelo Ser como tal. Ou seja, a alma é o Ser em uma vida transcendida de si, de forma que o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva.  
 
 3. **Alma como distinção do Ser**  
-A alma dispoe da potencialidade do nada, porém, de uma forma autêntica a si, ou seja, a dissolução do nada não impede sua identidade. Ainda que o nada seja o mesmo para todos, a criação a ex nihilo é relativo a sua essencia. Dessa forma, a dissolução do nada, envolve uma complexidade em sua integralidade.
+A alma dispõe da potencialidade do nada, porém de uma forma autêntica a si, ou seja, a dissolução do nada não impede sua identidade. Ainda que o nada seja o mesmo para todos, a criação *ex nihilo* é relativa à sua essência. Dessa forma, a dissolução do nada envolve uma complexidade em sua integralidade.  
 
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
@@ -29,15 +30,14 @@ A alma dispoe da potencialidade do nada, porém, de uma forma autêntica a si, o
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
-# **A Natureza do Toque entre Almas** 
+# **A Natureza do Toque entre Almas**  
 
-  1. **O Toque como autodeterminação no outro**  
-  Quando um "sou" toca a essência autodeterminada do outro, há uma fusão. Pois o conhecimento da verdade do outro, ou até mesmo a visão da verdade do outro, envolve o outro em si. Não há um reflexo da verdade do outro, sendo o reflexo a própria verdade. Desta forma, o toque é uma autodeterminação sobre o outro que também se autodeterminada.
+1. **O Toque como autodeterminação no outro**  
+Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Pois o conhecimento da verdade do outro, ou mesmo a visão dessa verdade, envolve o outro em si. Não há um reflexo da verdade do outro – o reflexo **é** a própria verdade. Dessa forma, o toque é uma autodeterminação sobre o outro que, por sua vez, também se autodetermina.  
 
-  2. **O Toque como reflexo que tende ao infinito**
-  Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente. Se tem o mesmo efeito no outro, de forma que essa 
-  transição se suceda ao infinita. Exemplo: eu vejo o que voce ve, voce ve o que eu vejo quando voce me ve, e assim sucessivamente em uma linha temporal infinita.
-  
+2. **O Toque como reflexo que tende ao infinito**  
+Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente, tem-se o mesmo efeito no outro. Essa transição se desdobra ao infinito. Exemplo: *eu vejo o que você vê, você vê o que eu vejo quando você me vê*, e assim sucessivamente, em uma linha temporal infinita.  
+
 # **O Status Quo da Alma do homem** 
   -
   -
