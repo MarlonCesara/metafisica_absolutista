@@ -35,7 +35,8 @@ A alma dispoe da potencialidade do nada, porém, de uma forma autêntica a si, o
   Quando um "sou" toca a essência autodeterminada do outro, há uma fusão. Pois o conhecimento da verdade do outro, ou até mesmo a visão da verdade do outro, envolve o outro em si. Não há um reflexo da verdade do outro, sendo o reflexo a própria verdade. Desta forma, o toque é uma autodeterminação sobre o outro que também se autodeterminada.
 
  2. **O Toque como reflexo que tende ao infinito**
-   Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente. Se tem o mesmo efeito no outro, de forma que essa transição se suceda ao infinita. Exemplo: eu vejo o que voce ve, voce ve o que eu vejo quando voce me ve, e assim sucessivamente em uma linha temporal infinita.
+  Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente. Se tem o mesmo efeito no outro, de forma que essa 
+ transição se suceda ao infinita. Exemplo: eu vejo o que voce ve, voce ve o que eu vejo quando voce me ve, e assim sucessivamente em uma linha temporal infinita.
   
 # **O Status Quo da Alma do homem** 
   -
