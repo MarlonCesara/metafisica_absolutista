@@ -17,3 +17,29 @@
    A nova realidade formada pela fusão enfrenta um **desafio metafísico**:  
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
+
+# **A Natureza do Toque entre Almas** 
+  -
+  -
+  -
+# **O Status Quo da Alma do homem** 
+  -
+  -
+  -
+# **A Necessidade do Efêmero**  
+  -
+  -
+  -
+# **A Profundidade de Adão E Eva**  
+  -
+  -
+  -
+# **Os Sintomas da Apatia da Alma**  
+  -
+  -
+  -
+# **A Potencialidade da Alma**  
+  -
+  -
+  -
+# **Possibilidades pós morte**  
