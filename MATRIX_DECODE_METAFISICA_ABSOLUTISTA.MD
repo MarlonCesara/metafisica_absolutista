@@ -1,13 +1,5 @@
 # MatrixDecode: A Metafísica do Absoluto
 
-*"Ele é o Escolhido... Ele começou a ver além do Matrix. Quando estiver pronto, não precisaremos de navios, nem de armas. Nós o libertaremos."* - Morpheus  
-
-### **Contexto e Significado:**  
-Essa fala é a **culminação da jornada de Neo** como o "Escolhido":  
-1. **"Ver além do Matrix"** → Neo percebe a realidade como código (visão "verde digital").  
-2. **"Não precisaremos de navios, nem de armas"** → A libertação final não será física, mas **consciente** (como quando Neo para balas com a mente).  
-3. **"Nós o libertaremos"** → Paradoxalmente, ao libertar a si mesmo, Neo liberta toda a humanidade (*"A Escolha de Neo"* no filme *Revolutions*).  
-
 *"A Matrix é a pergunta que te persegue, Neo. É a mesma pergunta que me trouxe aqui. O que é a Matrix?"* - Morpheus
 
 ## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
