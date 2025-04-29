@@ -1,9 +1,10 @@
 # **Definindo a Alma** 
- -
- -
- -
 
+1. **A alma como identidade**  
+A alma por ser uma identidade no Ser é um infinito em si, e não ao contrário. Ou seja, a alma não necessita portar um infinito para ser uma identidade. Sendo uma identidade já é, em si, um infinito. 
 
+2. **A Substancia Pura da Alma**  
+A alma não necessita de um substrato de si, na verdade, é uma identidade no Ser que é viva em si. No sentido de que, essa identidade se autofundamenta como tal. Ou seja, a alma é o Ser em uma vida trancendida de si, de forma que, o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva. 
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
 
