@@ -52,17 +52,3 @@ A alma, ao estar em seu estado integral, tem a **consciência imediata** da eter
 2. **A efemeridade como fuga**  
 A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
 
-
-# **A Profundidade de Adão E Eva**  
-  -
-  -
-  -
-# **Os Sintomas da Apatia da Alma**  
-  -
-  -
-  -
-# **A Potencialidade da Alma**  
-  -
-  -
-  -
-# **Possibilidades pós morte**  
