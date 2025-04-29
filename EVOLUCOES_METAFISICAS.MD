@@ -45,9 +45,14 @@ Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste 
 
 
 # **A Necessidade do Efêmero**  
-  -
-  -
-  -
+
+1. **A percepção da alma**  
+A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade de suas ações. Ou seja, tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
+
+2. **A efemeridade como fuga**  
+A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
+
+
 # **A Profundidade de Adão E Eva**  
   -
   -
