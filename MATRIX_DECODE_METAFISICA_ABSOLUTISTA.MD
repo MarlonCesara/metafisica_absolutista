@@ -172,7 +172,7 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
   - O nada simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito.
   - O termo "Ser" remete ao "quem" da existência (o sujeito ausente), enquanto "existir" refere-se ao "que" da realidade (o ato impessoal ausente). Portanto, o 
     termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade.
-  - O espírito do Ser manifesta-se a partir do ato puro de existir e é formado em prol de sua plenitude. Portanto, o Ser não possui alma criada. Podendo, 
+  - O espírito do Ser manifesta-se a partir do ato puro de existir, portanto, o Ser não possui alma criada. Podendo, 
     assim, ter sua causa e fundamento no próprio nada, ou seja, em seu ato puro de existência. Logo, a alma do Ser (não criada) dispensa fundamento para sua 
     existência e identidade.
 
