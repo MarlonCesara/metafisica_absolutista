@@ -40,9 +40,10 @@ Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no 
 
  # **O Status Quo da Alma do Homem**
 
- 1. **A alma do homem neste mundo**
+1. **A alma do homem neste mundo**  
  Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza impessoal do Ser. 
  Dessa forma, existe visão, vivência e domínio sem fusão. Assim, o homem conhece apenas as ações do arbítrio do outro, mas não sua verdadeira essência.
+
 
 
 # **A Necessidade do Efêmero**  
