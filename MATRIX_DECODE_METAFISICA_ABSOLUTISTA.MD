@@ -716,10 +716,5 @@ Os **dogmas cristãos**, sua **fé** e seus **princípios** constituem, a meu ve
 
 Por isso, **afirmo com convicção**: a **filosofia**, por si só, **não oferece** a verdadeira libertação para a **angústia humana** diante de uma existência sem propósito. Essa **solução definitiva**, creio, só se encontra em **Jesus Cristo**, **verdadeiro Deus e verdadeiro homem**.  
 
-### **Principais melhorias:**  
-- **Clareza e fluidez** no desenvolvimento das ideias.  
-- **Correções ortográficas**: "subjterfugio" → "subterfúgio"; "compeenssiveis" → "compreensíveis"; "nao" → "não"; "anguStia" → "angústia".  
-- **Precisão terminológica**: termos filosóficos e teológicos mais bem articulados.  
-- **Estrutura mais coesa**, com transições suaves entre os argumentos.  
 
 
