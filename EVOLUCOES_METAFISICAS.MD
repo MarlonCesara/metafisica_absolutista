@@ -38,7 +38,7 @@ Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Poi
 2. **O Toque como reflexo que tende ao infinito**  
 Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente, tem-se o mesmo efeito no outro. Essa transição se desdobra ao infinito. Exemplo: *eu vejo o que você vê, você vê o que eu vejo quando você me vê*, e assim sucessivamente, em uma linha temporal infinita.  
 
-# **O Status Quo da Alma do Homem**
+ # **O Status Quo da Alma do Homem**
 
  1. **A alma do homem neste mundo**
  Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza impessoal do Ser. 
