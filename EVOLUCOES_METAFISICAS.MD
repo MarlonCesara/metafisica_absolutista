@@ -34,7 +34,7 @@ Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Poi
 Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente, tem-se o mesmo efeito no outro. Essa transição se desdobra ao infinito. Exemplo: *eu vejo o que você vê, você vê o que eu vejo quando você me vê*, e assim sucessivamente, em uma linha temporal infinita.  
 
 3. **A plenitude do encontro**  
-Quando não há mais perspectiva de toque, em uma manifestação dimensional, ambas as almas experimentam a transmissão de sensação cessar, de forma que um não sente o outro se sentimento e sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrinseca a dualidade, nas extrinseca, tal como uma nova visão sobre a realidade. 
+Quando não há mais perspectiva de toque, em um encontro de almas dimensional na qual ambas estão completamente imersas uma na outra , ambas as almas experimentam a transmissão de sensação cessar, de forma que A não sente B sentindo o que A sente e assim sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrínseca a dualidade, nas extrínseca, tal como uma nova visão sobre a realidade. E essa nova visão é viva, em vista de que, é resultado da união de duas visões vivas.
 
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
