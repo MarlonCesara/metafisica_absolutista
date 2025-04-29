@@ -554,7 +554,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 ### Autodeterminação e Evolução Espiritual
 
 - A capacidade de autodeterminação está ligada ao desenvolvimento espiritual, permitindo ao ente governar-se pelo espírito.
-- Sem a atuação do espírito, o autodomínio fica restrito à essência herdada pela alma do Ser, tornando a realidade do "sou" uma mera possibilidade para Deus e outros, mas não uma verdade plena para o próprio "sou" (autoconsciência, autopresença e autonomia).
+- Sem a atuação do espírito, o autodomínio fica restrito à essência herdada pela alma do Ser, tornando a existencia do "sou" uma verdade para o Ser, mas não uma verdade plena para o próprio "sou" (autoconsciência, autopresença e autonomia).
 
 ### O Amor como Princípio Fundante
 *"O amor não é um sentimento. É uma palavra. O que importa é a conexão que ela representa."* - Oráculo
@@ -585,8 +585,8 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 2. **A Corrupção como Retorno ao Nada**  
    - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o 
      *"sou"* humano se dissolva.  
-   - A autonegação radical involuntária (negação do próprio existir como ente autodeterminado) não desmerece o Ser, mas **revela sua potencialidade**: o Absoluto 
-     permanece, ainda que o *"sou"* humano seja indiferente a sua própria autonomia.  
+   - A autonegação radical involuntária (negação da própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Absoluto 
+     permanece, ainda que o *"sou"* seja indiferente a sua própria possibilidade de autonomia e liberdade.  
    - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
 
 3. **A Liberdade como Risco Absoluto**  
@@ -595,7 +595,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ### A Arbitrariedade na Integralidade  
 
-- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência - permanece em seu estado integral (nada individual). Pois, como fenômeno (fragmento) que existe, também existe enquanto integralidade.  
+- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência - pode ser sustentado pelo Ser em seu estado integral (nada individual). Pois, como fenômeno (fragmento) que existe, também existe enquanto integralidade.  
 
 - O "sou" sem autoconsciência, autopresença e autonomia, em sua forma integral, experimenta subjetivamente a sensação de aniquilação de si mesmo. Isso ocorre porque, em sua perspectiva, sua subsistência está fundamentada apenas em suas percepções sensoriais.  
 
@@ -611,26 +611,6 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.
 - Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então Deus também teria infinitas possibilidades de ação em sua integralidade.
 
-
-
-## **A fusão de almas: aprisionamento e liberdade**  
-
-1. **A Limitação Fenomênica do "Sou"**  
-   O *"sou"* individual não pode manifestar plenamente seu próprio infinito, pois toda aparição fenomênica é, por natureza, **um recorte do ilimitado**. Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — jamais a totalidade do Ser que a sustenta.  
-
-2. **Pluralidade de Almas como Diversidade Ontológica**  
-   O *"sou A"* e o *"sou B"* possuem conteúdos distintos porque **cada alma é uma perspectiva única do Absoluto**. Não há repetição no Ser: cada consciência é um **ato irrepetível** de autodeterminação, uma variação infinita dentro da unidade metafísica.  
-
-3. **Fusão como Transcendência da Dualidade**  
-   Quando duas verdades particulares (*"sou A"* e *"sou B"*) se encontram, não se somam — **fundem-se em uma nova realidade homogênea**. Esse estado não é uma mera justaposição, mas uma **transformação ontológica**: como duas notas musicais que, ao se harmonizarem, criam um acorde **indiscernível em sua origem**.  
-
-4. **Retroalimentação e o Paradoxo da Manifestação**  
-   Nenhuma fusão esgota o potencial dos *"sous"* originários, pois **toda manifestação é finita perante o infinito que a alimenta**. A fragmentação não é uma perda, mas **o modo pelo qual o Absoluto se revela no tempo**: cada ato de existir é simultaneamente **uma expressão e um eclipsar-se** do todo.  
-
-5. **Autodeterminação ou Dissolução: O Dilema da Realidade Emergente**  
-   A nova realidade formada pela fusão enfrenta um **desafio metafísico**:  
-   - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
-   - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
 ## Natureza da Conexão entre Homem e Deus
 
