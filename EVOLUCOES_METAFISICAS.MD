@@ -4,7 +4,11 @@
 A alma por ser uma identidade no Ser é um infinito em si, e não ao contrário. Ou seja, a alma não necessita portar um infinito para ser uma identidade. Sendo uma identidade já é, em si, um infinito. 
 
 2. **A Substancia Pura da Alma**  
-A alma não necessita de um substrato de si, na verdade, é uma identidade no Ser que é viva em si. No sentido de que, essa identidade se autofundamenta como tal. Ou seja, a alma é o Ser em uma vida trancendida de si, de forma que, o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva. 
+A alma não necessita de um substrato de si, na verdade, é uma identidade no Ser que é viva em si. No sentido de que, essa identidade se autofundamenta ou é fundamentada pelo Ser como tal. Ou seja, a alma é o Ser em uma vida trancendida de si, de forma que, o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva. 
+
+3. **Alma como distinção do Ser**  
+A alma dispoe da potencialidade do nada, porém, de uma forma autêntica a si, ou seja, a dissolução do nada não impede sua identidade. Ainda que o nada seja o mesmo para todos, a criação a ex nihilo é relativo a sua essencia. Dessa forma, a dissolução do nada, envolve uma complexidade em sua integralidade.
+
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
 
