@@ -759,9 +759,3 @@ e há os que viram estátuas de sal.
 Há liberdade.  
 Há consequência.  
 
-E depois...  
-só o silêncio.  
-
-
-
-
