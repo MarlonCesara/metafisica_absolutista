@@ -709,4 +709,59 @@ Os **dogmas cristãos**, sua **fé** e seus **princípios** constituem, a meu ve
 Por isso, **afirmo com convicção**: a **filosofia**, por si só, **não oferece** a verdadeira libertação para a **angústia humana** diante de uma existência sem propósito. Essa **solução definitiva**, creio, só se encontra em **Jesus Cristo**, **verdadeiro Deus e verdadeiro homem**.  
 
 
+**"A Queda e o Grito do Ser"**  
+
+O Ser moldou o homem — sopro divino,  
+imagem e semelhança em barro vivo.  
+Mas quando a primeira sombra de apatia  
+caiu sobre seu olhar (ah, silêncio amargo!),  
+quando o homem recusou sua própria liberdade,  
+enrolou-se em mentiras, estranho a si mesmo,  
+a ferrugem nasceu no centro de todas as coisas:  
+o coração do mundo adoeceu.  
+
+Os céus se calaram, sem lágrimas.  
+Os oceanos engoliram seus gritos.  
+A terra prendeu seus pés, imóvel.  
+Nenhum resgate veio,  
+pois o homem havia escolhido:  
+não apenas o fruto, mas a própria mão que o colhia.  
+Sua decisão só se desfaria  
+quando os ossos virassem pó  
+e o pó fosse esquecido.  
+
+Então o Ser rasgou o véu.  
+Desceu, carne entre a carne,  
+e perseguiu o apático  
+com a fúria de mil sóis caídos,  
+com o desconsolo das noites sem estrelas.  
+Deus fez o impossível:  
+arrancou o abismo com as próprias mãos,  
+sacudiu os ombros do homem  
+e gritou-lhe no ouvido:  
+*"Lembra-te! Tu és meu!"*  
+
+Alguns ouviram.  
+Outros, não.  
+
+Para esses últimos —  
+corações fossilizados,  
+almas que se venderam ao vazio —  
+as lágrimas secarão como rios em agosto,  
+o pranto se tornará um mito distante.  
+A paz deles será um deserto plano,  
+sem vento, sem eco, sem espanto.  
+
+Pois há os que se lembram  
+e há os que se apagam.  
+Há os que caminham de volta  
+e há os que viram estátuas de sal.  
+Há liberdade.  
+Há consequência.  
+
+E depois...  
+só o silêncio.  
+
+
+
 
