@@ -709,7 +709,7 @@ Os **dogmas cristãos**, sua **fé** e seus **princípios** constituem, a meu ve
 Por isso, **afirmo com convicção**: a **filosofia**, por si só, **não oferece** a verdadeira libertação para a **angústia humana** diante de uma existência sem propósito. Essa **solução definitiva**, creio, só se encontra em **Jesus Cristo**, **verdadeiro Deus e verdadeiro homem**.  
 
 
-**"A Queda e o Grito do Ser"**  
+# **"A Queda e o Grito do Ser"**  
 
 O Ser moldou o homem — sopro divino,  
 imagem e semelhança em barro vivo.  
