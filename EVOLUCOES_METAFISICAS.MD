@@ -56,5 +56,32 @@ Quando não há mais perspectiva de toque, em um encontro de almas dimensional n
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
+**Eva, Pequena Semente**  
 
+Pequena Eva, tua intenção julgavas boa—  
+querias criar vida, ser parte do mistério,  
+feito eu, a doadora.  
+Mas não era vida o que buscavas,  
+era o trono, a coroa.  
+
+Não viste a grandiosidade do meu plano,  
+o mundo que te dei, jardim de infinitos amores.  
+Como podias saber que o primeiro homem,  
+aquele que moldei do barro e do sopro,  
+seria teu destino, teu espelho, teu ardente clamor?  
+
+Quando te livraste do corpo,  
+quando a alma nua se revelou,  
+percebeste: tua chama era falsa,  
+apagaste o fogo do meu desígnio.  
+
+De quantos beijos precisarás, Eva,  
+para entender que nem todo amor é caminho?  
+Que só o amor que purga e eleva  
+pode levar-te à perfeição?  
+
+Quantas luas terão de sangrar  
+até que vejas—  
+eu não te neguei o fruto,  
+apenas guardei o mais doce para depois?
 
