@@ -84,7 +84,7 @@ Que só o amor que purga e eleva
 pode levar-te à perfeição?  
 
 Quantas luas terão de sangrar  
-até que vejas—  
+até que vejas? —  
 eu não te neguei o fruto,  
-apenas guardei o mais doce para depois?
+apenas guardei o mais doce para depois
 
