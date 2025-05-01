@@ -671,7 +671,8 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 ## **A Necessidade do Efêmero**  
 
 ### 1. **A percepção da alma**  
-- A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. 
+- A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. A autodeterminação a confere este 
+  conhecimento, pois possui autonomia, autodomínio e autoconhecimento sobre sua verdade.
 - Tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
 - Tem o conhecimento da necessidade de uma situação efêmera quando não dispoe dos requisitos morais necessários para se assumir de forma autêntica na existência.
 
