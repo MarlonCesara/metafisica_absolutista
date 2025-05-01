@@ -756,6 +756,9 @@ Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no 
 3. **A plenitude do encontro**  
 Quando não há mais perspectiva de toque, em um encontro de almas dimensional na qual ambas estão completamente imersas uma na outra , ambas as almas experimentam a transmissão de sensação cessar, de forma que A não sente B sentindo o que A sente e assim sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrínseca a dualidade, nas extrínseca, tal como uma nova visão sobre a realidade. E essa nova visão é viva, em vista de que, é resultado da união de duas visões vivas.
 
+4. **A indefinição do encontro**  
+O encontro total gera uma indefinição, a alma A já não se define como si própria e nem a alma B, de forma que, a busca por definição se dá do próprio encontro, e não mais da individualidade de cada alma, ou seja, é o produto do encontro que busca por si uma definição. O resultado do encontro tendo forma, pensamento, e todos os requisitos de uma alma solida enfrenta, portanto o desafio inicial de uma nova alma, evoluir seu espirito. Sua existencia é o breve momento do unir de visões, quando as visões se desligam o novo ente se sente rasgado ao meio, pois seu eu era construido, não havia possuido a si mesmo. Ao possuir a si, se desgarra da fusão da alma A e alma B como uma nova identidade para absoluto e não como um novo infinito. 
+
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
 
