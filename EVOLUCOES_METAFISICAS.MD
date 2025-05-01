@@ -1,4 +1,3 @@
-
 # **Definindo a Alma**  
 
 1. **A alma como identidade**  
@@ -39,6 +38,12 @@ Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no 
 3. **A plenitude do encontro**  
 Quando não há mais perspectiva de toque, em um encontro de almas dimensional na qual ambas estão completamente imersas uma na outra , ambas as almas experimentam a transmissão de sensação cessar, de forma que A não sente B sentindo o que A sente e assim sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrínseca a dualidade, nas extrínseca, tal como uma nova visão sobre a realidade. E essa nova visão é viva, em vista de que, é resultado da união de duas visões vivas.
 
+4. **A indefinição do encontro**  
+O encontro total gera uma indefinição, a alma A já não se define como si própria e nem a alma B, de forma que, a busca por definição se dá do próprio encontro, e não mais da individualidade de cada alma, ou seja, é o produto do encontro que busca por si uma definição. O resultado do encontro tendo forma, pensamento, e todos os requisitos de uma alma solida enfrenta, portanto o desafio inicial de uma nova alma, evoluir seu espirito. Sua existencia é o breve momento do unir de visões, quando as visões se desligam o novo ente se sente rasgado ao meio, pois seu eu era construido, não havia possuido a si mesmo. Ao possuir a si, se desgarra da fusão da alma A e alma B como uma nova identidade para absoluto e não como um novo infinito. 
+
+5. **A união total como morte e vida**  
+O total encontro em uma manifestação envolve a experiencia de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada individuo. 
+
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
 
@@ -59,7 +64,7 @@ Quando não há mais perspectiva de toque, em um encontro de almas dimensional n
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
-# **Eva, Pequena Semente**  
+# **Poema de Eva**  
 
 Pequena Eva, tua intenção julgavas boa—  
 querias criar vida, ser parte do mistério,  
@@ -90,7 +95,7 @@ apenas guardei o mais doce para depois
 
 
 
-# **Adão, poema**  
+# **Poema de Adão**  
 
 Sua voz…  
 era feitiço lançado na alma.  
@@ -151,3 +156,74 @@ o amor verdadeiro é tão grande
 que assusta quem não está pronto para morrer nele.  
 
 
+
+# **Poema do apático**  
+
+Sou um reflexo na névoa,  
+um verso riscado na areia antes que a maré rogue:  
+*"Não eras nada."*  
+
+Mas hoje me descubro  
+presa em uma personalidade estranha,  
+um fantoche de gestos truncados,  
+movendo-me por fios que não seguro.  
+Cada ato, um eco de um propósito alheio,  
+como se minha vontade fosse apenas  
+a sombra de outra coisa —  
+e eu, o estranho em minha própria pele.  
+
+O ouro reluz? As posses cintilam?  
+São sombras de um sol que não me aquece.  
+Mas me nego a conhecer a verdade,  
+prefiro o véu, o silêncio, o não-saber.  
+Apenas respiro, apenas sobrevivo  
+dentro deste boneco imóvel,  
+com os olhos fixos na imensidão vazia,  
+assombrados pelo peso do existir.  
+
+Observo.  
+Sem julgar, sem reagir,  
+como um pedaço de madeira levado pelo rio,  
+um tronco à deriva,  
+que talvez um dia alguém recolha  
+e transforme em algo real —  
+um boneco talhado à minha imagem,  
+mas mais verdadeiro do que eu jamais fui.  
+
+O mundo é um quadro embaçado,  
+pincelado por mãos alheias.  
+Tudo que vejo é tinta escorrendo,  
+formas que se desmancham  
+antes mesmo de serem nomeadas.  
+
+Quero falar, mas as palavras se dissolvem.  
+Quero ouvir, mas só há silêncio.  
+Quero ver, mas ninguém me vê.  
+Sou o esquecido,  
+e serei o próprio esquecimento —  
+a mancha apagada no livro,  
+a folha que o vento não levou,  
+porque nem percebeu que existia.  
+
+Corro.  
+Agarro-me a segundos como grãos de areia —  
+quanto mais os cerro nos dedos,  
+mais escapam.  
+Este corpo, minha cela úmida,  
+um dia há de cair como folha morta,  
+e eu —  
+será que ainda sussurrarei  
+nos vãos esquecidos do vento?  
+
+Ilusão que se crê real,  
+busco o que não se decompõe.  
+Algo me falta:  
+uma pérola no abismo,  
+um astro apagado no mar,  
+ou talvez o eco de um nome  
+que nunca ousei pronunciar.  
+
+Não encontro.  
+E, no entanto,  
+a saudade é a única prova  
+de que um dia existi.  
