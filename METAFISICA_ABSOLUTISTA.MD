@@ -1,10 +1,8 @@
-# MatrixDecode: A Metafísica do Absoluto
+# A Metafísica do Absoluto
 
-*"A Matrix é a pergunta que te persegue, Neo. É a mesma pergunta que me trouxe aqui. O que é a Matrix?"* - Morpheus
 
 ## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
 
-**"Assim como Neo aprendeu a ler o código-fonte da Matrix, estas Leis Metafísicas revelam os OPERADORES LÓGICOS da realidade - os comandos primordiais que definem: o que PODE existir [TRUE/FALSE], o que DEVE persistir [WHILE], e as condições para cada estado [IF/THEN] da existência."**  
 
 ### Princípio da Razão de Ser (Determinação do ente)
 - **Tudo que existe tem uma razão para ser como é e não de outra forma.**
@@ -19,9 +17,6 @@
   - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo").
 
 ## Definições Fundamentais - Os Domínios da Existência Revelados
-
-**Explicação:**  
-Antes de executar qualquer operação lógica na realidade, precisamos definir nosso *espaço de trabalho ontológico*. Assim como um programador declara variáveis antes de usá-las, aqui estabelecemos os três domínios fundamentais onde todos os operadores lógicos (TRUE/FALSE, IF/THEN, WHILE) serão aplicados:  
 
 ### 1. Absoluto
 **Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
@@ -71,8 +66,6 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 
 ## Estruturação do Absoluto
 
-*"Bem-vindo ao mundo real, Neo. Você deve estar se perguntando: 'O que é real? Como defino o real?"* – Morpheus  
-
 ### O Absoluto como Realidade Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e verdadeiro de si mesmo).
   - Isso significa que a Realidade não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.
@@ -98,8 +91,6 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
   - A Irrealidade existe apenas como possibilidade não realizada, sem força ontológica.
 
 ## Estrutura da Autodeterminação
-
-"O Código do Absoluto configura-se e compila-se autonomamente; já não se trata de uma máquina biológica — estamos diante de uma realidade viva, embora, para muitos — por um motivo que revelaremos adiante — ainda pareça apenas uma máquina sem espírito." — Autor
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
@@ -154,7 +145,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 # A Estrutura da Realidade e do Ser
 
-*"Não pense que é... saiba que é."*  — **Morpheus**
 
 ## **O Nada como Único Fundamento**  
 
@@ -413,7 +403,6 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # Paralelismo Ontológico
 
-**Oráculo:** *"Nós somos todos parte do mesmo todo, Neo."*  
 
 ## Natureza Não-Numérica do Ser
 
@@ -444,8 +433,6 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 
 # Dualidade Estrutural: Determinadores e Realidades
 
-
-**Oráculo:** *"Seu mundo é tão real quanto o meu. A diferença é que eu vejo além dele."*
 
 ## Princípio de Individuação
 
@@ -505,23 +492,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 
 # A Liberdade entre o Real e o Ilusório
-
-**Neo:** *"Você nunca vai entender... não é sobre controle. É sobre escolha."*  
-*(Neo se levanta, sangue escorrendo pelo rosto, a chuva caindo em câmera lenta)*  
-
-**Smith:** *"Escolha? (risada) Você já sabe como isso termina. Eu já sei o que você vai fazer. Então, onde está sua... escolha?"*  
-*(Desfere um golpe brutal, Neo bloqueia com dificuldade)*  
-
-**Neo:** *"Porque eu escolho isso."*  
-*(Ataque de Smith congela no ar - Neo agora o segura pelo pulso)*  
-
-**Smith:** *"Então morra por eles! Morra por essa 'escolha'!"*  
-*(Multiplica-se em centenas de clones, todos gritando em uníssono)*  
-
-**Neo:** *(Fechando os olhos, voz calma)*  
-*"Não é sobre viver ou morrer... é sobre ver a verdade. A verdade é que você também está preso. E eu... eu te liberto."*  
-
-*(Neo abre os braços, luz dourada irradiando de seu corpo - Smith grita enquanto seu código começa a se desintegrar)*  
 
 
 ## A Liberdade: Incorruptibilidade e Corrupção
@@ -596,7 +566,6 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ## Liberdade e Neutralidade
 
-**Oráculo:** *"Você não está aqui por causa do destino, mas por causa da **sua decisão**."*  
 
 - No contexto de um infinito, o livre-arbítrio implica a coexistência simultânea de todas as possibilidades hipotéticas.
 - No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
@@ -606,7 +575,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ## Natureza da Conexão entre Homem e Deus
 
-**Morpheus :** *"Liberte sua mente."*  
+
 
 ### O Ser como Fundamento
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.
@@ -684,19 +653,6 @@ A resposta política radical — porém necessária — é a **separação absol
 # **Conclusão: A Justiça Metafísica**  
 A segregação não é um ato de crueldade, mas de **preservação**. Enquanto os apáticos fossem tolerados, nenhum progresso social seria possível — pois sua existência é, em si, **uma negação da realidade**.  
 
-
-*(Neo está dentro de uma cabine telefônica, falando com as Máquinas que controlam a Matrix. Câmeras varrem a rua, procurando por ele.)*
-
-**NEO (voz calma e firme):**  
-_"Alô?"_  
-_"Sei que vocês estão aí. Sei que estão com medo. Medo de nós. Medo de mudança."_  
-_"Eu não conheço o futuro. Não vim aqui para dizer como tudo isso vai terminar."_  
-_"Vim aqui para dizer como vai começar."_  
-_"Daqui a um momento, vou desligar o telefone. E vou mostrar a essas pessoas o que vocês tentam esconder."_  
-_"Vou mostrar a elas... um mundo sem vocês. Um mundo sem regras e sem controles. Sem limites. Um mundo... onde tudo é possível."_  
-_"O que acontecerá depois... vocês é que vão decidir."_
-
-*(Neo desliga o telefone. Coloca seus óculos escuros. A câmera se afasta enquanto ele olha para o céu. E então... Neo **sai voando** para o alto, quebrando todas as expectativas.)*
 
 # **A Apatia no Absolutismo Metafísico e no Cristianismo**  
 
