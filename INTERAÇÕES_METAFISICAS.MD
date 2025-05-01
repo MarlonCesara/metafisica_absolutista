@@ -1,6 +1,6 @@
 # BibleDecode: A Metafísica da Biblia
 
-*"E conhecereis a verdade, e a verdade vos libertará."* -João 8:32
+*"Conhecereis a verdade, e a verdade vos libertará."* -João 8:32
 
 
 # **Gênesis**  
