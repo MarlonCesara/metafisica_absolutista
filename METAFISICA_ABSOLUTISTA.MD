@@ -872,7 +872,7 @@ que assusta quem não está pronto para morrer nele.
 
 
 
-# **Poema doo apático**  
+# **Poema do apático**  
 
 Sou um reflexo na névoa,  
 um verso riscado na areia antes que a maré rogue:  
