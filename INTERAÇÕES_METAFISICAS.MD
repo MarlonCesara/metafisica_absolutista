@@ -1,8 +1,7 @@
 
 # **Gênesis Absolutista**  
 
-Deus não poderia permanecer impassível diante da queda do homem, nem na periculosidade do amor conjugal entre duas almas e nem na dor do estado de apátia de uma alma.  
-Agir pela Sua plenitude, portanto, implicou agir pelo homem — salvá-lo de si mesmo, pois não havia necessidade de salvá-lo de Deus.  
+Deus não poderia permanecer impassível diante da queda do homem, nem na periculosidade do amor conjugal entre duas almas e nem na dor do estado de apátia de uma alma. Agir pela Sua plenitude, portanto, implicou agir pelo homem — salvá-lo de si mesmo.  
 
 Uma união eterna com o outra alma corruptível, movida pelo orgulho, é de fato uma perdição, assim como nunca encontrar a si mesmo. Pois, ao fazer do outro parte de si e ainda assim desencontrá-lo, é o mesmo que perder-se a si próprio.  
 
