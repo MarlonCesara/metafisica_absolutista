@@ -11,8 +11,6 @@ Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O poss
 # **A Natureza do Toque entre Almas**  
 
 
-## **A Natureza do Toque entre Almas**  
-
 1. **O Toque como autodeterminação no outro**  
 Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Pois o conhecimento da verdade do outro, ou mesmo a visão dessa verdade, envolve o outro em si. Não há um reflexo da verdade do outro – o reflexo **é** a própria verdade. Dessa forma, o toque é uma autodeterminação sobre o outro que, por sua vez, também se autodetermina.  
 
