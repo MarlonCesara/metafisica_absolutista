@@ -593,7 +593,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 - Exemplo: O "sou" sem autonomia tem a impressão de que pode ser desligado da Matrix a qualquer momento, com sua existência sendo extinta para sempre.  
 
-## **Liberdade e Neutralidade**
+# **Liberdade e Neutralidade**
 
 **Oráculo:** *"Você não está aqui por causa do destino, mas por causa da **sua decisão**."*  
 
