@@ -670,20 +670,20 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ## **A Necessidade do Efêmero**  
 
-1. **A percepção da alma**  
+### 1. **A percepção da alma**  
 - A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. 
 - Tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
 - Tem o conhecimento da necessidade de uma situação efêmera quando não dispoe dos requisitos morais necessários para se assumir de forma autêntica na existência.
 
-2. **A efemeridade como fuga**  
+### 2. **A efemeridade como fuga**  
 A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
 
-3. **A efemeridade do apático**  
+### 3. **A efemeridade do apático**  
 A alma apática de forma alguma transcende a efemeridade, pois tem consciência de que suas ações podem não corresponder à sua própria plenitude, já que é guiada por tendências de sua personalidade — e não por uma sincera predisposição à plenitude. 
 
  ## **O Status Quo da Alma do Homem**
 
-1. **A alma do homem neste mundo**  
+### 1. **A alma do homem neste mundo**  
  Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza impessoal do Ser. 
  Dessa forma, existe visão, vivência e domínio sem fusão. Assim, o homem conhece apenas as ações do arbítrio do outro, mas não sua verdadeira essência.
 
