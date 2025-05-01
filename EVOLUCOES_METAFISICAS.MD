@@ -150,7 +150,4 @@ Que isso sirva de lição:
 o amor verdadeiro é tão grande  
 que assusta quem não está pronto para morrer nele.  
 
----
-
-Se quiser, posso adaptar esse texto para virar uma narração com trilha sonora, ou até transformá-lo em roteiro poético para vídeo. Quer seguir por esse caminho?
 
