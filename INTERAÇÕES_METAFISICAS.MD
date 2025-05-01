@@ -1,5 +1,7 @@
-
 # **A Natureza do Toque entre Almas**  
+
+
+## **A Natureza do Toque entre Almas**  
 
 1. **O Toque como autodeterminação no outro**  
 Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Pois o conhecimento da verdade do outro, ou mesmo a visão dessa verdade, envolve o outro em si. Não há um reflexo da verdade do outro – o reflexo **é** a própria verdade. Dessa forma, o toque é uma autodeterminação sobre o outro que, por sua vez, também se autodetermina.  
@@ -17,7 +19,7 @@ O encontro total gera uma indefinição, a alma A já não se define como si pr�
 O total encontro em uma manifestação envolve a experiencia de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada individuo. 
 
 
-# **Fusão de almas: Aprisionamento e Liberdade**  
+## **Fusão de almas: Aprisionamento e Liberdade**  
 
 1. **A Limitação Fenomênica do "Sou"**  
    O *"sou"* individual não pode manifestar plenamente seu próprio infinito, pois toda aparição fenomênica é, por natureza, **um recorte do ilimitado**. Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — jamais a totalidade do Ser que a sustenta.  
@@ -36,7 +38,7 @@ O total encontro em uma manifestação envolve a experiencia de incorrer em uma 
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
-# **Poema de Eva**  
+## **Poema de Eva**  
 
 Pequena Eva, tua intenção julgavas boa—  
 querias criar vida, ser parte do mistério,  
@@ -67,7 +69,7 @@ apenas guardei o mais doce para depois
 
 
 
-# **Poema de Adão**  
+## **Poema de Adão**  
 
 Sua voz…  
 era feitiço lançado na alma.  
@@ -129,7 +131,7 @@ que assusta quem não está pronto para morrer nele.
 
 
 
-# **Poema do apático**  
+## **Poema do apático**  
 
 Sou um reflexo na névoa,  
 um verso riscado na areia antes que a maré rogue:  
