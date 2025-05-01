@@ -130,76 +130,6 @@ que assusta quem não está pronto para morrer nele.
 
 
 
-## **Poema do apático**  
-
-Sou um reflexo na névoa,  
-um verso riscado na areia antes que a maré rogue:  
-*"Não eras nada."*  
-
-Mas hoje me descubro  
-presa em uma personalidade estranha,  
-um fantoche de gestos truncados,  
-movendo-me por fios que não seguro.  
-Cada ato, um eco de um propósito alheio,  
-como se minha vontade fosse apenas  
-a sombra de outra coisa —  
-e eu, o estranho em minha própria pele.  
-
-O ouro reluz? As posses cintilam?  
-São sombras de um sol que não me aquece.  
-Mas me nego a conhecer a verdade,  
-prefiro o véu, o silêncio, o não-saber.  
-Apenas respiro, apenas sobrevivo  
-dentro deste boneco imóvel,  
-com os olhos fixos na imensidão vazia,  
-assombrados pelo peso do existir.  
-
-Observo.  
-Sem julgar, sem reagir,  
-como um pedaço de madeira levado pelo rio,  
-um tronco à deriva,  
-que talvez um dia alguém recolha  
-e transforme em algo real —  
-um boneco talhado à minha imagem,  
-mas mais verdadeiro do que eu jamais fui.  
-
-O mundo é um quadro embaçado,  
-pincelado por mãos alheias.  
-Tudo que vejo é tinta escorrendo,  
-formas que se desmancham  
-antes mesmo de serem nomeadas.  
-
-Quero falar, mas as palavras se dissolvem.  
-Quero ouvir, mas só há silêncio.  
-Quero ver, mas ninguém me vê.  
-Sou o esquecido,  
-e serei o próprio esquecimento —  
-a mancha apagada no livro,  
-a folha que o vento não levou,  
-porque nem percebeu que existia.  
-
-Corro.  
-Agarro-me a segundos como grãos de areia —  
-quanto mais os cerro nos dedos,  
-mais escapam.  
-Este corpo, minha cela úmida,  
-um dia há de cair como folha morta,  
-e eu —  
-será que ainda sussurrarei  
-nos vãos esquecidos do vento?  
-
-Ilusão que se crê real,  
-busco o que não se decompõe.  
-Algo me falta:  
-uma pérola no abismo,  
-um astro apagado no mar,  
-ou talvez o eco de um nome  
-que nunca ousei pronunciar.  
-
-Não encontro.  
-E, no entanto,  
-a saudade é a única prova  
-de que um dia existi.  
 
 # **Existencialismo e Política: A Patologia da Apatia**  
 
@@ -310,4 +240,73 @@ e há os que viram estátuas de sal.
 Há liberdade.  
 Há consequência.  
 
+## **Poema do apático**  
 
+Sou um reflexo na névoa,  
+um verso riscado na areia antes que a maré rogue:  
+*"Não eras nada."*  
+
+Mas hoje me descubro  
+presa em uma personalidade estranha,  
+um fantoche de gestos truncados,  
+movendo-me por fios que não seguro.  
+Cada ato, um eco de um propósito alheio,  
+como se minha vontade fosse apenas  
+a sombra de outra coisa —  
+e eu, o estranho em minha própria pele.  
+
+O ouro reluz? As posses cintilam?  
+São sombras de um sol que não me aquece.  
+Mas me nego a conhecer a verdade,  
+prefiro o véu, o silêncio, o não-saber.  
+Apenas respiro, apenas sobrevivo  
+dentro deste boneco imóvel,  
+com os olhos fixos na imensidão vazia,  
+assombrados pelo peso do existir.  
+
+Observo.  
+Sem julgar, sem reagir,  
+como um pedaço de madeira levado pelo rio,  
+um tronco à deriva,  
+que talvez um dia alguém recolha  
+e transforme em algo real —  
+um boneco talhado à minha imagem,  
+mas mais verdadeiro do que eu jamais fui.  
+
+O mundo é um quadro embaçado,  
+pincelado por mãos alheias.  
+Tudo que vejo é tinta escorrendo,  
+formas que se desmancham  
+antes mesmo de serem nomeadas.  
+
+Quero falar, mas as palavras se dissolvem.  
+Quero ouvir, mas só há silêncio.  
+Quero ver, mas ninguém me vê.  
+Sou o esquecido,  
+e serei o próprio esquecimento —  
+a mancha apagada no livro,  
+a folha que o vento não levou,  
+porque nem percebeu que existia.  
+
+Corro.  
+Agarro-me a segundos como grãos de areia —  
+quanto mais os cerro nos dedos,  
+mais escapam.  
+Este corpo, minha cela úmida,  
+um dia há de cair como folha morta,  
+e eu —  
+será que ainda sussurrarei  
+nos vãos esquecidos do vento?  
+
+Ilusão que se crê real,  
+busco o que não se decompõe.  
+Algo me falta:  
+uma pérola no abismo,  
+um astro apagado no mar,  
+ou talvez o eco de um nome  
+que nunca ousei pronunciar.  
+
+Não encontro.  
+E, no entanto,  
+a saudade é a única prova  
+de que um dia existi.  
