@@ -4,7 +4,7 @@
 Deus não poderia permanecer impassível diante da queda do homem, nem na periculosidade do amor conjugal entre duas almas e nem na dor do estado de apátia de uma alma.  
 Agir pela Sua plenitude, portanto, implicou agir pelo homem — salvá-lo de si mesmo, pois não havia necessidade de salvá-lo de Deus.  
 
-Uma união eterna com o outro, movida pelo orgulho, é de fato uma perdição, assim como nunca encontrar a si mesmo. Pois, ao fazer do outro parte de si e ainda assim desencontrá-lo, é o mesmo que perder-se a si próprio.  
+Uma união eterna com o outra alma corruptível, movida pelo orgulho, é de fato uma perdição, assim como nunca encontrar a si mesmo. Pois, ao fazer do outro parte de si e ainda assim desencontrá-lo, é o mesmo que perder-se a si próprio.  
 
 Deus, então, busca resgatar o homem da apatia no amor e, sobretudo, da apatia em sua própria existência.  
 Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O possível pode ser expresso pela lógica; o impossível, somente por provérbios, poesias e profecias.  
