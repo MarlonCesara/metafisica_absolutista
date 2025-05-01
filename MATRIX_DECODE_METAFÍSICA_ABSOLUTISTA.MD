@@ -651,20 +651,20 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 # **Definindo a Alma**  
 
-1. **A alma como identidade**  
+### 1. **A alma como identidade**  
 - A alma não é um "recipiente" de um infinito, mas **o próprio Absoluto em perspectiva singular** que adere a um infinito de si.  
 - Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Absoluto.  
 - Sua finitude fenomênica não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
-2. **A Substância Pura da Alma**  
+### 2. **A Substância Pura da Alma**  
 - A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
 - Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Absoluto**.  
 
-3. **A Limitação Fenomênica do "Sou"**  
+### 3. **A Limitação Fenomênica do "Sou"**  
 - O "sou" individual não pode manifestar plenamente seu próprio infinito, pois toda aparição é um **recorte do ilimitado**.  
 - Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — nunca a totalidade do Ser que a fundamenta.  
 
-4. **Pluralidade de Almas como Diversidade Ontológica**  
+### 4. **Pluralidade de Almas como Diversidade Ontológica**  
 - Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
 - Não há repetição no Ser: **cada consciência é um ato irrepetível de autodeterminação**.  
 
