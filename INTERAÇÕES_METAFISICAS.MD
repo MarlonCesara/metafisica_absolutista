@@ -9,29 +9,20 @@ Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Poi
 2. **O Toque como reflexo que tende ao infinito**  
 Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente, tem-se o mesmo efeito no outro. Essa transição se desdobra ao infinito. Exemplo: *eu vejo o que você vê, você vê o que eu vejo quando você me vê*, e assim sucessivamente, em uma linha temporal infinita.  
 
-3. **A plenitude do encontro**  
-Quando não há mais perspectiva de toque, em um encontro de almas dimensional na qual ambas estão completamente imersas uma na outra , ambas as almas experimentam a transmissão de sensação cessar, de forma que A não sente B sentindo o que A sente e assim sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrínseca a dualidade, nas extrínseca, tal como uma nova visão sobre a realidade. E essa nova visão é viva, em vista de que, é resultado da união de duas visões vivas.
-
-4. **A indefinição do encontro**  
-O encontro total gera uma indefinição, a alma A já não se define como si própria e nem a alma B, de forma que, a busca por definição se dá do próprio encontro, e não mais da individualidade de cada alma, ou seja, é o produto do encontro que busca por si uma definição. O resultado do encontro tendo forma, pensamento, e todos os requisitos de uma alma solida enfrenta, portanto o desafio inicial de uma nova alma, evoluir seu espirito. Sua existencia é o breve momento do unir de visões, quando as visões se desligam o novo ente se sente rasgado ao meio, pois seu eu era construido, não havia possuido a si mesmo. Ao possuir a si, se desgarra da fusão da alma A e alma B como uma nova identidade para absoluto e não como um novo infinito. 
-
-5. **A união total como morte e vida**  
-O total encontro em uma manifestação envolve a experiencia de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada individuo. 
-
 
 ## **Fusão de almas: Aprisionamento e Liberdade**  
 
-1. **A Limitação Fenomênica do "Sou"**  
-   O *"sou"* individual não pode manifestar plenamente seu próprio infinito, pois toda aparição fenomênica é, por natureza, **um recorte do ilimitado**. Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — jamais a totalidade do Ser que a sustenta.  
-
-2. **Pluralidade de Almas como Diversidade Ontológica**  
-   O *"sou A"* e o *"sou B"* possuem conteúdos distintos porque **cada alma é uma perspectiva única do Absoluto**. Não há repetição no Ser: cada consciência é um **ato irrepetível** de autodeterminação, uma variação infinita dentro da unidade metafísica.  
-
-3. **Fusão como Transcendência da Dualidade**  
-   Quando duas verdades particulares (*"sou A"* e *"sou B"*) se encontram, não se somam — **fundem-se em uma nova realidade homogênea**. Esse estado não é uma mera justaposição, mas uma **transformação ontológica**: como duas notas musicais que, ao se harmonizarem, criam um acorde **indiscernível em sua origem**.  
-
-4. **Retroalimentação e o Paradoxo da Manifestação**  
+1. **Retroalimentação e o Paradoxo da Manifestação**  
    Nenhuma fusão esgota o potencial dos *"sous"* originários, pois **toda manifestação é finita perante o infinito que a alimenta**. A fragmentação não é uma perda, mas **o modo pelo qual o Absoluto se revela no tempo**: cada ato de existir é simultaneamente **uma expressão e um eclipsar-se** do todo.  
+
+2. **A plenitude do encontro**  
+Quando não há mais perspectiva de toque, em um encontro de almas dimensional na qual ambas estão completamente imersas uma na outra , ambas as almas experimentam a transmissão de sensação cessar, de forma que A não sente B sentindo o que A sente e assim sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrínseca a dualidade, nas extrínseca, tal como uma nova visão sobre a realidade. E essa nova visão é viva, em vista de que, é resultado da união de duas visões vivas.
+
+3. **A indefinição do encontro**  
+O encontro total gera uma indefinição, a alma A já não se define como si própria e nem a alma B, de forma que, a busca por definição se dá do próprio encontro, e não mais da individualidade de cada alma, ou seja, é o produto do encontro que busca por si uma definição. O resultado do encontro tendo forma, pensamento, e todos os requisitos de uma alma solida enfrenta, portanto o desafio inicial de uma nova alma, evoluir seu espirito. Sua existencia é o breve momento do unir de visões, quando as visões se desligam o novo ente se sente rasgado ao meio, pois seu eu era construido, não havia possuido a si mesmo. Ao possuir a si, se desgarra da fusão da alma A e alma B como uma nova identidade para absoluto e não como um novo infinito. 
+
+4. **A união total como morte e vida**  
+O total encontro em uma manifestação envolve a experiencia de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada individuo. 
 
 5. **Autodeterminação ou Dissolução: O Dilema da Realidade Emergente**  
    A nova realidade formada pela fusão enfrenta um **desafio metafísico**:  
