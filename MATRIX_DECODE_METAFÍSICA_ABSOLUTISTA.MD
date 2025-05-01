@@ -660,7 +660,7 @@ A alma não necessita de um substrato de si; na verdade, é uma identidade no Se
 3. **Alma como distinção do Ser**  
 A alma dispõe da potencialidade do nada, porém de uma forma autêntica a si, ou seja, a dissolução do nada não impede sua identidade. Ainda que o nada seja o mesmo para todos, a criação *ex nihilo* é relativa à sua essência. Dessa forma, a dissolução do nada envolve uma complexidade em sua integralidade.  
 
-# **A Necessidade do Efêmero**  
+## **A Necessidade do Efêmero**  
 
 1. **A percepção da alma**  
 A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade de suas ações. Ou seja, tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
@@ -671,7 +671,7 @@ A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial
 3. **A efemeridade do apático**  
 A alma apática de forma alguma transcende a efemeridade, pois tem consciência de que suas ações podem não corresponder à sua própria plenitude, já que é guiada por tendências de sua personalidade — e não por uma sincera predisposição à plenitude. 
 
- # **O Status Quo da Alma do Homem**
+ ## **O Status Quo da Alma do Homem**
 
 1. **A alma do homem neste mundo**  
  Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza impessoal do Ser. 
