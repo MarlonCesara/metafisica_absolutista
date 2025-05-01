@@ -1,5 +1,5 @@
 
-# **Gênesis metafísico**  
+# **Gênesis Absolutista**  
 
 Deus não poderia permanecer impassível diante da queda do homem, nem em amor nem em eminência.  
 Agir pela Sua plenitude, portanto, implicou agir pelo homem — salvá-lo de si mesmo, pois não havia necessidade de salvá-lo de Deus.  
