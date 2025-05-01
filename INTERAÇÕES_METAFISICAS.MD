@@ -1,4 +1,4 @@
-# BibleDecode: A Metafísica da biblia
+# BibleDecode: A Metafísica da Biblia
 
 *"E conhecereis a verdade, e a verdade vos libertará."* -João 8:32
 
