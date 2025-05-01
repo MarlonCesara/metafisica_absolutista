@@ -649,6 +649,33 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - A imersão total do "sou" em si transcende no ser. A determinação sobre si não tem limite, pois este limite é extravasado no ser. E este seria a possibilidade aprofundar-se em si sem limitações.
 - A translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.
 
+# **Definindo a Alma**  
+
+1. **A alma como identidade**  
+A alma, por ser uma identidade no Ser, é um infinito em si, e não o contrário. Ou seja, a alma não precisa portar um infinito para ser uma identidade. Sendo uma identidade, já é, em si, um infinito.  
+
+2. **A Substância Pura da Alma**  
+A alma não necessita de um substrato de si; na verdade, é uma identidade no Ser que é viva em si. No sentido de que essa identidade se autofundamenta ou é fundamentada pelo Ser como tal. Ou seja, a alma é o Ser em uma vida transcendida de si, de forma que o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva.  
+
+3. **Alma como distinção do Ser**  
+A alma dispõe da potencialidade do nada, porém de uma forma autêntica a si, ou seja, a dissolução do nada não impede sua identidade. Ainda que o nada seja o mesmo para todos, a criação *ex nihilo* é relativa à sua essência. Dessa forma, a dissolução do nada envolve uma complexidade em sua integralidade.  
+
+# **A Necessidade do Efêmero**  
+
+1. **A percepção da alma**  
+A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade de suas ações. Ou seja, tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
+
+2. **A efemeridade como fuga**  
+A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
+
+3. **A efemeridade do apático**  
+A alma apática de forma alguma transcende a efemeridade, pois tem consciência de que suas ações podem não corresponder à sua própria plenitude, já que é guiada por tendências de sua personalidade — e não por uma sincera predisposição à plenitude. 
+
+ # **O Status Quo da Alma do Homem**
+
+1. **A alma do homem neste mundo**  
+ Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza impessoal do Ser. 
+ Dessa forma, existe visão, vivência e domínio sem fusão. Assim, o homem conhece apenas as ações do arbítrio do outro, mas não sua verdadeira essência.
 
 # **Existencialismo e Política: A Patologia da Apatia**  
 
