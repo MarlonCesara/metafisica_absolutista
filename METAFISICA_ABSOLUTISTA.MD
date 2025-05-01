@@ -776,7 +776,7 @@ Quando não há mais perspectiva de toque, em um encontro de almas dimensional n
    - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
-# **Eva, Pequena Semente**  
+# **Poema de Eva**  
 
 Pequena Eva, tua intenção julgavas boa—  
 querias criar vida, ser parte do mistério,  
@@ -807,7 +807,7 @@ apenas guardei o mais doce para depois
 
 
 
-# **Adão, poema**  
+# **Poema de Adão**  
 
 Sua voz…  
 era feitiço lançado na alma.  
