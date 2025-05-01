@@ -759,6 +759,9 @@ Quando não há mais perspectiva de toque, em um encontro de almas dimensional n
 4. **A indefinição do encontro**  
 O encontro total gera uma indefinição, a alma A já não se define como si própria e nem a alma B, de forma que, a busca por definição se dá do próprio encontro, e não mais da individualidade de cada alma, ou seja, é o produto do encontro que busca por si uma definição. O resultado do encontro tendo forma, pensamento, e todos os requisitos de uma alma solida enfrenta, portanto o desafio inicial de uma nova alma, evoluir seu espirito. Sua existencia é o breve momento do unir de visões, quando as visões se desligam o novo ente se sente rasgado ao meio, pois seu eu era construido, não havia possuido a si mesmo. Ao possuir a si, se desgarra da fusão da alma A e alma B como uma nova identidade para absoluto e não como um novo infinito. 
 
+5. **A união total como morte e vida**  
+O total encontro em uma manifestação envolve a experiencia de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada individuo. 
+
 
 # **Fusão de almas: Aprisionamento e Liberdade**  
 
