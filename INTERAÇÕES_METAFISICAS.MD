@@ -6,7 +6,7 @@ Deus não poderia permanecer impassível diante da queda do homem, nem na pericu
 Uma união eterna com o outra alma corruptível, movida pelo orgulho, é de fato uma perdição, assim como nunca encontrar a si mesmo. Pois, ao fazer do outro parte de si e ainda assim desencontrá-lo, é o mesmo que perder-se a si próprio.  
 
 Deus, então, busca resgatar o homem da apatia no amor e, sobretudo, da apatia em sua própria existência.  
-Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O possível pode ser expresso pela lógica; o impossível, somente por provérbios, poesias e profecias.  
+Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O possível pode ser expresso pela lógica; o impossível, somente por provérbios, poesias,  profecias e ações. 
 
 ## **A Natureza do Toque entre Almas**  
 
