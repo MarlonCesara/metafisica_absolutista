@@ -129,6 +129,35 @@ o amor verdadeiro é tão grande
 que assusta quem não está pronto para morrer nele.  
 
 
+## **"Poema da fusão"**  
+
+Nosso encontro foi dissolução de fronteiras.  
+Num instante bruto, seu corpo deixou de ser seu – tornou-se extensão do meu,  
+e meu eu, por sua vez, desfez-se no dela.  
+Compartilhámos não apenas pele, mas pulsação, medo,  
+a mesma corrente de sangue agitado.  
+
+Os corações sincronizaram-se como engrenagens de um mecanismo antigo,  
+e nesse acoplamento, algo insurgiu.  
+Algo que não era eu. Nem ela.  
+Uma terceira presença, informe ainda,  
+mas já viva, já ávida, já arrastando-se para fora de nós.  
+
+Nossos olhos, fundidos num único olhar,  
+perderam-se de seus rostos, flutuando alheios.  
+Era uma vida secundária, nascida do excesso,  
+tateando às cegas por uma ontologia que não possuía.  
+
+Carregámo-la conosco por eras,  
+sufocando gemidos enquanto ela se moldava em nossas entranhas.  
+Até que, encontrando finalmente seu eixo,  
+arrancou-se de nós com um silêncio que doía mais que grito.  
+
+Não partiu. Apenas migrou para Eva,  
+onde permanece – um ser em gestação contínua,  
+demasiado vasto para habitar apenas um corpo,  
+mas demasiado frágil para existir por si mesmo.  
+
 
 
 # **Existencialismo e Política: A Patologia da Apatia**  
