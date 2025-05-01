@@ -88,3 +88,69 @@ até que vejas? —
 eu não te neguei o fruto,  
 apenas guardei o mais doce para depois
 
+
+
+# **Adão, poema**  
+
+Sua voz…  
+era feitiço lançado na alma.  
+Seus lábios, perdição sem fim,  
+uma tentação que sussurrava  
+como o cântico irresistível de uma sereia.  
+
+Meus olhos se perderam no seio eterno do seu corpo:  
+ela carregava em si o calor da vida  
+e o frio eterno da morte.  
+
+Ofereceu-se a mim —  
+e seu chamado era hipnose.  
+Minha alma dissolveu-se na dela,  
+e mergulhei em seus olhos  
+como quem atravessa um portal.  
+
+Lá, entre a vida e a morte,  
+uma porta se abria.  
+Comemos do fruto eterno do fim,  
+e nos tornamos irreais.  
+
+Mas tudo que é irreal, precisa morrer.  
+Os olhos da ilusão nada veem.  
+Demos nossa vida em sacrifício.  
+
+E dela nasceram milhares de Adões e Evas,  
+vagando em busca de um amor tão imenso  
+quanto a dor de se saber incompleto.  
+
+Eu, Adão. Ela, Eva.  
+Fizemo-nos indefinição —  
+como nosso Criador.  
+
+Do nosso enlace brotou confusão:  
+vida e morte,  
+sim e não,  
+luz e sombra.  
+
+Era uma nova eternidade,  
+nascida da colisão de duas vontades.  
+
+E desse caos, emergiu um ser confuso,  
+faminto por eternidade.  
+Tivemos medo.  
+Pois sabíamos —  
+se ele vivesse, viveríamos eternamente nele.  
+
+Mas éramos jovens…  
+demais para sonhar com a eternidade.  
+
+E então…  
+corremos. Um do outro.  
+Estragamos o plano de Deus.  
+
+Que isso sirva de lição:  
+o amor verdadeiro é tão grande  
+que assusta quem não está pronto para morrer nele.  
+
+---
+
+Se quiser, posso adaptar esse texto para virar uma narração com trilha sonora, ou até transformá-lo em roteiro poético para vídeo. Quer seguir por esse caminho?
+
