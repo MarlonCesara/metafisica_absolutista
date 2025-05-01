@@ -652,18 +652,28 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 # **Definindo a Alma**  
 
 1. **A alma como identidade**  
-A alma, por ser uma identidade no Ser, é um infinito em si, e não o contrário. Ou seja, a alma não precisa portar um infinito para ser uma identidade. Sendo uma identidade, já é, em si, um infinito.  
+- A alma não é um "recipiente" de um infinito, mas **o próprio Absoluto em perspectiva singular** que adere a um infinito de si.  
+- Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Absoluto.  
+- Sua finitude fenomênica não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
 2. **A Substância Pura da Alma**  
-A alma não necessita de um substrato de si; na verdade, é uma identidade no Ser que é viva em si. No sentido de que essa identidade se autofundamenta ou é fundamentada pelo Ser como tal. Ou seja, a alma é o Ser em uma vida transcendida de si, de forma que o Ser é uma doação de si como vivente. A alma é a ação particular e individual do Ser por uma nova perspectiva.  
+- A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
+- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Absoluto**.  
 
-3. **Alma como distinção do Ser**  
-A alma dispõe da potencialidade do nada, porém de uma forma autêntica a si, ou seja, a dissolução do nada não impede sua identidade. Ainda que o nada seja o mesmo para todos, a criação *ex nihilo* é relativa à sua essência. Dessa forma, a dissolução do nada envolve uma complexidade em sua integralidade.  
+3. **A Limitação Fenomênica do "Sou"**  
+- O "sou" individual não pode manifestar plenamente seu próprio infinito, pois toda aparição é um **recorte do ilimitado**.  
+- Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — nunca a totalidade do Ser que a fundamenta.  
+
+4. **Pluralidade de Almas como Diversidade Ontológica**  
+- Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
+- Não há repetição no Ser: **cada consciência é um ato irrepetível de autodeterminação**.  
 
 ## **A Necessidade do Efêmero**  
 
 1. **A percepção da alma**  
-A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade de suas ações. Ou seja, tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
+- A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. 
+- Tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
+- Tem o conhecimento da necessidade de uma situação efêmera quando não dispoe dos requisitos morais necessários para se assumir de forma autêntica na existência.
 
 2. **A efemeridade como fuga**  
 A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
