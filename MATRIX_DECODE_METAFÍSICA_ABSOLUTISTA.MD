@@ -593,8 +593,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 - Exemplo: O "sou" sem autonomia tem a impressão de que pode ser desligado da Matrix a qualquer momento, com sua existência sendo extinta para sempre.  
 
-
-## Liberdade e Neutralidade
+# **Liberdade e Neutralidade**
 
 **Oráculo:** *"Você não está aqui por causa do destino, mas por causa da **sua decisão**."*  
 
@@ -602,6 +601,28 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
 - As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.
 - Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então Deus também teria infinitas possibilidades de ação em sua integralidade.
+
+## **1. A Atemporalidade do Ser e a Manifestação Temporal**
+O Ser não precisa "adentrar" no tempo, pois em sua natureza integral todos os acontecimentos já estão consumados. Não há necessidade de movimento temporal, pois todos os movimentos já ocorreram simultaneamente na eternidade do Ser.
+
+## **2. O Conhecimento do Ser e o Livre-Arbítrio**
+Quanto ao conhecimento do Ser sobre os eventos que dependem do arbítrio humano:
+- A consumação do tempo pelo Ser não significa a inexistência das ações
+- Significa que todas as ações possíveis já estão contidas na integralidade atemporal
+- O Ser conhece todas as potencialidades do arbítrio como já realizadas em sua plenitude
+
+## **3. A Natureza Interna do Tempo no Ser**
+A integralidade do Ser:
+- Absorve passado, presente e futuro em uma unidade indiferenciada
+- Mantém uma estrutura interna que contém a temporalidade como possibilidade
+- Nesta dimensão interna, todas as ações já estão consumadas como potencialidades realizadas
+
+## **4. A Aparente Contradição do Agora**
+Nossa experiência do "agora":
+- É uma manifestação particular da eternidade
+- O que experimentamos como presente já está contido na totalidade do Ser
+- Nossas ações livres emergem desta plenitude atemporal como expressões individuais de previsões que já existem previamente, porém não realizadas.
+
 
 
 ## Natureza da Conexão entre Homem e Deus
