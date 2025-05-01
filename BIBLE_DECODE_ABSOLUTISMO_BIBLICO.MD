@@ -12,7 +12,7 @@ Uma união eterna com o outra alma corruptível, movida pelo orgulho, é de fato
 Deus, então, busca resgatar o homem da apatia no amor e, sobretudo, da apatia em sua própria existência.  
 Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O possível pode ser expresso pela lógica; o impossível, somente por provérbios, poesias,  profecias e ações. 
 
-O impossível não está mais no campo da metafísica, mas transcende de uma forma incompreensível. A imensidão do amor de Deus não está aos pés da lógica compreender.
+O impossível não está mais no campo da metafísica, mas transcende de uma forma incompreensível. A imensidão do amor de Deus não está ao alcance da ser compreensível pela lógica.
 
 ## **A Natureza do Toque entre Almas**  
 
