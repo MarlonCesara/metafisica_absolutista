@@ -709,7 +709,7 @@ A alma apática de forma alguma transcende a efemeridade, pois tem consciência 
  Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza impessoal do Ser. 
  Dessa forma, existe visão, vivência e domínio sem fusão. Assim, o homem conhece apenas as ações do arbítrio do outro, mas não sua verdadeira essência.
 
-### **A Determinação das Leis Físicas e Conceituais na Natureza do Ser**  
+### 2. **A Determinação das Leis Físicas e Conceituais na Natureza do Ser**  
 
 A natureza do Ser estabelece tanto leis físicas quanto conceituais, sendo que estas últimas dependem fundamentalmente da definição e interpretação do próprio Ser.  
 
