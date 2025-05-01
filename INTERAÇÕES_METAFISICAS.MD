@@ -1,5 +1,9 @@
+# BibleDecode: A Metafísica da biblia
 
-# **Gênesis Absolutista**  
+*"E conhecereis a verdade, e a verdade vos libertará."* -João 8:32
+
+
+# **Gênesis**  
 
 Deus não poderia permanecer impassível diante da queda do homem, nem na periculosidade do amor conjugal entre duas almas e nem na dor do estado de apátia de uma alma. Agir pela Sua plenitude, portanto, implicou agir pelo homem — salvá-lo de si mesmo.  
 
