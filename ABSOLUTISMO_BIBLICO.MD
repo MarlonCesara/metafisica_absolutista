@@ -1,6 +1,6 @@
 # Metafísica Bíblica: Ações, Profecias e Revelações
 
-*"Conhecereis a verdade, e a verdade vos libertará."* -João 8:32
+*"Conhecereis a verdade, e a verdade vos libertará."* - João 8:32
 
 
 # **Gênesis**  
