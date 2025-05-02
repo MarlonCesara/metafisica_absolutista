@@ -64,7 +64,6 @@
 
 ## Estruturação do Absoluto
 
-*"Bem-vindo ao mundo real, Neo. Você deve estar se perguntando: 'O que é real? Como defino o real?"* – Morpheus  
 
 ### O Absoluto como Realidade Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e verdadeiro de si mesmo).
