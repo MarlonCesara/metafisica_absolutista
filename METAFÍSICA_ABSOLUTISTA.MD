@@ -1,4 +1,4 @@
-# A Metafísica do Absoluto
+# Metafísica Absolutista
 
 
 ## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
