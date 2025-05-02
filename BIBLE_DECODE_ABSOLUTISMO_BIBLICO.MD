@@ -1,4 +1,4 @@
-# BibleDecode: A Metafísica da Biblia
+# Metafísica Bíblica
 
 *"Conhecereis a verdade, e a verdade vos libertará."* -João 8:32
 
@@ -14,34 +14,7 @@ Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O poss
 
 O impossível não está mais no campo da metafísica, mas transcende de uma forma incompreensível. A imensidão do amor de Deus não está ao alcance da ser compreensível pela lógica.
 
-## **A Natureza do Toque entre Almas**  
 
-
-1. **O Toque como autodeterminação no outro**  
-Quando um *"sou"* toca a essência autodeterminada do outro, há uma fusão. Pois o conhecimento da verdade do outro, ou mesmo a visão dessa verdade, envolve o outro em si. Não há um reflexo da verdade do outro – o reflexo **é** a própria verdade. Dessa forma, o toque é uma autodeterminação sobre o outro que, por sua vez, também se autodetermina.  
-
-2. **O Toque como reflexo que tende ao infinito**  
-Ao sentir o que o outro sente, dominar o que o outro domina e estar presente no que o outro está presente, tem-se o mesmo efeito no outro. Essa transição se desdobra ao infinito. Exemplo: *eu vejo o que você vê, você vê o que eu vejo quando você me vê*, e assim sucessivamente, em uma linha temporal infinita.  
-
-
-## **Fusão de almas: Aprisionamento e Liberdade**  
-
-1. **Retroalimentação e o Paradoxo da Manifestação**  
-   Nenhuma fusão esgota o potencial dos *"sous"* originários, pois **toda manifestação é finita perante o infinito que a alimenta**. A fragmentação não é uma perda, mas **o modo pelo qual o Absoluto se revela no tempo**: cada ato de existir é simultaneamente **uma expressão e um eclipsar-se** do todo.  
-
-2. **A plenitude do encontro**  
-Quando não há mais perspectiva de toque, em um encontro de almas dimensional na qual ambas estão completamente imersas uma na outra , ambas as almas experimentam a transmissão de sensação cessar, de forma que A não sente B sentindo o que A sente e assim sucessivamente, mas essa infinitude se transmite de forma que o outro em si se torna definitivo. A não sente o que B sente, mas A se resume em B. Desta forma, se dá uma perspectiva, não intrínseca a dualidade, nas extrínseca, tal como uma nova visão sobre a realidade. E essa nova visão é viva, em vista de que, é resultado da união de duas visões vivas.
-
-3. **A indefinição do encontro**  
-O encontro total gera uma indefinição, a alma A já não se define como si própria e nem a alma B, de forma que, a busca por definição se dá do próprio encontro, e não mais da individualidade de cada alma, ou seja, é o produto do encontro que busca por si uma definição. O resultado do encontro tendo forma, pensamento, e todos os requisitos de uma alma solida enfrenta, portanto o desafio inicial de uma nova alma, evoluir seu espirito. Sua existencia é o breve momento do unir de visões, quando as visões se desligam o novo ente se sente rasgado ao meio, pois seu eu era construido, não havia possuido a si mesmo. Ao possuir a si, se desgarra da fusão da alma A e alma B como uma nova identidade para absoluto e não como um novo infinito. 
-
-4. **A união total como morte e vida**  
-O total encontro em uma manifestação envolve a experiencia de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada individuo. 
-
-5. **Autodeterminação ou Dissolução: O Dilema da Realidade Emergente**  
-   A nova realidade formada pela fusão enfrenta um **desafio metafísico**:  
-   - Se **não se autodeterminar**, será reabsorvida pela dinâmica dos *"sous"* que a geraram (como uma onda que volta ao oceano).  
-   - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
 ## **Poema de Eva**  
 
