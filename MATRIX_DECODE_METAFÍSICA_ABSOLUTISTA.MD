@@ -731,7 +731,7 @@ A natureza do Ser estabelece tanto leis físicas quanto conceituais, sendo que e
 ### **Conclusão:**  
 Leis conceituais estão vinculadas à definição dos termos envolvidos e podem ser reinterpretadas conforme o entendimento do Ser. Já as leis físicas operam sob condições objetivas e imutáveis, independentemente da percepção humana.  
 
-**A Necessidade de Transcendência da Alma**
+# **A Necessidade de Transcendência da Alma**
 
 1. Quando o Ser se determina como unidade de si mesmo, determina simultaneamente seu potencial transcendente - uma capacidade imanente à sua própria natureza essencial.
 
@@ -741,7 +741,7 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 
 4. O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente.
 
-**Almogênese: A Gênese da Alma pela Interação**
+## **Almogênese: A Gênese da Alma pela Interação**
 
 Postulamos a hipótese de que a alma completa emerge da dualidade fundamental - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente. A alma perfeita seria assim a síntese dialética de duas consciências.
 
@@ -755,7 +755,7 @@ Postulamos a hipótese de que a alma completa emerge da dualidade fundamental - 
 
 4. Se aceitamos que verdades determinantes podem unir-se sem contradição, então duas almas poderiam co-habitar o mesmo plano existencial. A alma assim não nasceria completa, mas alcançaria sua plenitude através do outro, numa conexão cujo significado último permanece sempre subjetivo.
 
-**A Ontologia do Toque Interpessoal**
+## **A Ontologia do Toque Interpessoal**
 
 1. O Toque como Atribuição Recíproca de Sentido
 Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.
@@ -763,7 +763,7 @@ Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma sínte
 2. O Toque como Reflexão Infinita
 Ao participar da experiência do outro - sentir seus sentimentos, compartilhar seus domínios, co-habitar seus espaços existenciais - instaura-se um jogo de espelhos que se projeta ao infinito: eu vejo você me vendo ver você, num desdobramento sem fim da consciência recíproca.
 
-**A Dialética da União das Almas**
+## **A Dialética da União das Almas**
 
 1. O Paradoxo da Manifestação
 Nenhuma união esgota o potencial dos "sous" originários. Toda manifestação concreta é finita perante o infinito que a sustenta. A aparente fragmentação é o modo pelo qual o Absoluto se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.
