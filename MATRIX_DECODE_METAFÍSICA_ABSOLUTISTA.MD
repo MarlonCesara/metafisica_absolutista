@@ -1,6 +1,5 @@
-# MatrixDecode: A Metafísica do Absoluto
+A Metafísica do Absoluto
 
-*"A Matrix é a pergunta que te persegue, Neo. É a mesma pergunta que me trouxe aqui. O que é a Matrix?"* - Morpheus
 
 ## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
 
@@ -20,9 +19,6 @@
 
 ## Definições Fundamentais - Os Domínios da Existência Revelados
 
-**Explicação:**  
-Antes de executar qualquer operação lógica na realidade, precisamos definir nosso *espaço de trabalho ontológico*. Assim como um programador declara variáveis antes de usá-las, aqui estabelecemos os três domínios fundamentais onde todos os operadores lógicos (TRUE/FALSE, IF/THEN, WHILE) serão aplicados:  
-
 ### 1. Absoluto
 **Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
 
@@ -31,7 +27,6 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 - Sua existência, permanência e identidade são auto causadas.
 - O absoluto é auto fundamentado, autodeterminado e auto continuado.
 
-
 ### 2. Realidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas.
 
@@ -39,7 +34,6 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas.
 
 ## Detalhando Propriedades Essenciais do Absoluto
-
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
@@ -123,8 +117,6 @@ Antes de executar qualquer operação lógica na realidade, precisamos definir n
 
 ## Tríplice Ação do Espírito
 
-
-
 O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 1. **Existência (Espírito Fundamentador)**
@@ -141,7 +133,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Conclusão
 
-
 - O Absoluto é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
 - A Realidade é a manifestação lógica e verdadeira do Absoluto.
 - A Auto Causalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
@@ -151,10 +142,7 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 **"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**
 
-
 # A Estrutura da Realidade e do Ser
-
-*"Não pense que é... saiba que é."*  — **Morpheus**
 
 ## **O Nada como Único Fundamento**  
 
@@ -187,7 +175,6 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 ## Realidade como Relação Dinâmica
 
-
 - A **realidade (verdade)** não é um estado puro, mas uma tensão entre:
   1. **O Ser** (autodeterminação ativa) → Puro ato de existir.
   2. **O Nada** (potencial não realizado) → Ausência que define os limites do real.
@@ -198,14 +185,12 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 ## Conclusão: A Realidade como Processo
 
 
-
 - Não há "verdade estática", pois a realidade sempre se constitui na relação entre:
   - O determinador (Ser puro).
   - O determinado (incluindo sua negação como contraparte).
   
 - O Nada não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.
 
----
 
 # Estruturando o Nada
 
@@ -413,7 +398,6 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # Paralelismo Ontológico
 
-**Oráculo:** *"Nós somos todos parte do mesmo todo, Neo."*  
 
 ## Natureza Não-Numérica do Ser
 
@@ -444,8 +428,6 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 
 # Dualidade Estrutural: Determinadores e Realidades
 
-
-**Oráculo:** *"Seu mundo é tão real quanto o meu. A diferença é que eu vejo além dele."*
 
 ## Princípio de Individuação
 
@@ -505,23 +487,6 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 
 # A Liberdade entre o Real e o Ilusório
-
-**Neo:** *"Você nunca vai entender... não é sobre controle. É sobre escolha."*  
-*(Neo se levanta, sangue escorrendo pelo rosto, a chuva caindo em câmera lenta)*  
-
-**Smith:** *"Escolha? (risada) Você já sabe como isso termina. Eu já sei o que você vai fazer. Então, onde está sua... escolha?"*  
-*(Desfere um golpe brutal, Neo bloqueia com dificuldade)*  
-
-**Neo:** *"Porque eu escolho isso."*  
-*(Ataque de Smith congela no ar - Neo agora o segura pelo pulso)*  
-
-**Smith:** *"Então morra por eles! Morra por essa 'escolha'!"*  
-*(Multiplica-se em centenas de clones, todos gritando em uníssono)*  
-
-**Neo:** *(Fechando os olhos, voz calma)*  
-*"Não é sobre viver ou morrer... é sobre ver a verdade. A verdade é que você também está preso. E eu... eu te liberto."*  
-
-*(Neo abre os braços, luz dourada irradiando de seu corpo - Smith grita enquanto seu código começa a se desintegrar)*  
 
 
 ## A Liberdade: Incorruptibilidade e Corrupção
@@ -595,7 +560,6 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 # **Liberdade e Neutralidade**
 
-**Oráculo:** *"Você não está aqui por causa do destino, mas por causa da **sua decisão**."*  
 
 - No contexto de um infinito, o livre-arbítrio implica a coexistência simultânea de todas as possibilidades hipotéticas.
 - No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.
@@ -627,7 +591,6 @@ Nossa experiência do "agora":
 
 ## Natureza da Conexão entre Homem e Deus
 
-**Morpheus :** *"Liberte sua mente."*  
 
 ### O Ser como Fundamento
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.
