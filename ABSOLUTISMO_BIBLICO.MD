@@ -1,4 +1,4 @@
-# Metafísica Bíblica: Ações do absoluto, profecias e verdades reveladas
+# Metafísica Bíblica: Ações, Profecias e Revelações
 
 *"Conhecereis a verdade, e a verdade vos libertará."* -João 8:32
 
