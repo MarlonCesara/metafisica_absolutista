@@ -759,14 +759,14 @@ A nova entidade relacional enfrenta uma escolha metafísica:
    - Que está presente em si mesmo  
    - E que tem domínio sobre si  
 
-3. **Para si**  
+3. **Por si**  
+   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência. 
+
+4. **Para si**  
    - Duas almas manifestadas que compartilham mutuamente sua autodeterminação  
    - Dominam uma à outra através de mútua concordância (gênero)  
    - Conhecem-se mutuamente  
    - Estão presentes uma na outra de forma recíproca  
-
-4. **Por si**  
-   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência. 
 
 5. **Para o outro em si**  
    - Duas almas manifestadas que, através de um encontro e fusão originam uma ou mais almas distintas.  
