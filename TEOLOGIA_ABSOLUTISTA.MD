@@ -1,4 +1,4 @@
-# Metafísica Bíblica: Ações, Profecias e Revelações
+# Teologia Absolutista: Ações, Profecias e Revelações
 
 *"Conhecereis a verdade, e a verdade vos libertará."* - João 8:32
 
