@@ -718,27 +718,27 @@ Postulamos a hipótese de que a alma completa emerge da dualidade fundamental - 
 
 ## **A Ontologia do Toque Interpessoal**
 
-1. O Toque como Atribuição Recíproca de Sentido
+### 1. O Toque como Atribuição Recíproca de Sentido
 Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.
 
-2. O Toque como Reflexão Infinita
+### 2. O Toque como Reflexão Infinita
 Ao participar da experiência do outro - sentir seus sentimentos, compartilhar seus domínios, co-habitar seus espaços existenciais - instaura-se um jogo de espelhos que se projeta ao infinito: eu vejo você me vendo ver você, num desdobramento sem fim da consciência recíproca.
 
 ## **A Dialética da União das Almas**
 
-1. O Paradoxo da Manifestação
+### 1. O Paradoxo da Manifestação
 Nenhuma união esgota o potencial dos "sous" originários. Toda manifestação concreta é finita perante o infinito que a sustenta. A aparente fragmentação é o modo pelo qual o Absoluto se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.
 
-2. A Plenitude do Encontro
+### 2. A Plenitude do Encontro
 No ápice da comunhão dimensional, cessa a mediação reflexiva - A não mais percebe B percebendo A. Em vez disso, A encontra em B sua própria completude. Surge então uma nova perspectiva sintética, que transcende a dualidade original sem anulá-la.
 
-3. A Indeterminação Resultante
+### 3. A Indeterminação Resultante
 A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de forma e consciência próprias, enfrenta o dilema primordial: afirmar-se como nova totalidade ou retornar às origens.
 
-4. Morte e Renascimento Ontológico
+### 4. Morte e Renascimento Ontológico
 A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Absoluto.
 
-5. O Dilema da Realidade Emergente
+### 5. O Dilema da Realidade Emergente
 A nova entidade relacional enfrenta uma escolha metafísica:
 - Dissolver-se de volta nas consciências originárias (como forma que retorna ao informe)
 - Ou autodeterminar-se como terceira realidade, transcendendo suas raízes sem negá-las.
