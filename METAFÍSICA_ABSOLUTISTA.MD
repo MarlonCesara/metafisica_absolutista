@@ -774,7 +774,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 6. **Para o outro no outro**  
    - Determinação em relação à prole sendo esta externa e independente em sua liberdade.  
 
-**Tipos de Apatia**
+# **Tipos de Apatia**
 
 1. **Apatia da alma**  
    - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.  
