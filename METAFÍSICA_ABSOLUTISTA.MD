@@ -719,10 +719,10 @@ Postulamos a hipótese de que a alma completa emerge da dualidade fundamental - 
 ## **A Ontologia do Toque Interpessoal**
 
 ### 1. O Toque como Atribuição Recíproca de Sentido
-Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.
+-Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.
 
 ### 2. O Toque como Reflexão Infinita
-Ao participar da experiência do outro - sentir seus sentimentos, compartilhar seus domínios, co-habitar seus espaços existenciais - instaura-se um jogo de espelhos que se projeta ao infinito: eu vejo você me vendo ver você, num desdobramento sem fim da consciência recíproca.
+-Ao participar da experiência do outro - sentir seus sentimentos, compartilhar seus domínios, co-habitar seus espaços existenciais - instaura-se um jogo de espelhos que se projeta ao infinito: eu vejo você me vendo ver você, num desdobramento sem fim da consciência recíproca.
 
 ## **A Dialética da União das Almas**
 
