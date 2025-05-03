@@ -782,9 +782,6 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 2. **Apatia do encontro**  
    - Quando duas almas se fundem porém sua relação não se fundamenta adequadamente de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
-Claro! Abaixo está a mesma reflexão, revisada e organizada em **tópicos com subtítulos**, para facilitar a compreensão e leitura:
-
----
 
 ### **A Eternidade da União e a Mácula Ontológica**
 
@@ -797,7 +794,7 @@ Claro! Abaixo está a mesma reflexão, revisada e organizada em **tópicos com s
   * ocorre um **rompimento da genética paternal**;
   * instaura-se uma **mácula na eternidade da prole**.
 
----
+
 
 #### **2. A Mácula na Eternidade dos Indivíduos**
 
@@ -805,7 +802,7 @@ Claro! Abaixo está a mesma reflexão, revisada e organizada em **tópicos com s
 * O resultado da união é eterno, mesmo que a união em si **não tenha se perpetuado ou se continuado**.
 * Isso cria um paradoxo existencial: algo eterno nasce de algo interrompido.
 
----
+
 
 #### **3. A Confiança como Fundamento Ontológico**
 
@@ -816,7 +813,7 @@ Claro! Abaixo está a mesma reflexão, revisada e organizada em **tópicos com s
   * mas por serem parte integrante da existência uma da outra.
 * Em caso de desencontro ou desenlace, **instaura-se uma mácula irremediável**.
 
----
+
 
 #### **4. A Perfeição da Decisão pela União**
 
@@ -824,7 +821,6 @@ Claro! Abaixo está a mesma reflexão, revisada e organizada em **tópicos com s
 * Esse grau de perfeição transforma o vínculo em algo **ontologicamente indispensável**.
 * Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes.
 
----
 
 #### **5. A Formação de um Ser Uno**
 
