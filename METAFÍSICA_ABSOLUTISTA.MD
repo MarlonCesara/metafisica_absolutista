@@ -764,32 +764,22 @@ A nova entidade relacional enfrenta uma escolha metafísica:
    - Dominam uma à outra através de mútua concordância (gênero)  
    - Conhecem-se mutuamente  
    - Estão presentes uma na outra de forma recíproca  
-   - Corpo bi-almático  
 
 4. **Por si**  
-   - Manifestação do nada individual em outro determinador.  
-   - Resulta na determinação sobre outrem sem envolver a própria essência. 
+   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência. 
 
 5. **Para o outro em si**  
-   - Duas almas manifestadas que, através de um encontro e fusão  
-   - Originam uma ou mais almas distintas  
-   - Corpo poli-almático  
+   - Duas almas manifestadas que, através de um encontro e fusão originam uma ou mais almas distintas.  
 
 6. **Para o outro no outro**  
-   - Determinação em relação à prole  
-   - Sendo esta externa e independente em sua liberdade  
+   - Determinação em relação à prole sendo esta externa e independente em sua liberdade.  
 
 **Tipos de Apatia**
 
 1. **Apatia da alma**  
-   - Quando a alma permanece em estado de estagnação  
-   - Sem procurar sua transcendência em si mesma  
-   - Ou seja, sem buscar sua evolução espiritual  
+   - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.  
 
 2. **Apatia do encontro**  
-   - Quando duas almas se fundem  
-   - Porém sua relação não se fundamenta adequadamente  
-   - De forma que ambas cessam o movimento em direção à união  
-   - E à plenitude desta união  
+   - Quando duas almas se fundem porém sua relação não se fundamenta adequadamente de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
 
