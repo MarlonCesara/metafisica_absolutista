@@ -5,6 +5,8 @@
 
 # **Gênesis**  
 
+A bíblia, do ponto de vista do absolutismo, é vista como fundamentada nos axiomas absolutistas, porém, com teor de subjetividade atribuida pela intuição divina, de forma a formar e orientar o homem em direção a sua plenitude. Em vista de que, o homem por si só, não tem elucidação o suficiente para compreender a vivencia em sua essência verdadeira, tal como força o suficiente para sair de um estado de estagnação no qual se encerrou definitivo. 
+
 Deus não poderia permanecer impassível diante da queda do homem, nem na periculosidade do amor conjugal entre duas almas e nem na dor do estado de apátia de uma alma. Agir pela Sua plenitude, portanto, implicou agir pelo homem — salvá-lo de si mesmo.  
 
 Uma união eterna com o outra alma corruptível, movida pelo orgulho, é de fato uma perdição, assim como nunca encontrar a si mesmo. Pois, ao fazer do outro parte de si e ainda assim desencontrá-lo, é o mesmo que perder-se a si próprio.  
