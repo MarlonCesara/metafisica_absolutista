@@ -825,9 +825,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 ### **5. A Formação de um Ser Uno**
 
 * A escolha consciente pela união gera um **ser uno a partir da dualidade**.
-* Essa união ontológica torna os dois inseparáveis no nível do ser:
-
-  * não por origem ou natureza; mas pela **escolha** que os vinculou para a eternidade.
+* Essa união ontológica torna os dois inseparáveis no nível do ser, não por origem ou natureza; mas pela **escolha** que os vinculou para a eternidade.
 
 
 
