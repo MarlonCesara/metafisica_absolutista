@@ -20,6 +20,8 @@ Adão e Eva é a representação de todos nós, uma possibilidade de ação arri
 
 Neste interim, Adão e Eva também representam a apátia, que é não se movimentar em prol do Ser. Pois não só estavam movidos pelo orgulho como pela não retidão em prol da vida. Deus, em resposta, "invade" de duas formas a humanidade, de maneira a representar que até sem concordancia do apático o restaurará e de forma a salvar o ato de Adão e Eva, dando aos dois um novo corpo, pois somente um novo recomeço os salvaria de uma união sem sentido. E Deus, portanto, assumiria também a prole de Adão e Eva. Desfazendo assim, toda a confusão que ocasionaria ambos. Todas essas parecem previsões do futuro e as ações que Deus teria que fazer para desfazer uma desordem de tal magnitude. 
 
+A apatia do encontro foi retratada com primazia na biblia, talvez por representar um risco até mesmo maior que a apatia da alma, pois desta ultima a alma tem ainda certo controle, ou seja, há escapatória, porém da apátia do encontro não haveria escapatória. O sacríficio de Cristo aparenta ter um foco maior no risco da apatia do encontro, pois foi em prol de restaurar o pecado original apesar de que, também é direcionado a restauração da apatia da alma.
+
 ## **Poema de Eva**  
 
 Pequena Eva, tua intenção julgavas boa—  
