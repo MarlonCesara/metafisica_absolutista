@@ -797,9 +797,8 @@ O total encontro em uma manifestação envolve a experiencia de incorrer em uma 
    - Corpo bi-almático  
 
 4. **Por si**  
-   - Manifestação do nada individual em outra realidade  
-   - Resulta na determinação sobre outrem  
-   - Sem envolver a si mesmo  
+   - Manifestação do nada individual em outro determinador.  
+   - Resulta na determinação sobre outrem sem envolver a própria essência. 
 
 5. **Para o outro em si**  
    - Duas almas manifestadas que, através de um encontro e fusão  
