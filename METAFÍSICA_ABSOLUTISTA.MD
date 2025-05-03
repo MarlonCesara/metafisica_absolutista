@@ -748,7 +748,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 - Sua existencia é o momento do unir de almas, quando a união se desfaz a nova alma é dissolvida, pois seu eu era construido e efemero, não havia possuido a si mesmo. Ao possuir a si, se desgarra da união da alma A e alma B como uma nova identidade para absoluto, e em razão disto, torna-se em si um novo infinito, pois dispoe da infinitude indiferenciada sendo uma identidade no Ser.
 
 
-# **Tipos de Autodeterminação**
+# **Tipologia da Autodeterminação**
 
 1. **Em si**  
    - O homem determinado pela natureza herdada  
@@ -774,7 +774,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 6. **Para o outro no outro**  
    - Determinação em relação à prole sendo esta externa e independente em sua liberdade.  
 
-# **Tipos de Apatia**
+# **Tipologia de Apatia**
 
 1. **Apatia da alma**  
    - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.  
@@ -783,10 +783,10 @@ A nova entidade relacional enfrenta uma escolha metafísica:
    - Quando duas almas se fundem porém sua relação não se fundamenta adequadamente de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
 
-### **A Eternidade da União e a Mácula Ontológica**
+## **A Eternidade da União e a Mácula Ontológica**
 
 
-#### **1. A Apatia no Encontro e Suas Consequências**
+### **1. A Apatia no Encontro e Suas Consequências**
 
 * A apatia no encontro entre duas almas gera efeitos profundos e duradouros.
 * Quando esse encontro resulta na geração de uma **prole**, há um impacto direto na essência dela:
@@ -796,7 +796,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 
 
 
-#### **2. A Mácula na Eternidade dos Indivíduos**
+### **2. A Mácula na Eternidade dos Indivíduos**
 
 * Essa mácula não afeta apenas a prole, mas também os próprios indivíduos envolvidos na união.
 * O resultado da união é eterno, mesmo que a união em si **não tenha se perpetuado ou se continuado**.
@@ -804,7 +804,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 
 
 
-#### **3. A Confiança como Fundamento Ontológico**
+### **3. A Confiança como Fundamento Ontológico**
 
 * A **continuidade verdadeira da união** depende de duas almas que confiem plenamente uma na outra.
 * Essa confiança as torna **ontologicamente necessárias** uma à outra:
@@ -815,14 +815,14 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 
 
 
-#### **4. A Perfeição da Decisão pela União**
+### **4. A Perfeição da Decisão pela União**
 
 * A decisão de se unir precisa carregar em si um **teor de perfeição**.
 * Esse grau de perfeição transforma o vínculo em algo **ontologicamente indispensável**.
 * Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes.
 
 
-#### **5. A Formação de um Ser Uno**
+### **5. A Formação de um Ser Uno**
 
 * A escolha consciente pela união gera um **ser uno a partir da dualidade**.
 * Essa união ontológica torna os dois inseparáveis no nível do ser:
