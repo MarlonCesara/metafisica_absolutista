@@ -778,4 +778,49 @@ O total encontro em uma manifestação envolve a experiencia de incorrer em uma 
    - Se **se autodeterminar**, torna-se um **terceiro absoluto** — uma realidade autêntica que transcende suas origens.  
 
 
+# **Tipos de Autodeterminação**
+
+1. **Em si**  
+   - O homem determinado pela natureza herdada  
+   - Estado de apatia da alma  
+
+2. **De si**  
+   - O homem que tem consciência de si  
+   - Que está presente em si mesmo  
+   - E que tem domínio sobre si  
+
+3. **Para si**  
+   - Duas almas manifestadas que compartilham mutuamente sua autodeterminação  
+   - Dominam uma à outra através de mútua concordância (gênero)  
+   - Conhecem-se mutuamente  
+   - Estão presentes uma na outra de forma recíproca  
+   - Corpo bi-almático  
+
+4. **Por si**  
+   - Manifestação do nada individual em outra realidade  
+   - Resulta na determinação sobre outrem  
+   - Sem envolver a si mesmo  
+
+5. **Para o outro em si**  
+   - Duas almas manifestadas que, através de um encontro e fusão  
+   - Originam uma ou mais almas distintas  
+   - Corpo poli-almático  
+
+6. **Para o outro no outro**  
+   - Determinação em relação à prole  
+   - Sendo esta externa e independente em sua liberdade  
+
+**Tipos de Apatia**
+
+1. **Apatia da alma**  
+   - Quando a alma permanece em estado de estagnação  
+   - Sem procurar sua transcendência em si mesma  
+   - Ou seja, sem buscar sua evolução espiritual  
+
+2. **Apatia do encontro**  
+   - Quando duas almas se fundem  
+   - Porém sua relação não se fundamenta adequadamente  
+   - De forma que ambas cessam o movimento em direção à união  
+   - E à plenitude desta união  
+
 
