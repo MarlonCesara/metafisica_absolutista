@@ -1,7 +1,7 @@
 # Metafísica Absolutista
 
 
-## Princípios Causais Metafísicos: As Leis Fundamentais da Realidade
+## Princípios Causais Metafísicos
 
 
 ### Princípio da Razão de Ser (Determinação do ente)
