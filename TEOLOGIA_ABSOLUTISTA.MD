@@ -22,6 +22,8 @@ Neste interim, Adão e Eva também representam a apátia, que é não se movimen
 
 A apatia do encontro foi retratada com primazia na biblia, talvez por representar um risco até mesmo maior que a apatia da alma, pois desta ultima a alma tem ainda certo controle, ou seja, há escapatória, porém da apátia do encontro não haveria escapatória. O sacríficio de Cristo aparenta ter um foco maior no risco da apatia do encontro, pois foi em prol de restaurar o pecado original apesar de que, também é direcionado a restauração da apatia da alma.
 
+A bíblia carrega em si um subjetivismo de grande teor e volume, o modelo de racioício de Deus se esboça em diversas linhas temporais e possibildades como no caso de Adão e Eva, que poderia ser um reflexo futuro da ação do homem evidenciado num passado remoto. Deus, portanto, através de Cristo, esboça uma solução para conflitos que emergem no futuro e no presente. De forma que, em muitos momentos, há fuga de linhas temporais e lógicas, como no caso da restauração do universo a um estado de graça e em um tempo oculto ou na história de Adão e Eva que não poderiam ter se dado neste universo, em virtude que não morriam.
+
 ## **Poema de Eva**  
 
 Pequena Eva, tua intenção julgavas boa—  
