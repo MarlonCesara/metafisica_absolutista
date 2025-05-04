@@ -846,4 +846,6 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Constui-se como uma alma distinta inativa em si, mas ativa em ato pela dualidade.
 * A alma no mundo é projetada pelo Ser no corpo, de forma a projetar sua integralidade no corpo, o corpo só toma consciência da alma quando ela o domina.
 * O espirito é projetado no corpo, mas, apático, é como se o corpo se movesse por si.
+* O apático se esquiva dos momentos felizes, portanto, por medo de se apegar a vida e perdê-la. 
+
 
