@@ -819,8 +819,8 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 
 * A decisão de se unir precisa carregar em si um **teor de perfeição**.
 * Esse grau de perfeição transforma o vínculo em algo **ontologicamente indispensável**.
-* Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes, pois ambos os direcionamentos da dualidaed, necessitam percorrer um mesmo rumo em prol 
-  da sustentação de ambos em sua essência no eterno. Isto é, tornam-se por decisão própria um organismo, o qual depende da sustentação de sua dualidade como funndamento de sua 
+* Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes, pois ambos os direcionamentos da dualidade, necessitam percorrer um mesmo rumo em prol 
+  da sustentação de âmbos em sua essência no eterno. Isto é, tornam-se por decisão própria um organismo, o qual depende da sustentação de sua dualidade como fundamento de sua 
   continuidade.
 
 
