@@ -829,7 +829,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A escolha consciente pela união gera um **ser uno a partir da dualidade**.
 * Essa união ontológica torna os dois inseparáveis no nível do ser, não por origem ou natureza; mas pela **escolha** que os vinculou para a eternidade.
 
-### **6. A desunião**
+### **6. A desunião - Em Progresso**
 
 * Uma vez que a nova identidade é definida, seria possível uma retro alimentação das almas envolvidas na dualidade para fora do resultado da união ou, uma vez que, o desencontro   
   acontece, a nova alma se dissolve? 
