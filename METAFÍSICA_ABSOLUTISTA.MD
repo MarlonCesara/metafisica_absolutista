@@ -837,4 +837,5 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Ao considerarmos que a dualidade de almas pode exercer liberdade sobre a alma gerada, então não há alma gerada.
 * Ao considerarmos que a dualidade pode exercer uma visão sobre a alma gerada, então, da mesma forma, é necessário o consentimento da alma gerada.
 * Se a alma gerada tem determinação herdada, ou seja, instintiva, sua determinação é relativa a seus genitores?
+* Podemos considerar que a alma gerada é uma visão atribuida aos genitores, pois se sintetiza na união completa que é ato verdadeiro. Logo, é o ato verdadeiro ate que se desapegue da dualidade através da evolução espiritual, ou seja, que se faça alma autêntica?
 
