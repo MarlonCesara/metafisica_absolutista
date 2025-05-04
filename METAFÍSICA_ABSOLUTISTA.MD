@@ -842,4 +842,6 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Sendo o resultado exclusivo da união, pode agir por conta própria? 
 * Conclui-se que não é possível agir sem auto fundamentação, sendo a ação do humano sem auto fundamentação a mesma dos animais. Isto significa que o espírito reina sobre um instinto, o contráriando e o dominando. 
 * O apático não age instintivamente, simplesmente não age.
+* O animal não pode fazer nada, pois não está no comando?
+* Constui-se como uma alma distinta inativa em si, mas ativa em ato pela dualidade.
 
