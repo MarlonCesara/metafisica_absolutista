@@ -834,6 +834,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Uma vez que a nova identidade é definida, seria possível uma retro alimentação das almas envolvidas na dualidade para fora do resultado da união ou, uma vez que, o desencontro   
   acontece, a nova alma se dissolve? 
 * Ao considerarmos que a retro alimentação pode retomar o ente para fora da dualidade, uma vez que a nova definição não é reabsorvida em si pelas almas da dualidade, pois já não faz parte da essência das almas envolvidas, podemos considerar que a identidade pode, necessariamente, sobreviver fora de seu ato gerador.
-
-
+* Ao considerarmos que a dualidade de almas pode exercer liberdade sobre a alma gerada, então não há alma gerada.
+* Ao considerarmos que a dualidade pode exercer uma visão sobre a alma gerada, então, da mesma forma, é necessário o consentimento da alma gerada.
+* Se a alma gerada tem determinação herdada, ou seja, instintiva, sua determinação é relativa a seus genitores?
 
