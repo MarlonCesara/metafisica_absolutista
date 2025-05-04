@@ -844,4 +844,5 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * O apático não age instintivamente, simplesmente não age.
 * O animal não pode fazer nada, pois não está no comando?
 * Constui-se como uma alma distinta inativa em si, mas ativa em ato pela dualidade.
+* A alma no mundo é projetada pelo Ser no corpo, de forma a projetar sua integralidade no corpo, o corpo só toma consciência da alma quando ela o domina.
 
