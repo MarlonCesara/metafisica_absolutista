@@ -839,4 +839,5 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Se a alma gerada tem determinação herdada, ou seja, instintiva, sua determinação é relativa a seus genitores?
 * Podemos considerar que a alma gerada é uma visão atribuida aos genitores, pois se sintetiza na união completa que é ato verdadeiro. Logo, é o ato verdadeiro ate que se desapegue da dualidade através da evolução espiritual, ou seja, que se faça alma autêntica?
 * Sendo a alma gerada a união em ato, e existindo maneira de que a dualidade viva fora da união ainda persistente, há, portanto, o novo ser agindo pela determinação da dualidade - Se não fundamentado em si. Ou há o novo ser agindo por determinação instintiva - Se não determinado em si.
+* Sendo o resultado exclusivo da união, pode agir por conta própria? 
 
