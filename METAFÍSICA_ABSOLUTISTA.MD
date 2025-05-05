@@ -870,6 +870,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Instintivamente o animal em que a visão foi projetada procura desesperadamente o seu "eu", pois seu instinto o leva a tal ação.
 * A visão, sendo projetada no animal, é dormente em si de forma que o animal não saiba da existencia dessa visão. 
 * Portanto, enquanto a visão não desperta o animal é totalmente sucumbido a uma falta de sentido sem persepctiva do que poderia evoluir em si.
+* A visão vê tudo o que o animal vê, mas o animal não tem consciência de nenhuma propriedade transcendente em si se a alma projetade em si é apática.
 
 
 
