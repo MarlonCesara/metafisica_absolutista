@@ -885,6 +885,8 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A indefinição da união é uma indefinição de autodeterminação, porém, a indefinição é indefinição da autodeterminação da dualidade.
 * A indefinição de Deus é uma indefinição guiada pelo Espírito Perfeito ou pela Alma de Deus.
 * A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do quem da dualidade. É como um portal aberto na união, o ente completo se forma da dualidade. 
+* O Ser tem disponível a indefinição sem que necessite fundir uma dualidade.
+* A dualidade poderia, portanto gerar a nova visão e projetá-la no nada ou em um corpo? 
 
 Diálogo de uma alma vívida com uma alma apática, estando as duas projetadas em dois corpos:
 
