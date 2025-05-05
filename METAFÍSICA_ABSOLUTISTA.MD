@@ -917,3 +917,13 @@ Apático:
   não manifestado por mim, não autêntico, mas projetado. Então preciso de fé em mim para viver, meu corpo precisa acreditar. E acreditando, despertarei se achar 
   um sentido para tal.
 
+#### Conclusão:
+
+- A completa união gera uma indefinição em cada unidade da dualiadade.
+- Esta indefinição não consome completamente cada unidade, considerando que cada manifestação é finita temporalmente.
+- A indefinição, segundo tendencia da determinação ainda ativa da dualidade, se define e se definindo é em si uma nova alma dotada do potencial de 
+ autodeterminação. Mas não tem em si propósito ( evolução espiritual) originalmente, ou seja, não tem autopresença, autodominio, auto consciencia enquanto não 
+ obter um propósito em si em relação a existir.
+- Logo, temos que, a nova definição, ou seja, a nova alma, é alma, mas alma em potencial, sem autodeterminação e auto-continuidade. Permanecendo um resultado da 
+  união. Sustentada pela união.
+
