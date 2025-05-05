@@ -881,6 +881,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A alma é projetada em um humano no intuito de despertar o sentido em si pela transcendencia, por ser maior diante de um infinito, querer extender-se. 
 * A alma nova, portanto, é uma exetensão da dualidade que a gerou, de forma que é a dualidade transcendida, a dualidade que trancendeu o sentido de si ou que trancendeu uma visão que não encontrou uma razão em si para permanecer. 
 * Há possibilidade de tentativa por um tempo eterno transcender a nova visão.
+* A projeção é uma ação da dualidade, logo, o animal nada poderia autodeterminar em relação a realidade exterior, exceto se a dualidade determinasse.
 
 
 
