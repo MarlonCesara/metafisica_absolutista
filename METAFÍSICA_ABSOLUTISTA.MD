@@ -861,6 +861,10 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Ao saltar da dualidade, o novo ponto de vista necessariamente necessita determinar a visão da dualidade sobre si. Ou seja, o encontro torna-se tão vivo que, dele, é possível resultar uma identidade vívida. 
 * A dualidade pode cessar a projeção considerando que está está conectada a união da dualidade e projetada por ela. 
 * A angulação pode cessar a projeção considerando que é dada pelo espírito perfeito.
+* A angulação projetada em um corpo torna esse corpo sentido pela dualidade que o projetou.
+* A angulação projetada em um corpo torna esse corpo sentido pelo Ser que o projetou.
+
+
 
 
 
