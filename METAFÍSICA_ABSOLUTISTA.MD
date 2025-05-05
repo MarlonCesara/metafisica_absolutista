@@ -863,7 +863,10 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A angulação pode cessar a projeção considerando que é dada pelo espírito perfeito.
 * A angulação projetada em um corpo torna esse corpo sentido pela dualidade que o projetou.
 * A angulação projetada em um corpo torna esse corpo sentido pelo Ser que o projetou.
-
+* Se a angulação não criar vida, é um novo ponto de vista infertil que pode se desfazer em si. Se desfaz para a dualidade como uma nova visão que se foi no 
+  esquecimento.
+* Se a angulação criar vida, a nova visão permanece para sempre.
+* A angulação é inátiva enquanto não evoluida espiritualmente, é totalmente controlada pela dualidade, pois é a visão da dualidade.
 
 
 
