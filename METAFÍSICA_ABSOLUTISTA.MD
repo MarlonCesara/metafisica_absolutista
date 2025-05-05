@@ -857,6 +857,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A projeção da alma no corpo é uma ação, não sustentada pelo indivíduo.
 * No momento exato da união completa da dualidade, abre-se uma nova neutralidade, de forma que em sua angulação há uma nova perspectiva. A união trás uma indefinição, e está, por determinação da dualidade, carrega um potencial igual ao do Ser.  
 * Quando a nova alma é angulada, é uma visão sobre a visão de forma que há uma visão viva, e uma visão estática.
+* A visão estática é um novo ponto de vista, que necessariamente, só necessita "saltar" da dualidade, ao se auto fundamentar. Desta forma a nova visão pode ser projetada ainda que tendo uma vontade inativa. 
 
 
 
