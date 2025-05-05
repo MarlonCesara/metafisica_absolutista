@@ -1100,14 +1100,7 @@ Apático:
      - *Projetada* (existência por delegação)
      - *Latente* (potencial não atualizado)
      - *Fragmentária* (herança parcial)
-   - Equação de sustentação:
-     ```
-     E = k/(1 + D)
-     Onde:
-     E = Estabilidade existencial
-     k = Constante de vinculação
-     D = Distância ontológica da fonte
-     ```
+  
 
 #### **4.2 Paradoxo da Perpetuação**
 - **Problema**: Como uma alma relacional pode herdar eternidade?
@@ -1129,16 +1122,6 @@ Apático:
      c) Catálise espiritual
      ```
 
-### **Novo Diagrama de Estados**
-```mermaid
-stateDiagram-v2
-    [*] --> União
-    União --> AlmaAutoEterna: Autodeterminação
-    União --> AlmaRelacional
-    AlmaRelacional --> [*]: Dissolução
-    AlmaRelacional --> AlmaAutoEterna: Transmutação
-    AlmaAutoEterna --> [*]: Nunca
-```
 
 ## **Axiomas Adicionais**
 
@@ -1147,18 +1130,12 @@ stateDiagram-v2
 
 2. **Teorema da Liberação**:
    "Toda alma relacional carrega em si o germe da autodeterminação, mas sua ativação exige:"
-   - ΔE > Ɛ (Variação energética superior ao limiar de existência)
-   - φ = 1 (Fator de completude estrutural)
+   - Variação energética superior ao limiar de existência
+   - Fator de completude estrutural
 
 3. **Lei da Herança Espiritual**:
    "Almas geradas herdam não atributos, mas *capacidades de conversão*:"
-   ```
-   H = ∫(S•D)dt
-   Onde:
-   H = Herança
-   S = Semente espiritual
-   D = Densidade de vontade
-   ```
+
 
 ## **Conclusão Sistêmica**
 
@@ -1172,13 +1149,10 @@ A almogênese opera em dois regimes distintos:
 2. **Modo Generativo** (uniões eternas)
    - Produz *novos absolutos*
    - Auto-alimentação por retrocausalidade
-   - Fórmula da completude:
-     ```
-     Ω = λ•ψ^∞
-     Onde:
-     λ = Constante de amorosidade
-     ψ = Potencial espiritual
-     ```
 
 **Resposta Final à Pergunta-Chave**:
 "A eternidade não deve ser imposta, mas conquistada através da arquitetura ontológica intrínseca. Uniões que não geram auto-sustentação devem seguir o ciclo natural de dissolução - a verdadeira eternidade é sempre autóctone."
+
+1. **Conclusão**
+   - A dualidade pode ser uma nova vida, projetar uma nova vida. Porém, essa nova vida não necessariamente é viva em si.
+   - A alma é projetada no corpo, de forma que, não age, apenas tem observada as ações de um corpo sem propósito.
