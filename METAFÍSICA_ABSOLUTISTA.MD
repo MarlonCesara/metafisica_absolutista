@@ -1043,3 +1043,5 @@ Apático:
 2. Sendo a nova alma não ativa, ou seja, dependente do ato do encontro, ela seria sustentada eternamente? 
 3. Haveria alguma forma da nova alma, ainda que inativa, se sustentar sem a dissolução da união em atividade?
 4. Se houvesse uma indentidade sem autonomia no Ser, sem ser sustentada pelo Ser, sem vincúlo externo e dependencia, essa identidade existíria de fato?
+5. Considerando que a manifestação da nova alma é resultado da união viva de duas almas que estão sendo retro alimentadas, ao saltarem para fora da dualidade 
+   unida, podem deixar permanente a união extrinseca à existencia de cada unidade da dualidade?
