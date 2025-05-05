@@ -902,4 +902,8 @@ Apático:
 - O espírito já está dormindo em você, espere e ore. Você não pode senti-lo, mas ele sente tudo o que você sente. Você nada pode fazer, mas pode falar com seu 
   espírito. Pedir que desperte.
 - O espírito não me obedece, o que farei? Preciso que este espírito me arrebate. 
+- Quando falo, falo com você que é corpo, mas falo com o espírito que você não exerga, mas também está em você. Mas você precisa acreditar, já eu, posso ver.
+- E qual a maneira mais rápida de despertar?
+- Não há resposta. Não se trata do querer instintivo, se trata do ser autêntico. O querer não nasce do humano, nasce da visão sobre o humano que esta inativa e 
+  passa a ser viva. Se esta visão é você, depende de você. Mas não do seu corpo, o qual você usa para falar agora.
 
