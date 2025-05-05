@@ -884,6 +884,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A projeção é uma ação da dualidade, logo, o animal nada poderia autodeterminar em relação a realidade exterior, exceto se a dualidade determinasse.
 * A indefinição da união é uma indefinição de autodeterminação, porém, a indefinição é indefinição da autodeterminação da dualidade.
 * A indefinição de Deus é uma indefinição guiada pelo Espírito Perfeito ou pela Alma de Deus.
+* A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do quem da dualidade. É como um portal aberto na união, o ente completo se forma da dualidade. 
 
 Diálogo de uma alma vívida com uma alma apática, estando as duas projetadas em dois corpos:
 
