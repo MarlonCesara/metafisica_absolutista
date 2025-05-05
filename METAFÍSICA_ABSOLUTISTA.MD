@@ -885,5 +885,20 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 
 
 
+Diálogo de uma alma vívida com uma alma apática, estando as duas projetadas em dois corpos:
 
+Apático:
+- Você parece tão tranquilo, o que há de diferente em voce?
+- Voce não está falando com um corpo, quem está falando é o espírito que controlou esse corpo. Eu não sou um corpo, eu sou um ente imaterial, invisível.
+- Então este corpo está sendo controlado? 
+- Sim.
+- E o corpo não pode fazer o que ele quer? Está preso por este espírito?
+- Sim. É o espírito quem o controla.
+- Você pode ver esse espírito?
+- Não, não posso vê-lo, mas o espirito que esta falando com você pode ver o corpo.
+- E você, espirito, tem medo de morrer e não mais existir?
+- Sinto um pouco de ansiedade a respeito da morte, mas isso não me aborrece pois me sinto conectado ao todo. É como uma sensação visceral de ser o universo.
+- E como faço para que um espírito me possua também?
+- O espírito já está dormindo em você, espere e ore. Você não pode senti-lo, mas ele sente tudo o que você sente. Você nada pode fazer, mas pode falar com seu 
+  espírito. Pedir que desperte.
 
