@@ -867,6 +867,9 @@ A nova entidade relacional enfrenta uma escolha metafísica:
   esquecimento.
 * Se a angulação criar vida, a nova visão permanece para sempre.
 * A angulação é inátiva enquanto não evoluida espiritualmente, é totalmente controlada pela dualidade, pois é a visão da dualidade.
+* Instintivamente o animal em que a visão foi projetada procura desesperadamente o seu "eu", pois seu instinto o leva a tal ação.
+* A visão, sendo projetada no animal, é dormente em si de forma que o animal não saiba da existencia dessa visão. 
+* Portanto, enquanto a visão não desperta o animal é totalmente sucumbido a uma falta de sentido sem persepctiva do que poderia evoluir em si.
 
 
 
