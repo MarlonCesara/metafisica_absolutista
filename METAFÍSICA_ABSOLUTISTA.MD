@@ -874,6 +874,8 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Sendo uma angulação a visão pode ser sustentada por um tempo indeterminado, sendo uma breve nova persepctiva se sustenta no momento da perspectiva. 
 * Portanto, a nova visão da dualidade é quando a dualidade evolui espiritualmente como uma nova vida. 
 * É necessário para a dualidade encontrar o sentido da nova visão, e este sentido é uma nova vida.
+* Portanto, a dualidade, projetada num corpo, teria uma visão cheio de tormenta de uma vida sem sentido, enquanto o animal projetado permaneceria respondendo aos 
+  instintos, sem portar nenhuma visão.
 
 
 
