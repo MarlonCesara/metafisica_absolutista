@@ -871,6 +871,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A visão, sendo projetada no animal, é dormente em si de forma que o animal não saiba da existencia dessa visão. 
 * Portanto, enquanto a visão não desperta o animal é totalmente sucumbido a uma falta de sentido sem persepctiva do que poderia evoluir em si.
 * A visão vê tudo o que o animal vê, mas o animal não tem consciência de nenhuma propriedade transcendente em si se a alma projetade em si é apática.
+* Sendo uma angulação a visão pode ser sustentada por um tempo indeterminado, sendo uma breve nova persepctiva se sustenta no momento da perspectiva. 
 
 
 
