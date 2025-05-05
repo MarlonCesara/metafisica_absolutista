@@ -907,5 +907,6 @@ Apático:
 - Não há resposta. Não se trata do querer instintivo, se trata do ser autêntico. O querer não nasce do humano, nasce da visão sobre o humano que esta inativa e 
   passa a ser viva. Se esta visão é você, depende de você. Mas não do seu corpo, o qual você usa para falar agora.
 - Então depende de mim, mas não do meu corpo, e o "mim" ao qual me refiro está dormindo. Então o meu "eu" é imaginado. E depende do meu eu imaginado, crido mas 
-  não manifestado por mim, não autêntico, mas projetado.
+  não manifestado por mim, não autêntico, mas projetado. Então preciso de fé em mim para viver, meu corpo precisa acreditar. E acreditando, despertarei se achar 
+  um sentido para tal.
 
