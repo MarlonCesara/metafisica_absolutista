@@ -849,4 +849,15 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * O apático se esquiva dos momentos felizes, portanto, por medo de se apegar a vida e perdê-la. 
 * A alma projetada apática tem contato com o mundo exterior, no sentido de que, carrega extímulos, porém de forma não reativa, deixando o corpo a deríva de 
   instinto.
+* O corpo, na verdade, é um animal onde a alma é projetada. E, essa alma, tendo movimento, assume o animal e dá um sentido a existencia do animal de forma a aliviar-lhe o sofrimento de estar diante da morte e não antever sua continuidade em si mesmo.
+* A dualidade, ao formar a nova visão pela união, não retroalimenta a nova visão, pois isso significa se fundir a nova visão, a identidade, ao ser formada, é imediatamente segregada da união, se estabelecendo no todo.
+* A projeção dessa alma, ao se dar em um corpo, continua projetada no corpo. Porém, ao se libertar, permanece inoperante, dependente do idealizador? Porém o idealizador não é mais determinante.
+* Quando duas identidades se unem, há uma nova identidade, e essa imediatamente é uma vida nova no momento exato da união completa.
+* A dualidade não pode olhar pelos olhos da nova vida, mas pode olhar no mesmo olhar até o momento exato da fusão.
+* A projeção da alma no corpo é uma ação, não sustentada pelo indivíduo.
+* No momento exato da união completa da dualidade, abre-se uma nova neutralidade, de forma que em sua angulação há uma nova perspectiva. A união trás uma indefinição, e está, por determinação da dualidade, carrega um potencial igual ao do Ser.  
+* Quando a nova alma é angulada, é uma visão sobre a visão de forma que há uma visão viva, e uma visão estática.
+
+
+
 
