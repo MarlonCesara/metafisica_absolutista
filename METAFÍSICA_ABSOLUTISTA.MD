@@ -1036,5 +1036,9 @@ Apático:
 4. O resultado da união ativa, é determinado pela nova alma.
 
  **Pergunta Final**:  
-*"Uma união união unitária e temporal deve ser eternizada?"*  
+*"Uma união união unitária e temporal que não vingou na eternidade deve ser eternizada? Ou sua eternidade deveria ser auto sustentada?"*  
 
+### **Resposta**  
+1. A determinação da alma inativa gera cansaço? Pois a ação da união deve continuar?
+2. Sendo a nova alma não ativa, ou seja, dependente do ato do encontro, ela seria sustentada eternamente? 
+3. Haveria alguma forma da nova alma, ainda que inativa, se sustentar sem a dissolução da união em atividade?
