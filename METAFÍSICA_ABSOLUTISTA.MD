@@ -1031,5 +1031,10 @@ Apático:
 
 ### **Resposta**  
 1. A alma, não auto determinada, não existe de fato, existe o resultado da união. O qual pode, não somente ser gerido, mas projetado.
- 
+2. Há portanto a união passiva: terceira alma existente, mas não ativa. E a união atíva: terceira alma que se autocontinuou e se autodeterminou.
+3. O resultado da união passiva pode ser determinado pela dualidade segundo seu intuito. 
+4. O resultado da união ativa, é determinado pela nova alma.
+
+ **Pergunta Final**:  
+*"Uma união união unitária e temporal deve ser eternizada?"*  
 
