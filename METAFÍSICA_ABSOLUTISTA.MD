@@ -901,4 +901,5 @@ Apático:
 - E como faço para que um espírito me possua também?
 - O espírito já está dormindo em você, espere e ore. Você não pode senti-lo, mas ele sente tudo o que você sente. Você nada pode fazer, mas pode falar com seu 
   espírito. Pedir que desperte.
+- O espírito não me obedece, o que farei? Preciso que este espírito me arrebate. 
 
