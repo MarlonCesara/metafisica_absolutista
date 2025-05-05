@@ -872,6 +872,8 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Portanto, enquanto a visão não desperta o animal é totalmente sucumbido a uma falta de sentido sem persepctiva do que poderia evoluir em si.
 * A visão vê tudo o que o animal vê, mas o animal não tem consciência de nenhuma propriedade transcendente em si se a alma projetade em si é apática.
 * Sendo uma angulação a visão pode ser sustentada por um tempo indeterminado, sendo uma breve nova persepctiva se sustenta no momento da perspectiva. 
+* Portanto, a nova visão da dualidade é quando a dualidade evolui espiritualmente como uma nova vida. 
+* É necessário para a dualidade encontrar o sentido da nova visão, e este sentido é uma nova vida.
 
 
 
