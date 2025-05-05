@@ -1029,4 +1029,7 @@ Apático:
 **Pergunta Final**:  
 *"Se uma alma nasce da união de duas, mas não se autodetermina, ela existe de fato – ou é apenas um reflexo temporário?"*  
 
+### **Resposta**  
+1. A alma, não auto determinada, não existe de fato, existe o resultado da união. O qual pode, não somente ser gerido, mas projetado.
+ 
 
