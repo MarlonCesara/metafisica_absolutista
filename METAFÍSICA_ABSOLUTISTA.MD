@@ -887,6 +887,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do quem da dualidade. É como um portal aberto na união, o ente completo se forma da dualidade. 
 * O Ser tem disponível a indefinição sem que necessite fundir uma dualidade.
 * A dualidade poderia, portanto gerar a nova visão e projetá-la no nada ou em um corpo? 
+* Determinar a alma é determinar o quem, e não o que. Não há como determinar o que já esta determinado. Há como indeterminar o determinado. O eu indeterminado, busca sua definição na dualidade, e essa busca é acentuada pela dualidade que ainda opera em uma imersão mútua, buscando uma definição em conjunto da visão.
 
 Diálogo de uma alma vívida com uma alma apática, estando as duas projetadas em dois corpos:
 
