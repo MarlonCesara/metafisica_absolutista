@@ -877,6 +877,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Portanto, a dualidade, projetada num corpo, teria uma visão cheio de tormenta de uma vida sem sentido, enquanto o animal projetado permaneceria respondendo aos 
   instintos, sem portar nenhuma visão.
 * A nova vida, então é uma eternização da união da dualidade, de forma que aquele união quis permanecer para sempre.
+* Não há como morrer o que nunca viveu por si só, portanto, sendo determinado que a visão jamais vai viver, seria a mesma decisão aniquila-la ou continua-la. 
 
 
 
