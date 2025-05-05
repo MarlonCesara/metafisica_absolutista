@@ -890,6 +890,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * Determinar a alma é determinar o quem, e não o que. Não há como determinar o que já esta determinado. Há como indeterminar o determinado. O eu indeterminado, busca sua definição na dualidade, e essa busca é acentuada pela dualidade que ainda opera em uma imersão mútua, buscando uma definição em conjunto da visão.
 * Numa profunda imersão de almas, ambas perdem sua definição, mas está indefinição é guiada ainda por ambas. É sim, uma mistura, porém, também uma indefinição, pois as unidades se tornam indefinidas em si, ao passo que defininidas em uma nova visão viva.
 * Em uma união, portanto, acontece uma indefinição das duas almas unidas em uma, e está uma, em si, gera uma definição. Porém, uma definição autodeterminada, pois, há determinação na indeterminação gerada. Ambas as vontades indefinidas imperam no formar da nova definição.
+* A nova alma não sobrevive sem a sustentação da dualidade. 
 
 Diálogo de uma alma vívida com uma alma apática, estando as duas projetadas em dois corpos:
 
