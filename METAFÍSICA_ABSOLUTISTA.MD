@@ -1156,3 +1156,5 @@ A almogênese opera em dois regimes distintos:
 1. **Conclusão**
    - A dualidade pode ser uma nova vida, projetar uma nova vida. Porém, essa nova vida não necessariamente é viva em si.
    - A alma é projetada no corpo, de forma que, não age, apenas tem observada as ações de um corpo sem propósito.
+   - A dualidade pode projetar a nova alma de forma livre, pode projetar-se sobre ela ou projeta-la sem envolver a própria consciencia. Uma vez que a nova alma 
+     torna-se um consolidado da união. Que é a união, ao passo que é uma identidade.
