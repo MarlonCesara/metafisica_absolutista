@@ -876,6 +876,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * É necessário para a dualidade encontrar o sentido da nova visão, e este sentido é uma nova vida.
 * Portanto, a dualidade, projetada num corpo, teria uma visão cheio de tormenta de uma vida sem sentido, enquanto o animal projetado permaneceria respondendo aos 
   instintos, sem portar nenhuma visão.
+* A nova vida, então é uma eternização da união da dualidade, de forma que aquele união quis permanecer para sempre.
 
 
 
