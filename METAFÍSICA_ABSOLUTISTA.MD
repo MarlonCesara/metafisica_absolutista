@@ -1042,3 +1042,4 @@ Apático:
 1. A determinação da alma inativa gera cansaço? Pois a ação da união deve continuar?
 2. Sendo a nova alma não ativa, ou seja, dependente do ato do encontro, ela seria sustentada eternamente? 
 3. Haveria alguma forma da nova alma, ainda que inativa, se sustentar sem a dissolução da união em atividade?
+4. Se houvesse uma indentidade sem autonomia no Ser, sem ser sustentada pelo Ser, sem vincúlo externo e dependencia, essa identidade existíria de fato?
