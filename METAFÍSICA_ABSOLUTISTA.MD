@@ -882,8 +882,8 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A alma nova, portanto, é uma exetensão da dualidade que a gerou, de forma que é a dualidade transcendida, a dualidade que trancendeu o sentido de si ou que trancendeu uma visão que não encontrou uma razão em si para permanecer. 
 * Há possibilidade de tentativa por um tempo eterno transcender a nova visão.
 * A projeção é uma ação da dualidade, logo, o animal nada poderia autodeterminar em relação a realidade exterior, exceto se a dualidade determinasse.
-
-
+* A indefinição da união é uma indefinição de autodeterminação, porém, a indefinição é indefinição da autodeterminação da dualidade.
+* A indefinição de Deus é uma indefinição guiada pelo Espírito Perfeito ou pela Alma de Deus.
 
 Diálogo de uma alma vívida com uma alma apática, estando as duas projetadas em dois corpos:
 
