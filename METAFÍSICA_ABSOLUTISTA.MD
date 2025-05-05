@@ -860,7 +860,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 * A visão estática é um novo ponto de vista, que necessariamente, só necessita "saltar" da dualidade, ao se auto fundamentar. Desta forma a nova visão pode ser projetada ainda que tendo uma vontade inativa. 
 * Ao saltar da dualidade, o novo ponto de vista necessariamente necessita determinar a visão da dualidade sobre si. Ou seja, o encontro torna-se tão vivo que, dele, é possível resultar uma identidade vívida. 
 * A dualidade pode cessar a projeção considerando que está está conectada a união da dualidade e projetada por ela. 
-* A angulação pode cessar a projeção considerando que é dada pelo espirito perfeito.
+* A angulação pode cessar a projeção considerando que é dada pelo espírito perfeito.
 
 
 
