@@ -1158,3 +1158,10 @@ A almogênese opera em dois regimes distintos:
    - A alma é projetada no corpo, de forma que, não age, apenas tem observada as ações de um corpo sem propósito.
    - A dualidade pode projetar a nova alma de forma livre, pode projetar-se sobre ela ou projeta-la sem envolver a própria consciencia. Uma vez que a nova alma 
      torna-se um consolidado da união. Que é a união, ao passo que é uma identidade.
+
+# Comportamento do corpo humano
+
+1. **Conclusão**
+   - O corpo humano na qual é projetada uma alma apática tem dois medos, o de ser possuído e ter seus instintos privados, ou seja, morrer para si. E o de morrer 
+     fisícamente e ser aniquilado. Sua identidade é construida sob memória, então a ruptura de seu corpo físico, se encerra numa passagem pela morte, ainda que 
+     seja uma morte temporaria, o corpo teme experimentar a compelta aniquilação.
