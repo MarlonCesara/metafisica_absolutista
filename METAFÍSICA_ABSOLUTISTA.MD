@@ -6,15 +6,16 @@
 
 ### Princípio da Razão de Ser (Determinação do ente)
 - **Tudo que existe tem uma razão para ser como é e não de outra forma.**
-  - *Equivalente lógico:* Princípio da Identidade ("A é A").
+  - *Equivalente lógico:* Princípio da Identidade ("A é A"), onde "A" é "A" por determinada razão.
 
 ### Princípio da Causa Existencial (Fundamentação do ente)
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**
-  - *Equivalente lógico:* Princípio do Terceiro Excluído ("A ou não-A").
+  - *Equivalente lógico:* Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe por uma razão fundamental.
 
 ### Princípio da Causa Continuada (Persistência do ente)
 - **Tudo que persiste no ser tem uma causa que sustenta sua existência.**
-  - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo").
+  - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo"), onde A se mantém A ou "não A" se mantém "não A" por uma 
+  razão continua. 
 
 ## Definições Fundamentais - Os Domínios da Existência Revelados
 
@@ -128,6 +129,8 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 3. **Personalização (Alma Determinante)**
    - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.
    - *Princípio:* "Entre caminhos equivalentes rumo a plenitude, sigo o que expressa minha identidade ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."
+
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do absoluto. Sendo que, as três podem ter eficácia na realidade de forma a fundamenta-la, plenifica-la e construí-la.
 
 ## Conclusão
 
