@@ -328,3 +328,10 @@ Não encontro.
 E, no entanto,  
 a saudade é a única prova  
 de que um dia existi.  
+
+# Comportamento do corpo humano
+
+1. **Conclusão**
+   - O corpo humano na qual é projetada uma alma apática tem dois medos, o de ser possuído e ter seus instintos privados, ou seja, morrer em uma vida instintiva 
+     de seu em si. E o de morrer fisícamente e ser aniquilado. Sua identidade é construida sob memória, então a ruptura de seu corpo físico, se encerra numa 
+     passagem pela morte, ainda que seja uma morte temporaria, o corpo teme experimentar a compelta aniquilação.
