@@ -569,6 +569,11 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 > não ocupa espaço, mas gera todo espaço;  
 > não está no tempo, mas se desdobra como tempo.  
 
+#### **6. O "Quem" como Vida dos viventes**
+> O Ser, sendo Vivo, não está limitado ao fracionário de forma a manter sua autofundamentação.
+> A multiplicidade de "nadas" individuais, sob a perspectiva de vivos, sub entende o paralelismo como possível. 
+> Os nadas individuais são vivos, na vida. Ou seja, a transcendencia da individualização da vida se resvala numa vida total.
+> O nada, sem o quem, não implica em subdivisões em si.
 
 **Glossário:**
 - **Quem:** Princípio ativo não-numerável (Deus, Consciência Absoluta).
