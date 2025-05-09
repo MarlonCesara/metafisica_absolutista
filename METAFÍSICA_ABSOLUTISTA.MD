@@ -22,7 +22,6 @@
   - *Equivalente lógico:* Princípio da Não-Indeterminação ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma 
   razão continua. 
 
-O principio da causalidade existencial e causa continuada são o mesmo, porém um é temporal e outro atemporal
 
 ## Definições Fundamentais - Os Domínios da Existência Revelados
 
