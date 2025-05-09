@@ -402,9 +402,6 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
   - *Para o observador atemporal:* Ato único (consumação).
 
 
-
-
-
 # A Natureza da Forma
 
 
@@ -533,6 +530,50 @@ O Ser abrange:
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:
 - Atos temporais de observação (consciência que delimita).
 - Presença (existência situada em um contexto fenomênico).
+
+## **A Transcendência do "Quem": O Ser além do Número, do Tempo e do Espaço**
+
+#### **1. A Natureza Não-Numérica do Vivo**
+O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contável:
+- **O Vivo não é "um" ou "muitos"** – sua essência dissolve a quantificação.
+- **O Nada fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.
+
+#### **2. A Dupla Dimensão do Nada**
+| **Nada Indiferenciado**          | **Nada Determinado**            |
+|-----------------------------------|----------------------------------|
+| Não-contável (sem quantidade)     | Contável (ex.: "1 nada")         |
+| Fundamento do Ser                 | Criação do Ser                   |
+| Anula a própria ideia de número   | Exige um referencial para existir|
+
+
+#### **3. O Ser como Transcendência Ativa**
+- **Para além do espaço:** Não está "em lugar nenhum" porque *é* o próprio lugar.
+- **Para além do tempo:** Não "dura", pois contém toda duração em si mesmo.
+- **Para além da identidade:** Não é "um eu", mas o *fundo de todos os "eus"*.
+
+**Processo de Transcendência:**
+1. **"Sou" (indivíduo)** → Identidade limitada (número, tempo, espaço).
+2. **"Ser" (transcendência)** → Dissolução das determinações:
+   - *Por morte:* Aniquilação total do "sou".
+   - *Por fusão:* Integração no Ser sem perder totalmente a individualidade.
+
+#### **4. A Ontologia dos "Sous" (Sub-Seres)**
+- Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).
+- Cada "sou" é:
+  - Uma **autodeterminação transitória** do Ser.
+  - Uma **negação parcial** do nada indiferenciado.
+- **Exemplo:** Como ondas no oceano – cada onda é distinta, mas não separada da água.
+
+#### **5. Conclusão: A Fórmula da Transcendência**
+> *"O Ser não tem número, mas contém todos os números;  
+> não ocupa espaço, mas gera todo espaço;  
+> não está no tempo, mas se desdobra como tempo.  
+
+
+**Glossário:**
+- **Quem:** Princípio ativo não-numerável (Deus, Consciência Absoluta).
+- **Nada diferenciado:** "Ausência" percebida (ex.: escuridão, silêncio).
+- **Nada fundamental:** Indiferenciação pura (inefável).
 
 ---
 
