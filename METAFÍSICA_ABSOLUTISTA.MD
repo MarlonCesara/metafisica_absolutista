@@ -17,6 +17,11 @@
   - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo"), onde A se mantém A ou "não A" se mantém "não A" por uma 
   razão continua. 
 
+### Princípio da Identidade Continuada (Persistência da Identidade)
+- **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**
+  - *Equivalente lógico:* Princípio da Não-Indeterminação ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma 
+  razão continua. 
+
 O principio da causalidade existencial e causa continuada são o mesmo, porém um é temporal e outro atemporal
 
 ## Definições Fundamentais - Os Domínios da Existência Revelados
