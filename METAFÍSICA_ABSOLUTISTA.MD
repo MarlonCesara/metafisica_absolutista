@@ -850,9 +850,26 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 
 
 
-# **Almogênese: A Ontologia da Transcendência da Alma**
+# **A Dialética Transcendência**  
 
-#### **1. A Necessidade de Transcendência da Alma**
+- A transcendecia, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendencia.
+- Transcender é transcender uma infinitude, no sentido de romper o potencial inexpressivo.
+- As possibilidades de transcendencia para o "sou" é trancende para o Ser, Para o outro e Para si.
+- A possibilidade de transcendencia do Ser é transcender para si.
+
+
+# **Almogênese: A Ontologia da Transcendência e da União entre Almas**  
+
+
+## **A Dialética da Autodeterminação e Transcendência**  
+
+- **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.
+- O "Quem" do Ser 
+
+- **Determinação como Limitação**: Ao fixar-se como ente singular, o Ser restringe seu acesso à **indeterminação pura** (fonte da transcendência).  
+- **O "Sou" Incompleto**: Se o indivíduo ("sou") não realiza sua transcendência, permanece fragmentado, incapaz de integrar-se ao Todo. 
+
+
 1. Quando o Ser se determina como unidade de si mesmo, determina simultaneamente seu potencial transcendente - uma capacidade imanente à sua própria natureza essencial.
 2. Contudo, ao fixar-se como ente determinado, o Ser limita-se à sua própria determinação, perdendo assim o acesso à potencialidade pura da indeterminação que fundamenta a verdadeira transcendência.
 3. Segue-se necessariamente que, como manifestação de um Ser transcendente, o "sou" deve conter em si mesmo esta mesma qualidade transcendente.
