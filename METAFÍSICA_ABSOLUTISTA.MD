@@ -575,7 +575,7 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 > O nada, sem o quem, não implica em subdivisões em si.
 
 **Glossário:**
-- **Quem:** Princípio ativo não-numerável (Deus, Consciência Absoluta).
+- **Quem:** Princípio ativo não-numerável (Ser, Consciência Absoluta).
 - **Nada diferenciado:** "Ausência" percebida (ex.: escuridão, silêncio).
 - **Nada fundamental:** Indiferenciação pura (inefável).
 
@@ -744,7 +744,7 @@ Nossa experiência do "agora":
 
 
 
-## Natureza da Conexão entre Homem e Deus
+## Natureza da Conexão entre Homem e o Ser
 
 
 ### O Ser como Fundamento
@@ -1006,7 +1006,7 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 - Há a possibilidade de tentativa, por um tempo eterno, para que a alma nova transcenda.
 - A projeção é uma ação da dualidade; logo, o animal nada poderia autodeterminar em relação à realidade exterior, exceto se a dualidade determinasse.
 - A indefinição da união é uma indefinição de autodeterminação. Porém, trata-se da indefinição da autodeterminação da dualidade.
-- A indefinição de Deus é uma indefinição guiada pelo Espírito Perfeito ou pela Alma de Deus.
+- A indefinição do Ser é uma indefinição guiada pelo Espírito Perfeito ou pela Alma do Ser.
 - A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do "quem" da dualidade. É como um portal aberto na união — a alma se forma a partir da dualidade.
 - O Ser tem acesso à indefinição sem que precise fundir uma dualidade.
 - A dualidade poderia, portanto, gerar uma nova visão e projetá-la no nada ou em um corpo.
