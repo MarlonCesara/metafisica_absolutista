@@ -744,7 +744,7 @@ Nossa experiência do "agora":
 
 
 
-## Natureza da Conexão entre Homem e o Ser
+## Natureza da Conexão entre o sou e o Ser
 
 
 ### O Ser como Fundamento
