@@ -39,7 +39,7 @@
 ### 3. Irrealidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas.
 
-## Detalhando Propriedades Essenciais do Absoluto
+## Propriedades Essenciais do Absoluto
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
