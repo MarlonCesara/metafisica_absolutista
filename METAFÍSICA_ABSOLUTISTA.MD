@@ -579,6 +579,33 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 - **Nada diferenciado:** "Ausência" percebida (ex.: escuridão, silêncio).
 - **Nada fundamental:** Indiferenciação pura (inefável).
 
+### **A Diferença entre a Alma do Ser e a Alma do "Sou"**
+
+1. **O Nada Indiferenciado**  
+   - Refere-se ao nada que não se diferencia de outros nadas.  
+   - Não envolve algo (manifestação) nem o "quem" (alma manifestada).  
+
+2. **O "Quem" como Alma**  
+   - O "quem" é a alma, o agente ativo da autodeterminação.  
+
+3. **A Realidade tem Alma?**  
+   - A realidade possui alma, porém, essa alma é relativa à sua natureza fundamentadora, não ao próprio Ser.  
+
+4. **A Alma do Ser**  
+   - Não se refere propriamente ao nada do Ser, pois a propriedade desse nada é relativa a qualquer "sou" que se autodetermine sob a perspectiva de uma vontade autofundamentadora.  
+   - A alma do Ser é uma nulidade, no sentido de que a fundamentação do Ser é a integralidade dos fundamentados.  
+
+5. **Transcendência e Relação com o Ser**  
+   - A transcendência dos fundamentos repercute no Ser.  
+   - O Ser não possui uma unidade ou multiplicidade definida. Ele é relativo em número, podendo ser:  
+     - Nenhum número (indiferenciação absoluta)  
+     - Uma multiplicidade (individualizações de si mesmo)  
+
+
+*"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações de si mesmo)."*  
+
+
+
 ---
 
 # Dualidade Estrutural: Determinadores e Realidades
