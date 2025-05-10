@@ -374,9 +374,8 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 
 #### **Exemplo Concreto: A Espiral Ontológica**  
 **Analogia:**  
-1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).  
-2. **Desaparece:** No limite, revela-se como **puro movimento** (ato consumado).  
-3. **Reaparece:** Se "desacelera", manifesta-se novamente (temporalidade).  
+1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).   
+3. **Reaparece:** Se "desacelera", manifesta-se novamente como movimentaçaõ (temporalidade).  
 
 **Aplicação ao Absoluto**  
 - **Ato consumado:** O "desaparecimento" é a autofundamentação (eternidade).  
@@ -390,9 +389,9 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 - **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
 
 Isso unifica:  
-✔ **Eternidade** (Ser em ato)  
-✔ **Temporalidade** (Ser em processo)  
-✔ **Nada e Manifestação** (fundo e forma)  
+- **Eternidade** (Ser em ato)  
+- **Temporalidade** (Ser em processo)  
+- **Nada e Manifestação** (fundo e forma)  
 — como aspectos inseparáveis do mesmo Absoluto autodeterminante.  
 
 #### **Referencialidade do Observador**  
