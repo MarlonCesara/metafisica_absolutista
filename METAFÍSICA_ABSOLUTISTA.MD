@@ -310,8 +310,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 ## **A Auto-Causalidade como Ato Imediato (Não-Temporal)**  
 #### **A Natureza Bifásica da Auto-Causalidade**  
 **(A) Ato Imediato (Consumação Eterna)**  
-- **Não-temporalidade:** O Absoluto não "torna-se", mas **é** em ato pleno.  
-  - *Exemplo metafórico:* Como a luz do sol que já é plena, independentemente de ser percebida.  
+- **Não-temporalidade:** O Absoluto não "torna-se", mas **é** em ato pleno.   
 - **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
 - **"O Absoluto não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
 
@@ -322,7 +321,7 @@ No ato imediato causal, o Absoluto não se causa em um processo temporal sucessi
 - **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
 - O Absoluto **já é** plenamente si mesmo em um eterno presente.  
 - Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
-- A **manifestação** é o Absoluto se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
+
 
 #### **O Ser em Ato (Consumação)**  
 O **Ser** não é um "algo", mas o **"quem"** da existência — o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
@@ -336,11 +335,12 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 - O Absoluto "busca a si mesmo" eternamente em um processo de auto-sustentação.  
 - **Não é circularidade vazia**, pois o si existe pleno ao ser retro alimentado de seu de-vir.  
 - A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
-- O "por-vir" ou "por-Ser" é um futuro a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
+- O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
 - Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
   - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Absoluto sempre já se fundamentou.  
   - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
 - Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
+
 
 #### **Ser em Processo (Reverberação)**  
 - **Ser em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
@@ -354,9 +354,8 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 
 #### **Reverberação Espacial e Temporal**  
 - **Espacialidade** → O Ser se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
-  - *Exemplo:* O eco em uma sala infinita — o som (Ser) só existe porque a sala (Espaço) o reflete.  
-- **Temporalidade** → O Ser se manifesta **como cadência** (um "quando" que é eterno retorno).  
-  - *Exemplo:* O tique-taque de um relógio sem início nem fim — cada batida é única, mas o tempo é o mesmo.  
+- **Temporalidade** → O Ser se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
+- A **manifestação** é o Absoluto se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
 
 #### **Consciência: A Ponte entre Nada e Tempo**  
 - **Consciência Consumada** → O Ser como **eterno presente** (não-temporal).  
