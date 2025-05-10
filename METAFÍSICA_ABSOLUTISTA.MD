@@ -850,7 +850,7 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 
 
 
-### **Almogênese: A Ontologia da Transcendência da Alma**
+# **Almogênese: A Ontologia da Transcendência da Alma**
 
 #### **1. A Necessidade de Transcendência da Alma**
 1. Quando o Ser se determina como unidade de si mesmo, determina simultaneamente seu potencial transcendente - uma capacidade imanente à sua própria natureza essencial.
