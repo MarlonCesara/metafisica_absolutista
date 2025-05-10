@@ -550,7 +550,7 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 #### **3. O Ser como Transcendência Ativa**
 - **Para além do espaço:** Não está "em lugar nenhum" porque *é* o próprio lugar.
 - **Para além do tempo:** Não "dura", pois contém toda duração em si mesmo.
-- **Para além da identidade:** Não é "um eu", mas o *fundo de todos os "eus"*.
+- **Para além da identidade:** Não é "um sou", mas o *fundo de todos os "sous"*.
 
 **Processo de Transcendência:**
 1. **"Sou" (indivíduo)** → Identidade limitada (número, tempo, espaço).
