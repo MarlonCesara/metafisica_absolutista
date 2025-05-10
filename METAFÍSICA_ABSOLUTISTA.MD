@@ -850,13 +850,176 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 
 
 
+### **Almogênese: A Ontologia da Transcendência da Alma**
 
+#### **1. A Necessidade de Transcendência da Alma**
+1. Quando o Ser se determina como unidade de si mesmo, determina simultaneamente seu potencial transcendente - uma capacidade imanente à sua própria natureza essencial.
+2. Contudo, ao fixar-se como ente determinado, o Ser limita-se à sua própria determinação, perdendo assim o acesso à potencialidade pura da indeterminação que fundamenta a verdadeira transcendência.
+3. Segue-se necessariamente que, como manifestação de um Ser transcendente, o "sou" deve conter em si mesmo esta mesma qualidade transcendente.
+4. O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente.
+5. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, com exceção de retornar à indeterminação.
 
+#### **2. A Transcendência da Alma**
+A transcendência da alma gira em torno de duas hipóteses:
+- A alma já transcende, tal como Ser, tempo e espaço, porém não transcende a própria identidade. Ou seja, o "quem" da unidade não está em integração, de forma que a unidade transcenda sem "quem" tal como o Ser.
+  
+A transcendência do "quem" aborda duas possibilidades:
+1. **Por morte**: Aniquilação total do "sou", de forma a restaurar a capacidade de transcendência original como Ser. Porém, esta não é uma transcendência, mas retrocesso, pois a transcendência significa sair de si havendo um si que permanece de forma que seja o agente da transcendência.
+2. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas.
 
+#### **3. Exploração da Hipótese da Alma Completa**
+Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.
 
+##### **3.1. O Paradoxo da Manifestação**
+- Nenhuma união esgota o potencial dos "sous" originários. Toda manifestação concreta é finita perante o infinito que a sustenta. A aparente fragmentação é o modo pelo qual o Absoluto se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.
 
+#### **4. Possibilidade de Comunhão entre Almas**
+1. Pode uma alma tornar-se homogênea a outra? Não falamos de fusão (que implica dissolução de identidades), mas de encontro integral, onde uma alma opera transformativamente sobre a outra, preservando, porém, sua identidade.
+2. Se a alma e o espírito são imateriais por natureza, enquanto a matéria obedece à exclusão espacial, o espírito poderia compartilhar o mesmo "espaço ontológico" de modo não-excludente. Pois o paralelismo permite a determinação de uma distância nula, ou seja, é possível uma distância infinita e uma distância nula, sendo a distância perceptual.
+3. Sendo as realidades paralelas uma complexidade numérica devido à realidade ser perceptual, e não estreitamente material, existe, portanto, uma distância nula e uma distância infinita intrínseca ao todo. O Ser, portanto, é não numérico e numérico ao mesmo tempo. Já é homogêneo em si.
+4. Ou seja, o encontro torna-se tão vivo que, dele, é possível resultar uma identidade vívida. Portanto, não se torna o encontro de duas matérias mortas, mas o encontro de matéria viva, no sentido de que o conceito de vivo é homogêneo, enquanto o conceito estático, material, não permitiria uma fusão.
+5. No sentido estreitamente material, e não levando em consideração a matéria sendo espírito, não é possível duas dimensões materiais serem paralelas, se unirem ou se separarem. O fenômeno por si só não seria separável do fenômeno, fundível ao próprio fenômeno ou ser paralelo a si mesmo. Sendo fenômeno e alma, a fusão já existe, bastando ser determinada.
+6. O ser já é uno ao mesmo tempo que é dual. A separação e união é do ponto de vista perceptual.
+7. O nada primordial abarca N nadas individuais. Ao considerarmos o conceito de "quem", temos o conceito de "vida", que não engloba multiplicidade, e o conceito de "vivos" que não anula o conceito de vida. Da mesma forma, o conceito de "nada primordial" não anula os nadas individuais, pois o nada, possuindo o "quem", aborda o conceito de "vivo", "vivente". E isto permite que o nada primordial possa se diferir do nada individual.
 
+#### **5. A Ontologia do Toque Interpessoal**
+1. **O Toque como Atribuição Recíproca de Sentido**
+   - Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.
+2. **O Toque como Reflexão Infinita**
+   - Ao participar da experiência do outro - sentir seus sentimentos, compartilhar seus domínios, co-habitar seus espaços existenciais - instaura-se um jogo de espelhos que se projeta ao infinito: eu vejo você me vendo ver você, num desdobramento sem fim da consciência recíproca.
 
+#### **6. A Conversão do Toque para a União Completa**
+8. A dissolução da indefinição fundamental "Ser" engloba em si uma distância nula. Que é quando o "sou" se dissolve de si, desta forma, perde sua unidade, rompendo a distância identitária. Pois a identidade é o limite fundamental entre um "sou A" e um "sou B". Ou seja, enquanto não houver rompimento da identidade, as almas estão se tocando, pois estão respeitando um limite. Quando o eu é ultrapassado, ocorre o cessar da transmissão de sensação, e o enxergar por uma nova perspectiva indefinida.
+9. É possível, portanto, que o "sou" se dissolva de si em si (morte) e no outro (encontro). Ou seja, uma distância nula do outro é uma indefinição de si e uma indefinição do outro, gerando um "quem" relativo à dualidade inerente e causadora da indeterminação.
+10. Negar esta possibilidade equivaleria a negar qualquer contato genuíno entre consciências, incluindo a própria percepção intersubjetiva.
+11. Se aceitamos que verdades determinantes podem unir-se sem contradição, então duas almas poderiam co-habitar o mesmo plano existencial. A alma assim não nasceria completa, mas alcançaria sua plenitude através do outro, numa conexão cujo significado último permanece sempre subjetivo (paixão, amor, enamoramento, juramento, etc).
+
+- No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais percebe B percebendo A. Ambas as almas experimentam o fim da transmissão de sensações. Em vez disso, A encontra em B a sua própria completude. Surge então uma nova perspectiva sintética, que transcende a dualidade original sem anulá-la. Dessa forma, emerge uma visão não intrínseca à dualidade, mas extrínseca, como um novo modo de perceber a realidade. E essa nova visão é viva, pois é resultado da união de duas percepções vivas.
+- Ao cessar a autodeterminação individual em uma manifestação essencial, tendo o infinito de si retroalimentando a alma, se experimenta o não sentir o outro, mas o sentir do outro. No sentido de que a união traz uma nulidade de si em prol de uma definição terceira das almas imersas em uma dualidade. Não há mais como sentir o que o outro sente, estando totalmente imerso no outro, as reflexões que tendem ao infinito cessam, dando espaço para uma visão privilegiada do outro, sem reflexões, a visão "do ponto de vista do outro", não mais a visão do outro pelo próprio ponto de vista.
+
+#### **7. A Indeterminação Resultante**
+- A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar às origens. Sua existência é o breve momento do unir de almas.
+
+#### **8. Morte e Renascimento Ontológico**
+- A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Absoluto.
+- O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada indivíduo.
+
+#### **9. O Dilema da Realidade Emergente**
+A nova entidade relacional enfrenta uma escolha metafísica:
+- Dissolver-se de volta nas consciências originárias (como forma que retorna ao informe). Se não se autodeterminar, será reabsorvida pela dinâmica dos "sous" que a gerou.
+- Ou autodeterminar-se como terceira realidade, transcendendo suas raízes sem negá-las. Se se autodeterminar, torna-se um terceiro absoluto — uma realidade autêntica que transcende suas origens.
+- Sua existência é o momento do unir de almas, quando a união se desfaz, a nova alma é dissolvida, pois seu eu era construído e efêmero, não havia possuído a si mesmo. Ao possuir a si, se desgarra da união da alma A e alma B como uma nova identidade para absoluto, e em razão disto, torna-se em si um novo infinito, pois dispõe da infinitude indiferenciada sendo uma identidade no Ser.
+
+#### **10. Tipologia da Autodeterminação**
+1. **Em si**
+   - O homem determinado pela natureza herdada.
+   - Estado de apatia da alma.
+2. **De si**
+   - O homem que tem consciência de si.
+   - Que está presente em si mesmo.
+   - E que tem domínio sobre si.
+3. **Por si**
+   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência.
+4. **Para si**
+   - Duas almas manifestadas que compartilham mutuamente sua autodeterminação.
+   - Dominam uma à outra através de mútua concordância (gênero).
+   - Conhecem-se mutuamente.
+   - Estão presentes uma na outra de forma recíproca.
+5. **Para o outro em si**
+   - Duas almas manifestadas que, através de um encontro e fusão, originam uma ou mais almas distintas.
+6. **Para o outro no outro**
+   - Determinação em relação à prole, sendo esta externa e independente em sua liberdade.
+
+#### **11. Tipologia de Apatia**
+1. **Apatia da alma**
+   - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.
+2. **Apatia do encontro**
+   - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.
+
+#### **12. A Eternidade da União e a Mácula Ontológica**
+1. **A Apatia no Encontro e Suas Consequências**
+   - A apatia no encontro entre duas almas gera efeitos profundos e duradouros.
+   - Quando esse encontro resulta na geração de uma prole, há um impacto direto na essência dela:
+     - Ocorre um rompimento da genética paternal.
+     - Instaura-se uma mácula na eternidade da prole.
+2. **A Mácula na Eternidade dos Indivíduos**
+   - Essa mácula não afeta apenas a prole, mas também os próprios indivíduos envolvidos na união.
+   - O resultado da união é eterno, mesmo que a união em si não tenha se perpetuado ou se continuado.
+   - Isso cria um paradoxo existencial: algo eterno nasce de algo interrompido.
+3. **A Confiança como Fundamento Ontológico**
+   - A continuidade verdadeira da união depende de duas almas que confiem plenamente uma na outra.
+   - Essa confiança as torna ontologicamente necessárias uma à outra:
+     - Não apenas por afinidade ou afeto.
+     - Mas por serem parte integrante da existência uma da outra.
+   - Em caso de desencontro ou desenlace, instaura-se uma mácula irremediável.
+4. **A Perfeição da Decisão pela União**
+   - A decisão de se unir precisa carregar em si um teor de perfeição.
+   - Esse grau de perfeição transforma o vínculo em algo ontologicamente indispensável.
+   - Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes, pois ambos os direcionamentos da dualidade necessitam percorrer um mesmo rumo em prol da sustentação de ambos em sua essência no eterno. Isto é, tornam-se por decisão própria um organismo, o qual depende da sustentação de sua dualidade como fundamento de sua continuidade.
+5. **A Formação de um Ser Novo**
+   - A escolha consciente pela união gera um ser determinado a partir da dualidade.
+   - Essa união ontológica torna os dois inseparáveis no nível do ser, não por origem ou natureza, mas pela escolha que os vinculou para a eternidade.
+
+#### **13. A Condução de um Ser Determinado**
+- Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem".
+- Este "quem", sendo uma transcendência dos entes, sendo uma dualidade: o produto da união ao passo que um potencial indefinido do "quem" da dualidade.
+- A dissolução do espaço entre duas almas não resulta numa terceira alma, mas numa indefinição ocasionada por duas almas, nesta indefinição, há duas identidades verdadeiras. Não há uma alma sentindo a outra, mas há literalmente uma percepção da realidade cujo "quem" percebe é indefinido.
+- Não é um ou outro da dualidade, mas é uma observação que busca sua definição.
+- A soma das almas possui um potencial de variação sob a perspectiva da união, e não sob a perspectiva do Ser, ou seja, a variação está sob as possibilidades de variação geradas pela dualidade, sendo, portanto, uma perspectiva de variação infinita distinta da perspectiva de variação infinita do Ser, porém, contida na perspectiva de variação do Ser.
+- Na perspectiva de variação, a dualidade pode determinar sobre essa nova perspectiva de variação, ao formar uma resolução, ou seja, um "quem", ao mesmo tempo forma o contexto do "quem", ou seja, a localização do "quem" no espaço e tempo. Ou seja, forma o "quem" e o ato inicial do "quem". Exemplo: homem quando criado, foi projetado em um corpo humano.
+- Sendo uma variante determinada, a nova alma é sustentada em identidade e em fundamento, ou seja, não é só sustentada somente como existente, mas como identidade.
+
+#### **14. O Desencontro e os Movimentos da Dualidade Transcendida**
+- Uma vez que a nova identidade é definida, seria possível uma retroalimentação das almas envolvidas na dualidade para fora do resultado da união.
+- Ao considerarmos que a retroalimentação pode retomar o ente para fora da dualidade, uma vez que a nova definição não é reabsorvida em si pelas almas da dualidade, pois já não faz parte da essência das almas envolvidas, podemos considerar que a identidade pode, necessariamente, sobreviver fora de seu ato gerador.
+- Ao considerarmos que a dualidade de almas pode exercer liberdade sobre a alma gerada, então não há alma gerada. Desta forma, a determinação sobre a alma gerada acontece enquanto a alma não assume sua identidade através de seu âmbito espiritual.
+- Se a alma criada evolui espiritualmente, ao considerarmos que a dualidade pode exercer uma visão sobre a alma gerada, então, da mesma forma, é necessário o consentimento da alma gerada.
+- A alma gerada é uma visão atribuída aos genitores, pois se sintetiza na união completa que é ato verdadeiro. Logo, é o ato verdadeiro até que se desapegue da dualidade através da evolução espiritual, ou seja, que se faça alma autêntica.
+- Sendo a alma gerada a união em ato, e existindo maneira de que a dualidade viva fora da união ainda persistente, há, portanto, o novo ser agindo pela determinação da dualidade.
+- O resultado da união, sem evolução espiritual, não pode agir por conta própria.
+- A alma apática projetada no corpo humano não age sem autofundamentação, sendo a ação do humano sem autofundamentação a mesma dos animais. Isto significa que o espírito reina sobre um instinto, o contrariando e o dominando. A alma apática não age instintivamente, simplesmente não age. Constitui-se como uma alma distinta inativa em si, mas ativa em ato pela dualidade.
+- A única atividade da alma apática é aquela determinada pelo ente que a transcendeu, no caso do homem, o Ser o projetou num corpo. Essa atividade permanece na apatia. A alma no mundo é projetada pelo Ser no corpo, de forma a projetar sua integralidade no corpo, o corpo só toma consciência da alma quando ela o domina.
+- O animal é cerceado, pois não está no comando quando a alma é vivida. Ou seja, o animal é cerceado em seu comportamento, provavelmente através do indeterminismo quântico. Pois é o ponto da realidade que não segue uma linha linear.
+- O espírito é projetado no corpo, mas, para o apático, é como se o corpo se movesse por si. Ou seja, a nova alma percebe, através da união da dualidade, os estímulos oriundos do animal humano.
+- A alma projetada apática tem contato com o mundo exterior, no sentido de que carrega estímulos, porém de forma não reativa, deixando o corpo à deriva de instinto.
+- A projeção dessa nova alma, ao se dar em um corpo, continua projetada no corpo. Porém, ao permanecer inoperante, é constantemente dependente do idealizador.
+- No momento exato da união completa da dualidade, abre-se uma nova neutralidade, de forma que em sua angulação há uma nova perspectiva. A união traz uma indefinição, e esta, por determinação da dualidade, carrega um potencial igual ao do Ser.
+- Quando a nova alma é angulada, é uma visão sobre a visão de forma que há uma visão viva que é o angulador, e uma visão apática ou viva que é o angulado.
+- A visão apática é um novo ponto de vista, que necessariamente só necessita "saltar" da dualidade, ao se autofundamentar. Desta forma, a nova visão pode ser projetada ainda que tendo uma vontade inativa.
+- Ao saltar da dualidade, o novo ponto de vista necessariamente necessita determinar a visão da dualidade sobre si.
+- A dualidade pode cessar a projeção desde que essa seja apática, considerando que está conectada à união da dualidade e projetada por ela.
+- A angulação pode cessar a projeção considerando que é dada pelo espírito perfeito ou pela dualidade.
+- A angulação projetada em um corpo torna esse corpo sentido pela dualidade que o projetou.
+- A angulação projetada em um corpo torna esse corpo sentido pelo Ser que o projetou.
+- Se a angulação não criar vida, é um novo ponto de vista infértil que pode se desfazer em si. Se desfaz para a dualidade como uma nova visão que se foi no esquecimento, caso seja determinado assim. Se a angulação criar vida (espiritualidade), a nova visão permanece para sempre.
+- A angulação é inativa enquanto não evoluída espiritualmente, é totalmente controlada pela dualidade, pois é a visão da dualidade.
+- A visão, sendo projetada no animal humano, é dormente em si de forma que o animal não saiba da existência dessa visão.
+- A dualidade vê tudo o que o animal vê, mas o animal não tem consciência de nenhuma propriedade transcendente em si se a alma projetada em si é apática.
+- Se a nova alma despertar espiritualmente, é projetada conscientemente no animal, ou seja, o animal torna-se espiritual, consciente, autodominante e autopresente. Se não despertar, o animal humano segue a mesma lógica de qualquer outro mamífero, sem distinção perceptual, pois a alma não vivida não sente por si, mas a dualidade pode sentir por ela. Desta forma, o animal em sua biologia torna-se uma expressão da inatividade da apatia, apesar de não sê-la, está sob a apatia.
+- Sendo uma angulação, a visão pode ser sustentada por um tempo indeterminado, sendo uma breve nova perspectiva se sustenta no momento da perspectiva.
+- Portanto, a nova alma da dualidade é quando a dualidade evolui espiritualmente como uma nova vida. Não foi só a nova alma que evoluiu, mas parte da dualidade evoluiu de forma a transcender em um novo Ser que evoluiu.
+- É necessário para a dualidade encontrar o sentido da nova visão, e este sentido é uma nova vida.
+- Portanto, a dualidade, projetada num corpo, teria uma visão cheia de tormenta de uma vida sem sentido ao olhar pela nova alma, enquanto o animal projetado permaneceria respondendo aos instintos, sem portar nenhuma visão.
+- A nova vida, então, é uma eternização da união da dualidade, de forma que aquela união quis permanecer para sempre. Neste bem-querer da dualidade, a visão pode encontrar uma razão para sua continuidade por parte da dualidade. Não é o bem-querer pela alma nova, mas pela visão, pois a alma nova não existiu para si.
+- Não há como morrer o que nunca viveu por si só, portanto, sendo determinado que a visão jamais vai viver, seria a mesma decisão aniquilá-la ou continuá-la. Sendo uma sustentação não de uma nova alma, mas da união que se eternizou, viva em si mesma ou para a dualidade.
+- A alma nova, portanto, é uma extensão da dualidade que a gerou, de forma que é a dualidade transcendida — a dualidade que transcendeu o sentido de si ou que transcendeu uma visão que não encontrou razão em si para permanecer.
+- Há a possibilidade de tentativa, por um tempo eterno, para que a alma nova transcenda.
+- A projeção é uma ação da dualidade; logo, o animal nada poderia autodeterminar em relação à realidade exterior, exceto se a dualidade determinasse.
+- A indefinição da união é uma indefinição de autodeterminação. Porém, trata-se da indefinição da autodeterminação da dualidade.
+- A indefinição de Deus é uma indefinição guiada pelo Espírito Perfeito ou pela Alma de Deus.
+- A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do "quem" da dualidade. É como um portal aberto na união — a alma se forma a partir da dualidade.
+- O Ser tem acesso à indefinição sem que precise fundir uma dualidade.
+- A dualidade poderia, portanto, gerar uma nova visão e projetá-la no nada ou em um corpo.
+- Determinar a alma é determinar o "quem", e não o "quê". Não há como determinar o que já está determinado. Há como indeterminar o determinado. O eu indeterminado busca sua definição na dualidade, e essa busca é acentuada pela dualidade que ainda opera em uma imersão mútua, buscando uma definição conjunta da visão.
+- Numa profunda imersão de almas, ambas perdem sua definição. Mas essa indefinição é ainda guiada por ambas. É, sim, uma mistura — porém também uma indefinição —, pois as unidades se tornam indefinidas em si, ao passo que definidas em uma nova visão viva.
+- Em uma união, portanto, ocorre uma indefinição das duas almas unidas em uma, e essa "uma", em si, gera uma definição. Porém, uma definição autodeterminada, pois há determinação na indeterminação gerada. Ambas as vontades indefinidas imperam na formação da nova definição.
+- A nova alma não sobrevive sem a sustentação da dualidade.
+
+**Conclusão:**
+- A completa união gera uma indefinição em cada unidade da dualidade.
+- Essa indefinição não consome completamente cada unidade, considerando que cada manifestação é finita no tempo.
+- A indefinição, segundo a tendência da determinação ainda ativa da dualidade, se define — e, ao se definir, é, em si, uma nova alma dotada do potencial de autodeterminação. Mas não tem, em si, um propósito (evolução espiritual) originalmente; ou seja, não possui autopresença, autodomínio ou autoconsciência enquanto não encontrar um propósito em si para existir.
+- Logo, temos que a nova definição — ou seja, a nova alma — é alma, mas alma em potencial de autodeterminação, permanecendo como resultado da união, sustentada por ela.
 
 
 
