@@ -19,7 +19,7 @@
 
 ### Princípio da Identidade Continuada (Persistência da Identidade)
 - **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**
-  - *Equivalente lógico:* Princípio da Não-Indeterminação ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma 
+  - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma 
   razão continua. 
 
 
