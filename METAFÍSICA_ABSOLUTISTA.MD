@@ -530,7 +530,13 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - Não há como suspender o nada, pois ao suspende-lo, o nada incide sobre absoluto outra vez. É possível suspender a quantificação da ausência.
 - O nada como infinito existe. Porém, para relativo não há a possibilidade do nada.
 
-Ausência da possibilidade.
+- Suspensão da ou das possibilidades.
+- Todas as possibilidades existem ao mesmo tempo, em uma super posição indiferenciada.
+- Não há ausencia da possibilidade, há ausencia da definição, da diferenciação. 
+- Ao suspender o nada, não se suspende o nada, somente se suspende a diferenciação.
+
+
+
 
 
 
