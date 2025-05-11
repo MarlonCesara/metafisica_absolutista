@@ -536,6 +536,16 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - Logo, temos que a irrealidade é indiferenciada, e corresponde ao potencial oculto de manifestação da realidade.
 - A realidade transcende na irrealidade. 
 
+- O infinito referenciável, o nada criado por Deus, o universo no qual estamos. Possui referencial. 
+- Se o universo possui referencial, é guiado pela fundamentação.
+- Logo, o universo é criado a partir do nada referenciado.
+- Logo, o infinito do universo atual foi criado da irrealidade.
+- Logo, o nada diferenciado é criado. 
+
+- Logo, a irrealidade é uma amplitude maior do que se imagina. 
+- Possui uma temporalidade alem da temporalidade. Um tempo sobre o tempo. Uma forma sobre a forma. Uma espirito sobre o espirito. 
+- A temporalidade do indiferenciado existe e não existe ao mesmo tempo. A forma existe e não existe. E o espirito existe e não existe.
+
 
 - Dentro da inexistencia ativa existe...
 - O ser é a realidade e irrealidade ao mesmo tempo. Se tem a ação de um infinito irreal. Espírito irreal. 
