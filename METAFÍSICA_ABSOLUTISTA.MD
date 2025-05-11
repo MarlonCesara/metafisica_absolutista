@@ -544,6 +544,7 @@ O irreal é a realidade de si mesmo. No sentido de que, pode moldar as leis da s
 Quando se esta falando de nada, se esta falando de um infinito. Quando se fala de relativo, não se refere a um infinito, a ausência de qualquer quantificação. O nada que transcende o nada. A não existência nem mesmo da ausência. O relativo.
 
 - Tudo o que é real é quantificável. Somente o irreal não é quantificável ?
+-  o ilógico pode ser real? Não sendo quantizavel?
 - O nada existe, porém o irreal não existe.
 - O relativo existe. Como estado de suspensão entre o real e o irreal. 
 
