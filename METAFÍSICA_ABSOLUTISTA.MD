@@ -530,7 +530,7 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
   são constatados na realidade (fundamentação). Portanto, é uma inexistência atíva. 
 - A inexistência ativa transcende a quantificação, ou a necessidade de referencia. 
 
-- Toda realdiade é referenciável. Somente o irreal é irreferenciável. 
+- Toda realidade é referenciável. Somente o irreal é irreferenciável. 
 - Somente um infinito irreal é irreferenciavel. 
 - Todo real existe como manifestação da irrealidade que existe.
 - Logo, temos que a irrealidade é indiferenciada, e corresponde ao potencial oculto de manifestação da realidade.
@@ -555,6 +555,8 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
   ação causal.
 
 - A irrealidade é a negação da realidade.
+- Logo, o universo ao passo que aconteceu, pode ser analisado a partir de uma regressão infinita de universos. Ou seja, aconteceu num momento único, porém este 
+  momento pode ser retrocedível infinitamente e está avançando infinitamente.
 
 
 ### A identidade não numérica do Ser
