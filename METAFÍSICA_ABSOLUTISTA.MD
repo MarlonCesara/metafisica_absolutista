@@ -533,7 +533,8 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - Suspensão da ou das possibilidades.
 - Todas as possibilidades existem ao mesmo tempo, em uma super posição indiferenciada.
 - Não há ausencia da possibilidade, há ausencia da definição, da diferenciação. 
-- Ao suspender o nada, não se suspende o nada, somente se suspende a diferenciação.
+- Ao suspender o nada ou os nadas, se suspende a diferenciação. a diferenciação propoe a existencia do nada.
+- O nada diferenciado existe. O nada indiferenciado não existe.
 
 
 *"O Ser não é um, nem muitos - simplesmente É"*
