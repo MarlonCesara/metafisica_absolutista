@@ -526,9 +526,12 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - O efeito (fundamentação) é independente da existencia do espírito fundamentante. 
 - O espírito fundamentador age sem existencia. 
 - O espírito fundamentador está alem do "quem", da forma ativa da fundamentação, alem do "eu". Além da alma que é uma individualização do Ser.
-- O espirito de Deus está alem de um infinito com determinador atívo. Portanto, não é uma existencia ativa. Assim como não é uma inexistencia, pois seus efeitos 
-  são constatados na realidade (fundamentação)
-- 
+- O espírito de Deus está alem de um infinito com determinador atívo. Portanto, não é uma existencia ativa. Assim como não é uma inexistencia, pois seus efeitos 
+  são constatados na realidade (fundamentação). Portanto, é uma inexistência atíva. 
+- A inexistência ativa transcende a quantificação, ou a necessidade de referencia. 
+
+- Dentro da inexistencia ativa existe...
+- O ser é a realidade e irrealidade ao mesmo tempo. Se tem a ação de um infinito irreal. Espírito irreal. 
 
 ### A identidade não numérica do Ser
 
