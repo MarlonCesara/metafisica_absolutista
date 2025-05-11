@@ -512,6 +512,8 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - Em sua integralidade abarca todos os "sous" possíveis ou nenhum, já que não está sujeito a categorias numéricas.
 - A integralidade do Ser não é apenas a negação do fenômeno, mas a negação do fenômeno enquanto autodeterminado pelo Ser ou pelos "sous" (ausência de formas ativas).
 - O Ser integral se constitui numa negação de sua multiplicidade. 
+- Para que o espirito do Ser não seja definido como referencial a um espirito ou varios espíritos, sua translucidez necessita ser absoluta. 
+- O espirito do Ser é imperceptível, porem existe. Tal como o número 0 somado a qualquer número, ainda resulta no número acrescentado de 0.
 
 ### A identidade não numérica do Ser
 
