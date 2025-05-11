@@ -530,6 +530,10 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
   são constatados na realidade (fundamentação). Portanto, é uma inexistência atíva. 
 - A inexistência ativa transcende a quantificação, ou a necessidade de referencia. 
 
+- Toda realdiade é referenciável. Somente o irreal é irreferenciavel. 
+- Somente um infinito irreal é irreferenciavel. 
+
+
 - Dentro da inexistencia ativa existe...
 - O ser é a realidade e irrealidade ao mesmo tempo. Se tem a ação de um infinito irreal. Espírito irreal. 
 
