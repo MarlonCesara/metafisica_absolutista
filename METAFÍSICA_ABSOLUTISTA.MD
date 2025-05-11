@@ -548,6 +548,11 @@ Quando se esta falando de nada, se esta falando de um infinito. Quando se fala d
 - O nada existe, porém o irreal não existe.
 - O relativo existe. Como estado de suspensão entre o real e o irreal. 
 
+- Ao definir como nada, já quantificamos. Já definimos uma referencia. Uma possibilidade.
+- Ao definir como relativo, todas as possibilidades ao mesmo tempo, que se tornam nenhuma possibilidade. 
+- Nem o real e nem o irreal. Uma suspensão do absoluto. E não uma suspensão da realidade. 
+- Portanto, temos o nada absoluto como negação da realidade, e o nada absoluto como negação da irrealidade e da realidade.
+
 
 - Toda realidade é referenciável. Somente o irreal é irreferenciável. 
 - Somente um infinito irreal é irreferenciavel. 
