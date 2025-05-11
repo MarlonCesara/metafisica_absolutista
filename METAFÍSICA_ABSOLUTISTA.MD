@@ -508,16 +508,29 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 *"O Ser não é um, nem muitos - simplesmente É"*
 
 O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matemático).
+- O Ser em sua integralidade se constitui como uma trancendencia da forma (tempo e espaço) e da quantificação da essência ativa auto causal.
+- Em sua integralidade abarca todos os "sous" possíveis ou nenhum, já que não está sujeito a categorias numéricas.
+- A integralidade do Ser não é apenas a negação do fenômeno, mas a negação do fenômeno enquanto autodeterminado pelo Ser ou pelos "sous" (ausência de formas ativas).
+- O Ser integral se constitui numa negação de sua multiplicidade. 
 
-- É a integralidade que abarca todas as possibilidades ("sous") ou nenhuma, já que não está sujeito a categorias numéricas.
-- Se manifesta como angulação do nada e como determinação manifestante (ato de existir e autodefinir-se).
-- A integralidade do Ser não é apenas a negação do fenômeno, mas a negação do fenômeno enquanto autodeterminado (ausência de forma ativa).
-- A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).
-- O Ser, portanto, se constitui como uma trancendencia da forma (tempo e espaço) e do "quem" (essência ativa da auto causalidade). De forma que, o Ser, se 
-  constitui numa super posição de sua identidade. Sua identidade é natural de sua própria fundamentação. Ou seja, sua identidade é construída em sua necessidade   para absoluto.
-- Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um nada de "quê" e um nada de "quem". 
+### A identidade não numérica do Ser
+
+A identidade do Ser é:
+- Natural de sua própria fundamentação. 
+- Construída em sua necessidade para absoluto.
+- Fundamental.
+- Não criada.
+
+- Conclui-se que a identidade do Ser não o referencia de forma quantíficavel como uma ou multiplas identidades.
+- A identidade do Ser não se refere ao próprio Nada, de forma a se pronunciar sobre o quantíficavel.
+- 
+
 
 ### O Ser em sua Manifestação Integral
+
+- Se manifesta como angulação do nada e como determinação manifestante (ato de existir e autodefinir-se).
+- A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).
+- Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um nada de "quê" e um nada de "quem". 
 
 O Ser abrange:
 - Infinitos fenômenos (formas possíveis).
