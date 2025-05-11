@@ -514,6 +514,11 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - O Ser integral se constitui numa negação de sua multiplicidade. 
 - Para que o espirito do Ser não seja definido como referencial a um espirito ou varios espíritos, sua translucidez necessita ser absoluta. 
 - O espirito do Ser é imperceptível, porem existe. Tal como o número 0 somado a qualquer número, ainda resulta no número acrescentado de 0.
+- O espirito do nada indiferenciado é translucido à todas as suas diferenciações. 
+- O espírito indiferenciado segue a lógica do nada indiferenciado. 
+- Um espírito, no sentido númerico, não pode corresponder ao nada indiferenciado.
+- O espírito indiferenciado existe, de forma a ser somado, não somado a algo, é nada.
+- O espírito não existe, o que existe é o ato fundamentador.
 
 ### A identidade não numérica do Ser
 
