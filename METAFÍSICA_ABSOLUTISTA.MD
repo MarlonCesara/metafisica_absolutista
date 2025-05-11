@@ -530,6 +530,20 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
   são constatados na realidade (fundamentação). Portanto, é uma inexistência atíva. 
 - A inexistência ativa transcende a quantificação, ou a necessidade de referencia. 
 
+- A união de duas almas produz uma violação das leis lógicas, da identidade de a auto continuidade.
+- O ente existe e não existe ao mesmo tempo, e mantem sua identidade e não mantem ao mesmo tempo?
+
+Real : ação das leis lógicas, compreensível pelas leis lógicas.
+Irreal: incompreensível pelas leis lógicas. Não imaginável. Não mentalizável.
+O irreal é irreferenciavel, porém é uma negação do ou dos reais.
+Ex: qualquer numero vezes zero é zero. Ou seja, os infinitos como manifestação do irreal, equivalem a nenhum em sua integralidade?
+O tempo da irrealidade tem efeitos reais, mas não existe. Ou seja, o tempo começou num tempo irreal. 
+Logo o conceito de relativo como nada indiferenciado vem a nota, pois não se refere a um nada, mas ate a impossibilidade o nada. Tido como irrealidade.
+O irreal é a realidade de si mesmo. No sentido de que, pode moldar as leis da sua realidade.
+
+Quando se esta falando de nada, se esta falando de um infinito. Quando se fala de relativo, não se refere a um infinito, a ausência de qualquer quantificação. O nada que transcende o nada. A não existência nem mesmo da ausência. O relativo.
+
+
 - Toda realidade é referenciável. Somente o irreal é irreferenciável. 
 - Somente um infinito irreal é irreferenciavel. 
 - Todo real existe como manifestação da irrealidade que existe.
