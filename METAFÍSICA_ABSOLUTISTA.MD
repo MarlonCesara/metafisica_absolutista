@@ -523,7 +523,9 @@ A identidade do Ser é:
 
 - Conclui-se que a identidade do Ser não o referencia de forma quantíficavel como uma ou multiplas identidades.
 - A identidade do Ser se refere ao próprio Nada indiferenciado, de forma a se pronunciar sobre o não quantíficavel.
-- 
+- A identidade se refere a uma unidade de identidade, porém, o nada indiferenciado não contém uma unidade de identidade.
+- A identidade do indiferenciado é indiferenciada.
+- Desta forma, a identidade do indiferenciado é a fundamentação, o verbo (Ser). Não é o fundamentado, mas o fundo do fundamentado. 
 
 
 ### O Ser em sua Manifestação Integral
