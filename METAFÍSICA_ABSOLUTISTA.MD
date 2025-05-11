@@ -549,6 +549,13 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 
 - Dentro da inexistencia ativa existe...
 - O ser é a realidade e irrealidade ao mesmo tempo. Se tem a ação de um infinito irreal. Espírito irreal. 
+- A irrealidade é onde a lógica colapsa. 
+
+- Logo o universo veio de um tempo que era tempo nenhum. De um lugar que era lugar nenhum. E originado por um espirito que não existe ao passo que exerce uma 
+  ação causal.
+
+- A irrealidade é a negação da realidade.
+
 
 ### A identidade não numérica do Ser
 
