@@ -536,6 +536,17 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - Ao suspender o nada ou os nadas, se suspende a diferenciação. a diferenciação propoe a existencia do nada.
 - O nada diferenciado existe. O nada indiferenciado não existe.
 
+- A não existencia é uma super-posição. Ao fazer qualquer referencia a ela, atribuimos um referencial a ela.
+- A não existencia portanto, não é uma possibilidade quando referida. Não é um conceito válido.
+
+- Logo, a não existencia não pode ser referida se não como o relativo. 
+- O relativo é um estado onde não há inexistencia (a qual não pode ser referida sem existir) e não há existencia. Mas há todas as possibildiades e nenhuma ao 
+  mesmo tempo.
+- O Ausencia dos nadas, ou nada, resulta sempre na ausencia dos nadas ou nada. A ausencia, portanto é referida como um estado unico ou multiplo.
+- A não referencia da ausencia é um estado que esboça todas as possibilidades concomitantemente.
+
+- A = Não-A é a negação da possibilidade. Ou seja, é a negação do ou dos nadas.
+
 
 *"O Ser não é um, nem muitos - simplesmente É"*
 
