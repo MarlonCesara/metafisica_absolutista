@@ -41,7 +41,6 @@
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas, lógicas ou ilógicas. 
 - **Sinônimo:**  Impossibilidade.
 
-
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
 - **Características:**
@@ -503,8 +502,28 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # Paralelismo Ontológico
 
-
 ## Natureza Não-Numérica do Ser
+
+### 4. Nada
+- **Definição:** Ausência do fenômeno. 
+- **Sinônimo:**  Possibilidade da ausência fenomenológica.
+
+### 4. Nadas
+- **Definição:** Infinitos paralelos.
+- **Sinônimo:**  Possibilidade de infinitos paralelos.
+
+### 5. Relativo
+- **Definição:** Super-posição absoluta.
+- **Sinônimo:**  Super-posição da possibilidade. 
+
+- O relativo é a ausencia da possibilidade concomitantemente à presença da possibilidade. 
+- O relativo rompe o Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe concomitantemente, e não paralelamente, com não-A.
+- A ausência absoluta é a suspensão da própria referencia, definição ou possibilidade para absoluto. 
+- Na suspensão de qualquer possibilidade, todas as possibilidades entram em um estado de suspensão. Onde tudo existe e nãda existe ao mesmo tempo.
+
+Ausência da possibilidade.
+
+
 
 *"O Ser não é um, nem muitos - simplesmente É"*
 
