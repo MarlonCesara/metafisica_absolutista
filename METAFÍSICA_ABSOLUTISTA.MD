@@ -530,8 +530,11 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
   são constatados na realidade (fundamentação). Portanto, é uma inexistência atíva. 
 - A inexistência ativa transcende a quantificação, ou a necessidade de referencia. 
 
-- Toda realdiade é referenciável. Somente o irreal é irreferenciavel. 
+- Toda realdiade é referenciável. Somente o irreal é irreferenciável. 
 - Somente um infinito irreal é irreferenciavel. 
+- Todo real existe como manifestação da irrealidade que existe.
+- Logo, temos que a irrealidade é indiferenciada, e corresponde ao potencial oculto de manifestação da realidade.
+- A realidade transcende na irrealidade. 
 
 
 - Dentro da inexistencia ativa existe...
