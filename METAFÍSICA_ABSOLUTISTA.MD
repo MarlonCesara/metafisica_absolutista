@@ -525,6 +525,8 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - A fundamentação existe, porém o espírito é indiferenciado. 
 - O efeito (fundamentação) é independente da existencia do espírito fundamentante. 
 - O espírito fundamentador age sem existencia. 
+- O espírito fundamentador está alem do "quem", da forma ativa da fundamentação, alem do "eu". Além da alma que é uma individualização do Ser.
+- 
 
 ### A identidade não numérica do Ser
 
