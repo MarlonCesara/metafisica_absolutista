@@ -504,22 +504,31 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 ## Natureza Não-Numérica do Ser
 
-### 4. Nada
+### Nada
 - **Definição:** Ausência do fenômeno. 
 - **Sinônimo:**  Possibilidade da ausência fenomenológica.
 
-### 4. Nadas
+### Nadas
 - **Definição:** Infinitos paralelos.
 - **Sinônimo:**  Possibilidade de infinitos paralelos.
 
-### 5. Relativo
+### Relativo
 - **Definição:** Super-posição absoluta.
 - **Sinônimo:**  Super-posição da possibilidade. 
 
-- O relativo é a ausencia da possibilidade concomitantemente à presença da possibilidade. 
+- O relativo é a ausência da possibilidade concomitantemente à presença da possibilidade. 
 - O relativo rompe o Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe concomitantemente, e não paralelamente, com não-A.
-- A ausência absoluta é a suspensão da própria referencia, definição ou possibilidade para absoluto. 
-- Na suspensão de qualquer possibilidade, todas as possibilidades entram em um estado de suspensão. Onde tudo existe e nãda existe ao mesmo tempo.
+- A ausência absoluta é a suspensão da própria referência, definição ou possibilidade para absoluto. 
+- Na suspensão de qualquer possibilidade, todas as possibilidades entram em um estado de suspensão. Onde tudo existe e nada existe ao mesmo tempo.
+
+- Ao suspendermos o infinito, ou seja, o nada ou os nadas, temos a ausência da infinitude. Ou seja, a ausência do nada.
+- O nada, já sendo a ausencia de qualquer coisa, não pode ser suspenso. 
+
+- Para que se suspenda o nada, é necessário que haja uma super-posição do nada, de forma que o nada exista e não exista ao mesmo tempo.
+- O nada é suspenso em uma indefinição da possibilidade.
+
+- Não há como suspender o nada, pois ao suspende-lo, o nada incide sobre absoluto outra vez. É possível suspender a quantificação da ausência.
+- O nada como infinito existe. Porém, para relativo não há a possibilidade do nada.
 
 Ausência da possibilidade.
 
