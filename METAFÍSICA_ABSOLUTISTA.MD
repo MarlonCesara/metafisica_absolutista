@@ -536,10 +536,6 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - Ao suspender o nada, não se suspende o nada, somente se suspende a diferenciação.
 
 
-
-
-
-
 *"O Ser não é um, nem muitos - simplesmente É"*
 
 O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matemático).
