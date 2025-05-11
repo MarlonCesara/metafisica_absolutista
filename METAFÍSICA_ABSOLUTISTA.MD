@@ -522,7 +522,7 @@ A identidade do Ser é:
 - Não criada.
 
 - Conclui-se que a identidade do Ser não o referencia de forma quantíficavel como uma ou multiplas identidades.
-- A identidade do Ser não se refere ao próprio Nada, de forma a se pronunciar sobre o quantíficavel.
+- A identidade do Ser se refere ao próprio Nada indiferenciado, de forma a se pronunciar sobre o não quantíficavel.
 - 
 
 
