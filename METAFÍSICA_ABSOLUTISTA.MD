@@ -519,6 +519,9 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - Um espírito, no sentido númerico, não pode corresponder ao nada indiferenciado.
 - O espírito indiferenciado existe, de forma a ser somado, não somado a algo, é nada.
 - O espírito não existe, o que existe é o ato fundamentador.
+- O ato estático fundamentador corresponde ato estático do indiferenciado.
+- O Ser é fundamentado de forma a não necessitar do espírito.
+- O espírito do Ser está alem do campo do existir e não existir. 
 
 ### A identidade não numérica do Ser
 
