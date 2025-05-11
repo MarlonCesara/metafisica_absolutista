@@ -883,7 +883,7 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 - Transcender é transcender uma infinitude, no sentido de romper o potencial inexpressivo.
 - As possibilidades de transcendencia para o "sou" é trancende para o Ser, Para o outro e Para si.
 - A possibilidade de transcendencia do Ser é transcender para si.
-
+- Transcender é criar sobre o potencial.
 
 # **Almogênese: A Ontologia da Transcendência e da União entre Almas**  
 
