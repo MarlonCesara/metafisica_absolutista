@@ -522,6 +522,9 @@ O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matem�
 - O ato estático fundamentador corresponde ato estático do indiferenciado.
 - O Ser é fundamentado de forma a não necessitar do espírito.
 - O espírito do Ser está alem do campo do existir e não existir. 
+- A fundamentação existe, porém o espírito é indiferenciado. 
+- O efeito (fundamentação) é independente da existencia do espírito fundamentante. 
+- O espírito fundamentador age sem existencia. 
 
 ### A identidade não numérica do Ser
 
@@ -628,7 +631,6 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 
 
 *"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações de si mesmo)."*  
-
 
 
 ---
