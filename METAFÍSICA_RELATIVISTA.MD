@@ -1,4 +1,4 @@
-# Metafísica Absolutista
+# Metafísica Relativista
 
 
 ## Princípios Causais Metafísicos
@@ -25,8 +25,8 @@
 
 ## Definições Fundamentais 
 
-### 1. Absoluto
-**Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
+### 1. Relativo
+**Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, possíveis ou impossíveis).
 
 **Propriedade Essencial:** Causa integral de si mesmo.
 - Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria absoluto.
