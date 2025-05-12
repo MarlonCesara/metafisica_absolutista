@@ -514,10 +514,12 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 ### Relativo
 - **Definição:** Super-posição absoluta.
-- **Sinônimo:**  Super-posição da possibilidade. 
+- **Sinônimo:**  Super-posição da possibilidade.  Ausencia da possibilidade que subentende uma super posição de todas as possibilidades.
 
 
-
+- Ao chamarmos o relativo de suspensão, estamos nos referindo a uma suspensão existente e pessoal, porém, de existencia indefinida. 
+- O sujeito do relativo está suspenso em todas as possibilidades inerentes a ele.
+- O sujeito do relativo esta dissolvido no que relativiza.
 
 - O relativo é a ausência da possibilidade concomitantemente à presença da possibilidade. 
 - O relativo rompe o Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe concomitantemente, e não paralelamente, com não-A.
