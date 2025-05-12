@@ -23,7 +23,7 @@
   razão continua. 
 
 
-## Definições Fundamentais - Os Domínios da Existência Revelados
+## Definições Fundamentais 
 
 ### 1. Absoluto
 **Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, verdadeiras ou falsas).
@@ -63,7 +63,7 @@
   - Fundamenta a liberdade metafísica (possibilidade de escolha no nível absoluto).
 
 ### Auto continuidade
-- **Definição:** Refere-se à capacidade do Absoluto de se sustentar no ser indefinidamente.
+- **Definição:** Refere-se à capacidade do Absoluto de se sustentar no Ser indefinidamente em seu fundamento e determinação.
 - **Características:**
   - Persistência ativa (não apenas existência passiva).
   - Garante que o Absoluto não se dissolva na irrealidade e que a Realidade não desapareça.
@@ -98,8 +98,6 @@
   - A Irrealidade existe apenas como possibilidade não realizada, sem força ontológica.
 
 ## Estrutura da Autodeterminação
-
-"O Código do Absoluto configura-se e compila-se autonomamente; já não se trata de uma máquina biológica — estamos diante de uma realidade viva, embora, para muitos — por um motivo que revelaremos adiante — ainda pareça apenas uma máquina sem espírito." — Autor
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
@@ -302,6 +300,69 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.
 
 ---
+
+# Estruturando o Relativo
+
+## Definição por Negação
+
+- O **"nada"** é a não-expressão de A e não expressão de Não-A.
+- Requer uma referência A e Não-A para ser definido.
+  - *Exemplo:* Não há escuridão e nem luz. Mas só há não-escuridão e não-luz se houver luz e escuridão.
+
+## Referencialidade Obrigatória
+
+- A negação só existe se A ou Nao-A já foram manifestados ou são possíveis.
+- Não há relativo sem relação com o relativizado.
+  - *Exemplo:* Só há ausência da dualidade (A e Não-A) se a dualidade existir.
+
+## Não-Coexistência de Opostos Absolutos
+
+- A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios. Porém, no relativo, são nulos.
+  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.
+
+## Referencial Possível
+
+- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
+  
+- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).
+  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
+  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.
+
+## Dissolução Espacial
+
+- A nulidade abrange todo o espaço, tanto o alcançável quanto o inalcançável.
+
+## Tempo Potencial e Expresso (Atemporalidade)
+
+
+- O tempo existe como:
+  1. **Tempo expresso** (manifestado).
+  2. **Tempo inexpresso** (potencial não realizado).
+  
+- A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.
+- A nulidade consuma o tempo em sua expressão e inexpressão.
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 # **A Auto-Causalidade**  
