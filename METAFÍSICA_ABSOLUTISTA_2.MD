@@ -350,25 +350,16 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O infinito deve ter sua negação negada, pois sua negação primeira é ele mesmo.
 - O relativo é a negação da impossibilidade e da possibilidade.
 - A negação do possível, e do impossível, pois negar o nada é impossível.
+- O relativo é o não-absoluto.
+- O relativo é o nada-absoluto.
+
+- A irrealidade existe. E a realidade existe. De forma que possam ser negadas.
+- O possivel existe e o impossível existe de forma que ambos possam ser negados.
+- Não há como negar o que não existe.
+
+- O irreal. O impossível. Se caracteriza como existente para que tenhamos o relativo.
 
 ---
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
