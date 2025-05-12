@@ -34,11 +34,11 @@
 - O absoluto é auto fundamentado, autodeterminado e auto continuado.
 
 ### 2. Realidade
-- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras, lógicas ou ilógicas. 
+- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas. 
 - **Sinônimo:**  Possibilidade.
 
 ### 3. Irrealidade
-- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas, lógicas ou ilógicas. 
+- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas. 
 - **Sinônimo:**  Impossibilidade.
 
 ### Auto fundamentação
