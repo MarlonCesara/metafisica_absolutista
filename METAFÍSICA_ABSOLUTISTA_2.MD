@@ -305,8 +305,10 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Definição por Negação
 
-- O **"nada"** é a não-expressão de A e não expressão de Não-A.
+- O **"Relativo"** é a não-expressão de A e não expressão de Não-A. 
+- Relativo = Não (A e Não-A)
 - Requer uma referência A e Não-A para ser definido.
+  - *Exemplo:* Não há escuridão e nem luz. Mas só há não-escuridão e não-luz se houver luz e escuridão.
   - *Exemplo:* Não há escuridão e nem luz. Mas só há não-escuridão e não-luz se houver luz e escuridão.
 
 ## Referencialidade Obrigatória
@@ -317,23 +319,23 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Não-Coexistência de Opostos Absolutos
 
-- A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios. Porém, no relativo, são nulos.
-  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.
+- A (Nada(s)) e B (não-nada(s)) não podem ocupar a mesma dimensão se forem contraditórios. 
+- A e B anulam-se ao serem relativizados. 
+  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo, se existissem ao mesmo tempo, se anulariam como possibilidade.
 
 ## Referencial Possível
 
-- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
+- A e Não-A podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
   
-- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).
+- Se Não (A e Não-A) e A e Não-A forem potenciais opostos, não podem coexistir, pois o relativo deixaria de ser relativo ao ter qualquer traço de possibilidade (já que potencial implica energia ou latência, incompatível com a ausência total).
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
   - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.
 
 ## Dissolução Espacial
 
-- A nulidade abrange todo o espaço, tanto o alcançável quanto o inalcançável.
+- A nulidade abrange todo o espaço, tanto a possibilidade quando a impossibilidade.
 
 ## Tempo Potencial e Expresso (Atemporalidade)
-
 
 - O tempo existe como:
   1. **Tempo expresso** (manifestado).
@@ -341,6 +343,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   
 - A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.
 - A nulidade consuma o tempo em sua expressão e inexpressão.
+
+## Sintetizando o Relativo
+
+- Se Não-A(s) é o mesmo que não infinito(s). Sejam estes movidos pelo Ser ou pelos "sous".
+- O infinito deve ter sua negação negada, pois sua negação primeira é ele mesmo.
+- O relativo é a negação da impossibilidade e da possibilidade.
+- A negação do possível, e do impossível, pois negar o nada é impossível.
 
 ---
 
