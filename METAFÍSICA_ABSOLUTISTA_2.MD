@@ -35,11 +35,11 @@
 
 ### 2. Realidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas. 
-- **Sinônimo:**  Possibilidade.
+- **Sinônimo:**  Possibilidade. Existência lógica.
 
 ### 3. Irrealidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas. 
-- **Sinônimo:**  Impossibilidade.
+- **Sinônimo:**  Impossibilidade. Existência ilógica.
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.
