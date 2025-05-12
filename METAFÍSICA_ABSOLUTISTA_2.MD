@@ -358,6 +358,15 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Não há como negar o que não existe.
 
 - O irreal. O impossível. Se caracteriza como existente para que tenhamos o relativo.
+- Ao negar-se o absoluto, se tem o nada novamente.
+- Ao não negar-se o absoluto, ou seja, ao coloca-lo em estado de suspensão se tem o relativo.
+- Ao tornar a irrealidade existente, já se produz o relativo. 
+
+- O relativo não é a negação da realidade, mas a afirmação da irrealidade como existente.
+- Ao afirmarmos a irealidade, negamos a realidade e a irrealidade ao mesmo tempo.
+
+- Mude o titulo para ''metafisica relativista" ao invés de absolutista.
+
 
 ---
 
