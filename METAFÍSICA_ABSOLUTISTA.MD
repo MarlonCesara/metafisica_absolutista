@@ -516,6 +516,9 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - **Definição:** Super-posição absoluta.
 - **Sinônimo:**  Super-posição da possibilidade. 
 
+
+
+
 - O relativo é a ausência da possibilidade concomitantemente à presença da possibilidade. 
 - O relativo rompe o Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe concomitantemente, e não paralelamente, com não-A.
 - A ausência absoluta é a suspensão da própria referência, definição ou possibilidade para absoluto. 
@@ -536,6 +539,9 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - Ao suspender o nada ou os nadas, se suspende a diferenciação. a diferenciação propoe a existencia do nada.
 - O nada diferenciado existe. O nada indiferenciado não existe.
 
+
+Concluido:
+
 - A não existencia é uma super-posição. Ao fazer qualquer referencia a ela, atribuimos um referencial a ela.
 - A não existencia portanto, não é uma possibilidade quando referida. Não é um conceito válido.
 
@@ -544,8 +550,19 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
   mesmo tempo.
 - O Ausencia dos nadas, ou nada, resulta sempre na ausencia dos nadas ou nada. A ausencia, portanto é referida como um estado unico ou multiplo.
 - A não referencia da ausencia é um estado que esboça todas as possibilidades concomitantemente.
+- Tudo que é ausentado está presente. Logo, ausentar o anda subentende o próprio nada.
+
+- Ao ausentar varias ausencias, ainda sobra uma ausencia, que é a ausencia resultante dos ausentados. Ainda temos o nada diferenciado.
+- Ao invés de ausentarmos as ausencias ou a ausencia, criemos um estado de suspensão onde há ausencia, mas não podemos nos referir a ela.
+- O relativo é ausencia, até mesmo da ausencia. É uma super-posição onde ausencia da ausencia e presença da ausencia são subentendidos na mesma realidade 
+  ilógica. Porém, eficaz para pensar no nada absoluto.
+
+- Ao nos referirmos ao relativo como ausencia, estamos referenciando uma das possibilidades em suspensão. Toda possibilidade afirmada é imediatamente negada pelo conceito de relativo. Porém, quando afirmamos a ausencia da ausencia, não temos a negação da ausencia, mas a reafirmação da mesma.
+
 
 - A = Não-A é a negação da possibilidade. Ou seja, é a negação do ou dos nadas.
+- A = Não-A é uma irrealidade.
+- A negação do nada é quando o nada existe e inexiste ao mesmo tempo?
 
 
 *"O Ser não é um, nem muitos - simplesmente É"*
