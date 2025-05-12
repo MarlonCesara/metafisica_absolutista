@@ -649,6 +649,8 @@ Quando se esta falando de nada, se esta falando de um infinito. Quando se fala d
 
 ### A identidade não numérica do Ser
 
+Suspensão da vontade: A Gelassenheit ("deixar-ser") não é uma ausência, mas um estar além da necessidade de negação ou afirmação.
+
 A identidade do Ser é:
 - Natural de sua própria fundamentação. 
 - Construída em sua necessidade para absoluto.
