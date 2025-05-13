@@ -33,7 +33,7 @@
 - **Sinônimos:**  Impossibilidade. Existência ilógica e impossível.
 
 ### 3. Relativo
-**Definição:** Conjunto de todas as possibilidades existentes e absolutas (lógicas e possíveis,  ilógicas e impossíveis).
+**Definição:** Conjunto de todas as possibilidades existentes e absolutas (lógicas e possíveis,  ilógicas e impossíveis) em indiferenciação absoluta.
 
 **Propriedade Essencial:** Causa integral de si mesmo.
 - Se o Relativo dependesse de algo externo, anterior ou paralelo a ele próprio não seria Relativo.
