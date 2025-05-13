@@ -176,12 +176,12 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 - O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.
   - Autodeterminação pura exige um termo relacional (aquilo que é determinado).
-  - Sem o determinado, há apenas nada (ausência de manifestação).
+  - Sem o determinado, há apenas a afirmação da impossibilidade.
   - Portanto, a própria negação (o nada) surge como contraparte necessária da autodeterminação.
 
 ## Dualidade Fundamental: Determinador e Nada
 
-- O **Ser** (determinador) e o **Nada** (ausência do determinado) são coessenciais.
+- A ação do **Ser** (determinação) e o **Nada** (ausência do determinado) são coessenciais.
   - Não são opostos Relativos, mas pólos de uma mesma estrutura ontológica.
   - O Nada não é aniquilação total, mas o limite interno da autodeterminação.
     - *Exemplo:* O olho que vê a escuridão.
@@ -195,16 +195,16 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   2. **O Nada** (potencial não realizado) → Ausência que define os limites do real.
   
 - Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.
-  - O Ser não "está" na realidade – ele é a realidade em sua autodefinição contínua.
+  - O Ser não "está" na realidade – ele age na realidade em sua autodefinição contínua.
 
 ## Conclusão: A Realidade como Processo
 
 
 - Não há "verdade estática", pois a realidade sempre se constitui na relação entre:
-  - O determinador (Ser puro).
+  - A ação do determinador (Ser puro).
   - O determinado (incluindo sua negação como contraparte).
   
-- O Nada não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.
+- O nada não é o oposto da manifestação, mas seu complemento necessário para que a autodeterminação tenha eficácia.
 
 
 # Estruturando o Nada
