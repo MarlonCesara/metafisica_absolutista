@@ -25,21 +25,23 @@
 
 ## Definições Fundamentais 
 
-### 1. Relativo
-**Definição:** Conjunto de todas as possibilidades existentes (lógicas e possíveis,  ilógicas e impossíveis).
+### 1. Realidade
+- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades lógicas. 
+- **Sinônimos:**  Possibilidade. Existência lógica e possível.
+
+### 2. Irrealidade
+- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades ilógicas. 
+- **Sinônimos:**  Impossibilidade. Existência ilógica e impossível.
+
+### 3. Relativo
+**Definição:** Conjunto de todas as possibilidades existentes e absolutas (lógicas e possíveis,  ilógicas e impossíveis).
 
 **Propriedade Essencial:** Causa integral de si mesmo.
 - Se o Relativo dependesse de algo externo, anterior ou paralelo a ele próprio não seria Relativo.
 - Sua existência, permanência e identidade são auto causadas.
 - O Relativo é auto fundamentado, autodeterminado e auto continuado.
 
-### 2. Realidade
-- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades lógicas. 
-- **Sinônimos:**  Possibilidade. Existência lógica e possível.
-
-### 3. Irrealidade
-- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades ilógicas. 
-- **Sinônimos:**  Impossibilidade. Existência ilógica e impossível.
+## Propriedades Essenciais do Relativo
 
 ### Auto fundamentação
 - **Definição:** Refere-se à causa primeira da existência do Relativo.
@@ -66,17 +68,23 @@
 - **Definição:** Refere-se à capacidade do Relativo de se sustentar no Ser indefinidamente em seu fundamento e determinação.
 - **Características:**
   - Persistência ativa (não apenas existência passiva).
-  - Garante que o Relativo não se dissolva na irrealidade e que a Realidade não desapareça.
+  - Garante que o Relativo não se dissolva na inexistência e que a Realidade não desapareça.
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
-
 
 ## Estruturação do Relativo
 
+### Dissolução entre realidade e irrealidade 
+- Dois tipos de existencia: realidade e irrealidade, se configuram em existencia. Desta forma, devem ser indiscerníveis.
+  - Isso significa que a irrealidade não é uma existencia segregada ou paralela à realidade, que também existe.
+  - A irrealiade existe de forma a ter efeitos no que é real.
+  - E o real tem seus efeitos na irrealidade, de forma a realizar o impossível. 
+  - O impossível, portanto, não é uma nova realidade, mas é a dissolução da realidade como uniforme ao impossível.
 
-### O Relativo como realidade e irrealidade Autodeterminadas
-- O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade e irrealidade.
-  - Isso significa que a Realidade não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
-  - A Irrealidade possui eficácia causal na Realidade.
+Consideremos portanto, o termo "realidade" suficiente para compor o irreal no contexto dessa dialética.
+
+### O Relativo como realidade Autodeterminadas
+- O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade.
+  - Isso significa que a Realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
 ### O Ser como Auto determinador
 - O Relativo autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
