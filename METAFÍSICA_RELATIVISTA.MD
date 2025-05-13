@@ -84,8 +84,6 @@
 - O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade.
   - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
-
-
 ## Estrutura da Autodeterminação
 
 ### Autodeterminação Vertical (Espírito)
@@ -135,9 +133,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - O Espírito garante a existência e a perfeição.
   - A Alma introduz a liberdade e a personalidade na estrutura do Real.
 
-
 # A Estrutura da Realidade e do Ser
-
 
 ## **O Relativo como Único Fundamento**  
 
@@ -170,7 +166,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ### A Realidade como Estrutura Idealizadora
 - A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
-  - Se organiza segundo os princípios lógicos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
+  - Se organiza segundo os princípios lógicos e ilógicos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
   - Se sustenta pela auto continuidade do Ser.
   - Se atualiza através da autodeterminação.
 
