@@ -330,7 +330,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Não há relativo sem relação com o relativizado.
   - *Exemplo:* Só há luz e escuridão ao mesmo tempo se o impossível, a luz e a escuridão existirem. 
 
-## Não-Coexistência de Opostos Relativos
+## Não-Coexistência de Opostos absolutos
 
 - O impossível e o possível não podem ocupar a mesma dimensão se forem contraditórios. 
 - A e B anulam-se ao serem relativizados. 
