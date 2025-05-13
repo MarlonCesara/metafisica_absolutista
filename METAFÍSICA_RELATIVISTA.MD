@@ -346,32 +346,22 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Sintetizando o Relativo
 
-- Se Não-A(s) é o mesmo que não infinito(s). Sejam estes movidos pelo Ser ou pelos "sous".
-- O infinito deve ter sua negação negada, pois sua negação primeira é ele mesmo.
+
 - O relativo é a negação da impossibilidade e da possibilidade.
 - A negação do possível, e do impossível, pois negar o nada é impossível.
-- O relativo é o não-Relativo.
-- O relativo é o nada-Relativo.
 
-- A irrealidade existe. E a realidade existe. De forma que possam ser negadas.
-- O possivel existe e o impossível existe de forma que ambos possam ser negados.
-- Não há como negar o que não existe.
+- O possivel existe e o impossível existe de forma que ambos não possam ser negados.
+- Não há como negar o que não existe e o que existe, sem que se tenha a ausencia novamente.
+- Ao negar-se o Relativo, se tem o nada novamente.
 
 - O irreal. O impossível. Se caracteriza como existente para que tenhamos o relativo.
-- Ao negar-se o Relativo, se tem o nada novamente.
 - Ao não negar-se o Relativo, ou seja, ao coloca-lo em estado de suspensão se tem o relativo.
 - Ao tornar a irrealidade existente, já se produz o relativo. 
 
 - O relativo não é a negação da realidade, mas a afirmação da irrealidade como existente.
-- Ao afirmarmos a irealidade, negamos a realidade e a irrealidade ao mesmo tempo.
-
-- Mude o titulo para ''metafisica relativista" ao invés de absolutista.
-
+- Ao afirmarmos a irrealidade, negamos a realidade e a irrealidade ao mesmo tempo.
 
 ---
-
-
-
 
 
 # **A Auto-Causalidade**  
