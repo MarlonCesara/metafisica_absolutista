@@ -73,8 +73,8 @@
 ## Estruturação do Relativo
 
 
-### O Relativo como Realidade Autodeterminada
-- O Relativo, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e possível de si mesmo).
+### O Relativo como realidade e irrealidade Autodeterminadas
+- O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade e irrealidade.
   - Isso significa que a Realidade não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
   - A Irrealidade possui eficácia causal na Realidade.
 
@@ -360,6 +360,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 - O relativo não é a negação da realidade, mas a afirmação da irrealidade como existente.
 - Ao afirmarmos a irrealidade, negamos a realidade e a irrealidade ao mesmo tempo.
+
+- O autentico estado de indiferenciação deve considerar o impossível exitente, afim de que possa indiferencia-lo.
+- Ao não considerar o impossível existente, não se pode atingir o estado de completa indiferenciação, pois o que não existe, não pode existir para que seja 
+  indiferenciado. 
+- Desta forma, abordando só o que é realidade, há sempre uma afirmação. E uma unicidade afirmadora ativa. Ao invés de um deixar-ser.
 
 ---
 
