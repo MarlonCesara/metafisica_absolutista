@@ -26,7 +26,7 @@
 ## Definições Fundamentais 
 
 ### 1. Relativo
-**Definição:** Conjunto de todas as possibilidades (lógicas ou ilógicas, possíveis ou impossíveis).
+**Definição:** Conjunto de todas as possibilidades (lógicas e possíveis,  ilógicas e impossíveis).
 
 **Propriedade Essencial:** Causa integral de si mesmo.
 - Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria absoluto.
