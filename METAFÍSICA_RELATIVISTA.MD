@@ -26,11 +26,11 @@
 ## Definições Fundamentais 
 
 ### 1. Realidade
-- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades lógicas. 
+- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades lógicas e verdadeiras. 
 - **Sinônimos:**  Possibilidade. Existência lógica e possível.
 
 ### 2. Irrealidade
-- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades ilógicas. 
+- **Definição:** Subconjunto do Relativo que compreende todas as impossibilidades ilógicas e verdadeiras. 
 - **Sinônimos:**  Impossibilidade. Existência ilógica e impossível.
 
 ### 3. Relativo
@@ -83,7 +83,7 @@
 
 ### O Relativo como realidade Autodeterminadas
 - O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade.
-  - Isso significa que a Realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
+  - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
 ### O Ser como Auto determinador
 - O Relativo autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
