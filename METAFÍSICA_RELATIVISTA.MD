@@ -326,13 +326,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Referencialidade Obrigatória
 
-- A negação só existe se A ou Nao-A já foram manifestados ou são possíveis.
+- O relativo só existe se o possível e o impossível já foram manifestados ou existem.
 - Não há relativo sem relação com o relativizado.
-  - *Exemplo:* Só há ausência da dualidade (A e Não-A) se a dualidade existir.
+  - *Exemplo:* Só há luz e escuridão ao mesmo tempo se o impossível, a luz e a escuridão existirem. 
 
 ## Não-Coexistência de Opostos Relativos
 
-- A (Nada(s)) e B (não-nada(s)) não podem ocupar a mesma dimensão se forem contraditórios. 
+- O impossível e o possível não podem ocupar a mesma dimensão se forem contraditórios. 
 - A e B anulam-se ao serem relativizados. 
   - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo, se existissem ao mesmo tempo, se anulariam como possibilidade.
 
