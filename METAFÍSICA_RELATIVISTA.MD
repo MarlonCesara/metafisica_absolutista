@@ -80,29 +80,11 @@
   - E o real tem seus efeitos na irrealidade, de forma a realizar o impossível. 
   - O impossível, portanto, não é uma nova realidade, mas é a dissolução da realidade como uniforme ao impossível.
 
-### O Relativo como realidade Autodeterminadas
+### O Relativo como realidade Autodeterminada
 - O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade.
   - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
-### O Ser como Auto determinador
-- O Relativo autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
-  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:
-    1. Existe (auto fundamentação).
-    2. Se define (autodeterminação).
-    3. Persiste (auto continuidade).
-  - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.
 
-### A Realidade como Estrutura Idealizadora
-- A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
-  - Se organiza segundo os princípios lógicos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
-  - Se sustenta pela auto continuidade do Ser.
-  - Se atualiza através da autodeterminação.
-
-### O Relativo como Ser Autônomo
-- "O Relativo é o Ser, e o Ser é a Realidade autodeterminada."
-  - Não há dualidade entre Relativo e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
-    idealizadora.
-  - A Irrealidade existe como impossibilidade realizada, possui força ontológica.
 
 ## Estrutura da Autodeterminação
 
@@ -147,16 +129,15 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 ## Conclusão
 
 - O Relativo é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
-- A Realidade é a manifestação lógica e verdadeira do Relativo.
-- A Irrealidade é a manifestação ilógica e verdadeira do Relativo.
+- A Realidade é a manifestação verdadeira do Relativo.
 - A Auto Causalidade é o mecanismo pelo qual o Relativo se sustenta, se aperfeiçoa e se personaliza.
 - Espírito e Alma são as duas dimensões da autodeterminação:
   - O Espírito garante a existência e a perfeição.
   - A Alma introduz a liberdade e a personalidade na estrutura do Real.
 
-**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Relativo."**
 
 # A Estrutura da Realidade e do Ser
+
 
 ## **O Relativo como Único Fundamento**  
 
@@ -165,10 +146,12 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
  - O termo "Ser" remete ao "quem" da existência (o sujeito ausente), enquanto "existir" refere-se ao "que" da realidade (o ato impessoal ausente). Portanto, o 
     termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
 
-  - Somente o Relativo pode auto-fundamentar-se, pois é a indiferenciação da possibilidade e da impossibilidade.
+ - Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
+    multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um 
+    determinador referenciável. 
 
-  - Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
-    multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade.
+  - Somente o Relativo pode se auto-fundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. Não necessita nem mesmo do nada, é a completa 
+    indiferenciação.
 
   - O Relativo simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito. O Ser indiferenciado. Não 
     afirmado (possibilidade) e nem negado (impossibilidade).
@@ -177,6 +160,28 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
     assim, ter sua causa e fundamento em si mesmo, ou seja, em seu ato puro de Ser. Logo, a alma do Ser (não criada) dispensa fundamento para sua 
     existência e atividade.
 
+### O Ser como Auto determinador
+- O Relativo autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
+  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:
+    1. Existe (auto fundamentação).
+    2. Se define (autodeterminação).
+    3. Persiste (auto continuidade).
+  - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.
+
+### A Realidade como Estrutura Idealizadora
+- A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
+  - Se organiza segundo os princípios lógicos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
+  - Se sustenta pela auto continuidade do Ser.
+  - Se atualiza através da autodeterminação.
+
+### O Relativo como Ser Autônomo
+- "O Relativo é o Ser, e o Ser é a Realidade autodeterminada."
+  - Não há dualidade entre Relativo e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
+    idealizadora.
+  - A Irrealidade existe como impossibilidade realizada, possui força ontológica.
+
+
+**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Relativo."**
 
 ## A Pureza do Ser e a Necessidade do Determinado
 
