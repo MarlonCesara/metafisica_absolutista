@@ -22,7 +22,6 @@
   - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma 
   razão continua. 
 
-
 ## Definições Fundamentais 
 
 ### 1. Realidade
@@ -185,9 +184,9 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ## Dualidade Fundamental: Determinador e Relativo
 
-- A ação do **Ser** (determinação) e o **Nada** (ausência do determinado) são coessenciais.
-  - Não são opostos Relativos, mas pólos de uma mesma estrutura ontológica.
-  - O Nada não é aniquilação total, mas o limite interno da autodeterminação.
+- A ação do **Ser** (determinação) e o **Relativo** (ausência do determinado) são coessenciais.
+  - Não são opostos absolutos, mas pólos de uma mesma estrutura ontológica.
+  - O Relativo não é aniquilação total, mas o limite interno da autodeterminação.
     - *Exemplo:* O olho que vê a escuridão.
     - Se não há luz, a escuridão existe como referência para a visão.
     - A ausência de luz só tem significado porque o olho (determinador) a percebe.
@@ -196,23 +195,20 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 - A **realidade (verdade)** não é um estado puro, mas uma tensão entre:
   1. **O Ser** (autodeterminação ativa) → Puro ato de existir.
-  2. **O Nada** (potencial não realizado) → Ausência que define os limites do real.
+  2. **O Relativo** (potencial não realizado) → Indiferenciação que define os limites do real.
   
 - Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.
   - O Ser não "está" na realidade – ele age na realidade em sua autodefinição contínua.
 
 ## Conclusão: A Realidade como Processo
 
-
 - Não há "verdade estática", pois a realidade sempre se constitui na relação entre:
   - A ação do determinador (Ser puro).
-  - O determinado (incluindo sua negação como contraparte).
+  - O determinado (incluindo sua indiferenciação como contraparte).
   
-- O nada não é o oposto da manifestação, mas seu complemento necessário para que a autodeterminação tenha eficácia.
-
+- O indiferenciado não é o oposto da realidade, mas seu complemento necessário para que a autodeterminação tenha eficácia.
 
 # Estruturando o Nada
-
 
 ## Definição por Negação
 
