@@ -166,7 +166,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ### A Realidade como Estrutura Idealizadora
 - A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
-  - Se organiza segundo os princípios lógicos e ilógicos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
+  - Se organiza segundo os princípios lógicos manifestados ou corrompidos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
   - Se sustenta pela auto continuidade do Ser.
   - Se atualiza através da autodeterminação.
 
@@ -174,8 +174,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - "O Relativo é o Ser, e o Ser é a Realidade autodeterminada."
   - Não há dualidade entre Relativo e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
     idealizadora.
-  - A Irrealidade existe como impossibilidade realizada, possui força ontológica.
-
 
 **"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Relativo."**
 
@@ -183,10 +181,9 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 - O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.
   - Autodeterminação pura exige um termo relacional (aquilo que é determinado).
-  - Sem o determinado, há apenas a afirmação da impossibilidade.
-  - Portanto, a própria negação (o nada) surge como contraparte necessária da autodeterminação.
+  - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.
 
-## Dualidade Fundamental: Determinador e Nada
+## Dualidade Fundamental: Determinador e Relativo
 
 - A ação do **Ser** (determinação) e o **Nada** (ausência do determinado) são coessenciais.
   - Não são opostos Relativos, mas pólos de uma mesma estrutura ontológica.
