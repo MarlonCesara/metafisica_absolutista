@@ -338,24 +338,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Referencial Possível
 
-- A e Não-A podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
+- Irrealidade e realidade podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
   
-- Se Não (A e Não-A) e A e Não-A forem potenciais opostos, não podem coexistir, pois o relativo deixaria de ser relativo ao ter qualquer traço de possibilidade (já que potencial implica energia ou latência, incompatível com a ausência total).
+- Se relativo e (realidade e irrealidade) forem potenciais opostos, não podem coexistir, pois o relativo deixaria de ser relativo ao ter qualquer traço de possibilidade (já que potencial implica energia ou latência, incompatível com a ausência total).
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
-  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.
-
-## Dissolução Espacial
-
-- A nulidade abrange todo o espaço, tanto a possibilidade quando a impossibilidade.
-
-## Tempo Potencial e Expresso (Atemporalidade)
-
-- O tempo existe como:
-  1. **Tempo expresso** (manifestado).
-  2. **Tempo inexpresso** (potencial não realizado).
-  
-- A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.
-- A nulidade consuma o tempo em sua expressão e inexpressão.
+  - *Potenciais opostos:* Excluem-se, pois a realidade não pode conter impossibilidade latente sem perder sua definição.
 
 ## Sintetizando o Relativo
 
