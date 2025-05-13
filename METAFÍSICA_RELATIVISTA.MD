@@ -79,8 +79,7 @@
   - A irrealiade existe de forma a ter efeitos no que é real.
   - E o real tem seus efeitos na irrealidade, de forma a realizar o impossível. 
   - O impossível, portanto, não é uma nova realidade, mas é a dissolução da realidade como uniforme ao impossível.
-
-Consideremos portanto, o termo "realidade" suficiente para compor o irreal no contexto dessa dialética.
+    - Consideremos portanto, o termo "realidade" suficiente para compor o irreal no contexto dessa dialética.
 
 ### O Relativo como realidade Autodeterminadas
 - O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade.
