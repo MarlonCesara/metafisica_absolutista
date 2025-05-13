@@ -323,6 +323,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 -  Requer referencia do possível (A) e do impossível (A = Não-A).
   - *Exemplo:* Há luz, e há o impossível, portanto pode haver escuridão e luz ao mesmo tempo. Logo, não há escuridão e nem luz.
 
+- A negação de qualquer afirmação como o "nada" não produz o estado indiferenciado ao nada, pois ao negar algo, se afirma a sua existencia.
+- Não há como indiferenciar, ou seja, ser neutro àquilo que existe e é afirmado.
+- Logo, ao afirmar o impossível, se produz a possibilidade da indiferenciação, pois todas as referenciais são estabelecidas.
+- Sem que haja as referencias estabelecidas, não é possível um estado alheio ao referenciado. 
+
+- Ex: Para estar alheio a luz e a escuridão, é preciso que a escuridão exista. E se é impossível existir escuridão, então se afirma o impossível.
+
 ## Referencialidade Obrigatória
 
 - O relativo só existe se o possível e o impossível já foram manifestados ou existem.
