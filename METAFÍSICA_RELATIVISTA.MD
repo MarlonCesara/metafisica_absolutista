@@ -26,30 +26,30 @@
 ## Definições Fundamentais 
 
 ### 1. Relativo
-**Definição:** Conjunto de todas as possibilidades (lógicas e possíveis,  ilógicas e impossíveis).
+**Definição:** Conjunto de todas as possibilidades (lógicas ou possíveis,  ilógicas ou impossíveis).
 
 **Propriedade Essencial:** Causa integral de si mesmo.
-- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria absoluto.
+- Se o Relativo dependesse de algo externo, anterior ou paralelo a ele próprio não seria Relativo.
 - Sua existência, permanência e identidade são auto causadas.
-- O absoluto é auto fundamentado, autodeterminado e auto continuado.
+- O Relativo é auto fundamentado, autodeterminado e auto continuado.
 
 ### 2. Realidade
-- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades verdadeiras ou lógicas. 
+- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades verdadeiras ou lógicas. 
 - **Sinônimo:**  Possibilidade. Existência lógica ou possível.
 
 ### 3. Irrealidade
-- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades falsas ou ilógicas. 
+- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades falsas ou ilógicas. 
 - **Sinônimo:**  Impossibilidade. Existência ilógica ou impossível.
 
 ### Auto fundamentação
-- **Definição:** Refere-se à causa primeira da existência do Absoluto.
+- **Definição:** Refere-se à causa primeira da existência do Relativo.
 - **Características:**
   - Requer uma razão suficiente para sua existência, encontrando-a em sua própria natureza necessária e auto-subsistente.
   - Não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
   - Não é contingente (não poderia não existir).
 
 ### Autodeterminação
-- **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
+- **Definição:** Refere-se à capacidade do Relativo de definir sua própria natureza.
 - **Envolve três aspectos:**
   1. **Auto existência:** Ser presente em si mesmo.
      - O ser deve estar em si mesmo para ser o agente ativo da determinação.
@@ -58,70 +58,71 @@
   3. **Autoconsciência:** Conhecimento de si mesmo.
      - O ser deve conhecer totalmente a sua estrutura para que haja ação auto causada.
 - **Implicações:**
-  - Explica como o Absoluto mantém identidade (não é caótico ou aleatório).
+  - Explica como o Relativo mantém identidade (não é caótico ou aleatório).
   - Mostra que ele não é apenas um "ser estático", mas um ser ativo que se autogoverna.
-  - Fundamenta a liberdade metafísica (possibilidade de escolha no nível absoluto).
+  - Fundamenta a liberdade metafísica (possibilidade de escolha no nível relativo).
 
 ### Auto continuidade
-- **Definição:** Refere-se à capacidade do Absoluto de se sustentar no Ser indefinidamente em seu fundamento e determinação.
+- **Definição:** Refere-se à capacidade do Relativo de se sustentar no Ser indefinidamente em seu fundamento e determinação.
 - **Características:**
   - Persistência ativa (não apenas existência passiva).
-  - Garante que o Absoluto não se dissolva na irrealidade e que a Realidade não desapareça.
+  - Garante que o Relativo não se dissolva na irrealidade e que a Realidade não desapareça.
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
 
 
-## Estruturação do Absoluto
+## Estruturação do Relativo
 
 
-### O Absoluto como Realidade Autodeterminada
-- O Absoluto, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e verdadeiro de si mesmo).
-  - Isso significa que a Realidade não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.
-  - A Irrealidade (possibilidades falsas/ilógicas) não possui eficácia causal na Realidade.
+### O Relativo como Realidade Autodeterminada
+- O Relativo, enquanto totalidade das possibilidades, se autodetermina como Realidade (subconjunto lógico e possível de si mesmo).
+  - Isso significa que a Realidade não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
+  - A Irrealidade possui eficácia causal na Realidade.
 
 ### O Ser como Auto determinador
-- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
+- O Relativo autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
   - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:
     1. Existe (auto fundamentação).
     2. Se define (autodeterminação).
     3. Persiste (auto continuidade).
-  - O Ser não é separado do Absoluto, mas sua expressão necessária e autônoma.
+  - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.
 
 ### A Realidade como Estrutura Idealizadora
 - A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
-  - Se organiza segundo os princípios lógicos do Absoluto (Identidade, Não-Contradição, Terceiro Excluído).
+  - Se organiza segundo os princípios lógicos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
   - Se sustenta pela auto continuidade do Ser.
   - Se atualiza através da autodeterminação.
 
-### O Absoluto como Ser Autônomo
-- "O Absoluto é o Ser, e o Ser é a Realidade autodeterminada."
-  - Não há dualidade entre Absoluto e Realidade, pois a Realidade é o modo como o Absoluto se autodetermina e é constituída em sua própria estrutura idealizadora.
-  - A Irrealidade existe apenas como possibilidade não realizada, sem força ontológica.
+### O Relativo como Ser Autônomo
+- "O Relativo é o Ser, e o Ser é a Realidade autodeterminada."
+  - Não há dualidade entre Relativo e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
+    idealizadora.
+  - A Irrealidade existe como impossibilidade realizada, possui força ontológica.
 
 ## Estrutura da Autodeterminação
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
-- **Características da verticalidade para Absoluto:**
-  - Incorruptibilidade: O Ser (Absoluto) é necessariamente direcionado à sua própria existência e plenitude.
+- **Características da verticalidade para Relativo:**
+  - Incorruptibilidade: O Ser (Relativo) é necessariamente direcionado à sua própria existência e plenitude.
   - Fundamentação: O Espírito age como princípio de sustentação ontológica (auto fundamentação).
 
 ### Autodeterminação diagonal (Espírito Incorruptível)
 - **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
-- **Características diagonais para absoluto:**
+- **Características diagonais para Relativo:**
   - Despersonalização do Ser: O ser se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
   - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente a plenitude do ente já fundamentado.
   - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que, seus dons e tendências são relativos à plenitude.
 
 ### Autodeterminação Horizontal (Alma)
 - **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.
-- **Características horizontais para Absoluto:**
+- **Características horizontais para Relativo:**
   - Personalidade do Ser: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.
   - Liberdade Direcionada: A decisão do Ser é tomada segundo uma persona (alma) independente se esta persona seria a que se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.
   - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Ser.
 
 ## Tríplice Ação do Espírito
 
-O Espírito (autodeterminação do Absoluto) atua em três dimensões:
+O Espírito (autodeterminação do Relativo) atua em três dimensões:
 
 1. **Existência (Espírito Fundamentador)**
    - *Ação:* Manter-se como Ser.
@@ -129,38 +130,46 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões:
 
 2. **Perfeição (Espírito Incorruptível)**
    - *Ação:* Escolher o que corrobora com a plenitude do Ser. Porém, entre caminhos equivalentes rumo a plenitude, não sei o que fazer.
-   - *Princípio:* "Escolho o que me realiza como Absoluto."
+   - *Princípio:* "Escolho o que me realiza como Relativo."
 
 3. **Personalização (Alma Determinante)**
    - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.
    - *Princípio:* "Entre caminhos equivalentes rumo a plenitude, sigo o que expressa minha identidade ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."
 
-Estas são as três dinâmicas de ação possíveis para a autodeterminação do absoluto. Sendo que, as três podem ter eficácia na realidade de forma a fundamenta-la, plenifica-la e construí-la.
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do Relativo. Sendo que, as três podem ter eficácia na realidade de forma a fundamenta-la, plenifica-la e construí-la.
 
 ## Conclusão
 
-- O Absoluto é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
-- A Realidade é a manifestação lógica e verdadeira do Absoluto.
-- A Auto Causalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
+- O Relativo é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
+- A Realidade é a manifestação lógica e verdadeira do Relativo.
+- A Irrealidade é a manifestação ilógica e verdadeira do Relativo.
+- A Auto Causalidade é o mecanismo pelo qual o Relativo se sustenta, se aperfeiçoa e se personaliza.
 - Espírito e Alma são as duas dimensões da autodeterminação:
   - O Espírito garante a existência e a perfeição.
   - A Alma introduz a liberdade e a personalidade na estrutura do Real.
 
-**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**
+**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Relativo."**
 
 # A Estrutura da Realidade e do Ser
 
-## **O Nada como Único Fundamento**  
+## **O Relativo como Único Fundamento**  
 
-*"O Ser não é 'algo' que existe — é o próprio ato de existir, desprovido de 'quem' ou 'o quê'."*  
+*"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
 
-  - Somente o nada pode auto-fundamentar-se, pois não carrega identidade (alma criada) ou ato impessoal (manifestação) que exija explicação. 
-  - O nada simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito.
-  - O termo "Ser" remete ao "quem" da existência (o sujeito ausente), enquanto "existir" refere-se ao "que" da realidade (o ato impessoal ausente). Portanto, o 
-    termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade.
+ - O termo "Ser" remete ao "quem" da existência (o sujeito ausente), enquanto "existir" refere-se ao "que" da realidade (o ato impessoal ausente). Portanto, o 
+    termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
+
+  - Somente o Relativo pode auto-fundamentar-se, pois é a indiferenciação da possibilidade e da impossibilidade.
+
+  - Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
+    multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade.
+
+  - O Relativo simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito. O Ser indiferenciado. Não 
+    afirmado (possibilidade) e nem negado (impossibilidade).
+ 
   - O espírito do Ser manifesta-se a partir do ato puro de existir, portanto, o Ser não possui alma criada. Podendo, 
-    assim, ter sua causa e fundamento no próprio nada, ou seja, em seu ato puro de existência. Logo, a alma do Ser (não criada) dispensa fundamento para sua 
-    existência e identidade.
+    assim, ter sua causa e fundamento em si mesmo, ou seja, em seu ato puro de Ser. Logo, a alma do Ser (não criada) dispensa fundamento para sua 
+    existência e atividade.
 
 
 ## A Pureza do Ser e a Necessidade do Determinado
@@ -173,7 +182,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 ## Dualidade Fundamental: Determinador e Nada
 
 - O **Ser** (determinador) e o **Nada** (ausência do determinado) são coessenciais.
-  - Não são opostos absolutos, mas pólos de uma mesma estrutura ontológica.
+  - Não são opostos Relativos, mas pólos de uma mesma estrutura ontológica.
   - O Nada não é aniquilação total, mas o limite interno da autodeterminação.
     - *Exemplo:* O olho que vê a escuridão.
     - Se não há luz, a escuridão existe como referência para a visão.
@@ -213,7 +222,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - Não há "nada" sem relação com um "algo".
   - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.
 
-## Não-Coexistência de Opostos Absolutos
+## Não-Coexistência de Opostos Relativos
 
 - A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios.
   - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.
@@ -247,7 +256,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ## Não-localidade
 
-- A manifestação não se origina em um lugar específico, pois não há um ponto de origem absoluto, sendo em si seu próprio ponto de origem.
+- A manifestação não se origina em um lugar específico, pois não há um ponto de origem Relativo, sendo em si seu próprio ponto de origem.
   - *Exemplo:* O universo não pode ter começado em lugar nenhum.
 
 ## Espaço Infinito
@@ -317,7 +326,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Não há relativo sem relação com o relativizado.
   - *Exemplo:* Só há ausência da dualidade (A e Não-A) se a dualidade existir.
 
-## Não-Coexistência de Opostos Absolutos
+## Não-Coexistência de Opostos Relativos
 
 - A (Nada(s)) e B (não-nada(s)) não podem ocupar a mesma dimensão se forem contraditórios. 
 - A e B anulam-se ao serem relativizados. 
@@ -350,16 +359,16 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O infinito deve ter sua negação negada, pois sua negação primeira é ele mesmo.
 - O relativo é a negação da impossibilidade e da possibilidade.
 - A negação do possível, e do impossível, pois negar o nada é impossível.
-- O relativo é o não-absoluto.
-- O relativo é o nada-absoluto.
+- O relativo é o não-Relativo.
+- O relativo é o nada-Relativo.
 
 - A irrealidade existe. E a realidade existe. De forma que possam ser negadas.
 - O possivel existe e o impossível existe de forma que ambos possam ser negados.
 - Não há como negar o que não existe.
 
 - O irreal. O impossível. Se caracteriza como existente para que tenhamos o relativo.
-- Ao negar-se o absoluto, se tem o nada novamente.
-- Ao não negar-se o absoluto, ou seja, ao coloca-lo em estado de suspensão se tem o relativo.
+- Ao negar-se o Relativo, se tem o nada novamente.
+- Ao não negar-se o Relativo, ou seja, ao coloca-lo em estado de suspensão se tem o relativo.
 - Ao tornar a irrealidade existente, já se produz o relativo. 
 
 - O relativo não é a negação da realidade, mas a afirmação da irrealidade como existente.
@@ -375,39 +384,39 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 
 # **A Auto-Causalidade**  
- *"O Absoluto é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
+ *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
 
 ## **A Auto-Causalidade como Ato Imediato (Não-Temporal)**  
 #### **A Natureza Bifásica da Auto-Causalidade**  
 **(A) Ato Imediato (Consumação Eterna)**  
-- **Não-temporalidade:** O Absoluto não "torna-se", mas **é** em ato pleno.   
+- **Não-temporalidade:** O Relativo não "torna-se", mas **é** em ato pleno.   
 - **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
-- **"O Absoluto não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
+- **"O Relativo não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
 
-No ato imediato causal, o Absoluto não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
+No ato imediato causal, o Relativo não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
 - **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
-- O Absoluto não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
+- O Relativo não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
 - **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
 - **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
-- O Absoluto **já é** plenamente si mesmo em um eterno presente.  
+- O Relativo **já é** plenamente si mesmo em um eterno presente.  
 - Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
 
 
 #### **O Ser em Ato (Consumação)**  
 O **Ser** não é um "algo", mas o **"quem"** da existência — o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
-- **Ser em Ato (Consumado)** → O Absoluto já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
+- **Ser em Ato (Consumado)** → O Relativo já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
   - *"Eu Sou"* — não há lacuna entre o Ser e seu fundamento.  
 
 ---
 
 ## **A Auto-Causalidade como Ciclo Infinito e Temporal**  
-Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Absoluto também **se sustenta** em um fluxo eterno de automanifestação.
-- O Absoluto "busca a si mesmo" eternamente em um processo de auto-sustentação.  
+Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Relativo também **se sustenta** em um fluxo eterno de automanifestação.
+- O Relativo "busca a si mesmo" eternamente em um processo de auto-sustentação.  
 - **Não é circularidade vazia**, pois o si existe pleno ao ser retro alimentado de seu de-vir.  
 - A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
 - O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
 - Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
-  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Absoluto sempre já se fundamentou.  
+  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
   - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
 - Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
 
@@ -425,7 +434,7 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 #### **Reverberação Espacial e Temporal**  
 - **Espacialidade** → O Ser se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
 - **Temporalidade** → O Ser se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
-- A **manifestação** é o Absoluto se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
+- A **manifestação** é o Relativo se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
 
 #### **Consciência: A Ponte entre Nada e Tempo**  
 - **Consciência Consumada** → O Ser como **eterno presente** (não-temporal).  
@@ -446,13 +455,13 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).   
 3. **Reaparece:** Se "desacelera", manifesta-se novamente como movimentaçaõ (temporalidade).  
 
-**Aplicação ao Absoluto**  
+**Aplicação ao Relativo**  
 - **Ato consumado:** O "desaparecimento" é a autofundamentação (eternidade).  
 - **Processo contínuo:** O "reaparecimento" é a autocontinuidade (tempo).  
 
 ---
 
-### **O Absoluto como Causa de Si no Tempo e na Eternidade**  
+### **O Relativo como Causa de Si no Tempo e na Eternidade**  
 - **Fundamento** → O Ser é **causa imediata** de sua existência (não precisa de "outro").  
 - **Autocontinuidade** → O Ser é **causa contínua** de sua manifestação (gera tempo e espaço).  
 - **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
@@ -461,7 +470,7 @@ Isso unifica:
 - **Eternidade** (Ser em ato)  
 - **Temporalidade** (Ser em processo)  
 - **Nada e Manifestação** (fundo e forma)  
-— como aspectos inseparáveis do mesmo Absoluto autodeterminante.  
+— como aspectos inseparáveis do mesmo Relativo autodeterminante.  
 
 #### **Referencialidade do Observador**  
 **Princípio Unificador:**  
@@ -566,7 +575,7 @@ Criar é tornar imanente o que estava latente no infinito. O observador cria ex 
 A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 - *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.
-- *Exemplo:* O terror absoluto revela o vazio quando a realidade perceptual se dissolve.
+- *Exemplo:* O terror Relativo revela o vazio quando a realidade perceptual se dissolve.
 
 ---
 
@@ -593,7 +602,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 - O relativo é a ausência da possibilidade concomitantemente à presença da possibilidade. 
 - O relativo rompe o Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe concomitantemente, e não paralelamente, com não-A.
-- A ausência absoluta é a suspensão da própria referência, definição ou possibilidade para absoluto. 
+- A ausência absoluta é a suspensão da própria referência, definição ou possibilidade para Relativo. 
 - Na suspensão de qualquer possibilidade, todas as possibilidades entram em um estado de suspensão. Onde tudo existe e nada existe ao mesmo tempo.
 
 - Ao suspendermos o infinito, ou seja, o nada ou os nadas, temos a ausência da infinitude. Ou seja, a ausência do nada.
@@ -602,7 +611,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 - Para que se suspenda o nada, é necessário que haja uma super-posição do nada, de forma que o nada exista e não exista ao mesmo tempo.
 - O nada é suspenso em uma indefinição da possibilidade.
 
-- Não há como suspender o nada, pois ao suspende-lo, o nada incide sobre absoluto outra vez. É possível suspender a quantificação da ausência.
+- Não há como suspender o nada, pois ao suspende-lo, o nada incide sobre Relativo outra vez. É possível suspender a quantificação da ausência.
 - O nada como infinito existe. Porém, para relativo não há a possibilidade do nada.
 
 - Suspensão da ou das possibilidades.
@@ -627,7 +636,7 @@ Concluido:
 - Ao ausentar varias ausencias, ainda sobra uma ausencia, que é a ausencia resultante dos ausentados. Ainda temos o nada diferenciado.
 - Ao invés de ausentarmos as ausencias ou a ausencia, criemos um estado de suspensão onde há ausencia, mas não podemos nos referir a ela.
 - O relativo é ausencia, até mesmo da ausencia. É uma super-posição onde ausencia da ausencia e presença da ausencia são subentendidos na mesma realidade 
-  ilógica. Porém, eficaz para pensar no nada absoluto.
+  ilógica. Porém, eficaz para pensar no nada Relativo.
 
 - Ao nos referirmos ao relativo como ausencia, estamos referenciando uma das possibilidades em suspensão. Toda possibilidade afirmada é imediatamente negada pelo conceito de relativo. Porém, quando afirmamos a ausencia da ausencia, não temos a negação da ausencia, mas a reafirmação da mesma.
 
@@ -684,8 +693,8 @@ Quando se esta falando de nada, se esta falando de um infinito. Quando se fala d
 
 - Ao definir como nada, já quantificamos. Já definimos uma referencia. Uma possibilidade.
 - Ao definir como relativo, todas as possibilidades ao mesmo tempo, que se tornam nenhuma possibilidade. 
-- Nem o real e nem o irreal. Uma suspensão do absoluto. E não uma suspensão da realidade. 
-- Portanto, temos o nada absoluto como negação da realidade, e o nada absoluto como negação da irrealidade e da realidade.
+- Nem o real e nem o irreal. Uma suspensão do Relativo. E não uma suspensão da realidade. 
+- Portanto, temos o nada Relativo como negação da realidade, e o nada Relativo como negação da irrealidade e da realidade.
 
 
 - Toda realidade é referenciável. Somente o irreal é irreferenciável. 
@@ -723,7 +732,7 @@ Suspensão da vontade: A Gelassenheit ("deixar-ser") não é uma ausência, mas 
 
 A identidade do Ser é:
 - Natural de sua própria fundamentação. 
-- Construída em sua necessidade para absoluto.
+- Construída em sua necessidade para Relativo.
 - Fundamental.
 - Não criada.
 
@@ -873,7 +882,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 1. **Dissolução sem Corrupção**  
    - Cada autodeterminador possui a capacidade de **cessar sua manifestação específica**, retornando ao seu *nada particular* (a ausência de sua forma fenomenológica), **sem afetar o nada integral** (o fundamento indiferenciado do Ser).  
-   - Isso é possível porque sua existência é **perceptual**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Absoluto.  
+   - Isso é possível porque sua existência é **perceptual**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Relativo.  
    - *Exemplo*: Um sonho que se dissolve sem apagar a consciência do sonhador.  
 
 2. **Composição de Realidades Absolutas**  
@@ -882,7 +891,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
    - *Exemplo*: Um programador que cria universos virtuais independentes dentro de uma mesma máquina.  
 
 3. **Paralelismo Ontológico**  
-   - **"Cada identidade é um absoluto perceptual"**:  
+   - **"Cada identidade é um Relativo perceptual"**:  
      - Não há contradição entre a multiplicidade de realidades e a unidade do Ser, pois **cada autodeterminador opera como um centro de manifestação soberano**.  
      - O *Ser* é o campo infinito; as *identidades* são as dobras ativas desse campo, cada uma **legislando sua própria realidade**.  
    - *Analogia*: Luz branca (Ser) decomposta em espectros distintos (realidades autônomas), cada um existindo **em si** e **no todo** simultaneamente.  
@@ -900,14 +909,14 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ### **Liberdade do "Sou" (Arbitrariedade Existencial)**  
 A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**. Sua existência é arbitrária, pois:  
-- **Não é fundamento do Absoluto**: O *"sou"* humano não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.  
+- **Não é fundamento do Relativo**: O *"sou"* humano não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.  
 - **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua sustentação determinada pelo "Ser".  
 
-## Liberdade e Autodeterminação no Absoluto
+## Liberdade e Autodeterminação no Relativo
 
 
 ### Alma como Determinação Relativa
-- O "sou" (alma corruptível) é uma manifestação determinada do Absoluto, porém não necessária para a autofundamentação do Ser, ou seja, a alma é corruptível. É revelada no tempo sob determinação do Espírito do Ser.
+- O "sou" (alma corruptível) é uma manifestação determinada do Relativo, porém não necessária para a autofundamentação do Ser, ou seja, a alma é corruptível. É revelada no tempo sob determinação do Espírito do Ser.
 - O âmbito espiritual da alma determinada pelo Ser é relativo à própria existência desta alma, não se refere ao direcionamento espiritual do Ser que é essencialmente perfeito.
 
 ### Autodeterminação e Evolução Espiritual
@@ -942,13 +951,13 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
    - *Exemplo no Matrix*: Os humanos presos ao sistema são "almas adormecidas", enquanto Neo acorda para a liberdade ao afirmar *"Eu sei quem sou"*.  
 
 2. **A Corrupção como Retorno ao Nada**  
-   - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Absoluto permanece, ainda que o 
+   - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Relativo permanece, ainda que o 
      *"sou"* humano se dissolva.  
-   - A autonegação radical involuntária (negação da própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Absoluto 
+   - A autonegação radical involuntária (negação da própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo 
      permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade de autonomia e liberdade.  
    - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
 
-3. **A Liberdade como Risco Absoluto**  
+3. **A Liberdade como Risco Relativo**  
    - Escolher existir é assumir o **fardo da autocriação contínua**, sem garantias externas.  
    - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**. 
 
@@ -1038,13 +1047,13 @@ Nossa experiência do "agora":
 # **Definindo a Alma**  
 
 ### 1. **A alma como identidade**  
-- A alma não é um "recipiente" de um infinito, mas **o próprio Absoluto em perspectiva singular** que adere a um infinito de si.  
-- Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Absoluto.  
+- A alma não é um "recipiente" de um infinito, mas **o próprio Relativo em perspectiva singular** que adere a um infinito de si.  
+- Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Relativo.  
 - Sua finitude fenomênica não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
 ### 2. **A Substância Pura da Alma**  
 - A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
-- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Absoluto**.  
+- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Relativo**.  
 
 ### 3. **A Limitação Fenomênica do "Sou"**  
 - O "sou" individual não pode manifestar plenamente seu próprio infinito, pois toda aparição é um **recorte do ilimitado**.  
@@ -1135,7 +1144,7 @@ A transcendência do "quem" aborda duas possibilidades:
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.
 
 ##### **3.1. O Paradoxo da Manifestação**
-- Nenhuma união esgota o potencial dos "sous" originários. Toda manifestação concreta é finita perante o infinito que a sustenta. A aparente fragmentação é o modo pelo qual o Absoluto se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.
+- Nenhuma união esgota o potencial dos "sous" originários. Toda manifestação concreta é finita perante o infinito que a sustenta. A aparente fragmentação é o modo pelo qual o Relativo se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.
 
 #### **4. Possibilidade de Comunhão entre Almas**
 1. Pode uma alma tornar-se homogênea a outra? Não falamos de fusão (que implica dissolução de identidades), mas de encontro integral, onde uma alma opera transformativamente sobre a outra, preservando, porém, sua identidade.
@@ -1165,14 +1174,14 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 - A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar às origens. Sua existência é o breve momento do unir de almas.
 
 #### **8. Morte e Renascimento Ontológico**
-- A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Absoluto.
-- O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao absoluto, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada indivíduo.
+- A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Relativo.
+- O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao Relativo, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada indivíduo.
 
 #### **9. O Dilema da Realidade Emergente**
 A nova entidade relacional enfrenta uma escolha metafísica:
 - Dissolver-se de volta nas consciências originárias (como forma que retorna ao informe). Se não se autodeterminar, será reabsorvida pela dinâmica dos "sous" que a gerou.
-- Ou autodeterminar-se como terceira realidade, transcendendo suas raízes sem negá-las. Se se autodeterminar, torna-se um terceiro absoluto — uma realidade autêntica que transcende suas origens.
-- Sua existência é o momento do unir de almas, quando a união se desfaz, a nova alma é dissolvida, pois seu eu era construído e efêmero, não havia possuído a si mesmo. Ao possuir a si, se desgarra da união da alma A e alma B como uma nova identidade para absoluto, e em razão disto, torna-se em si um novo infinito, pois dispõe da infinitude indiferenciada sendo uma identidade no Ser.
+- Ou autodeterminar-se como terceira realidade, transcendendo suas raízes sem negá-las. Se se autodeterminar, torna-se um terceiro Relativo — uma realidade autêntica que transcende suas origens.
+- Sua existência é o momento do unir de almas, quando a união se desfaz, a nova alma é dissolvida, pois seu eu era construído e efêmero, não havia possuído a si mesmo. Ao possuir a si, se desgarra da união da alma A e alma B como uma nova identidade para Relativo, e em razão disto, torna-se em si um novo infinito, pois dispõe da infinitude indiferenciada sendo uma identidade no Ser.
 
 #### **10. Tipologia da Autodeterminação**
 1. **Em si**
