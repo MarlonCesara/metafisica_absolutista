@@ -314,12 +314,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Definição por Negação
 
-- O **"Relativo"** é afirmação de A (Possibilidade) a afirmação de Não-A (Impossibilidade), de forma que se produza a indiferenciação (Relativo).
 - Se a negação do nada é impossível, pois ao negar qualquer coisa se obtem a negação novamente, ainda que este algo seja a própria negação. Conclui-se que negar 
   o nada é impossível.
 - Ao se afirmar o impossível, se tem a negação do nada, como definição clara e não como uma representação (negação do nada).
 - Ao se afirmar o possível e o impossível, se obtem um estado indiferenciado, que não diz respeito ao nada.
-
+- O **"Relativo"** é afirmação de A (Possibilidade) a afirmação de Não-A (Impossibilidade), de forma que se produza a indiferenciação (Relativo).
 
 -  Requer referencia do possível (A) e do impossível (A = Não-A).
   - *Exemplo:* Há luz, e há o impossível, portanto pode haver escuridão e luz ao mesmo tempo. Logo, não há escuridão e nem luz.
