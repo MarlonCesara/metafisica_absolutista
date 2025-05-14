@@ -348,6 +348,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Ao negar o nada, ele sempre reaparece, a menos que se negue com maior potencia do que o nada possa reaparecer, então temos uma infinitude para o infinito.
 - Ao se romper novamente a infinitude, temos o indiferenciado.
 
+- A existencia do impossível e a afirmação da negação do nada como possível.  
+- A opção do possível, inegável, não pode ser suspensa.
+
+
+
 ## Referencialidade Obrigatória
 
 - O relativo só existe se o possível e o impossível já foram manifestados ou existem.
