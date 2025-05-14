@@ -345,6 +345,8 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Se forem a mesma realidade (irrealidade e realidade) não formam a indiferenciação.
 - A afirmação do impossível é a existência da negação da ausência.
 - A afirmação do impossível, é afirmar a potencia alem da possibilidade. O transcender do próprio infinito.
+- Ao negar o nada, ele sempre reaparece, a menos que se negue com maior potencia do que o nada possa reaparecer, então temos uma infinitude para o infinito.
+- Ao se romper novamente a infinitude, temos o indiferenciado.
 
 ## Referencialidade Obrigatória
 
@@ -400,8 +402,8 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Se tem afirmado o impossível.
 - Desta forma é possível negar a realidade.
 
-- É impossível ausentar a ausencia. É possível somente dissolve-la num cenário suspensório de possibilidades.
-- Sendo o possível o unico cenário, a dissolução, ou seja, indiferenciação é impossível.
+- É impossível ausentar a ausência. É possível somente dissolve-la num cenário suspensório de possibilidades.
+- Sendo o possível o único cenário, a dissolução, ou seja, indiferenciação é impossível.
 - Ao afirmarmos o impossível como existente, temos uma possibilidade de indiferenciação, pois há dois cenários possíveis.
 
 ---
