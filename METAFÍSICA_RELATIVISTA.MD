@@ -344,7 +344,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O impossível não é a negação da ausência. Pois a ausência está afirmada, juntamente ao impossível. 
 - Se forem a mesma realidade (irrealidade e realidade) não formam a indiferenciação.
 - A afirmação do impossível é a existência da negação da ausência.
-- A afirmação do impossível, é afirmar a potencia alem da possibilidade.
+- A afirmação do impossível, é afirmar a potencia alem da possibilidade. O transcender do próprio infinito.
 
 ## Referencialidade Obrigatória
 
