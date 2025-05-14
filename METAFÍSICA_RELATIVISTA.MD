@@ -328,6 +328,12 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Logo, ao afirmar o impossível, se produz a possibilidade da indiferenciação, pois todas as referenciais são estabelecidas.
 - Sem que haja as referencias estabelecidas, não é possível um estado alheio ao referenciado. 
 
+- Se a realidade é a unica possibiliade, então nega-la é impossível. Pois ao nega-la não se obtem a irrealidade, e nem uma indiferenciação, pois não há sobre o 
+  que diferencia-la.
+
+- Porém, ao se afirmar a irrealidade como existente, ou seja, dotada de força ontológica, se obtem dois polos (realidade e irrealidade) para se formular um 
+  estado de imparcialidade.
+
 - Ex: Para estar alheio a luz e a escuridão, é preciso que a escuridão exista. E se é impossível existir escuridão, então se afirma o impossível.
 
 ## Referencialidade Obrigatória
