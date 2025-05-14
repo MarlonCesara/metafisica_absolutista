@@ -352,7 +352,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ## Sintetizando o Relativo
 
-
 - O relativo é a negação da impossibilidade e da possibilidade.
 - A negação do possível, e do impossível, pois negar o nada é impossível.
 
@@ -371,6 +370,23 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Ao não considerar o impossível existente, não se pode atingir o estado de completa indiferenciação, pois o que não existe, não pode existir para que seja 
   indiferenciado. 
 - Desta forma, abordando só o que é realidade, há sempre uma afirmação. E uma unicidade afirmadora ativa. Ao invés de um deixar-ser.
+
+- Ao se afirmar o impossível é possível nega-lo, obtendo um estado que não é o impossível (negação do nada) e nem o possível (afirmação do nada).
+- Só se pode negar uma afirmação, ao se negar uma negação se tem a afirmação novamente. Ou seja, ao se negar a ausencia, se tem a presença da ausencia novamente.
+- Portanto, se o impossível é uma negação, se pode nega-lo afirmado.
+- Ao se negar a realidade dissolvida no impossível, se nega a afirmação do nada e a afirmação do impossível.
+
+- Ao se negar uma negação, se tem uma afirmação.
+- Ao se afirmar uma negaçao, temos a negação novamente.
+
+- A solução é afirmar a negação da negação, como negação verdadeira. E negar a negação da negação como negação verdadeira.
+- Se a negação da negação como negação verdadeira é impossível. Não se tem afirmada a negação da negação como negação verdadeira.
+- Se tem afirmado o impossível.
+- Desta forma é possível negar a realidade.
+
+- É impossível ausentar a ausencia. É possível somente dissolve-la num cenário suspensório de possibilidades.
+- Sendo o possível o unico cenário, a dissolução, ou seja, indiferenciação é impossível.
+- Ao afirmarmos o impossível como existente, temos uma possibilidade de indiferenciação, pois há dois cenários possíveis.
 
 ---
 
