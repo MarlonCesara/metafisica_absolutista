@@ -335,9 +335,16 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   estado de imparcialidade.
 
 - Ex: Para estar alheio a luz e a escuridão, é preciso que a escuridão exista. E se é impossível existir escuridão, então se afirma o impossível.
-- Ex: Há somente a opção de ascender a luz e ela está acesa, então alguem ascendeu. Se há a opção da luz estar acesa e apagada, e esta apagada, alguem apagou. 
-  Porém, se não está acesa e nem apagada. Temos a certeza que não a agente e não há ato. Tudo existe e apenas é. Sem afirmação ou confirmação e sem um 
+- Ex: Há somente a opção de ascender a luz e ela está acesa, então alguem ascendeu. Se há a opção da luz estar acesa e apagada, e está apagada, alguém apagou. 
+  Porém, se não está acesa e nem apagada. Temos a certeza que não há agente e não há ato. Tudo existe e apenas é. Sem afirmação ou confirmação e sem um 
   negador ou confirmador.
+
+- O possível e o impossível não são a mesma coisa, pois o impossível é a negação da ausência tida como possível. Desta forma não se pode dissolver o irreal no 
+  real.
+- O impossível não é a negação da ausência. Pois a ausência está afirmada, juntamente ao impossível. 
+- Se forem a mesma realidade (irrealidade e realidade) não formam a indiferenciação.
+- A afirmação do impossível é a existência da negação da ausência.
+- A afirmação do impossível, é afirmar a potencia alem da possibilidade.
 
 ## Referencialidade Obrigatória
 
