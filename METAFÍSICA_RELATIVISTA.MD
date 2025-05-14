@@ -335,6 +335,9 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   estado de imparcialidade.
 
 - Ex: Para estar alheio a luz e a escuridão, é preciso que a escuridão exista. E se é impossível existir escuridão, então se afirma o impossível.
+- Ex: Há somente a opção de ascender a luz e ela está acesa, então alguem ascendeu. Se há a opção da luz estar acesa e apagada, e esta apagada, alguem apagou. 
+  Porém, se não está acesa e nem apagada. Temos a certeza que não a agente e não há ato. Tudo existe e apenas é. Sem afirmação ou confirmação e sem um 
+  negador ou confirmador.
 
 ## Referencialidade Obrigatória
 
