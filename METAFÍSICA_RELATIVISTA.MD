@@ -466,6 +466,16 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - A realidade não se ausentou, mas o que se ausentou foi sua determinação.
 - Já não seria considerada um infinto, ou seja, definida, agora é realmente indiferente ao próprio infinito, ou ao nada. Mas ainda realidade.
 
+- Ao causar o infinito, o causa em um ou mais infinitos. Mas não causa infinitos, causa individualizações de si que tem disponível a manifestação do infinito.
+- O termo infinito se forma quando indiferenciado manifesta a si na infinitude.
+- A infinitude já concebe todos os infinitos.
+
+- Ao manifestar a natureza, manifesta como determinador ausente. Pois é o agente indiferenciado. Somente é.
+- O corpo, portanto, não tem a visão da dualidade, mas uma não eu. Pois um determinador ausente vê através dele.
+- Se a dualidade manifesta, a dualidade atribui sentido a visão? Sem que esta seja espiritualizada em si mesma?
+
+- Ao ser o eu do corpo
+
 
 
 
