@@ -483,6 +483,19 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Mover um objeto distante significa pensar com o objeto distante.
 
 
+- O relativo subentende qualquer coisa possível. Pois é a consumação do possível no impossível.
+- A consumação do possível de fato aconteceu, e o relativo é seu desfecho.
+- O relativo não é temporal e nem atemporal, porém, subentende o possível em si. Ou seja em si há alongado o possivel, e o possível abrange infinitos.
+
+- Para romper o infinito não é possível ultrapassar suas bordas da atemporalidade ou não espacialidade, pois essas bordas não existe. Somente existe o limite do 
+  possível. Ao rompermos a identidade das coisas, construimos o relativo. Ao romper a identidade de A fazendo com que A e B co-existam, não temos A e B, mas 
+  temos nem A e nem B, mas o relativo.
+
+- Para que haja impossível é preciso que exista o possível.
+- Ao retirar o impossível sobre o possível se tem o possível manifestado.
+- Logo, há o ser-ai, ou seja, não o ser em si que é o infinito. Mas o ser-no infinito. 
+
+
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
 
