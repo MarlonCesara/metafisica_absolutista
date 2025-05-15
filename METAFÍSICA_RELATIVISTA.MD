@@ -458,6 +458,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O relativo é o nada. Portanto, a extensão do real no irreal é possível, pois o nada verdadeiro é possível.
 
 - O relativo, portanto, é o irreal completamente manifestado, de forma lógica e verdadeira.
+- Ao se diluir o irreal, portanto, se tem a realidade. 
+- O relativo é a realidade em sua integralidade. Impossível e possível não manifestos por produzirem um estado de indiferenciação.
+- Estamos na diluiçao do 
+
+
 
 
 # **A Auto-Causalidade**  
