@@ -498,6 +498,12 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 - A manifestação do relativo em seu infinito, portanto, é o Ser que não 
 
+- A manifestação do infinito é a redução do relativo do potencial do relativo, e isso fragmenta o relativo no possível, ou seja, em infinitos.
+
+- Ex: o relativo é um lugar onde o lado de cima é o lado de baixo, as coisas existem e não existem ao mesmo tempo. É o indiferenciado, a ausência até mesmo da 
+  definição. A ausencia até mesmo do nada. Um estado que todas as coisas coexistiram até o momento de se anularem. Porém, se existe, eleva a si a sua plenitude. 
+  Se fazendo naturalmente possível. Definindo-se como possível.
+
 
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
