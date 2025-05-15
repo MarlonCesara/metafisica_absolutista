@@ -474,9 +474,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O corpo, portanto, não tem a visão da dualidade, mas uma não eu. Pois um determinador ausente vê através dele.
 - Se a dualidade manifesta, a dualidade atribui sentido a visão? Sem que esta seja espiritualizada em si mesma?
 
-- Ao ser o eu do corpo
 
-
+- Conhecemos o eu próprio. E o infinito proprio.
+- Não conhecemos o infinito de Deus.
+- Somos projetados em uma pequena parte do infinito de Deus.
+- A grande parte não é absorvida pela projeção.
+- É necessario nos projetarmos em uma extensão maior.
+- Mover um objeto distante significa pensar com o objeto distante.
 
 
 # **A Auto-Causalidade**  
