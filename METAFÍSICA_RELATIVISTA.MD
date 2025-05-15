@@ -510,6 +510,26 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   autentico.
 
 
+- Não há um transcender para além das bordas do relativo , mas em sua construção lógica há um limite extensível, quando se chega ao ilógico, o a realidade se 
+  impossibiliza no nada. Desta forma o relativo é o limite interno da realidade. Não é algo que transcende a realidade, mas é a realidade colapsada.
+
+- O relativo é pleno, portanto, não cria a temporalidade, é um ato não estatico e não eventual, ao passo que contem tota a estaticidade e eventualdade interna a 
+  si. Corrompida.
+
+- O tempo para descorrompe-la já foi manifestado. Não há diminuição do potencial da realidade. Mas, há o possível manifestado e o possível não manifesto. Desta forma tanto o possível quanto o possível tem eficacia ontológica. 
+
+- O nada já é a manifestação já realiza seu potencial com o efeito consumado da ação da irrealidade. 
+
+- A irrealidade se manifestou, o relativo se sucedeu. E o relativo se estabiliza novamente na realidade em um ciculo infinito.
+
+- A realidade e a possibilidade já é a ação da irrealidade dada. O que é relativizado torna-se o relativizado novamente, porém, com o seu potencial expresso.
+- Dessa forma, temos uma relidade, portanto, como expressão do relativo.
+
+- O relativo, por não ser nenhuma possibildiade se ausenta e só resta a possibilidade.
+
+- Portanto, o relativo se torna indetectavel mediante a realidade.
+
+Ex: O circulo quadrado se forma e desaparece. Ao desaparecer, se faz circulo. Pois o seu desaparecimento realmente foi eficaz, teve efeito na realidade. Ao contrário da negação do nada, que não resulta efeito na realidade, pois o nada permanece.
 
 
 
