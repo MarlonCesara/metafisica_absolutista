@@ -462,6 +462,10 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O relativo é a realidade em sua integralidade. Impossível e possível não manifestos por produzirem um estado de indiferenciação.
 - Estamos na diluiçao do 
 
+- O relatívo é uma afirmação, logo, a realidade persiste afirmada, porém, indiferenciada.
+- A realidade não se ausentou, mas o que se ausentou foi sua determinação.
+- Já não seria considerada um infinto, ou seja, definida, agora é realmente indiferente ao próprio infinito, ou ao nada. Mas ainda realidade.
+
 
 
 
