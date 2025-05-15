@@ -483,7 +483,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Mover um objeto distante significa pensar com o objeto distante.
 
 
-
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
 
