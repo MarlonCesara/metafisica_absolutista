@@ -425,6 +425,21 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 - Portanto, ao agregar um novo potencial a realidade, temos a possibilidade de sua negação por indiferenciação. Não por acrescenta uma realidade dualizada, mas por agregar um novo sentido a realidade, que a permita contrariar-se em si mesma. Essa contrariedade inerente a realidade permite a indiferenciação.
 
+- Logo, quando dizemos que um ciruclo pode ser quadrado, dizemos que a realidade pode Ser A e Não-A, ao mesmo tempo. O relativo é a indefinição que se dá como 
+  resultado desta homogeneidade entre o real e o irreal. Pois a realidade não é A e nem Não-A, simplesmente é indiferente. Não é nem mesmo o nada.
+
+- Em sintese, o relativo existe quando permitimos o rompimento da lógica classica.
+- O nada só pode ser Nada e não nada, que é o Nada novamente. E sua razão de ser só Pode ser como Nada A, e não Nada B ao mesmo tempo.
+- Porém ao afirmarmos a irrealidade, a negação do nada é eficaz e o nada realmente se ausenta dando vazão ao indiferenciado. Ou seja, já não se é um ou mais 
+  nadas. E a identidade do nada também se dilui. Na realidade irrealista o algo pode ser não algo ao mesmo tempo, e o nada A pode Ser o Nada B ao mesmo tempo.
+
+- O indiferenciado aparece quando a irrealidade é manifestada concomitantemente com a realidade. Ou seja, quando o potencial máximo é usado. Resultando em uma 
+  integralidade onde a realidade está em seu máximo, como no infinito onde o tempo é todo manifestado é se dá o nada como seu máximo. 
+
+- Realidade irreal é igual ao indiferenciado. Pois o relativo é o potencial máximo da realidade manifesto, ao ponto de se anular. É o impossível manifestado na 
+  realidade e já se indiferenciado.
+
+
 
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
