@@ -423,6 +423,8 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   com a determinação.
 - Afirmar a irrealidade não significa manifesta-la.
 
+- Portanto, ao agregar um novo potencial a realidade, temos a possibilidade de sua negação por indiferenciação. Não por acrescenta uma realidade dualizada, mas por agregar um novo sentido a realidade, que a permita contrariar-se em si mesma. Essa contrariedade inerente a realidade permite a indiferenciação.
+
 
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
