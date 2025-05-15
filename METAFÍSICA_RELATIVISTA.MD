@@ -411,7 +411,17 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Sendo o possível o único cenário, a dissolução, ou seja, indiferenciação é impossível.
 - Ao afirmarmos o impossível como existente, temos uma possibilidade de indiferenciação, pois há dois cenários possíveis.
 
----
+- A negação do infinito ou infinitos é o relativo.
+- O relativo não é o infinito, mas o infinito ou infinitos em sua integralidade. 
+- O relativo não é o infinito.
+- O relativo é a negação da realidade.
+- A existencia da irrealidade provoca um estado de suspensão.
+- A manifestação da realidade e da irrealidade ao mesmo tempo é impossível.
+- Se realidade é igual ao nada e segue as leis do possível. A afirmação da irrealidade é a afirmação da relidade distorcida.
+- Pois irrealidade, torna-se a nova realidade, porém distorcida em lógica.
+- Se a realidade em que o circulo redondo concebe a irrealidade, temos que não necessariamente há circulo redondo, mas é possível o circulo quadrado, de acordo 
+  com a determinação.
+- Afirmar a irrealidade não significa manifesta-la.
 
 
 # **A Auto-Causalidade**  
