@@ -494,6 +494,9 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Para que haja impossível é preciso que exista o possível.
 - Ao retirar o impossível sobre o possível se tem o possível manifestado.
 - Logo, há o ser-ai, ou seja, não o ser em si que é o infinito. Mas o ser-no infinito. 
+- O ser é no potencial do relativo, e não no relativo.
+
+- A manifestação do relativo em seu infinito, portanto, é o Ser que não 
 
 
 # **A Auto-Causalidade**  
