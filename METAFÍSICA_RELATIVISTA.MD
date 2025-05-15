@@ -453,6 +453,10 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - O nada não se nega quando considera-se o impossível, mas se indiferencia em si mesmo. Ou seja, a relidade não é negada, mas é paralela a si mesma quando 
   distorcida pelo impossível.
 
+- Ao se fazer um ciruclo quadrado, não temos mais o circulo, e nem o circulo quadrado. Ou seja, não temos mais o real e nem o irreal, de forma que o real em sua super potencia é o relativo. Ou seja, o irreal extendido ao irreal, não resulta diretamente no irreal, mas no relativo.
+
+- O relativo é o nada. Portanto, a extensão do real no irreal é possível, pois o nada verdadeiro é possível.
+
 
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
