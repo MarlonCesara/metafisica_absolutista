@@ -504,6 +504,25 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   definição. A ausencia até mesmo do nada. Um estado que todas as coisas coexistiram até o momento de se anularem. Porém, se existe, eleva a si a sua plenitude. 
   Se fazendo naturalmente possível. Definindo-se como possível.
 
+- Se a visão da dualidade seria a visão da nova alma, então a visão do Ser ai, é a visão do corpo sem alma vivida?
+- Logo, o individuo veria o lógico e o ilógico ao mesmo tempo. Existiria e não existiria ao mesmo tempo.
+- Logo seria o Ser ai, o ser principal é a dualidade que não existiria para a alma projetada, o ser seria a dualidade e o ai alma projetada carecendo do seu eu 
+  autentico.
+
+
+
+
+
+
+
+
+-
+-
+-
+-
+-
+-
+
 
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
