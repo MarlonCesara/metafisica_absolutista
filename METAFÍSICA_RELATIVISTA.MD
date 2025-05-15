@@ -439,6 +439,16 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 - Realidade irreal é igual ao indiferenciado. Pois o relativo é o potencial máximo da realidade manifesto, ao ponto de se anular. É o impossível manifestado na 
   realidade e já se indiferenciado.
 
+- Resumindo, o infinito ainda possui o limite interno, que é o possível. 
+- Ao transgredir o possível, temos que o infinito pode existir e não existir ao mesmo tempo. Ser A e B ao mesmo tempo.
+- Ou seja, quando afirmamos a irrealidade para a própria realidade, temos um estado de suspensão da realidade, que torna-se irreferenciavel ao contrariar suas 
+  próprias leis fundamentais. 
+ 
+- O indiferenciado é quando suponhamos um oposto impossível para a realidade, e a manifestação é coisa alguma. Se a realidade é um circulo quadrado, não é nada. 
+  Ainda que ao dilui-la, poderiamos ter o circulo ou o quadrado. O impossível, portanto, manifestado na realidade, é sua diluição rumo ao relativo.
+
+- O indiferenciado não é o possível e nem o impossível, na condição de ser existir o impossível imanente ao relativo. 
+- Quando não se considera o impossível uma realidade, não se produz o diferenciado.
 
 
 # **A Auto-Causalidade**  
