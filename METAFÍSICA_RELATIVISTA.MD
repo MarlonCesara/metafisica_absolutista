@@ -24,16 +24,27 @@
 
 ## Definições Fundamentais 
 
-### 1. Realidade
-- **Definição:** Subconjunto do Relativo que compreende todas as possibilidades lógicas e verdadeiras. 
-- **Sinônimos:**  Possibilidade. Existência lógica e possível.
+### Possibilidade
+**Definição:** Existência lógica. 
+- **Sinônimos:** Real.
 
-### 2. Irrealidade
-- **Definição:** Subconjunto do Relativo que compreende todas as impossibilidades ilógicas e verdadeiras. 
-- **Sinônimos:**  Impossibilidade. Existência ilógica e impossível.
+### Impossibildiade
+**Definição:** Existência ilógica. 
+- **Sinônimos:**  Irreal.
 
-### 3. Relativo
-**Definição:** Conjunto de todas as possibilidades existentes e absolutas (lógicas e possíveis,  ilógicas e impossíveis) em estado de indiferenciação.
+### Absoluto
+**Definição:** Conjunto de todas as possibilidades e impossibilidades.
+
+**Propriedade Essencial:** Causa integral de si mesmo.
+- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria absoluto.
+- Sua existência, permanência e identidade são auto causadas.
+- O absoluto é auto fundamentado, autodeterminado e auto continuado.
+
+### Realidade
+- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades. 
+
+### Irrealidade
+- **Definição:** Subconjunto do Absoluto que compreende todas as impossibilidades. 
 
 **Propriedade Essencial:** Causa integral de si mesmo.
 - Se o Relativo dependesse de algo externo, anterior ou paralelo a ele próprio não seria Relativo.
