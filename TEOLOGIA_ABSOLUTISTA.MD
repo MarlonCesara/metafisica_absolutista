@@ -329,9 +329,48 @@ E, no entanto,
 a saudade é a única prova  
 de que um dia existi.  
 
-# Comportamento do corpo humano
 
-1. **Conclusão**
-   - O corpo humano na qual é projetada uma alma apática tem dois medos, o de ser possuído e ter seus instintos privados, ou seja, morrer em uma vida instintiva 
-     de seu em si. E o de morrer fisícamente e ser aniquilado. Sua identidade é construida sob memória, então a ruptura de seu corpo físico, se encerra numa 
-     passagem pela morte, ainda que seja uma morte temporaria, o corpo teme experimentar a compelta aniquilação.
+# **Almas do Purgatório**  
+
+### **Características Principais**  
+- **Brilho espiritual extremamente baixo**: O indivíduo não tem uma definição clara de si mesmo, mas possui uma noção vaga de sua eternidade. Ele percebe sua extensão existencial, mas não consegue se definir além da matéria.  
+- **Identidade material**: A alma se enxerga principalmente através do corpo físico, sem conseguir afirmar plenamente sua natureza espiritual. Não se trata de um aprisionamento, mas de uma fraqueza na percepção do Eu verdadeiro.  
+- **Estado de mínima esperança**: Vive em um estado de descontentamento e falta de alegria, mas sem a desesperança total da alma apática. Há uma paz relativa, porém pouca expectativa de transcendência.  
+- **Consciência da eternidade, mas apego ao material**: O indivíduo sabe, em algum nível, que transcende a morte, mas ainda se define pelo mundo físico.  
+
+### **Diferença em relação às almas apáticas**  
+- Não vive em estado de histeria ou cegueira existencial, como a alma apática.  
+- Mantém uma certa serenidade, ainda que desprovida de grande esperança.  
+
+---  
+
+# **Almas Apáticas**  
+
+### **Características Gerais**  
+A alma apática é incapaz de encontrar estabilidade na indiferença. Para evitar o confronto com a realidade da finitude, ela cria mecanismos de fuga e negação.  
+
+### **Sinais e Comportamentos**  
+
+1. **Estado emocional perturbado**  
+   - Histeria constante, inquietação, falta de docilidade.  
+   - Descontentamento crônico, angústia, ansiedade e rigidez consigo mesmo e com os outros.  
+
+2. **Mecanismos de Fuga**  
+   - **Fuga da alegria**: O indivíduo minimiza situações felizes, incapaz de sustentar grandes emoções diante da consciência da morte. Mantém a vida em um estado "agridoce" — nem muito feliz, nem muito triste. Destituir a vida de alegria ajuda o individuo a encarar sua impressão de aniquilação, pois seu eu é totalmente sustentado pela sua concepção biológica de si mesmo.
+   - **Violência como expressão**: Usa a agressividade (física, emocional ou simbólica) para fazer os outros sentirem sua dor.  
+     - *Assassinato* como forma de transmitir seu desespero.  
+     - *Tortura* como reflexo do horror interno.  
+     - *Exploração* (como trabalho escravo) para expressar seu sentimento de confinamento existencial.  
+   - **Busca frenética por preenchimento externo**:  
+     - Obsessão por fama, riqueza ou poder, negligenciando relações genuínas.  
+     - Tentativa de projetar no mundo exterior a falta que sente internamente.  
+   - **Uso de drogas**: Busca estados alterados de consciência para escapar da realidade.  
+
+3. **Medo da Morte**  
+   - **Temor da posse espiritual**: Medo de perder seus instintos e desejos, como se morresse em vida.  
+   - **Pavor da aniquilação**: Apego à identidade construída sobre memórias, temendo que a morte física signifique o fim absoluto.  
+
+### **Conclusão**  
+Enquanto as **almas do purgatório** vivem em um estado de esperança mínima, ainda que descontentes, as **almas apáticas** estão em constante fuga, usando mecanismos destrutivos para evitar encarar sua condição finita. Ambas representam estágios distintos de sofrimento espiritual, mas a apatia é marcada por uma desesperança mais profunda e ações autodestrutivas.
+
+
