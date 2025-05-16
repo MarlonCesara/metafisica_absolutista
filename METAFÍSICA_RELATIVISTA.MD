@@ -1,4 +1,4 @@
-# Metafísica Relativista
+# Metafísica Absolutista
 
 
 ## Princípios Causais Metafísicos
@@ -26,11 +26,11 @@
 
 ### Possibilidade
 **Definição:** Existência lógica. 
-- **Sinônimos:** Real.
+- **Sinônimo:** Real.
 
 ### Impossibildiade
 **Definição:** Existência ilógica. 
-- **Sinônimos:**  Irreal.
+- **Sinônimo:**  Irreal.
 
 ### Absoluto
 **Definição:** Conjunto de todas as possibilidades e impossibilidades.
