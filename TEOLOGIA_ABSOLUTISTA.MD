@@ -16,7 +16,7 @@ Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O poss
 
 O impossível não está mais no campo da metafísica, mas transcende de uma forma incompreensível. A imensidão do amor de Deus não está ao alcance da ser compreensível pela lógica.
 
-Cristo não vem somente para amar, mas para elevar o relativo a um nível superior. Realizar o que chamaremos de milagre: não suprimir o impossível em si mesmo, mas torná-lo uma possibilidade manifesta por meio do amor. O amor de Deus, portanto, estabelece a transcendência do próprio relativo — uma realidade transgredida pela intensidade desse amor. Não corrompida, mas superada.
+Cristo não vem somente para amar e salvar, mas para elevar o relativo a um nível superior. Realizar o que chamaremos de milagre: não suprimir o impossível em si mesmo, mas torná-lo uma possibilidade manifesta por meio do amor. O amor de Deus, portanto, estabelece a transcendência do próprio relativo — uma realidade transgredida pela intensidade desse amor. Não corrompida, mas superada.
 
 Tomemos como exemplo o apático: sua liberdade, se transgredida, é aniquilada. Logo, o impossível que se manifesta consiste em fazê-lo despertar para a vida sem violar sua essência. E isso seria o impossível tornado real — um acontecimento que dispensa explicações.
 
