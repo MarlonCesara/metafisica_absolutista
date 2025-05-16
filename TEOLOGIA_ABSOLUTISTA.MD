@@ -20,6 +20,8 @@ Cristo não vem somente para amar e salvar, mas para elevar o relativo a um nív
 
 Tomemos como exemplo o apático: sua liberdade, se transgredida, é aniquilada. Logo, o impossível que se manifesta consiste em fazê-lo despertar para a vida sem violar sua essência. E isso seria o impossível tornado real — um acontecimento que dispensa explicações.
 
+Ao realizar modificações sobre o design pré estabelecido deste universo, reforça mais uma vez que o amor pode realizar maravilhas. E que a fé pode mover montanhas, no sentido de que o impossível pode se realizar.
+
 ## **Adão e Eva**: A face preocupada do eterno
 
 Adão e Eva é a representação de todos nós, uma possibilidade de ação arriscada no campo da eternidade. Adão e Eva sairam do status quo em que nos encerramos neste momento com o intuito de se fundirem, revelarem a essencia mutuamente na tentativa de encontrar a plenitude de âmbos em uma união de almas. Porém, foram motivados pelo orgulho, por quereem ser como deuses. Portanto, em resposta, Deus os deu uma tratativa, mostrou a consequencia de uma união de almas sem um sentido em si, mas com o sentido no orgulho, e a consequencia é a morte. Ou seja, a única escapatória para tal ato é a auto-aniquilação. Portanto, a bíblia retrata a vivência humana como um aprendizado referente às consequências do ato representativo de Adão e Eva. Ou seja, experimentariamos no agora uma representação não destrutiva do que realmente experimentariamos agindo como Adão e Eva. 
