@@ -30,7 +30,7 @@
 
 ### Impossibildiade
 **Definição:** Existência ilógica. 
-- **Sinônimo:**  Irreal.
+- **Sinônimo:** Irreal.
 
 ### Absoluto
 **Definição:** Conjunto de todas as possibilidades e impossibilidades.
@@ -83,6 +83,7 @@
 
 ## Estruturação do Relativo
 
+
 ### Dissolução entre realidade e irrealidade 
 - Dois tipos de existencia: realidade e irrealidade, se configuram em existencia. Desta forma, devem ser indiscerníveis.
   - Isso significa que a irrealidade não é uma existencia segregada ou paralela à realidade, que também existe.
@@ -90,8 +91,15 @@
   - E o real tem seus efeitos na irrealidade, de forma a realizar o impossível. 
   - O impossível, portanto, não é uma nova realidade, mas é a dissolução da realidade como uniforme ao impossível.
 
-### O Relativo como realidade Autodeterminada
-- O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade.
+### A força ontológica da irrealidade
+- Ao considerarmos a hipotese de que a irrealidade existe, temos a negação eficaz da irrealidade. 
+- Sendo uma negação eficaz, a irrealidade se anula em si mesma, nos deixando somente com o que é real.
+- Conclui-se que, o coexistencia do que é real e irreal no absoluto resulta no que é real.
+- Desta forma, a existencia do real é lógica, e a inexistencia do irreal é lógica, porém, sem dispensar força ontológica.
+
+
+### O Absoluto como relativo Autodeterminada
+- O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade .
   - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
 ## Estrutura da Autodeterminação
@@ -542,17 +550,24 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 Ex: O circulo quadrado se forma e desaparece. Ao desaparecer, se faz circulo. Pois o seu desaparecimento realmente foi eficaz, teve efeito na realidade. Ao contrário da negação do nada, que não resulta efeito na realidade, pois o nada permanece.
 
+- Se só a realidade permanece, então
 
 
 
 
+-
+-
+-
+-
+-
+-
 
--
--
--
--
--
--
+### Dissolução entre realidade e irrealidade 
+- Dois tipos de existencia: realidade e irrealidade, se configuram em existencia. Desta forma, devem ser indiscerníveis.
+  - Isso significa que a irrealidade não é uma existencia segregada ou paralela à realidade, que também existe.
+  - A irrealiade existe de forma a ter efeitos no que é real.
+  - E o real tem seus efeitos na irrealidade, de forma a realizar o impossível. 
+  - O impossível, portanto, não é uma nova realidade, mas é a dissolução da realidade como uniforme ao impossível.
 
 
 # **A Auto-Causalidade**  
