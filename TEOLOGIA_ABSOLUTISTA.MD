@@ -16,6 +16,8 @@ Fez o que Sua plenitude exigia por natureza: o possível e o impossível. O poss
 
 O impossível não está mais no campo da metafísica, mas transcende de uma forma incompreensível. A imensidão do amor de Deus não está ao alcance da ser compreensível pela lógica.
 
+Cristo não vêm somente para amar, mas para elevar o relativo a um nível superir. Fazer o milagre, o impossível não ser anulado em si mesmo, mas se fazer possibildide manifestada através do amor. O amor de Deus, portanto, estabelece a ultra-realidade. Uma realidade transgredida pela intensidade do amor. 
+
 ## **Adão e Eva**: A face preocupada do eterno
 
 Adão e Eva é a representação de todos nós, uma possibilidade de ação arriscada no campo da eternidade. Adão e Eva sairam do status quo em que nos encerramos neste momento com o intuito de se fundirem, revelarem a essencia mutuamente na tentativa de encontrar a plenitude de âmbos em uma união de almas. Porém, foram motivados pelo orgulho, por quereem ser como deuses. Portanto, em resposta, Deus os deu uma tratativa, mostrou a consequencia de uma união de almas sem um sentido em si, mas com o sentido no orgulho, e a consequencia é a morte. Ou seja, a única escapatória para tal ato é a auto-aniquilação. Portanto, a bíblia retrata a vivência humana como um aprendizado referente às consequências do ato representativo de Adão e Eva. Ou seja, experimentariamos no agora uma representação não destrutiva do que realmente experimentariamos agindo como Adão e Eva. 
