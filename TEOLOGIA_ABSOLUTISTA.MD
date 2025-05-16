@@ -167,7 +167,7 @@ Chamaremos de **apáticos** aqueles que existem sem *autoconsciência, autodomí
 Enquanto o **mal consciente** pode ser combatido (pois é um ato circunstancial), a **mania apática** é um *erro metafísico* — uma crença desesperada de que o *eu* está em algo externo.  
 
 - **Contágio Estrutural:** Mesmo indivíduos inteligentes, se apáticos, **corrompem a sociedade**, pois sua ação é *despropositada* e *insaciável*.  
-- **A Ineficácia da Coexistência:** Uma sociedade que tolera apáticos está fadada ao caos, pois **sua patologia é sistêmica** — não um crime, mas um *modo de existência*.  
+- **A Ineficácia da Coexistência:** Uma sociedade que integra apáticos em suas atividadades administrativas está fadada ao caos, pois **sua patologia é sistêmica** — não um crime, mas um *modo de existência e expressão*.  
 
 ### **3. A Solução: Segregação Ontológica**  
 A resposta política radical — porém necessária — é a **separação absoluta entre apáticos e não apáticos**, tal como a Bíblia propõe ao distinguir *os que pecam contra o Espírito* (apáticos) dos demais.  
