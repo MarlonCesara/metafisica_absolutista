@@ -122,8 +122,6 @@ A irrealidade, ao **atuar sobre o real**, revela-se como um **princípio dinâmi
 ### **Conclusão do Exemplo**  
 O **círculo quadrado** não é apenas uma "não-coisa" – sua **impossibilidade atua sobre o real**, definindo-o por contraste. A irrealidade, portanto, **existe como força negativa**, consumando-se **na própria afirmação do real**.  
 
-
-
 ### O Absoluto como realidade Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como realidade .
   - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
@@ -132,54 +130,54 @@ O **círculo quadrado** não é apenas uma "não-coisa" – sua **impossibilidad
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
-- **Características da verticalidade para Relativo:**
-  - Incorruptibilidade: O Ser (Relativo) é necessariamente direcionado à sua própria existência e plenitude.
+- **Características da verticalidade para Absoluto:**
+  - Incorruptibilidade: O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
   - Fundamentação: O Espírito age como princípio de sustentação ontológica (auto fundamentação).
 
 ### Autodeterminação diagonal (Espírito Incorruptível)
 - **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
-- **Características diagonais para Relativo:**
-  - Despersonalização do Ser: O ser se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+- **Características diagonais para Absoluto:**
+  - Despersonalização: O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
   - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente a plenitude do ente já fundamentado.
   - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que, seus dons e tendências são relativos à plenitude.
 
 ### Autodeterminação Horizontal (Alma)
 - **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.
-- **Características horizontais para Relativo:**
-  - Personalidade do Ser: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.
-  - Liberdade Direcionada: A decisão do Ser é tomada segundo uma persona (alma) independente se esta persona seria a que se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.
-  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Ser.
+- **Características horizontais para Absoluto:**
+  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.
+  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (alma) independente se esta persona seria a que se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.
+  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
 
 ## Tríplice Ação do Espírito
 
 O Espírito (autodeterminação do Relativo) atua em três dimensões:
 
 1. **Existência (Espírito Fundamentador)**
-   - *Ação:* Manter-se como Ser.
-   - *Princípio:* "Eu Sou" (pura afirmação ontológica).
+   - *Ação:* Manter-se como Absoluto.
+   - *Princípio:* "Eu Existo" (pura afirmação ontológica).
 
 2. **Perfeição (Espírito Incorruptível)**
-   - *Ação:* Escolher o que corrobora com a plenitude do Ser. Porém, entre caminhos equivalentes rumo a plenitude, não sei o que fazer.
-   - *Princípio:* "Escolho o que me realiza como Relativo."
+   - *Ação:* Escolher o que corrobora com a plenitude do Absoluto. Porém, entre caminhos equivalentes rumo a plenitude, não sei o que fazer.
+   - *Princípio:* "Escolho o que me realiza como Absoluto."
 
 3. **Personalização (Alma Determinante)**
    - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.
    - *Princípio:* "Entre caminhos equivalentes rumo a plenitude, sigo o que expressa minha identidade ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."
 
-Estas são as três dinâmicas de ação possíveis para a autodeterminação do Relativo. Sendo que, as três podem ter eficácia na realidade de forma a fundamenta-la, plenifica-la e construí-la.
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que, as três podem ter eficácia na realidade de forma a fundamenta-la, plenifica-la e construí-la.
 
 ## Conclusão
 
-- O Relativo é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
-- A Realidade é a manifestação verdadeira do Relativo.
-- A Auto Causalidade é o mecanismo pelo qual o Relativo se sustenta, se aperfeiçoa e se personaliza.
+- O Absoluto é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
+- A Realidade é a manifestação verdadeira do Absoluto.
+- A Auto Causalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
 - Espírito e Alma são as duas dimensões da autodeterminação:
   - O Espírito garante a existência e a perfeição.
   - A Alma introduz a liberdade e a personalidade na estrutura do Real.
 
-# A Estrutura da Realidade e do Ser
+# A Estrutura da Realidade e do Absoluto
 
-## **O Relativo como Único Fundamento**  
+## **O Absoluto como Único Fundamento**  
 
 *"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
 
@@ -201,7 +199,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
     existência e atividade.
 
 ### O Ser como Auto determinador
-- O Relativo autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
+- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
   - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:
     1. Existe (auto fundamentação).
     2. Se define (autodeterminação).
@@ -216,10 +214,10 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ### O Relativo como Ser Autônomo
 - "O Relativo é o Ser, e o Ser é a Realidade autodeterminada."
-  - Não há dualidade entre Relativo e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
+  - Não há dualidade entre Absoluto e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
     idealizadora.
 
-**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Relativo."**
+**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**
 
 ## A Pureza do Ser e a Necessidade do Determinado
 
