@@ -102,7 +102,29 @@
 ### **Conclusão**  
 A irrealidade, ao **atuar sobre o real**, revela-se como um **princípio dinâmico de dissolução**, onde o impossível não é uma **alternativa à realidade**, mas sua **transformação radical**. A ontologia resultante **preserva o real como fundamento**, mas reconhece a **irrealidade como operadora de sua própria supressão**.  
 
-### O Absoluto como realiadde Autodeterminada
+### **Exemplo Ilustrativo: A Ontologia do Círculo Quadrado**  
+
+1. **Realidade (Círculo Redondo):**  
+   - Ao construirmos um **círculo redondo**, materializamos uma forma geometricamente possível, ou seja, uma **existência real**.  
+   - Sua realização é **verificável**, **consistente** e **obediente às leis da geometria**.  
+
+2. **Irrealidade (Círculo Quadrado):**  
+   - Ao tentarmos **tornar o círculo quadrado**, não obtemos nenhum resultado **no plano real**.  
+   - Porém, essa **ausência de realização** não é um vazio passivo: ela **demarca ativamente os limites do possível**.  
+   - A **irrealidade do círculo quadrado** exerce **força ontológica** justamente por:  
+     - **Negar-se como realizável**, reforçando a estrutura do real.  
+     - **Revelar a impossibilidade como um efeito ativo**, não como mera inexistência.  
+
+3. **Consumação da Irrealidade no Real:**  
+   - A **falha em concretizar o círculo quadrado** não é um simples "nada", mas um **processo de dissolução** que **reafirma a realidade do círculo redondo**.  
+   - Assim, a irrealidade **não existe como entidade separada**, mas como **uma operação de exclusão que molda o real**.  
+
+### **Conclusão do Exemplo**  
+O **círculo quadrado** não é apenas uma "não-coisa" – sua **impossibilidade atua sobre o real**, definindo-o por contraste. A irrealidade, portanto, **existe como força negativa**, consumando-se **na própria afirmação do real**.  
+
+
+
+### O Absoluto como realidade Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como realidade .
   - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
