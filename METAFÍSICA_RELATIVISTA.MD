@@ -224,7 +224,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 ## Conclusão
 
 - O Absoluto é a totalidade auto-fundamentada, cuja existência não depende de nada além de si.
-- A Realidade é a manifestação verdadeira do Absoluto.
+- O relativo é a manifestação verdadeira do Absoluto.
 - A Auto Causalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
 - Espírito e Alma são as duas dimensões da autodeterminação:
   - O Espírito garante a existência e a perfeição.
