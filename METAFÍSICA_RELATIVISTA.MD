@@ -26,11 +26,9 @@
 
 ### Possibilidade
 **Definição:** Existência lógica. 
-- **Sinônimo:** Real.
 
 ### Impossibildiade
 **Definição:** Existência ilógica. 
-- **Sinônimo:** Irreal.
 
 ### Absoluto
 **Definição:** Conjunto de todas as possibilidades e impossibilidades.
