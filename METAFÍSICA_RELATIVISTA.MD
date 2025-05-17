@@ -1122,6 +1122,10 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
      - O *Ser* é o campo infinito; as *identidades* são as dobras ativas desse campo, cada uma **legislando sua própria realidade**.  
    - *Analogia*: Luz branca (Ser) decomposta em espectros distintos (realidades autônomas), cada um existindo **em si** e **no todo** simultaneamente.  
 
+4. **Consistencia do Ser no paralelismo**  
+   - **"A ausencia do determinador ativo para relativo, não anula os eventos temporais"**:  
+     - Sendo as almas manifestadas na temporalidade, isto preserva a autofundamentação do relativo. 
+
 
 # A Liberdade entre o Real e o Ilusório
 
