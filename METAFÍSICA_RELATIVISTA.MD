@@ -44,11 +44,6 @@
 ### Irrealidade
 - **Definição:** Subconjunto do Absoluto que compreende todas as impossibilidades. 
 
-**Propriedade Essencial:** Causa integral de si mesmo.
-- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria Absoluto.
-- Sua existência, permanência e identidade são auto causadas.
-- O Absoluto é auto fundamentado, autodeterminado e auto continuado.
-
 ## Propriedades Essenciais do Absoluto
 
 ### Auto fundamentação
