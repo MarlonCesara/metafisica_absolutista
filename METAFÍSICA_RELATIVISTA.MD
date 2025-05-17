@@ -773,7 +773,7 @@ O observador é inerente à manifestação, pois sua ação de delimitar cria o 
 
 ### Tese Central
 
-A realidade é o produto dinâmico de três elementos irredutíveis:
+O relativo é o produto dinâmico de três elementos irredutíveis:
 
 1. O **Nada** como fundamento
 2. O **Observador** como princípio ativo
