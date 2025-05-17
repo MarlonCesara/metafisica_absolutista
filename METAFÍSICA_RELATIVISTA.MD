@@ -177,12 +177,15 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 # A Estrutura da Realidade e do Absoluto
 
-## **O Absoluto como Único Fundamento**  
+## **O Nada como Único Fundamento**  
+
+- O nada é um estado de ausencia de qualquer coisa. 
+
 
 *"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
 
- - O termo "Ser" remete ao "quem" da existência (o sujeito ausente), enquanto "existir" refere-se ao "que" da realidade (o ato impessoal ausente). Portanto, o 
-    termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
+ - O termo "Ser" remete ao "quem" do Absoluto (o sujeito ausente que determina), enquanto "existir" refere-se ao "que" da realidade (o ato ausente da 
+   determinação). Portanto, o termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
 
  - Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
     multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um 
