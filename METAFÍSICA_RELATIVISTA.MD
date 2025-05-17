@@ -45,21 +45,21 @@
 - **Definição:** Subconjunto do Absoluto que compreende todas as impossibilidades. 
 
 **Propriedade Essencial:** Causa integral de si mesmo.
-- Se o Relativo dependesse de algo externo, anterior ou paralelo a ele próprio não seria Relativo.
+- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio não seria Absoluto.
 - Sua existência, permanência e identidade são auto causadas.
-- O Relativo é auto fundamentado, autodeterminado e auto continuado.
+- O Absoluto é auto fundamentado, autodeterminado e auto continuado.
 
-## Propriedades Essenciais do Relativo
+## Propriedades Essenciais do Absoluto
 
 ### Auto fundamentação
-- **Definição:** Refere-se à causa primeira da existência do Relativo.
+- **Definição:** Refere-se à causa primeira da existência do Absoluto.
 - **Características:**
   - Requer uma razão suficiente para sua existência, encontrando-a em sua própria natureza necessária e auto-subsistente.
   - Não depende de nada externo, anterior ou paralelo a si para existir; sua razão de ser está nele mesmo.
   - Não é contingente (não poderia não existir).
 
 ### Autodeterminação
-- **Definição:** Refere-se à capacidade do Relativo de definir sua própria natureza.
+- **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
 - **Envolve três aspectos:**
   1. **Auto existência:** Ser presente em si mesmo.
      - O ser deve estar em si mesmo para ser o agente ativo da determinação.
@@ -68,36 +68,47 @@
   3. **Autoconsciência:** Conhecimento de si mesmo.
      - O ser deve conhecer totalmente a sua estrutura para que haja ação auto causada.
 - **Implicações:**
-  - Explica como o Relativo mantém identidade (não é caótico ou aleatório).
+  - Explica como o Absoluto mantém identidade (não é caótico ou aleatório).
   - Mostra que ele não é apenas um "ser estático", mas um ser ativo que se autogoverna.
   - Fundamenta a liberdade metafísica (possibilidade de escolha no nível relativo).
 
 ### Auto continuidade
-- **Definição:** Refere-se à capacidade do Relativo de se sustentar no Ser indefinidamente em seu fundamento e determinação.
+- **Definição:** Refere-se à capacidade do Absoluto de se sustentar no Ser indefinidamente em seu fundamento e determinação.
 - **Características:**
   - Persistência ativa (não apenas existência passiva).
-  - Garante que o Relativo não se dissolva na inexistência e que a Realidade não desapareça.
+  - Garante que o Absoluto não se dissolva na inexistência e que a Realidade não desapareça.
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
 
-## Estruturação do Relativo
+## Estruturação do Absoluto
 
+### **Dissolução entre Realidade e Irrealidade**  
 
-### Dissolução entre realidade e irrealidade 
-- Dois tipos de existencia: realidade e irrealidade, se configuram em existencia. Desta forma, devem ser indiscerníveis.
-  - Isso significa que a irrealidade não é uma existencia segregada ou paralela à realidade, que também existe.
-  - A irrealiade existe de forma a ter efeitos no que é real.
-  - E o real tem seus efeitos na irrealidade, de forma a realizar o impossível. 
-  - O impossível, portanto, não é uma nova realidade, mas é a dissolução da realidade como uniforme ao impossível.
+1. **Existência Dual (Real e Irreal):**  
+   - Tanto a **realidade** quanto a **irrealidade** configuram modos de existência.  
+   - Logo, devem ser **indiscerníveis** em seu fundamento ontológico.  
 
-### A força ontológica da irrealidade
-- Ao considerarmos a hipotese de que a irrealidade existe, temos a negação eficaz da irrealidade. 
-- Sendo uma negação eficaz, a irrealidade se anula em si mesma, nos deixando somente com o que é real.
-- Conclui-se que, o coexistencia do que é real e irreal no absoluto resulta no que é real.
-- Desta forma, a existencia do real é lógica, e a inexistencia do irreal é lógica, porém, sem dispensar força ontológica.
+2. **Interpenetração entre Real e Irreal:**  
+   - A irrealidade **não é uma existência segregada** ou paralela à realidade.  
+   - Ela **exerce efeitos sobre o real**, assim como o real **modifica a irrealidade**, realizando o impossível.  
+   - O **impossível**, portanto, não constitui uma nova realidade, mas a **dissolução da distinção** entre realidade e irrealidade.  
 
+### **A Força Ontológica da Irrealidade**  
 
-### O Absoluto como relativo Autodeterminada
-- O Relativo, enquanto totalidade das possibilidades, se autodetermina como realidade .
+1. **Hipótese da Existência da Irrealidade:**  
+   - Se a irrealidade **existe**, sua própria natureza a **nega eficazmente**.  
+   - Essa **autonegação** dissolve a irrealidade, deixando apenas o **real como resíduo ontológico**.  
+
+2. **Coexistência e Resultante Ontológica:**  
+   - A **coexistência absoluta** do real e do irreal resulta, paradoxalmente, **apenas no real**.  
+   - Assim:  
+     - A **existência do real** é logicamente necessária.  
+     - A **inexistência do irreal** é logicamente derivada, **sem perder sua força ontológica prévia**.  
+
+### **Conclusão**  
+A irrealidade, ao **atuar sobre o real**, revela-se como um **princípio dinâmico de dissolução**, onde o impossível não é uma **alternativa à realidade**, mas sua **transformação radical**. A ontologia resultante **preserva o real como fundamento**, mas reconhece a **irrealidade como operadora de sua própria supressão**.  
+
+### O Absoluto como realiadde Autodeterminada
+- O Absoluto, enquanto totalidade das possibilidades, se autodetermina como realidade .
   - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
 
 ## Estrutura da Autodeterminação
