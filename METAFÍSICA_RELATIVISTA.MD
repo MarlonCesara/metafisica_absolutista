@@ -93,6 +93,10 @@
    - Se a irrealidade **existe**, sua própria natureza a **nega eficazmente**.  
    - Essa **autonegação** dissolve a irrealidade, deixando apenas o **real como resíduo ontológico**.  
 
+   - Essa **autonegação** dissolve a realidade, deixando apenas o **indiferenciado como resíduo ontológico**.  
+   - Ou seja, não temos a realidade negada ou inexistente, e nem mesmo a irrealidade negada ou inexistente, mas temos um estado de indiferenciação. Não há 
+     possibilidade, e nem possibilidade. Tudo está suspenso.
+
 2. **Coexistência e Resultante Ontológica:**  
    - A **coexistência absoluta** do real e do irreal resulta, paradoxalmente, **apenas no real**.  
    - Assim:  
@@ -117,14 +121,19 @@ A irrealidade, ao **atuar sobre o real**, revela-se como um **princípio dinâmi
 
 3. **Consumação da Irrealidade no Real:**  
    - A **falha em concretizar o círculo quadrado** não é um simples "nada", mas um **processo de dissolução** que **reafirma a realidade do círculo redondo**.  
-   - Assim, a irrealidade **não existe como entidade separada**, mas como **uma operação de exclusão que molda o real**.  
+   - Assim, a irrealidade **não existe como entidade separada**, mas como **uma operação de exclusão que indefine o real**.  
+   - Desta forma, não temos o real nem o irreal, temos o relativo. Uma condição que necessita ser determinada. Um estado de indefinição diante de todas as 
+     possibilidades e impossibilidades.
 
 ### **Conclusão do Exemplo**  
-O **círculo quadrado** não é apenas uma "não-coisa" – sua **impossibilidade atua sobre o real**, definindo-o por contraste. A irrealidade, portanto, **existe como força negativa**, consumando-se **na própria afirmação do real**.  
+O **círculo quadrado** não é apenas uma "não-coisa" – sua **impossibilidade atua sobre o real**, indefinindo-o por contraste. A irrealidade, portanto, **existe como força negativa**, consumando-se **na própria afirmação do real**.  
 
-### O Absoluto como realidade Autodeterminada
-- O Absoluto, enquanto totalidade das possibilidades, se autodetermina como realidade .
-  - Isso significa que realidade e não é um acidente, mas uma expressão necessária do Relativo em sua autodefinição.
+
+
+
+### O Absoluto como relativo Autodeterminada
+- O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo .
+  - Isso significa que o relativo e não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.
 
 ## Estrutura da Autodeterminação
 
@@ -177,22 +186,19 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 # A Estrutura da Realidade e do Absoluto
 
-## **O Nada como Único Fundamento**  
-
-- O nada é um estado de ausencia de qualquer coisa. 
-
+## **O Relativo como Único Fundamento**  
 
 *"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
 
  - O termo "Ser" remete ao "quem" do Absoluto (o sujeito ausente que determina), enquanto "existir" refere-se ao "que" da realidade (o ato ausente da 
-   determinação). Portanto, o termo "Ser" é o mais apropriado, pois a realidade, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
+   determinação). Portanto, o termo "Ser" é o mais apropriado, pois o relativo, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
 
- - Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
+ -  Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
     multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um 
     determinador referenciável. 
 
-  - Somente o Relativo pode se auto-fundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. Não necessita nem mesmo do nada, é a completa 
-    indiferenciação.
+  - Somente o Relativo pode se auto-fundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. Não necessita nem mesmo do nada (realidade), é 
+    a completa indiferenciação entre o real e o irreal.
 
   - O Relativo simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito. O Ser indiferenciado. Não 
     afirmado (possibilidade) e nem negado (impossibilidade).
@@ -209,15 +215,15 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
     3. Persiste (auto continuidade).
   - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.
 
-### A Realidade como Estrutura Idealizadora
-- A Realidade não é um simples "subconjunto" passivo, mas uma estrutura dinâmica que:
-  - Se organiza segundo os princípios lógicos manifestados ou corrompidos do Relativo (Identidade, Não-Contradição, Terceiro Excluído).
+### O relativo como Estrutura Idealizadora
+- A relativo não é passivo, mas uma estrutura dinâmica que:
+  - Se organiza segundo os princípios lógicos manifestados e transcendidos (Identidade, Não-Contradição, Terceiro Excluído).
   - Se sustenta pela auto continuidade do Ser.
   - Se atualiza através da autodeterminação.
 
 ### O Relativo como Ser Autônomo
-- "O Relativo é o Ser, e o Ser é a Realidade autodeterminada."
-  - Não há dualidade entre Absoluto e Realidade, pois a Realidade é o modo como o Relativo se autodetermina e é constituída em sua própria estrutura 
+- "O Absoluto é o Ser, e o Ser é o relativo autodeterminado."
+  - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituída em sua própria estrutura 
     idealizadora.
 
 **"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**
@@ -237,22 +243,22 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
     - Se não há luz, a escuridão existe como referência para a visão.
     - A ausência de luz só tem significado porque o olho (determinador) a percebe.
 
-## Realidade como Relação Dinâmica
+## O Relativo como Relação Dinâmica
 
-- A **realidade (verdade)** não é um estado puro, mas uma tensão entre:
+- A **relativo (verdade)** não é um estado puro, mas uma tensão entre:
   1. **O Ser** (autodeterminação ativa) → Puro ato de existir.
-  2. **O Relativo** (potencial não realizado) → Indiferenciação que define os limites do real.
+  2. **O Relativo** (potencial não realizado) → Indiferenciação que define os limites do relativizado.
   
 - Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.
-  - O Ser não "está" na realidade – ele age na realidade em sua autodefinição contínua.
+  - O Ser não "está" no relativo – ele age no relativo em sua autodefinição contínua.
 
-## Conclusão: A Realidade como Processo
+## Conclusão: O relativo como Processo
 
-- Não há "verdade estática", pois a realidade sempre se constitui na relação entre:
+- Não há "verdade estática", pois o relativo sempre se constitui na relação entre:
   - A ação do determinador (Ser puro).
   - O determinado (incluindo sua indiferenciação como contraparte).
   
-- O indiferenciado não é o oposto da realidade, mas seu complemento necessário para que a autodeterminação tenha eficácia.
+- O relativo não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.
 
 # Estruturando o Nada
 
