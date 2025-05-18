@@ -220,12 +220,23 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ## **O nada indiferenciado como fundamento**  
 
-- No relativo não há a necessidade ativa de um determinador, pois não há afirmação em prol de um estado como realidade ou irrealidade. O relativo simplesmente 
+- No relativo não há a necessidade ativa de um determinador, pois não há afirmação em prol de um estado: realidade ou irrealidade. O relativo simplesmente 
   existe sem a necessidade de uma configuração inicial. 
 
-- O termo "Ser" remete ao "determinador" ausente do Absoluto (pessoalidade ausente eativa), pois é definido pelo seu resultado e não pelo sujeito da ação, o qual não houve. O Ser é o próprio ato puro de existir, desprovido de 'quem' para o 'o quê' foi determinado. O determinado simplesmente é.
+- O termo "Ser" remete ao "determinador" ausente do Absoluto (pessoalidade ausente ativa), pois é definido pelo seu resultado e não pelo sujeito da ação, o qual 
+  não houve. O Ser é o próprio ato puro de existir, desprovido de 'quem' para o 'o quê' foi determinado. O determinado simplesmente é, nem necessidade de 
+  afirmação ou negação de si. Pois a relativo é indiferenciado, ou seja, simplesmente é e se dá como tal sem atuação de uma escolha.
 
-- O termo "Sou" remete ao determinador presente no absoluto  (pessoalidade presete eativa), é definida pelo sujeito da ação e pelo resultado da ação.
+- O "Ser" embora não exerça escolha na totalidade do que é, ou seja, na integralidade atemporal (em ato único) do relativo, tem sua determinação efetivada no 
+  ato de existir do determinado. Ou seja, o Ser é o que fomenta o existir, de forma que não necessita agir neste, pois seu fundamento coopera necessariamente 
+  para a fundamentação do todo. Sua decisão é homogenea ao relativo. 
+
+- O "Sou" é um determinador afirmado em prol de si, de uma assinatura particular de si e não é homogeneo ao Ser, de forma a não fomentar necessariamente em prol 
+  da existencia e plenitude.
+
+
+
+- O termo "Sou" remete ao determinador presente no absoluto  (pessoalidade presete ativa), é definida pelo sujeito da ação e pelo resultado da ação.
 
 - O termo "Ser" remete ao "determinador" ausente do Absoluto (pessoalidade ativa), enquanto "existir" refere-se ao "determinado" da realidade (o ato ausente da 
    determinação na no absoluto indiferenciado). Portanto, o termo "Ser" é o mais apropriado, pois o relativo, enquanto autodeterminado (governado pelo 
