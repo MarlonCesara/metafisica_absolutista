@@ -71,7 +71,7 @@
 - **Definição:** Refere-se à capacidade do Absoluto de se sustentar no Ser indefinidamente em seu fundamento e determinação.
 - **Características:**
   - Persistência ativa (não apenas existência passiva).
-  - Garante que o Absoluto não se dissolva na inexistência e que a Realidade não desapareça.
+  - Garante que o Absoluto não se dissolva na inexistência e que a Realidade ou irrealidade não desapareçam.
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
 
 ## Estruturação do Absoluto
@@ -103,7 +103,7 @@
   - Não há **irrealidade realizada** (pois sua manifestação a converteu em real)
   - Vigora uma **indiferenciação radical**:
     - *Possibilidade* e *impossibilidade* perdem seus estatutos
-    - O ser existe em **indiferenciação pura**, sem atualização determinada
+    - O Absoluto existe em **indiferenciação pura**, sem atualização determinada
 
 #### **3. Dinâmica do Processo**
 1. **Fase 1 (Ativação):**  
@@ -131,14 +131,13 @@
   - Sugere que a "suspensão" pode ser o **estado fundamental do ser**
 
 *Exemplo ilustrativo:*
-> "Como tentar visualizar um 'círculo quadrado' - ao concretizar a imagem, ela ou vira círculo (real) ou quadrado (real), destruindo a impossibilidade inicial. O que resta é apenas a *tentativa frustrada*, nem forma nem deformidade."
-
+> "Como tentar visualizar um 'círculo quadrado' - ao concretizar a imagem, ela ou vira círculo (real) ou quadrado (real), destruindo a impossibilidade inicial. O que resta é apenas a *tentativa*, nem forma nem deformidade."
 
 ### **A Manifestação Não Disruptiva do Irreal na Realidade**  
 
 #### **Fundamento Ontológico**  
 - Se **realidade** e **irrealidade** coexistem sem colapsar, então a **impossibilidade** não pode se manifestar como **negação abrupta do real**, mas como **integração harmoniosa**.  
-- A realidade, portanto, **não é fechada** – ela está **aberta ao impossível**, desde que este **não a destrua**, mas a **enriqueça**.  
+- A realidade, portanto, **não é fechada** – ela está **aberta ao impossível**, desde que este **não a destrua**, mas a **plenifique**.  
 
 #### **Mecanismo de Manifestação**  
 - O impossível **não rompe** a estrutura do real, mas **atua nela de forma transfiguradora**.  
@@ -154,12 +153,6 @@
 - **Depois:** A mudança ocorre **sem destruir a realidade** (as leis da natureza não são revogadas, mas **transcendidas**).  
 - **Efeito:** O impossível **não nega** o mundo, mas **revela sua profundidade oculta**.  
 
-#### **2. O Encontro com o Verdadeiro Amor**  
-> *"Eu encontrei meu verdadeiro amor – algo que era impossível até então!"*  
-- **Antes:** A solidão ou os fracassos afetivos pareciam **inevitáveis** (o amor verdadeiro era uma **possibilidade excluída**).  
-- **Depois:** O encontro acontece **sem violar** as leis da psicologia ou da sociologia, mas **reconfigurando seu sentido**.  
-- **Efeito:** O impossível **não despedaça** a realidade, mas **a cumpre de modo inesperado**.  
-
 ---
 
 ### **Implicações Filosóficas e Teológicas**  
@@ -171,17 +164,11 @@
    - A **graça** (o divino) **não destrói a natureza**, mas **a aperfeiçoa**.  
    - Analogamente, o impossível **não corrompe** o real, mas **o leva a sua plenitude**.  
 
-3. **Fenomenologia do Sagrado (Mircea Eliade):**  
-   - O **sagrado** irrompe no mundo **sem aniquilá-lo** – assim como o impossível se manifesta **sem dissolver a realidade**.  
-
-
-
+## Estrutura da Autodeterminação
 
 ### O Absoluto como relativo Autodeterminada
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo .
   - Isso significa que o relativo e não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.
-
-## Estrutura da Autodeterminação
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
