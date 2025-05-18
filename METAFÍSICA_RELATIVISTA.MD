@@ -666,7 +666,6 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 
 ## O Nada como Estado Relacional
 
-
 - Sua anulação só faz sentido para o observador, não em si mesmo.
 - *Exemplo:* Um horizonte ilimitado é "nada" até que o observador defina um ângulo de visão, convertendo-o em paisagem.
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (nada). Quando focamos num barco específico (recorte), manifesta-se a forma particular.
@@ -700,149 +699,6 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 
 ## Natureza Não-Numérica do Ser
 
-### Nada
-- **Definição:** Ausência do fenômeno. 
-- **Sinônimo:**  Possibilidade da ausência fenomenológica.
-
-### Nadas
-- **Definição:** Infinitos paralelos.
-- **Sinônimo:**  Possibilidade de infinitos paralelos.
-
-### Relativo
-- **Definição:** Super-posição absoluta.
-- **Sinônimo:**  Super-posição da possibilidade.  Ausencia da possibilidade que subentende uma super posição de todas as possibilidades.
-
-
-- Ao chamarmos o relativo de suspensão, estamos nos referindo a uma suspensão existente e pessoal, porém, de existencia indefinida. 
-- O sujeito do relativo está suspenso em todas as possibilidades inerentes a ele.
-- O sujeito do relativo esta dissolvido no que relativiza.
-
-- O relativo é a ausência da possibilidade concomitantemente à presença da possibilidade. 
-- O relativo rompe o Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe concomitantemente, e não paralelamente, com não-A.
-- A ausência absoluta é a suspensão da própria referência, definição ou possibilidade para Relativo. 
-- Na suspensão de qualquer possibilidade, todas as possibilidades entram em um estado de suspensão. Onde tudo existe e nada existe ao mesmo tempo.
-
-- Ao suspendermos o infinito, ou seja, o nada ou os nadas, temos a ausência da infinitude. Ou seja, a ausência do nada.
-- O nada, já sendo a ausencia de qualquer coisa, não pode ser suspenso. 
-
-- Para que se suspenda o nada, é necessário que haja uma super-posição do nada, de forma que o nada exista e não exista ao mesmo tempo.
-- O nada é suspenso em uma indefinição da possibilidade.
-
-- Não há como suspender o nada, pois ao suspende-lo, o nada incide sobre Relativo outra vez. É possível suspender a quantificação da ausência.
-- O nada como infinito existe. Porém, para relativo não há a possibilidade do nada.
-
-- Suspensão da ou das possibilidades.
-- Todas as possibilidades existem ao mesmo tempo, em uma super posição indiferenciada.
-- Não há ausencia da possibilidade, há ausencia da definição, da diferenciação. 
-- Ao suspender o nada ou os nadas, se suspende a diferenciação. a diferenciação propoe a existencia do nada.
-- O nada diferenciado existe. O nada indiferenciado não existe.
-
-
-Concluido:
-
-- A não existencia é uma super-posição. Ao fazer qualquer referencia a ela, atribuimos um referencial a ela.
-- A não existencia portanto, não é uma possibilidade quando referida. Não é um conceito válido.
-
-- Logo, a não existencia não pode ser referida se não como o relativo. 
-- O relativo é um estado onde não há inexistencia (a qual não pode ser referida sem existir) e não há existencia. Mas há todas as possibildiades e nenhuma ao 
-  mesmo tempo.
-- O Ausencia dos nadas, ou nada, resulta sempre na ausencia dos nadas ou nada. A ausencia, portanto é referida como um estado unico ou multiplo.
-- A não referencia da ausencia é um estado que esboça todas as possibilidades concomitantemente.
-- Tudo que é ausentado está presente. Logo, ausentar o anda subentende o próprio nada.
-
-- Ao ausentar varias ausencias, ainda sobra uma ausencia, que é a ausencia resultante dos ausentados. Ainda temos o nada diferenciado.
-- Ao invés de ausentarmos as ausencias ou a ausencia, criemos um estado de suspensão onde há ausencia, mas não podemos nos referir a ela.
-- O relativo é ausencia, até mesmo da ausencia. É uma super-posição onde ausencia da ausencia e presença da ausencia são subentendidos na mesma realidade 
-  ilógica. Porém, eficaz para pensar no nada Relativo.
-
-- Ao nos referirmos ao relativo como ausencia, estamos referenciando uma das possibilidades em suspensão. Toda possibilidade afirmada é imediatamente negada pelo conceito de relativo. Porém, quando afirmamos a ausencia da ausencia, não temos a negação da ausencia, mas a reafirmação da mesma.
-
-
-- A = Não-A é a negação da possibilidade. Ou seja, é a negação do ou dos nadas.
-- A = Não-A é uma irrealidade.
-- A negação do nada é quando o nada existe e inexiste ao mesmo tempo?
-
-
-*"O Ser não é um, nem muitos - simplesmente É"*
-
-O Ser não pode ser quantificado (não é "um" nem "múltiplo" em sentido matemático).
-- O Ser em sua integralidade se constitui como uma trancendencia da forma (tempo e espaço) e da quantificação da essência ativa auto causal.
-- Em sua integralidade abarca todos os "sous" possíveis ou nenhum, já que não está sujeito a categorias numéricas.
-- A integralidade do Ser não é apenas a negação do fenômeno, mas a negação do fenômeno enquanto autodeterminado pelo Ser ou pelos "sous" (ausência de formas ativas).
-- O Ser integral se constitui numa negação de sua multiplicidade. 
-- Para que o espirito do Ser não seja definido como referencial a um espirito ou varios espíritos, sua translucidez necessita ser absoluta. 
-- O espirito do Ser é imperceptível, porem existe. Tal como o número 0 somado a qualquer número, ainda resulta no número acrescentado de 0.
-- O espirito do nada indiferenciado é translucido à todas as suas diferenciações. 
-- O espírito indiferenciado segue a lógica do nada indiferenciado. 
-- Um espírito, no sentido númerico, não pode corresponder ao nada indiferenciado.
-- O espírito indiferenciado existe, de forma a ser somado, não somado a algo, é nada.
-- O espírito não existe, o que existe é o ato fundamentador.
-- O ato estático fundamentador corresponde ato estático do indiferenciado.
-- O Ser é fundamentado de forma a não necessitar do espírito.
-- O espírito do Ser está alem do campo do existir e não existir. 
-- A fundamentação existe, porém o espírito é indiferenciado. 
-- O efeito (fundamentação) é independente da existencia do espírito fundamentante. 
-- O espírito fundamentador age sem existencia. 
-- O espírito fundamentador está alem do "quem", da forma ativa da fundamentação, alem do "eu". Além da alma que é uma individualização do Ser.
-- O espírito de Deus está alem de um infinito com determinador atívo. Portanto, não é uma existencia ativa. Assim como não é uma inexistencia, pois seus efeitos 
-  são constatados na realidade (fundamentação). Portanto, é uma inexistência atíva. 
-- A inexistência ativa transcende a quantificação, ou a necessidade de referencia. 
-
-- A união de duas almas produz uma violação das leis lógicas, da identidade de a auto continuidade.
-- O ente existe e não existe ao mesmo tempo, e mantem sua identidade e não mantem ao mesmo tempo?
-
-Real : ação das leis lógicas, compreensível pelas leis lógicas.
-Irreal: incompreensível pelas leis lógicas. Não imaginável. Não mentalizável.
-O irreal é irreferenciavel, porém é uma negação do ou dos reais.
-Ex: qualquer numero vezes zero é zero. Ou seja, os infinitos como manifestação do irreal, equivalem a nenhum em sua integralidade?
-O tempo da irrealidade tem efeitos reais, mas não existe. Ou seja, o tempo começou num tempo irreal. 
-Logo o conceito de relativo como nada indiferenciado vem a nota, pois não se refere a um nada, mas ate a impossibilidade o nada. Tido como irrealidade.
-O irreal é a realidade de si mesmo. No sentido de que, pode moldar as leis da sua realidade.
-
-Quando se esta falando de nada, se esta falando de um infinito. Quando se fala de relativo, não se refere a um infinito, a ausência de qualquer quantificação. O nada que transcende o nada. A não existência nem mesmo da ausência. O relativo.
-
-- O relátivo é a suspensão das possibilidades.
-
-- Tudo o que é real é quantificável. Somente o irreal não é quantificável ?
--  o ilógico pode ser real? Não sendo quantizavel?
-- O nada existe, porém o irreal não existe.
-- O relativo existe. Como estado de suspensão entre o real e o irreal. 
-
-- Ao definir como nada, já quantificamos. Já definimos uma referencia. Uma possibilidade.
-- Ao definir como relativo, todas as possibilidades ao mesmo tempo, que se tornam nenhuma possibilidade. 
-- Nem o real e nem o irreal. Uma suspensão do Relativo. E não uma suspensão da realidade. 
-- Portanto, temos o nada Relativo como negação da realidade, e o nada Relativo como negação da irrealidade e da realidade.
-
-
-- Toda realidade é referenciável. Somente o irreal é irreferenciável. 
-- Somente um infinito irreal é irreferenciavel. 
-- Todo real existe como manifestação da irrealidade que existe.
-- Logo, temos que a irrealidade é indiferenciada, e corresponde ao potencial oculto de manifestação da realidade.
-- A realidade transcende na irrealidade. 
-
-- O infinito referenciável, o nada criado por Deus, o universo no qual estamos. Possui referencial. 
-- Se o universo possui referencial, é guiado pela fundamentação.
-- Logo, o universo é criado a partir do nada referenciado.
-- Logo, o infinito do universo atual foi criado da irrealidade.
-- Logo, o nada diferenciado é criado. 
-
-- Logo, a irrealidade é uma amplitude maior do que se imagina. 
-- Possui uma temporalidade alem da temporalidade. Um tempo sobre o tempo. Uma forma sobre a forma. Uma espirito sobre o espirito. 
-- A temporalidade do indiferenciado existe e não existe ao mesmo tempo. A forma existe e não existe. E o espirito existe e não existe.
-
-
-- Dentro da inexistencia ativa existe...
-- O ser é a realidade e irrealidade ao mesmo tempo. Se tem a ação de um infinito irreal. Espírito irreal. 
-- A irrealidade é onde a lógica colapsa. 
-
-- Logo o universo veio de um tempo que era tempo nenhum. De um lugar que era lugar nenhum. E originado por um espirito que não existe ao passo que exerce uma 
-  ação causal.
-
-- A irrealidade é a negação da realidade.
-- Logo, o universo ao passo que aconteceu, pode ser analisado a partir de uma regressão infinita de universos. Ou seja, aconteceu num momento único, porém este 
-  momento pode ser retrocedível infinitamente e está avançando infinitamente.
-
-
 ### A identidade não numérica do Ser
 
 Suspensão da vontade: A Gelassenheit ("deixar-ser") não é uma ausência, mas um estar além da necessidade de negação ou afirmação.
@@ -872,16 +728,15 @@ O Ser abrange:
 
 ## Determinação Temporal e Projeção do Ser
 
-
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:
 - Atos temporais de observação (consciência que delimita).
 - Presença (existência situada em um contexto fenomênico).
 
 ## **A Transcendência do "Quem": O Ser além do Número, do Tempo e do Espaço**
 
-#### **1. A Natureza Não-Numérica do Vivo**
+#### **1. A Natureza Não-Numérica do Ser**
 O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contável:
-- **O Vivo não é "um" ou "muitos"** – sua essência dissolve a quantificação.
+- **O Ser não é "um" ou "muitos"** – sua essência dissolve a quantificação.
 - **O Nada fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.
 
 #### **2. A Dupla Dimensão do Nada**
@@ -906,7 +761,7 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 #### **4. A Ontologia dos "Sous" (Sub-Seres)**
 - Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).
 - Cada "sou" é:
-  - Uma **autodeterminação transitória** do Ser.
+  - Uma **autodeterminação** do Ser.
   - Uma **negação parcial** do nada indiferenciado.
 - **Exemplo:** Como ondas no oceano – cada onda é distinta, mas não separada da água.
 
