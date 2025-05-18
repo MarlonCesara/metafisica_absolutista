@@ -89,7 +89,7 @@
 
 ## **A Força Ontológica da Irrealidade**  
 
-### **Hipótese da Existência da Irrealidade (Versão Aprimorada)**
+### **Hipótese da Existência da Irrealidade**
 
 #### **1. Paradoxo Ontológico Fundamental**
 - **Tese:** Se a irrealidade possui existência ontológica, sua própria essência exige **autossupressão**.
@@ -165,9 +165,10 @@
 
 ## Estrutura da Autodeterminação
 
-### O Absoluto como relativo Autodeterminada
+### O Absoluto como relativo autodeterminado
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo .
   - Isso significa que o relativo e não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.
+  - Sendo o absoluto autodeterminado se conclui que o agente ativo da determinação é uma pessoalidade.
 
 ### Autodeterminação Vertical (Espírito)
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.
