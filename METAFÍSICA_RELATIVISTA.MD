@@ -219,8 +219,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 # A Estrutura do relativo e do Absoluto
 
----
-
 ## **O Nada Indiferenciado como Fundamento Ontológico**  
 
 ### **A Negação do Nada como Afirmação do Impossível**
