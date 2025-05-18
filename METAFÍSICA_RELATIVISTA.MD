@@ -233,7 +233,10 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   para a fundamentação do todo. Sua decisão é homogenea ao relativo. 
 
 - O "Sou" é um determinador afirmado em prol de si, de uma assinatura particular de si e não é homogeneo ao Ser, de forma a não fomentar necessariamente em prol 
-  da existencia e plenitude.
+  da existencia e plenitude. 
+
+
+
 
 
 
@@ -244,22 +247,12 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
    espírito), é uma pessoalidade 
    existente ausente. Ou seja, é o "Ser" em detrimento do "Sou" (Sujeito ativo existente).
 
-
-
-*"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
-
- - O termo "Ser" remete ao "quem" do Absoluto (o sujeito ausente que determina), enquanto "existir" refere-se ao "que" da realidade (o ato ausente da 
+ - O termo "Ser" remete ao "quem" do Absoluto (o sujeito ausente que determina), enquanto "existir" refere-se ao "que" do relativo (o ato ausente da 
    determinação). Portanto, o termo "Ser" é o mais apropriado, pois o relativo, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade.
-
-
-
 
  -  Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
     multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um 
     determinador referenciável. 
-
-  - Somente o Relativo pode se auto-fundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. Não necessita nem mesmo do nada (realidade), é 
-    a completa indiferenciação entre o real e o irreal.
 
   - O Relativo simplesmente é - não há um ente 'existente' ou algo 'existido', há apenas o ato puro de existir, o verbo sem sujeito. O Ser indiferenciado. Não 
     afirmado (possibilidade) e nem negado (impossibilidade).
@@ -267,6 +260,11 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - O espírito do Ser manifesta-se a partir do ato puro de existir, portanto, o Ser não possui alma criada. Podendo, 
     assim, ter sua causa e fundamento em si mesmo, ou seja, em seu ato puro de Ser. Logo, a alma do Ser (não criada) dispensa fundamento para sua 
     existência e atividade.
+
+ - Somente o Relativo pode se auto-fundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. 
+    É a completa indiferenciação entre o real e o irreal.
+
+*"O Ser é o próprio ato puro de existir, desprovido de 'quem' decidi ou 'o quê' é decidido. Há somente o decidir"*  
 
 ### O Ser como Auto determinador
 - O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).
