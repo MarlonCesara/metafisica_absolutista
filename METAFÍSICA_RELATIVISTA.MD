@@ -458,19 +458,20 @@ Isso unifica:
 
 ## Dualidade Fundamental: O nada relativo e a manifestação relativa.
 
+## Definições Fundamentais 
 
+### Nada
+**Definição:** Relativo em ato único. 
+**Sinônimo:** Nada.
 
+### Manifestação
+**Definição:** Relativo em processo. 
 
+## Dualidade Fundamental: Determinador e Nada
 
-
-
-
-
-## Dualidade Fundamental: Determinador e Relativo
-
-- A ação do **Ser** (determinação) e o **Relativo** (ausência do determinado) são coessenciais.
+- A ação do **Ser** (determinação) e o **Nada** (ausência do determinado) são coessenciais.
   - Não são opostos absolutos, mas pólos de uma mesma estrutura ontológica.
-  - O Relativo não é aniquilação total, mas o limite interno da autodeterminação.
+  - O Nada não é aniquilação total, mas o limite interno da autodeterminação.
     - *Exemplo:* O olho que vê a escuridão.
     - Se não há luz, a escuridão existe como referência para a visão.
     - A ausência de luz só tem significado porque o olho (determinador) a percebe.
@@ -479,7 +480,7 @@ Isso unifica:
 
 - A **relativo (verdade)** não é um estado puro, mas uma tensão entre:
   1. **O Ser** (autodeterminação ativa) → Puro ato de existir.
-  2. **O Relativo** (potencial não realizado) → Indiferenciação que define os limites do relativizado.
+  2. **O nada** (potencial não realizado) → ausência indiferenciada que define os limites do relativo.
   
 - Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.
   - O Ser não "está" no relativo – ele age no relativo em sua autodefinição contínua.
