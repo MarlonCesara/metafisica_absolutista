@@ -220,10 +220,27 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ## **O nada indiferenciado como fundamento**  
 
+- No relativo não há a necessidade ativa de um determinador, pois não há afirmação em prol de um estado como realidade ou irrealidade. O relativo simplesmente 
+  existe sem a necessidade de uma configuração inicial. 
+
+- O termo "Ser" remete ao "determinador" ausente do Absoluto (pessoalidade ausente eativa), pois é definido pelo seu resultado e não pelo sujeito da ação, o qual não houve. O Ser é o próprio ato puro de existir, desprovido de 'quem' para o 'o quê' foi determinado. O determinado simplesmente é.
+
+- O termo "Sou" remete ao determinador presente no absoluto  (pessoalidade presete eativa), é definida pelo sujeito da ação e pelo resultado da ação.
+
+- O termo "Ser" remete ao "determinador" ausente do Absoluto (pessoalidade ativa), enquanto "existir" refere-se ao "determinado" da realidade (o ato ausente da 
+   determinação na no absoluto indiferenciado). Portanto, o termo "Ser" é o mais apropriado, pois o relativo, enquanto autodeterminado (governado pelo 
+   espírito), é uma pessoalidade 
+   existente ausente. Ou seja, é o "Ser" em detrimento do "Sou" (Sujeito ativo existente).
+
+
+
 *"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
 
  - O termo "Ser" remete ao "quem" do Absoluto (o sujeito ausente que determina), enquanto "existir" refere-se ao "que" da realidade (o ato ausente da 
-   determinação). Portanto, o termo "Ser" é o mais apropriado, pois o relativo, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade. 
+   determinação). Portanto, o termo "Ser" é o mais apropriado, pois o relativo, enquanto autodeterminante (governada pelo espírito), é uma pessoalidade.
+
+
+
 
  -  Somente o Relativo pode se auto-determinar pois é e a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou 
     multiplicidade que determina, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um 
