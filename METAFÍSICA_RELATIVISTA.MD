@@ -269,11 +269,11 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 ## **O Nada Indiferenciado como Fundamento Ontológico**  
 
 ### **1. A Autonomia do Relativo**  
-O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre realidade e irrealidade. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação. Como a luz do sol, que simplesmente *é*, sem depender de um observador para validar sua existência.  
+O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre realidade e irrealidade. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação.  
 
 - O relativo existe **sem exigência de um determinador ativo**, pois transcende a dicotomia realidade/irrealidade.  
 - É **ato puro de existência**: não requer configuração prévia, afirmação ou negação.  
-- *Analogia:* Como a luz solar que simplesmente *é* – não depende de quem a observe para existir.  
+
 
 ### **2. A Distinção entre Ser e Sou**  
 O **Ser** representa o determinador ausente, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
@@ -281,7 +281,7 @@ O **Ser** representa o determinador ausente, o fundamento impessoal da existênc
 | **Termo** | **Natureza**                  | **Função**                                 | **Exemplo**                          |  
 |-----------|-------------------------------|--------------------------------------------|--------------------------------------|  
 | **Ser**   | Determinador ausente          | Ato puro de existir (fundamento impessoal) | "A água flui" – ação sem agente      |  
-| **Sou**   | Determinador presente (alma)  | Ato personalizado (identidade afirmada)    | "Eu decido fluir" – ação com agente  |  
+| **Sou**   | Determinador presente         | Ato personalizado (identidade afirmada)    | "Eu decido fluir" – ação com agente  |  
 
 - **Ser**:  
   - Não opera por escolha, mas por **necessidade ontológica**.  
