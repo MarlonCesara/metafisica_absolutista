@@ -89,7 +89,6 @@
 
 ## **A Força Ontológica da Irrealidade**  
 
-
 ### **Hipótese da Existência da Irrealidade (Versão Aprimorada)**
 
 #### **1. Paradoxo Ontológico Fundamental**
@@ -217,9 +216,9 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - O Espírito garante a existência e a perfeição.
   - A Alma introduz a liberdade e a personalidade na estrutura do Real.
 
-# A Estrutura da Realidade e do Absoluto
+# A Estrutura do relativo e do Absoluto
 
-## **O Relativo como Único Fundamento**  
+## **O nada indiferenciado como fundamento**  
 
 *"O Ser é o próprio ato puro de existir, desprovido de 'quem' ou 'o quê'."*  
 
