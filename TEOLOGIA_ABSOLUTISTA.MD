@@ -108,13 +108,9 @@ como quem atravessa um portal.
 Lá, entre a vida e a morte,  
 uma porta se abria.  
 Comemos do fruto eterno do fim,  
-e nos tornamos irreais.  
+e nos tornamos vida.  
 
-Mas tudo que é irreal, precisa morrer.  
-Os olhos da ilusão nada veem.  
-Demos nossa vida em sacrifício.  
-
-E dela nasceram milhares de Adões e Evas,  
+De nós nasceram milhares de Adões e Evas,  
 vagando em busca de um amor tão imenso  
 quanto a dor de se saber incompleto.  
 
