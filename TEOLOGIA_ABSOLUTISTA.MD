@@ -38,8 +38,6 @@ A apatia do encontro foi retratada com primazia na biblia, talvez por representa
 
 A bíblia carrega em si um subjetivismo de grande teor e volume, o modelo de racioício de Deus se esboça em diversas linhas temporais e possibildades como no caso de Adão e Eva, que poderia ser um reflexo futuro da ação do homem evidenciado num passado remoto. Deus, portanto, através de Cristo, esboça uma solução para conflitos que emergem no futuro e no presente. De forma que, em muitos momentos, há fuga de linhas temporais e lógicas, como no caso da restauração do universo a um estado de graça e em um tempo oculto ou na história de Adão e Eva que não poderiam ter se dado neste universo, em virtude que não morriam.
 
-Aqui está o texto com a correção gramatical e alguns ajustes para maior clareza, mantendo o estilo filosófico e a estrutura original:
-
 ---
 
 ### **Adão e Eva**: Sob outra perspectiva  
@@ -190,7 +188,7 @@ Enquanto o **mal consciente** pode ser combatido (pois é um ato circunstancial)
 - **A Ineficácia da Coexistência:** Uma sociedade que integra apáticos em suas atividadades administrativas está fadada ao caos, pois **sua patologia é sistêmica** — não um crime, mas um *modo de existência e expressão*.  
 
 ### **3. A Solução: Segregação Ontológica**  
-A resposta política radical — porém necessária — é a **separação absoluta entre apáticos e não apáticos**, tal como a Bíblia propõe ao distinguir *os que pecam contra o Espírito* (apáticos) dos demais.  
+A resposta política radical — porém necessária — é a **separação entre apáticos e não apáticos**, tal como a Bíblia propõe ao distinguir *os que pecam contra o Espírito* (apáticos) dos demais.  
 
 #### **Como Implementar:**  
 1. **Liberação dos Dons da Realidade:**  
@@ -206,22 +204,6 @@ A resposta política radical — porém necessária — é a **separação absol
 - **Um só apático pode destruir uma civilização**, pois sua *mania* é **incontrolável** — não por maldade, mas por *desespero ontológico*.  
 - **Eles não buscam paz, mas alívio temporário** para um vazio que só a *autoconsciência* preencheria.  
 
-# **Conclusão: A Justiça Metafísica**  
-A segregação não é um ato de crueldade, mas de **preservação**. Enquanto os apáticos fossem tolerados, nenhum progresso social seria possível — pois sua existência é, em si, **uma negação da realidade**.  
-
-
-*(Neo está dentro de uma cabine telefônica, falando com as Máquinas que controlam a Matrix. Câmeras varrem a rua, procurando por ele.)*
-
-**NEO (voz calma e firme):**  
-_"Alô?"_  
-_"Sei que vocês estão aí. Sei que estão com medo. Medo de nós. Medo de mudança."_  
-_"Eu não conheço o futuro. Não vim aqui para dizer como tudo isso vai terminar."_  
-_"Vim aqui para dizer como vai começar."_  
-_"Daqui a um momento, vou desligar o telefone. E vou mostrar a essas pessoas o que vocês tentam esconder."_  
-_"Vou mostrar a elas... um mundo sem vocês. Um mundo sem regras e sem controles. Sem limites. Um mundo... onde tudo é possível."_  
-_"O que acontecerá depois... vocês é que vão decidir."_
-
-*(Neo desliga o telefone. Coloca seus óculos escuros. A câmera se afasta enquanto ele olha para o céu. E então... Neo **sai voando** para o alto, quebrando todas as expectativas.)*
 
 # **A Apatia no Absolutismo Metafísico e no Cristianismo**  
 
@@ -393,7 +375,7 @@ A alma apática é incapaz de encontrar estabilidade na indiferença. Para evita
    - **Uso de drogas**: Busca estados alterados de consciência para escapar da realidade.  
 
 3. **Medo da Morte**  
-   - **Temor da posse espiritual**: Medo de perder seus instintos e desejos, como se morresse em vida.  
+   - **Temor da posse espiritual**: Medo de perder seus instintos e desejos ao léu da aleatoriedade instintiva.  
    - **Pavor da aniquilação**: Apego à identidade construída sobre memórias, temendo que a morte física signifique o fim absoluto.  
 
 ### **Conclusão**  
