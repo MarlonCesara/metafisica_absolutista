@@ -38,6 +38,20 @@ A apatia do encontro foi retratada com primazia na biblia, talvez por representa
 
 A bíblia carrega em si um subjetivismo de grande teor e volume, o modelo de racioício de Deus se esboça em diversas linhas temporais e possibildades como no caso de Adão e Eva, que poderia ser um reflexo futuro da ação do homem evidenciado num passado remoto. Deus, portanto, através de Cristo, esboça uma solução para conflitos que emergem no futuro e no presente. De forma que, em muitos momentos, há fuga de linhas temporais e lógicas, como no caso da restauração do universo a um estado de graça e em um tempo oculto ou na história de Adão e Eva que não poderiam ter se dado neste universo, em virtude que não morriam.
 
+Aqui está o texto com a correção gramatical e alguns ajustes para maior clareza, mantendo o estilo filosófico e a estrutura original:
+
+---
+
+### **Adão e Eva**: Sob outra perspectiva  
+
+Ao imaginarmos quais seriam as consequências de duas almas conceberem uma prole corrompida, vemos os efeitos no *status quo* do homem, como se fosse uma realidade transfigurada no humano, de forma a conscientizá-lo de um futuro aterrador. Ou seja, em consequência do pecado de Adão e Eva, Deus precisou se fazer homem para atribuir Sua forma e graça à própria humanidade, com o objetivo de adotá-la. É como se fôssemos filhos de pais imprudentes; ao mesmo tempo, a Bíblia nos descreve como criados diretamente por Deus. Portanto, a filiação está e não está corrompida simultaneamente. A glorificação, então, seria uma genética atribuída a nós de modo a agregar um teor divino, como se nossa essência original estivesse perdida.  
+
+A morte que Adão e Eva escolheram, na verdade, foi a saída da natureza determinada pelo Ser, em prol de viverem a própria natureza e fundirem-se a ela, pois desejavam ser como deuses — isto é, gerar vida. Porém, seu erro foi estragar o plano de Deus em favor de um objetivo fútil. Ao mesmo tempo, temos o produto final de sua escolha: a desnudez, sem que fosse necessário comer o fruto proibido. Isso revela uma inclinação do Ser para a transcendência humana, pois acelerou o processo até mesmo da decisão de desnudar o corpo, fazendo com que o destino fosse fatalisticamente a liberdade.  
+
+Mas não sem antes a conscientização sobre as consequências de um amor não concretizado no infinito. E o que Deus sofreu pelo que ainda não havia ocorrido, para evitá-lo — atribuindo extrema seriedade ao amor.  
+
+---
+
 ## **Poema de Eva**  
 
 Pequena Eva, tua intenção julgavas boa—  
