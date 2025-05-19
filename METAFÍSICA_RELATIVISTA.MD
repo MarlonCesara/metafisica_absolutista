@@ -67,7 +67,7 @@
 - **Definição:** Refere-se à capacidade do Absoluto de se sustentar no Ser indefinidamente em seu fundamento e determinação.  
 - **Características:**  
   - Persistência ativa (não apenas existência passiva).  
-  - Garante que o Absoluto não se dissolva na inexistência e que a Realidade ou irrealidade não desapareçam.  
+  - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 ## Estruturação do Absoluto  
