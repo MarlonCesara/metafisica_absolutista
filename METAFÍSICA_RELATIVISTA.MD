@@ -736,7 +736,7 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 - **Para além da identidade:** Não é "um sou", mas o *fundo de todos os "sous"*.
 
 **Processo de Transcendência:**
-1. **"Sou" (indivíduo)** → Identidade limitada (número, tempo, espaço).
+1. **"Sou" (indivíduo)** → Identidade única (número, tempo, espaço).
 2. **"Ser" (transcendência)** → Dissolução das determinações:
    - *Por morte:* Aniquilação total do "sou".
    - *Por fusão:* Integração no Ser sem perder totalmente a individualidade.
@@ -745,8 +745,6 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
 - Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).
 - Cada "sou" é:
   - Uma **autodeterminação** do Ser.
-  - Uma **negação parcial** do nada indiferenciado.
-- **Exemplo:** Como ondas no oceano – cada onda é distinta, mas não separada da água.
 
 #### **5. Conclusão: A Fórmula da Transcendência**
 > *"O Ser não tem número, mas contém todos os números;  
