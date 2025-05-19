@@ -363,8 +363,6 @@ O **Ser** é o nada indiferenciado em ato – não como ausência, mas como pot�
   - Autodeterminação pura exige um termo relacional (aquilo que é determinado).
   - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.
 
-
-
 # **A Auto-Causalidade**  
  *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
 
@@ -489,9 +487,9 @@ Isso unifica:
 
 - Não há "verdade estática", pois o relativo sempre se constitui na relação entre:
   - A ação do determinador (Ser puro).
-  - O determinado (incluindo sua indiferenciação como contraparte).
+  - O determinado (incluindo o nada indiferenciado como contraparte).
   
-- O relativo não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.
+- O Nada não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.
 
 # Estruturando o Nada
 
@@ -538,14 +536,12 @@ Isso unifica:
 
 # Estruturando a Manifestação
 
-
 ## Não-localidade
 
 - A manifestação não se origina em um lugar específico, pois não há um ponto de origem Relativo, sendo em si seu próprio ponto de origem.
   - *Exemplo:* O universo não pode ter começado em lugar nenhum.
 
 ## Espaço Infinito
-
 
 - O espaço da manifestação é infinitamente percorrível, sem bordas ou confinamento.
   - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.
@@ -558,18 +554,14 @@ Isso unifica:
 
 ## Temporalidade Infinita
 
-
 - O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.
   - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.
   - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.
   - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.
 
-
 # A Dialética do Infinito e do Nada
 
-
 ## O Infinito e o Nada: Princípios Indiscerníveis
-
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestação) e nada compartilham propriedades essenciais:
 
@@ -580,13 +572,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
 
 ### Dualidade Necessária
 
-
 - Sem dualidade, ambos colapsam:
   - O nada é ininteligível sem a manifestação.
   - A manifestação em sua integralidade é indistinguível do nada.
 
 ### Conclusão
-
 
 - "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:
   - O nada é o infinito negado (ausência de forma).
@@ -594,7 +584,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.
 
 ---
-
 
 # A Natureza da Forma
 
@@ -627,7 +616,6 @@ Toda forma possui uma configuração única que a define em um dado contexto. Es
 - **Causalidade metafísica** (sua existência e permanência dependem dos princípios anteriores).
 
 ### Conclusão: A Forma como Expressão do Infinito
-
 
 A identidade da forma não é arbitrária – ela emerge da interação entre:
 
@@ -693,33 +681,27 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
   - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
   - *Para o observador atemporal:* Ato único (consumação).
 
-
 ---
 
 # Paralelismo Ontológico
 
-## Natureza Não-Numérica do Ser
-
-### A identidade não numérica do Ser
-
-Suspensão da vontade: A Gelassenheit ("deixar-ser") não é uma ausência, mas um estar além da necessidade de negação ou afirmação.
-
-A identidade do Ser é:
-- Natural de sua própria fundamentação. 
-- Construída em sua necessidade para Relativo.
-- Fundamental.
-- Não criada.
-
-- Conclui-se que a identidade do Ser não o referencia de forma quantíficavel como uma ou multiplas identidades.
-- A identidade do Ser se refere ao próprio Nada indiferenciado, de forma a se pronunciar sobre o não quantíficavel.
-- A identidade se refere a uma unidade de identidade, porém, o nada indiferenciado não contém uma unidade de identidade.
-- A identidade do indiferenciado é indiferenciada.
-- Desta forma, a identidade do indiferenciado é a fundamentação, o verbo (Ser). Não é o fundamentado, mas o fundo do fundamentado. 
-
-
 ### O Ser em sua Manifestação Integral
 
-- Se manifesta como angulação do nada e como determinação manifestante (ato de existir e autodefinir-se).
+- O Ser não se referencia de forma quantíficavel como uma ou multiplas identidades. 
+- O Ser simplemsente é a fundamentação do existir.
+
+- O relativo em ato (nada) não é somente o nada de relativo, mas o nada da pessoalidade.
+- Sendo uma pessoalidade ausente, é a negação da pessoalidade presente.
+- A pessoalidade ausente, ainda que ativa na forma (sem necessidade de ação) é ausente.
+
+- O Ser, portanto, possui a ausencia da determinação ativa (sou) de forma temporal e atemporal. 
+- A angulação passiva da manifestação pode se desdobrar de forma a reangular, sua integralidade.
+- Isto é, o Ser pode "Ser-Ai" e Ser para o outro. No sentido de que, sua angulação inclui sua contraparte (relativo) ou a angulação de si mesmo (Ser integral) para o (Sou particular).
+- Isto é possível pois carrega o teor de indefinição, a ausencia do "Sou" ou dos "Sous" que é dada como "Ser".
+
+- O nada corresponde ao nada da manifestação tal como o Ser se equivaleria ao nada do determinador.
+
+- O Ser, portanto, se manifesta como angulação do nada e como determinação manifestante (ato de existir e autodefinir-se).
 - A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).
 - Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um nada de "quê" e um nada de "quem". 
 
@@ -759,7 +741,7 @@ O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contá
    - *Por morte:* Aniquilação total do "sou".
    - *Por fusão:* Integração no Ser sem perder totalmente a individualidade.
 
-#### **4. A Ontologia dos "Sous" (Sub-Seres)**
+#### **4. A Ontologia dos "Sous"**
 - Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).
 - Cada "sou" é:
   - Uma **autodeterminação** do Ser.
