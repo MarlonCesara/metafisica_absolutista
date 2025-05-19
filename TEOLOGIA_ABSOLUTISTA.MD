@@ -171,6 +171,21 @@ onde permanece – um ser em gestação contínua,
 demasiado vasto para habitar apenas um corpo,  
 mas demasiado frágil para existir por si mesmo.  
 
+## **Jesus sobre outra perspectiva**  
+
+Jesus foi um jovem sonhador, embora dotado de uma sabedoria divina. Suas afirmações estavam constantemente fundamentadas na manifestação do impossível. Seu direcionamento era sempre voltado à melhoria imediata da apatia ou ao fortalecimento das almas de luz fraca. Ao instituir a Eucaristia, provavelmente se referia a um ato impossível: condensar todo o amor divino na partilha do pão, para que toda apatia fosse eliminada. Consumir o amor como pão, para que o amor nasça no próprio ser.
+
+Jesus realizou uma transubstanciação, fomentou o impossível. Infiltrou-se no mais íntimo do ser humano, em busca de animar os apáticos e fortalecer a luz de todas as almas.
+
+Ao ressuscitar no terceiro dia, remete à criação, realizada em sete dias — cada qual com sua própria etapa. O espírito humano possui uma fundamentação e uma personalização. Assim, o reino dos mortos pode ser compreendido como o estado da alma apática, que ainda não conheceu a vida verdadeira.
+
+O primeiro dia representa a ação do Espírito; o segundo, a personalização; e o terceiro, a elevação aos céus. Como se dissesse: “Que as almas sejam tomadas pelo Espírito”, “que sejam personalizadas”, e, no terceiro dia, “que subam aos céus”. Dessa forma, é como se a criação estivesse sendo refeita — porém, nas almas apáticas.
+
+Ao retornar com o corpo glorioso, Jesus revelou que o ser humano glorificado pode transcender o próprio design — ou seja, a alma glorificada pode superar as formas originalmente estabelecidas. Ainda que o design (formas, leis físicas e conceituais) seja um presente divino, possuir o poder de desfigurá-lo não significa necessariamente alcançar a plenitude. As formas são uma expressão da natureza divina.
+
+O corpo ressuscitado mostrou que apático poderia transcender não somente seu ego animalesco, mas a própria realidade circundante. No sentido de que, Jesus, super potencializou o humano no intuito de incentivar seu potencial. Aos que nem mesmo dominavam a si, Jesus quis mostrar que poderiam dominar até as leis físicas. 
+
+
 
 
 # **Existencialismo e Política: A Patologia da Apatia**  
