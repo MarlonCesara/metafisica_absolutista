@@ -1225,4 +1225,8 @@ O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é um
 
 O relativo é uma indiferenciação, tal como o Ser. Porém, o relativo tem a dualidade, entre nada e manifestação. Já a indiferenciação do Ser também carrega essa dualidade. O Ser ausente (Ser) e o manifesto (Sous).
 
+A manifestação do Ser em Sous, não segue a mesma linha lógica da manifestação do Nada em Manifestação. Pois, a manifestação do nada é o Ser se reverberando em si mesmo, e a manifestação do Ser em Sous é o Ser se reverberando extrinseco a sua própria determinação. Ou seja, é o Ser reverberando sua totalidade e não somente sua internalidade (Relativo).
+
+
+
 
