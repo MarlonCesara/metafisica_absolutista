@@ -1223,4 +1223,6 @@ Portanto, o Ser não é a ausência do "sou", mas a indiferenciação dele. A au
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
+O relativo é uma indiferenciação, tal como o Ser. Porém, o relativo tem a dualidade, entre nada e manifestação. Já a indiferenciação do Ser também carrega essa dualidade. O Ser ausente (Ser) e o manifesto (Sous).
+
 
