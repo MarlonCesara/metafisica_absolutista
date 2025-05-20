@@ -1231,3 +1231,5 @@ O relativo tem dois estados, nada e manifestação. Porém a Alma tem dois estad
 
 A indiferenciação da alma é o nada da alma, que por sua vez, permite a manifestação. Ou seja, alem do nada e da manifestação do relativo, há o nada e a manifestação da alma. Sendo alma e relativo uma só essência, então temos a alma "sou" manifestando uma forma relativa, não só em alma mas no determinado também. É uma indiferenciação da alma e determinado. 
 
+A indiferenciação do Ser é movida pelo espírito. O ser é indiferenciado porque porta todas as possíveis almas.
+
