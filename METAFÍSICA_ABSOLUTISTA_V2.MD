@@ -1227,6 +1227,7 @@ O relativo é uma indiferenciação, tal como o Ser. Porém, o relativo tem a du
 
 A manifestação do Ser em Sous, não segue a mesma linha lógica da manifestação do Nada em Manifestação. Pois, a manifestação do nada é o Ser se reverberando em si mesmo, e a manifestação do Ser em Sous é o Ser se reverberando extrinseco a sua própria determinação. Ou seja, é o Ser reverberando sua totalidade e não somente sua internalidade (Relativo).
 
+O relativo tem dois estados, nada e manifestação. Porém a Alma tem dois estados: singularidade ou indiferenciação. O Ser transita do indiferenciado para a singularidade enquanto a alma "sou", transita da singularidade para o indiferenciado na dualidade. O Ser em ato único não pode se singularizar, pois seria um evento. A dualidade em ato único não pode também se diferenciar e em consequencia, se singularizar no "sou-ai", pois ambos os atos são eventos.
 
-
+A indiferenciação da alma é o nada da alma, que por sua vez, permite a manifestação. Ou seja, alem do nada e da manifestação do relativo, há o nada e a manifestação da alma. Sendo alma e relativo uma só essência, então temos a alma "sou" manifestando uma forma relativa, não só em alma mas no determinado também. É uma indiferenciação da alma e determinado. 
 
