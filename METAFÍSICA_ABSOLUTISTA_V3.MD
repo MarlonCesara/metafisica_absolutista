@@ -1223,4 +1223,4 @@ Portanto, o Ser não é a ausência do "sou", mas a indiferenciação dele. A au
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
-A indiferenciação do Ser é movida pelo espírito. O ser é indiferenciado porque porta todas as possíveis almas.
+
