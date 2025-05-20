@@ -1209,3 +1209,18 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 - Essa indefinição não consome completamente cada unidade, considerando que cada manifestação é finita no tempo.  
 - A indefinição, segundo a tendência da determinação ainda ativa da dualidade, se define — e, ao se definir, é, em si, uma nova alma dotada do potencial de autodeterminação. Mas não tem, em si, um propósito (evolução espiritual) originalmente; ou seja, não possui autopresença, autodomínio ou autoconsciência enquanto não encontrar um propósito em si para existir.  
 - Logo, temos que a nova definição — ou seja, a nova alma — é alma, mas alma em potencial de autodeterminação, permanecendo como resultado da união, sustentada por ela.
+
+
+**O Ser como Indiferenciação da Alma**  
+
+O Ser é o produto puro da indefinição da dualidade, porém governado pelo espírito perfeito, e não determinado pela dualidade. Assim, o Ser deve ser uma indefinição, uma mistura de todos os "sous" possíveis. Essa indefinição — ou seja, o "sou" ausente — abarca todos os "sous" possíveis para o Ser.  
+
+A indefinição do Ser já é uma união entre dois infinitos inseparáveis, uma miscigenação completa de "sous". O Ser é um estado indiferenciado da alma, um estágio relativo dela. São infinitas almas indiferenciadas, assim como a dualidade produz uma indiferenciação em relação a si mesma.  
+
+O Ser não é a ausência da alma, mas a indiferenciação de todas as almas possíveis. Da mesma forma, a união entre duas almas gera esse mesmo estado. É nesse estado de alma indiferenciada que o Ser se manifesta.  
+
+Portanto, o Ser não é a ausência do "sou", mas a indiferenciação dele. A ausência e a presença do "sou" são fenomênicas e efêmeras — mas o Ser poderia realizar isso em si mesmo? A indiferenciação é, em si, a ausência.  
+
+O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
+
+
