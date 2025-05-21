@@ -1233,3 +1233,25 @@ A indiferenciação da alma é o nada da alma, que por sua vez, permite a manife
 
 A indiferenciação do Ser é movida pelo espírito. O ser é indiferenciado porque porta todas as possíveis almas.
 
+O espírito é o Ser-aí, portanto, não se indiferencia?
+
+O espírito é indiferenciado ou produz o indiferenciado?
+
+O que é o indiferenciado? O infinito (relativo) é vazio, pois é Ser-aí?
+
+Há um relativo indiferenciado, ou seja, sem espírito definido, que é guiado pelo espírito do Ser-aí.
+
+O relativo é guiado pelo espírito e é indiferenciado?
+
+Há um relativo indiferenciado guiado pelo espírito, ou seja, pelo Ser-aí.
+
+É indiferenciado porque não tem um espírito definido; é uma indefinição de agente ativo.
+
+A indefinição é definida e se define em si mesma.
+
+O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não assume uma definição relativa ao Ser, pois o ser, é Ser-Ai. Ou seja, o Ser está ausente do se Ai. E o Ai é a alma indiferenciada. Quando o Ser é Ai, não transmite a definição de si no que é. Ou seja, se doa com uma definição ausente.
+
+Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
+
+
+
