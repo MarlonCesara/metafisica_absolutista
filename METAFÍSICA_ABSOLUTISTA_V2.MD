@@ -1253,5 +1253,7 @@ O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não
 
 Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
 
+Quando a dualidade se une, produz o mesmo efeito, uma nova definição baseada na determinação da dualidade. Pois a indefinição entre uma dualidade de almas nos remete a definição necessária para um novo ente.
+
 
 
