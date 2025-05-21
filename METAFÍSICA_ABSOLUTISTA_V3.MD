@@ -2,21 +2,21 @@
 
 ## Princípios Causais Metafísicos  
 
-### Princípio da Razão de Ser (Determinação do ente)  
+### Princípio da Causa Identitária (Determinação do ente)  
 - **Tudo que existe tem uma razão para ser como é e não de outra forma.**  
   - *Equivalente lógico:* Princípio da Identidade ("A é A"), onde "A" é "A" por determinada razão.  
+
+### Princípio da Causa identitária Continuada (Persistência da Determinação)  
+- **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**  
+  - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma razão contínua.  
 
 ### Princípio da Causa Existencial (Fundamentação do ente)  
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**  
   - *Equivalente lógico:* Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe por uma razão fundamental.  
 
-### Princípio da Causa Continuada (Persistência do ente)  
+### Princípio da Causa Existencial Continuada (Persistência da Fundamentação)  
 - **Tudo que persiste no ser tem uma causa que sustenta sua existência.**  
   - *Equivalente lógico:* Princípio da Não-Contradição ("A não pode ser A e não-A ao mesmo tempo"), onde A se mantém A ou "não A" se mantém "não A" por uma razão contínua.  
-
-### Princípio da Identidade Continuada (Persistência da Identidade)  
-- **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**  
-  - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma razão contínua.  
 
 ## Definições Fundamentais  
 
