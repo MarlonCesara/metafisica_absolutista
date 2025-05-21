@@ -1223,4 +1223,35 @@ Portanto, o Ser não é a ausência do "sou", mas a indiferenciação dele. A au
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
+O relativo é uma indiferenciação, tal como o Ser. Porém, o relativo tem a dualidade, entre nada e manifestação. Já a indiferenciação do Ser também carrega essa dualidade. O Ser ausente (Ser) e o manifesto (Sous).
+
+A manifestação do Ser em Sous, não segue a mesma linha lógica da manifestação do Nada em Manifestação. Pois, a manifestação do nada é o Ser se reverberando em si mesmo, e a manifestação do Ser em Sous é o Ser se reverberando extrinseco a sua própria determinação. Ou seja, é o Ser reverberando sua totalidade e não somente sua internalidade (Relativo).
+
+O relativo tem dois estados, nada e manifestação. Porém a Alma tem dois estados: singularidade ou indiferenciação. O Ser transita do indiferenciado para a singularidade enquanto a alma "sou", transita da singularidade para o indiferenciado na dualidade. O Ser em ato único não pode se singularizar, pois seria um evento. A dualidade em ato único não pode também se diferenciar e em consequencia, se singularizar no "sou-ai", pois ambos os atos são eventos.
+
+A indiferenciação da alma é o nada da alma, que por sua vez, permite a manifestação. Ou seja, alem do nada e da manifestação do relativo, há o nada e a manifestação da alma. Sendo alma e relativo uma só essência, então temos a alma "sou" manifestando uma forma relativa, não só em alma mas no determinado também. É uma indiferenciação da alma e determinado. 
+
+A indiferenciação do Ser é movida pelo espírito. O ser é indiferenciado porque porta todas as possíveis almas.
+
+O espírito é o Ser-aí, portanto, não se indiferencia?
+
+O espírito é indiferenciado ou produz o indiferenciado?
+
+O que é o indiferenciado? O infinito (relativo) é vazio, pois é Ser-aí?
+
+Há um relativo indiferenciado, ou seja, sem espírito definido, que é guiado pelo espírito do Ser-aí.
+
+O relativo é guiado pelo espírito e é indiferenciado?
+
+Há um relativo indiferenciado guiado pelo espírito, ou seja, pelo Ser-aí.
+
+É indiferenciado porque não tem um espírito definido; é uma indefinição de agente ativo.
+
+A indefinição é definida e se define em si mesma.
+
+O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não assume uma definição relativa ao Ser, pois o ser, é Ser-Ai. Ou seja, o Ser está ausente do se Ai. E o Ai é a alma indiferenciada. Quando o Ser é Ai, não transmite a definição de si no que é. Ou seja, se doa com uma definição ausente.
+
+Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
+
+
 
