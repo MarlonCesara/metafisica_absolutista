@@ -1,6 +1,6 @@
 # Metafísica Absolutista  
 
-## Princípios Causais Metafísicos  
+## Formulando os Princípios Causais Metafísicos  
 
 ### Princípio da Causa Existencial (Fundamentação do ente)  
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**  
@@ -18,7 +18,7 @@
 - **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**  
   - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma razão contínua.  
 
-## Definições Fundamentais  
+## Definições Metafísicas Fundamentais  
 
 ### Possibilidade  
 **Definição:** Existência lógica.  
@@ -64,13 +64,37 @@
   - Fundamenta a liberdade metafísica (possibilidade de escolha no nível relativo).  
 
 ### Autocontinuidade  
-- **Definição:** Refere-se à capacidade do Absoluto de se sustentar no Ser indefinidamente em seu fundamento e determinação.  
+- **Definição:** Refere-se à capacidade do Absoluto de se sustentar em seu fundamento e determinação.  
 - **Características:**  
   - Persistência ativa (não apenas existência passiva).  
   - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 ## Estruturação do Absoluto  
+
+### **A problemática da co-existencia da realidade com a irrealidade
+
+Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrinseca ao absoluto. 
+Porém, ao considerar que o Absoluto é auto-causal, ou seja, já se dá determinado, se faz necessario dispensar a determinação ativa.
+
+Ou seja, se fez dispensável supor um ente ativo determinando A ou B para relativo, que significaria a determinação de realidade ou irrealidade.
+Ao considerar a possibilidade de uma existência ilógica, despolarizamos o absoluto, de forma que, não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Desta forma, ainda que haja existencia ou o próprio nada, tudo tera uma dissolução no sentido de que, dispensará uma vontade ativa, ou seja, uma ação de determinar. 
+
+Se Absoluto é realidade e existencia, e há outra opção de existencia (irrealidade), logo, está determinado realidade, sendo irrealidade possível ou impossível.
+Isto quer dizer que, ainda que a irrealidade não exista, temos que considera-la no campo das possibilidades como existente, para que não haja uma determinação previa no relativo.
+
+Pois, sendo o inexistente, não referenciavel, torna o existente a única escolha.
+
+Se o impossível não existe, então o absoluto necessita de uma ação imperativa, e essa ação deve ser produzida por um agente. Portanto, o nada, como existencia ou inexistencia nunca será possível.
+
+Ex: Se eu afirmo que o nada não existe então o nada é uma opção, porém invalida. Quando afirmo que o nada existe, estou me referindo a realidade, que uma opção válida. Portanto, o nada que não existe e o nada que existe.
+
+Ex: Se tenho duas opções: O possível e o impossível. E considero que a opção "impossível", não existe, então só tenho a opção "possível". Isto faz com que a existencia do possível seja determinada. E que, por isto, sempre exija um determinador existente. Anulando a própria ideia do nada como eficaz. Pois a ideia do nada, anula a existencia sem anular o que determinou nada como nada. Mas se considero que o impossível existe, então tenho duas opções para o absoluto, e isso me permite pensar no Absoluto como fator que dispensa escolha previa. E, portanto, quando penso no nada para relativo, posso pensar em um nada sem escolha, pois o nada não é possível e nem impossível, é uma coexistencia de ambos os fatores sem um agente determinador.
+
+Ao considerar que o impossível não existe, a determinação do abosoluto se localiza latente na propria afirmação de que o impossível não existe. E isto faz com que absoluto afirme a realidade como opção como consequencia da crença da inexistencia da impossibilidade. 
+
+Portanto, ao considerar o absoluto como existencia pura, dispensando o agente que escolhe o que absoluto deve ser, deve-se levar em consideração o mesmo puro. Sem parcialidade entre impossível e possível. Sendo ambos os fatores existentes, cada qual com sua natureza individual e homogenea um ao outro. E essa homogeneidade chamaremos de relativo. 
+
 
 ### **Dissolução entre Realidade e Irrealidade**  
 1. **Existência Dual (Real e Irreal):**  
