@@ -140,9 +140,9 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
   Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto. Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa. Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
 
-  Ao considerar a possibilidade de uma existência ilógica, despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Dessa forma, ainda que haja existência ou o próprio nada, tudo terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
+  Ao considerar a possibilidade de uma existência ilógica (impossíve), despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Dessa forma, ainda que haja existência ou o próprio nada, tudo terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
 
-  Se o Absoluto é realidade e existência, e há outra opção de existência (a irrealidade), logo, está determinado como realidade, sendo a irrealidade possível ou impossível. Isso quer dizer que, ainda que a irrealidade não exista, temos que considerá-la no campo das possibilidades como existente, para que não haja uma determinação prévia no relativo. Pois, sendo o inexistente não referenciável, torna o existente a única escolha.
+  Se o Absoluto é realidade e existência, e há outra opção de existência (a irrealidade), logo, está determinado como realidade, sendo a irrealidade existente ou não. Isso quer dizer que, ainda que a irrealidade não exista, temos que considerá-la no campo das possibilidades como existente, para que não haja uma determinação prévia no relativo. Pois, sendo o inexistente não referenciável, torna o existente a única escolha.
 
   Se o impossível não existe, então o Absoluto necessita de uma ação imperativa, e essa ação deve ser produzida por um agente. Portanto, o nada, como existência ou inexistência, nunca será possível. Se afirmo que o nada não existe, então o nada é uma opção, porém inválida. Quando afirmo que o nada existe, estou me referindo à realidade, que é uma opção válida. Portanto, há o nada que não existe e o nada que existe.
 
@@ -288,7 +288,7 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
    - A **graça** (o divino) **não destrói a natureza**, mas **a aperfeiçoa**.  
    - Analogamente, o impossível **não corrompe** o real, mas **o leva a sua plenitude**.  
 
-## Estrutura da Autodeterminação  
+# Estrutura da Autodeterminação  
 
 ### O Absoluto como relativo autodeterminado  
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo.  
