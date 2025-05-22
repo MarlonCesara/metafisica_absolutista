@@ -1394,3 +1394,5 @@ Se compararmos Adão e Eva à irrealidade — a qual foi absorvida na realidade 
 Nesse interim, Adão e Eva não teriam tido filhos, pois eram apenas o resultado da quebra da ilusão, ou seja, da irrealidade. Os frutos de Adão e Eva seriam o que resultou no real — a impossibilidade que deu origem à possibilidade.
 
 Ao se perpetuarem, Adão e Eva dariam continuidade à ilusão. E a ilusão, quando não colapsada no real, dissolve o tecido do real. Assim, Adão e Eva escolheram morrer e quebraram a ilusão, dando origem ao relativo. E, sobre essa figuração, Adão e Eva se estabeleceram."
+
+Porém, o sentido da alegoria teria sido composto por uma critica associada a possíveis ações de almas não fictícias, como veremos adiante. 
