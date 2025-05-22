@@ -54,6 +54,10 @@ Mas não sem antes a conscientização sobre as consequências de um amor não c
 
 O purgatório representa um lugar onde todos precisam se purgar para se tornarem como deuses, pois a glorificação exigiria perfeição absoluta em ações e total conformidade com Deus. Essas são visões futuras de um possível erro. Se imaginarmos um casal concebendo uma prole com o corpo original e, posteriormente, esse casal se separasse e morresse de fato, então a prole realmente necessitaria de uma restauração. Isso criaria uma situação em que precisariam ser adotados por Deus, recebendo uma nova genética – ou seja, uma predisposição para ações de natureza divina, semelhante à de Deus. Sem essa mesma perfeição divina, eles se tornariam destruidores do design original da criação. Todo esse contexto sugere um erro passível de ocorrer no futuro. Logicamente, se fôssemos criados diretamente por Deus, não haveria erro algum a ser corrigido. É como se Deus desejasse que sentíssemos na pele – por meio da prole – que poderíamos macular não apenas a nós mesmos, mas também as gerações futuras, tornando-nos responsáveis não só por um infortúnio pessoal, mas por um legado de imperfeição.
 
+### **Adão e Eva**: O inevitável
+
+Ao concluirmos que todo o universo é finito do ponto de vista das formas, e que o mundo acabará quer queiramos ou não graças a fatores cosmicos, temos o sentido de que, faltamente, O Ser desejou que conhecessemos a nossa verdadeira forma, tal como Adão e Eva. Ou seja, o comportamento de ambos foi criticado ao passo que é incentivado de maneira irreversível pelo design do universo. Simplesmente fomos destinados a romper o plano de Deus da criação, de forma a limitar o número de nascentes do Ser, ao menos neste plano. Ou seja, a malícia de Adão e Eva, ao passo que ocasionaria a destruição, é projetada de forma fatalitica neste mundo como único comportamento possível. E, meramente, do qual tentamos fugir criando formas de prolongamento do corpo humano.
+
 ---
 
 ## **Poema de Eva**  
