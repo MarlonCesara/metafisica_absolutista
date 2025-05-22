@@ -1373,7 +1373,7 @@ O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não
 
 Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
 
-# Sintese Geral
+# O Ser e o nada
 
 O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas as possibilidades e impossibilidades. O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual. O tempo coexiste com o Nada, no sentido de que há um avanço de todas as coisas até o ponto de sua completa neutralização. A transcendência é plena quando referida, porém, enquanto não perceptual, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
 
