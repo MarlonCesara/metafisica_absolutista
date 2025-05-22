@@ -76,7 +76,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 
 
-## Propriedades Essenciais do Absoluto  
+# Propriedades Essenciais do Absoluto  
 
 ### Autofundamentação  
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.  
@@ -108,7 +108,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 
 
-## Estruturação do Absoluto  
+# Estruturação do Absoluto  
 
 
 ## **A Problemática da Coexistência entre Realidade e Irrealidade**  
