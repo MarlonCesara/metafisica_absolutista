@@ -56,7 +56,7 @@ Ao concluirmos que todo o universo é finito do ponto de vista das formas e que 
 
 Assim, a malícia de Adão e Eva, embora ocasionasse a destruição, é projetada de forma fatalística neste mundo como o único comportamento possível — do qual, meramente, tentamos fugir, criando formas de prolongamento da existência humana.
 
-Se estamos numa história de Adão e Eva que culminou em corrupção (pois ambos, figurativamente, teriam morrido e deixado uma prole sem sentido, carente de transformação genética e glorificação), também somos ditos criados por Deus e, portanto, incorruptíveis. No entanto, somos arremessados com pressa para o mesmo destino escolhido por Adão e Eva.
+Se estamos numa história de Adão e Eva que culminou em corrupção (pois ambos, figurativamente, teriam morrido e deixado uma prole sem sentido, carente de transformação genética e glorificação), também somos ditos criados por Deus e, portanto, não corrompidos. No entanto, somos arremessados com pressa para o mesmo destino escolhido por Adão e Eva.
 
 Caso houvesse realmente um fruto envenenado e fôssemos imortais, será que alguém o comeria na tentativa de estabelecer um amor transcendente? Ou o homem está tão apegado à efemeridade que não deseja que seus atos tenham efeito eterno?
 
