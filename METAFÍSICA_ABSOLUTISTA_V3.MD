@@ -1,5 +1,25 @@
 # Metafísica Absolutista  
 
+## Reformulando os Princípios da lógica clássica
+
+### **Prefácio**
+
+O **Princípio da Identidade** ("A é A") estabelece a natureza essencial das coisas, afirmando que todo ente possui uma identidade determinada e invariável em si mesma. Este princípio opera no plano atemporal da essência.
+
+Já o **Princípio da Não-Contradição** ("A não pode ser A e não-A ao mesmo tempo") introduz uma dimensão temporal implícita. Enquanto o Princípio da Identidade afirma o que algo é, a Não-Contradição estabelece como algo persiste no tempo: proíbe a coexistência de estados contraditórios num mesmo ente ao longo de sua existência.
+
+O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro ao afirmar que, para qualquer ente em qualquer momento, não há terceira possibilidade entre ser e não-ser. Porém, diferentemente da Não-Contradição (que é dinâmica), o Terceiro Excluído é um princípio estático que estabelece as possibilidades lógicas fundamentais.
+
+**Reformulação dos Princípios:**
+
+1. **Princípios Atemporais**
+- *Identidade*: "A é A" (essência invariável)
+- *Terceiro Excluído*: "A ou não-A" (possibilidades lógicas fundamentais)
+
+2. **Princípios Temporais**
+- *Não-Contradição*: "A não pode ser não-A ao mesmo tempo "
+- *Não-Disformidade*: "A não pode ser B ao mesmo tempo"
+
 ## Formulando os Princípios Causais Metafísicos  
 
 ### Princípio da Causa Existencial (Fundamentação do ente)  
