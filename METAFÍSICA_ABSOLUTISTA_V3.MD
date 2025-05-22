@@ -56,6 +56,32 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 # Definições Metafísicas Fundamentais  
 
+#### Prefácio
+
+Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade** e **impossibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
+
+### **Possibilidade: O Domínio da Realidade Lógica**  
+A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico, constituindo o que chamamos de **realidade**.  
+
+- **Exemplo:** Um círculo é uma realidade geométrica possível, pois sua definição não contém contradição.  
+- **Implicação:** Tudo o que é possível pertence ao domínio da **Realidade**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
+
+### **Impossibilidade: O Domínio da Irrealidade Lógica**  
+A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **irrealidade**.  
+
+- **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.  
+- **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a realidade.  
+
+### **A Causalidade no Âmbito do Absoluto**  
+Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade e irrealidade se sustentam.  
+
+- **Causalidade Absoluta:** O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.  
+- **Consequência Metafísica:** Qualquer tentativa de explicar a origem ou natureza do real deve partir do Absoluto como princípio inquestionável, pois ele é a única noção que não requer uma causa externa – sua existência e essência são **autofundadas, autodeterminadas e autocontinuadas**.  
+
+Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas revela que **a própria distinção entre possível e impossível é uma expressão de sua natureza dinâmica e autossuficiente**.
+
+#### Definindo os conceitos fundamentais:
+
 ### Possibilidade  
 **Definição:** Existência lógica.  
 - **Exemplo:** "Um triângulo de quatro lados" é impossível; "um universo com leis físicas diferentes" é possível.  
