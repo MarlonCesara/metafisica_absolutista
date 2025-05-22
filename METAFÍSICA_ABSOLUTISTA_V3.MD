@@ -149,7 +149,9 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   Se tenho duas opções — o possível e o impossível — e considero que a opção "impossível" não existe, então só tenho a opção "possível". Isso faz com que a existência do possível seja determinada e que, por isso, sempre exija um determinador existente, anulando a própria ideia do nada como eficaz. Pois a ideia do nada anula a existência sem anular o que determinou o nada como nada. Mas, se considero que o impossível existe, então tenho duas opções para o Absoluto, e isso me permite pensá-lo como um fator que dispensa escolha prévia. Assim, quando penso no nada para o relativo, posso pensar em um nada sem escolha, pois o nada não é possível nem impossível, mas uma coexistência de ambos os fatores sem um agente determinador.
 
   Ao considerar que o impossível não existe, a determinação do Absoluto se localiza latente na própria afirmação de que o impossível não existe. E isso faz com que o Absoluto afirme a realidade como opção como consequência da crença na inexistência da impossibilidade. Portanto, ao considerar o Absoluto como existência pura, dispensando o agente que escolhe o que o Absoluto deve ser, deve-se levar em consideração o mesmo em sua pureza, sem parcialidade entre impossível e possível, sendo ambos os fatores existentes, cada qual com sua natureza individual e homogênea em relação ao outro. E essa homogeneidade chamaremos de relativo.
-  
+
+   A negação do próprio nada ao longo da filosofia vem escondendo um caminho irreversível: a afirmação do impossível como existência. Negar o nada é o mesmo que negar uma possibilidade que não pode ser negada, pois está confinada pelo crer no "possível" como a única opção para o absoluto. A verdadeira negação da possibilidade (o nada) acontece quando abrimos o absoluto à existência da impossibilidade. Dessa forma, o possível não se sustenta nem mesmo como afirmação.
+
   Quando definimos o impossível como existente e o lançamos para o Absoluto, fica a cargo do Absoluto dissolver essa dualidade numa resolução que tentaremos entender adiante.
 
 
@@ -177,8 +179,7 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.  
 
 
-
-## **Estruturação Final do Absoluto**  
+### **Estruturação Final do Absoluto**  
 
 1. **Nível Primordial (Indeterminação):**  
    - O Absoluto contém **todas as possibilidades e impossibilidades** sem distinção.  
@@ -192,12 +193,10 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
    - O Absoluto não precisa "decidir" ser; ele já é autossuficiente.  
    - A realidade não é "escolhida", mas é a única configuração possível que se sustenta.  
 
-
-
 ### **Conclusão: O Absoluto como Fundamento Não-Dual**  
-- **Não há um "Deus que escolhe" entre ser e nada.**  
+- **Não há um agente que escolhe entre ser e nada.**  
 - **Não há uma "determinação ativa" que privilegie a realidade.**  
-- O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**, mas apenas a realidade se manifesta por consistência lógica.  
+- O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**.  
 
 **Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
 
@@ -219,12 +218,12 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 #### **1. Paradoxo Ontológico Fundamental**  
 - **Tese:** Se a irrealidade possui existência ontológica, sua própria essência exige **autossupressão**.  
   - *Mecanismo:* A irrealidade, ao se atualizar, **nega sua condição de impossibilidade**, tornando-se real e, portanto, deixando de ser irreal.  
-  - *Efeito colateral:* Essa autonegação **dissolve simultaneamente a própria realidade**, pois a realidade depende da irrealidade como contraste definidor.  
+  - *Efeito colateral:* Essa autonegação **se dissolve simultaneamente na própria realidade**, pois a realidade depende da irrealidade como contraste definidor. 
 
 #### **2. Estado de Suspensão Ontológica**  
 - **Resultado:** Emerge um **estado liminar** onde:  
   - Não há **realidade afirmada** (pois seu fundamento contrastivo desapareceu).  
-  - Não há **irrealidade realizada** (pois sua manifestação a converteu em real).  
+  - Não há **irrealidade realizada** (pois sua manifestação a dissolveu no real).  
   - Vigora uma **indiferenciação radical**:  
     - *Possibilidade* e *impossibilidade* perdem seus estatutos.  
     - O Absoluto existe em **indiferenciação pura**, sem atualização determinada.  
@@ -267,7 +266,6 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - O impossível **não rompe** a estrutura do real, mas **atua nela de forma transfiguradora**.  
 - Sua aparição **não anula** a realidade, mas **corrobora sua plenitude**, revelando que o real **não se esgota no meramente factual**.  
 
----  
 
 ### **Exemplos Concretos**  
 
@@ -277,7 +275,6 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - **Depois:** A mudança ocorre **sem destruir a realidade** (as leis da natureza não são revogadas, mas **transcendidas**).  
 - **Efeito:** O impossível **não nega** o mundo, mas **revela sua profundidade oculta**.  
 
----  
 
 ### **Implicações Filosóficas e Teológicas**  
 1. **Realidade Aberta:**  
