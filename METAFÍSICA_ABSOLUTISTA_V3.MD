@@ -1,12 +1,14 @@
 # Reformulando os Princípios da lógica clássica
 
+#### **Prefácio**
+
 O **Princípio da Identidade** ("A é A") estabelece a natureza essencial das coisas, afirmando que todo ente possui uma identidade determinada e invariável em si mesma. Este princípio opera no plano atemporal da essência.
 
 Já o **Princípio da Não-Contradição** ("A não pode ser A e não-A ao mesmo tempo") introduz uma dimensão temporal implícita. Enquanto o Princípio da Identidade afirma o que algo é, a Não-Contradição estabelece como algo persiste no tempo: proíbe a coexistência de estados contraditórios num mesmo ente ao longo de sua existência.
 
 O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro ao afirmar que, para qualquer ente em qualquer momento, não há terceira possibilidade entre ser e não-ser. Porém, diferentemente da Não-Contradição (que é dinâmica), o Terceiro Excluído é um princípio estático que estabelece as possibilidades lógicas fundamentais.
 
-**Reformulação dos Princípios:**
+### **Reformulação dos Princípios:**
 
 1. **Princípios Atemporais**
 - *Identidade*: "A é A" (essência invariável)
@@ -17,6 +19,8 @@ O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro a
 - *Não-Disformidade*: "A não pode ser B ao mesmo tempo"
 
 # Formulando os Princípios Causais Metafísicos  
+
+#### **Prefácio**
 
 Ao integrarmos a causalidade aos princípios lógicos clássicos, descobrimos que toda realidade exige uma dupla fundamentação necessária: não apenas para a existência do ente, mas igualmente para sua identidade essencial. Essa análise revela dois eixos causais irredutíveis:
 
@@ -30,7 +34,7 @@ Essa distinção radical mostra que a causalidade não se aplica apenas ao surgi
 
 Os quatro princípios causais assim formulados - existencial, existencial continuada, identitária e identitária continuada - constituem um sistema completo de fundamentação metafísica, onde toda realidade encontra sua razão suficiente tanto no plano da existência quanto no da essência.
 
-**Reformulação Causal dos Princípios Lógicos Fundamentais:**
+## **Reformulação Causal dos Princípios Lógicos Fundamentais:**
 
 ### Princípio da Causa Existencial (Fundamentação do ente)  
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**  
@@ -113,7 +117,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 ## **A Problemática da Coexistência entre Realidade e Irrealidade**  
 
-### **Prefácio**
+#### **Prefácio**
 
   Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto. Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa. Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
 
