@@ -1240,6 +1240,10 @@ A nova entidade relacional enfrenta uma escolha metafísica:
    - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.  
 2. **Apatia do Encontro**  
    - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
+3. **Apatia do solidão**  
+   - Quando duas almas não se encontraram com o intuito de ser uma. A solidão da unicidade é um desencontro do si com o todo, de forma que seja um si solitário 
+     a si mesmo como ente auto determinante. A solidão não é um estado de alienação, mas um despropósito de si para com a própria visão singular de si mesmo. A 
+     presença plena de si, inclui a presença do outro como parte de si.
 
 #### **12. A Eternidade da União e a Mácula Ontológica**  
 1. **A Apatia no Encontro e Suas Consequências**  
@@ -1369,5 +1373,9 @@ O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não
 
 Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
 
+# Sintese Geral
 
+O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas as possibilidades e impossibilidades. O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual. O tempo coexiste com o Nada, no sentido de que há um avanço de todas as coisas até o ponto de sua completa neutralização. A transcendência é plena quando referida, porém, enquanto não perceptual, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
+
+A metafísica oferece a visão mais próxima possível entre lógica e transcendência. Não há caminho mais adequado, do ponto de vista lógico, para inferir o que existiria além da morte física, senão pelos percursos já expostos. Se houver algo a acrescentar, será como extensão do já dito, aprofundando detalhes.
 
