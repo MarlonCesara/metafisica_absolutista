@@ -20,6 +20,21 @@ O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro a
 
 ## Formulando os Princípios Causais Metafísicos  
 
+**Reformulação Causal dos Princípios Lógicos Fundamentais**
+
+Ao integrarmos a causalidade aos princípios lógicos clássicos, descobrimos que toda realidade exige uma dupla fundamentação necessária: não apenas para a existência do ente, mas igualmente para sua identidade essencial. Essa análise revela dois eixos causais irredutíveis:
+
+1. **Causa Existencial** - Responde à questão fundamental: *"Por que A existe em vez de não-existir?"*  
+   Corresponde ao plano da efetividade ontológica, onde se situam os princípios da não-contradição e do terceiro excluído em sua dimensão dinâmica.
+
+2. **Causa Identitária** - Responde à questão determinativa: *"Por que A é precisamente A e não outra coisa?"*  
+   Reflete o plano da essência atemporal, vinculado ao princípio da identidade em sua pureza metafísica.
+
+Essa distinção radical mostra que a causalidade não se aplica apenas ao surgimento e permanência dos entes (causa existencial), mas igualmente à sua determinação essencial (causa identitária). Enquanto a primeira garante *que* algo persista no ser, a segunda explica *o que* esse algo é em sua natureza intrínseca.
+
+Os quatro princípios causais assim formulados - existencial, existencial continuada, identitária e identitária continuada - constituem um sistema completo de fundamentação metafísica, onde toda realidade encontra sua razão suficiente tanto no plano da existência quanto no da essência.
+
+
 ### Princípio da Causa Existencial (Fundamentação do ente)  
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**  
   - *Equivalente lógico:* Princípio do Terceiro Excluído ("A ou não-A"), onde "A" existe por uma razão fundamental.  
