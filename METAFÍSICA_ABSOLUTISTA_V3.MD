@@ -1,6 +1,4 @@
-# Metafísica Absolutista  
-
-## Reformulando os Princípios da lógica clássica
+# Reformulando os Princípios da lógica clássica
 
 O **Princípio da Identidade** ("A é A") estabelece a natureza essencial das coisas, afirmando que todo ente possui uma identidade determinada e invariável em si mesma. Este princípio opera no plano atemporal da essência.
 
@@ -18,9 +16,7 @@ O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro a
 - *Não-Contradição*: "A não pode ser não-A ao mesmo tempo "
 - *Não-Disformidade*: "A não pode ser B ao mesmo tempo"
 
-## Formulando os Princípios Causais Metafísicos  
-
-**Reformulação Causal dos Princípios Lógicos Fundamentais**
+# Formulando os Princípios Causais Metafísicos  
 
 Ao integrarmos a causalidade aos princípios lógicos clássicos, descobrimos que toda realidade exige uma dupla fundamentação necessária: não apenas para a existência do ente, mas igualmente para sua identidade essencial. Essa análise revela dois eixos causais irredutíveis:
 
@@ -34,6 +30,7 @@ Essa distinção radical mostra que a causalidade não se aplica apenas ao surgi
 
 Os quatro princípios causais assim formulados - existencial, existencial continuada, identitária e identitária continuada - constituem um sistema completo de fundamentação metafísica, onde toda realidade encontra sua razão suficiente tanto no plano da existência quanto no da essência.
 
+**Reformulação Causal dos Princípios Lógicos Fundamentais**
 
 ### Princípio da Causa Existencial (Fundamentação do ente)  
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**  
@@ -53,7 +50,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 
 
-## Definições Metafísicas Fundamentais  
+# Definições Metafísicas Fundamentais  
 
 ### Possibilidade  
 **Definição:** Existência lógica.  
