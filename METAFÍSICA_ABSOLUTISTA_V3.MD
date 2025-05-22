@@ -18,6 +18,8 @@
 - **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**  
   - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma razão contínua.  
 
+
+
 ## Definições Metafísicas Fundamentais  
 
 ### Possibilidade  
@@ -41,6 +43,8 @@
 
 ### Irrealidade  
 - **Definição:** Subconjunto do Absoluto que compreende todas as impossibilidades.  
+
+
 
 ## Propriedades Essenciais do Absoluto  
 
@@ -72,6 +76,8 @@
   - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
+
+
 ## Estruturação do Absoluto  
 
 
@@ -79,26 +85,19 @@
 
 ### **Prefácio**
 
-Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto.
-Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa.
+  Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto. Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa. Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
 
-Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
-Ao considerar a possibilidade de uma existência ilógica, despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Dessa forma, ainda que haja existência ou o próprio nada, tudo terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
+  Ao considerar a possibilidade de uma existência ilógica, despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Dessa forma, ainda que haja existência ou o próprio nada, tudo terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
 
-Se o Absoluto é realidade e existência, e há outra opção de existência (a irrealidade), logo, está determinado como realidade, sendo a irrealidade possível ou impossível.
-Isso quer dizer que, ainda que a irrealidade não exista, temos que considerá-la no campo das possibilidades como existente, para que não haja uma determinação prévia no relativo. Pois, sendo o inexistente não referenciável, torna o existente a única escolha.
+  Se o Absoluto é realidade e existência, e há outra opção de existência (a irrealidade), logo, está determinado como realidade, sendo a irrealidade possível ou impossível. Isso quer dizer que, ainda que a irrealidade não exista, temos que considerá-la no campo das possibilidades como existente, para que não haja uma determinação prévia no relativo. Pois, sendo o inexistente não referenciável, torna o existente a única escolha.
 
-Se o impossível não existe, então o Absoluto necessita de uma ação imperativa, e essa ação deve ser produzida por um agente. Portanto, o nada, como existência ou inexistência, nunca será possível.
+  Se o impossível não existe, então o Absoluto necessita de uma ação imperativa, e essa ação deve ser produzida por um agente. Portanto, o nada, como existência ou inexistência, nunca será possível. Se afirmo que o nada não existe, então o nada é uma opção, porém inválida. Quando afirmo que o nada existe, estou me referindo à realidade, que é uma opção válida. Portanto, há o nada que não existe e o nada que existe.
 
-Exemplo: Se afirmo que o nada não existe, então o nada é uma opção, porém inválida. Quando afirmo que o nada existe, estou me referindo à realidade, que é uma opção válida. Portanto, há o nada que não existe e o nada que existe.
+  Se tenho duas opções — o possível e o impossível — e considero que a opção "impossível" não existe, então só tenho a opção "possível". Isso faz com que a existência do possível seja determinada e que, por isso, sempre exija um determinador existente, anulando a própria ideia do nada como eficaz. Pois a ideia do nada anula a existência sem anular o que determinou o nada como nada. Mas, se considero que o impossível existe, então tenho duas opções para o Absoluto, e isso me permite pensá-lo como um fator que dispensa escolha prévia. Assim, quando penso no nada para o relativo, posso pensar em um nada sem escolha, pois o nada não é possível nem impossível, mas uma coexistência de ambos os fatores sem um agente determinador.
 
-Exemplo: Se tenho duas opções — o possível e o impossível — e considero que a opção "impossível" não existe, então só tenho a opção "possível". Isso faz com que a existência do possível seja determinada e que, por isso, sempre exija um determinador existente, anulando a própria ideia do nada como eficaz. Pois a ideia do nada anula a existência sem anular o que determinou o nada como nada. Mas, se considero que o impossível existe, então tenho duas opções para o Absoluto, e isso me permite pensá-lo como um fator que dispensa escolha prévia. Assim, quando penso no nada para o relativo, posso pensar em um nada sem escolha, pois o nada não é possível nem impossível, mas uma coexistência de ambos os fatores sem um agente determinador.
-
-Ao considerar que o impossível não existe, a determinação do Absoluto se localiza latente na própria afirmação de que o impossível não existe. E isso faz com que o Absoluto afirme a realidade como opção como consequência da crença na inexistência da impossibilidade.
-
-Portanto, ao considerar o Absoluto como existência pura, dispensando o agente que escolhe o que o Absoluto deve ser, deve-se levar em consideração o mesmo em sua pureza, sem parcialidade entre impossível e possível, sendo ambos os fatores existentes, cada qual com sua natureza individual e homogênea em relação ao outro. E essa homogeneidade chamaremos de relativo.
-
-Quando definimos o impossível como existente e o lançamos para o Absoluto, fica a cargo do Absoluto dissolver essa dualidade numa resolução que tentaremos entender adiante.
+  Ao considerar que o impossível não existe, a determinação do Absoluto se localiza latente na própria afirmação de que o impossível não existe. E isso faz com que o Absoluto afirme a realidade como opção como consequência da crença na inexistência da impossibilidade. Portanto, ao considerar o Absoluto como existência pura, dispensando o agente que escolhe o que o Absoluto deve ser, deve-se levar em consideração o mesmo em sua pureza, sem parcialidade entre impossível e possível, sendo ambos os fatores existentes, cada qual com sua natureza individual e homogênea em relação ao outro. E essa homogeneidade chamaremos de relativo.
+  
+  Quando definimos o impossível como existente e o lançamos para o Absoluto, fica a cargo do Absoluto dissolver essa dualidade numa resolução que tentaremos entender adiante.
 
 
 ### **1. O Problema da Determinação Ativa**  
@@ -124,7 +123,7 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - Mas o nada **não tem poder causal**, logo, não pode anular o ser.  
 - Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.  
 
----  
+
 
 ## **Estruturação Final do Absoluto**  
 
@@ -140,7 +139,7 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
    - O Absoluto não precisa "decidir" ser; ele já é autossuficiente.  
    - A realidade não é "escolhida", mas é a única configuração possível que se sustenta.  
 
----  
+
 
 ### **Conclusão: O Absoluto como Fundamento Não-Dual**  
 - **Não há um "Deus que escolhe" entre ser e nada.**  
