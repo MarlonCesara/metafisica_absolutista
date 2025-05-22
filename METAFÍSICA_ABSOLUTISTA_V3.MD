@@ -1381,5 +1381,3 @@ A transcendência total já seria perceptual para o Ser. Desta forma, o nada ind
 
 O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e transcende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir simultaneamente, ser si mesma e todos ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria de fato.
 
-A metafísica oferece a visão mais próxima possível entre lógica e transcendência. Não há caminho mais adequado, do ponto de vista lógico, para inferir o que existiria além da morte física, senão pelos percursos já expostos. Se houver algo a acrescentar, será como extensão do já dito, aprofundando detalhes.
-
