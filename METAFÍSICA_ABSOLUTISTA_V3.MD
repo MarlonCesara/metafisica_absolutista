@@ -1381,5 +1381,15 @@ A metafísica oferece a visão mais próxima possível entre lógica e transcend
 
 # O mistério do Ser
 
-O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e trascende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir ao mesmo tempo, ser a si mesma e a todos ao mesmo tempo. O processo pelo qual uma alma atingiria este nível de evolução não existiria de fato. 
+O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e trascende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir ao mesmo tempo, ser a si mesma e a todos ao mesmo tempo. O processo pelo qual uma alma atingiria este nível de evolução não existiria de fato. Mas podemos estabelecer uma narrativa alegórica para figurar a evolução da alma até o nível Ser.
+
+Se uma alma plena, chamaremos de Adão e Eva, ambos auto determinados, ou seja, evoluidos espiritualmente. Corrompessem a si mesmos, ou seja, se aniquilassem em prol de uma causa verdadeira de amor. Estariam agregados em algo maior que eles, no sentido de que a causa os absorveria de uma forma, pois na causa haveria o propósito maior.
+
+Desta forma, a autodeterminaçaõ de ambos, seriam perfeitas, ao nível de rompe-los em identidade e existencia. Ambos se fundiriam, tornando-se indiscerníveis. E estariam alem da existencia e identidade. Dariam, portanto, vida e forma a todas as coisas. 
+
+Se compararmos Adão e Eva a irrealidade, a qual foi absorvida na realidade. Teriamos uma representação anterior ao relativo. Uma figuração do irrealidade. E uma figuração que poderia agregar ao homem, um sentido de ter sido corrompido.
+
+Neste interim, Adão e Eva não teriam tido filhos, pois eram somente o resultado da quebra da ilusão, ou seja, da irrealidade. Os frutos de Adão e Eva seriam o que se resultou no real. Ou seja, a impossibiliadade que deu origem a possibilidade. 
+
+Ao se perpetuarem Adão e Eva dariam continuidade à ilusão. E a ilusão, quando não colapsada no real dissolve o tecido do real, então Adão e Eva escolheram morrer e quebraram a ilusão, dando origem ao relativo. E em cima dessa figuração, Adão e Eva se estabeleceu.
 
