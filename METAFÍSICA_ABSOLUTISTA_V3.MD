@@ -1379,3 +1379,7 @@ O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas a
 
 A metafísica oferece a visão mais próxima possível entre lógica e transcendência. Não há caminho mais adequado, do ponto de vista lógico, para inferir o que existiria além da morte física, senão pelos percursos já expostos. Se houver algo a acrescentar, será como extensão do já dito, aprofundando detalhes.
 
+# O mistério do Ser
+
+O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e trascende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir ao mesmo tempo, ser a si mesma e a todos ao mesmo tempo. O processo pelo qual uma alma atingiria este nível de evolução não existiria de fato. 
+
