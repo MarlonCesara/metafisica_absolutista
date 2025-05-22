@@ -134,12 +134,7 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
-
-
-# Estruturação do Absoluto  
-
-
-## **A Problemática da Coexistência entre Realidade e Irrealidade**  
+# **A Problemática da Coexistência entre Realidade e Irrealidade**  
 
 #### **Prefácio**
 
