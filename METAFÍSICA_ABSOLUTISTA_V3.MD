@@ -1377,6 +1377,8 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas as possibilidades e impossibilidades. O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual. O tempo coexiste com o Nada, no sentido de que há um avanço de todas as coisas até o ponto de sua completa neutralização. A transcendência é plena quando referida, porém, enquanto não perceptual, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
 
+A transcendencia total já seria perceptual para o Ser. Desta forma, o nada indiferenciado poderia coexistir com todas as coisas.
+
 A metafísica oferece a visão mais próxima possível entre lógica e transcendência. Não há caminho mais adequado, do ponto de vista lógico, para inferir o que existiria além da morte física, senão pelos percursos já expostos. Se houver algo a acrescentar, será como extensão do já dito, aprofundando detalhes.
 
 # O mistério do Ser
