@@ -2,8 +2,6 @@
 
 ## Reformulando os Princípios da lógica clássica
 
-### **Prefácio**
-
 O **Princípio da Identidade** ("A é A") estabelece a natureza essencial das coisas, afirmando que todo ente possui uma identidade determinada e invariável em si mesma. Este princípio opera no plano atemporal da essência.
 
 Já o **Princípio da Não-Contradição** ("A não pode ser A e não-A ao mesmo tempo") introduz uma dimensão temporal implícita. Enquanto o Princípio da Identidade afirma o que algo é, a Não-Contradição estabelece como algo persiste no tempo: proíbe a coexistência de estados contraditórios num mesmo ente ao longo de sua existência.
