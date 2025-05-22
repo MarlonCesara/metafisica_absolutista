@@ -1,8 +1,5 @@
 # Teologia Absolutista: Ações, Profecias e Revelações
 
-*"Conhecereis a verdade, e a verdade vos libertará."* - João 8:32
-
-
 # **Gênesis**  
 
 A bíblia, do ponto de vista do absolutismo, é vista como fundamentada nos axiomas absolutistas, porém, com teor de subjetividade atribuida pela intuição divina, de forma a formar e orientar o homem em direção a sua plenitude. Em vista de que, o homem por si só, não tem elucidação o suficiente para compreender a vivencia em sua essência verdadeira, tal como força o suficiente para sair de um estado de estagnação no qual se encerrou definitivo. 
@@ -38,7 +35,6 @@ A apatia do encontro foi retratada com primazia na biblia, talvez por representa
 
 A bíblia carrega em si um subjetivismo de grande teor e volume, o modelo de racioício de Deus se esboça em diversas linhas temporais e possibildades como no caso de Adão e Eva, que poderia ser um reflexo futuro da ação do homem evidenciado num passado remoto. Deus, portanto, através de Cristo, esboça uma solução para conflitos que emergem no futuro e no presente. De forma que, em muitos momentos, há fuga de linhas temporais e lógicas, como no caso da restauração do universo a um estado de graça e em um tempo oculto ou na história de Adão e Eva que não poderiam ter se dado neste universo, em virtude que não morriam.
 
----
 
 ### **Adão e Eva**: Sob outra perspectiva  
 
@@ -56,9 +52,18 @@ O purgatório representa um lugar onde todos precisam se purgar para se tornarem
 
 ### **Adão e Eva**: O inevitável
 
-Ao concluirmos que todo o universo é finito do ponto de vista das formas, e que o mundo acabará quer queiramos ou não graças a fatores cosmicos, temos o sentido de que, faltamente, O Ser desejou que conhecessemos a nossa verdadeira forma, tal como Adão e Eva. Ou seja, o comportamento de ambos foi criticado ao passo que é incentivado de maneira irreversível pelo design do universo. Simplesmente fomos destinados a romper o plano de Deus da criação, de forma a limitar o número de nascentes do Ser, ao menos neste plano. Ou seja, a malícia de Adão e Eva, ao passo que ocasionaria a destruição, é projetada de forma fatalitica neste mundo como único comportamento possível. E, meramente, do qual tentamos fugir criando formas de prolongamento do corpo humano.
+Ao concluirmos que todo o universo é finito do ponto de vista das formas e que o mundo acabará, quer queiramos ou não, graças a fatores cósmicos, temos a sensação de que, falhamente, o Ser desejou que conhecêssemos a nossa verdadeira forma, tal como Adão e Eva. Ou seja, o comportamento de ambos foi criticado, ao passo que é incentivado de maneira irreversível pelo design do universo. Simplesmente fomos destinados a romper o plano de Deus na criação, de forma a limitar o número de manifestações do Ser, ao menos neste plano.
 
----
+Assim, a malícia de Adão e Eva, embora ocasionasse a destruição, é projetada de forma fatalística neste mundo como o único comportamento possível — do qual, meramente, tentamos fugir, criando formas de prolongamento da existência humana.
+
+Se estamos numa história de Adão e Eva que culminou em corrupção (pois ambos, figurativamente, teriam morrido e deixado uma prole sem sentido, carente de transformação genética e glorificação), também somos ditos criados por Deus e, portanto, incorruptíveis. No entanto, somos arremessados com pressa para o mesmo destino escolhido por Adão e Eva.
+
+Caso houvesse realmente um fruto envenenado e fôssemos imortais, será que alguém o comeria na tentativa de estabelecer um amor transcendente? Ou o homem está tão apegado à efemeridade que não deseja que seus atos tenham efeito eterno?
+
+O Ser, ao construir o mundo, gritou por responsabilidade, mas grita ainda mais alto por transcendência. Pois a plenitude de Deus corrobora a favor da vida, e há vida além da transcendência. Portanto, o Ser busca tanto a vida que já existe quanto a vida transcendida desta vida pré-existente.
+
+Em síntese, o sentido da morte é puramente transcendente: exortar o homem a saltar de seu ninho e alçar voos mais altos. Porém, não sem antes lhe dar uma lição preciosa — uma lição que o marcasse, de forma a não corromper o tecido da eternidade com decisões disformes à plenitude do Ser.
+
 
 ## **Poema de Eva**  
 
@@ -371,7 +376,6 @@ de que um dia existi.
 - Não vive em estado de histeria ou cegueira existencial, como a alma apática.  
 - Mantém uma certa serenidade, ainda que desprovida de grande esperança.  
 
----  
 
 # **Almas Apáticas**  
 
