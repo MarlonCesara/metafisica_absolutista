@@ -1381,14 +1381,14 @@ A metafísica oferece a visão mais próxima possível entre lógica e transcend
 
 # O mistério do Ser
 
-**"O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e transcende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir simultaneamente, ser si mesma e todos ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria de fato. Porém, podemos estabelecer uma narrativa alegórica para figurar a evolução da alma até o nível do Ser.**
+"O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e transcende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir simultaneamente, ser si mesma e todos ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria de fato. Porém, podemos estabelecer uma narrativa alegórica para figurar a evolução da alma até o nível do Ser.
 
-**Se uma alma plena — a qual chamaremos de Adão e Eva, ambos autodeterminados, ou seja, evoluídos espiritualmente — se corrompesse a si mesma, ou seja, se aniquilasse em prol de uma causa verdadeira de amor, estaria agregada a algo maior. No sentido de que a causa os absorveria, pois nela residiria o propósito maior.**
+Se uma alma plena — a qual chamaremos de Adão e Eva, ambos autodeterminados, ou seja, evoluídos espiritualmente — se corrompesse a si mesma, ou seja, se aniquilasse em prol de uma causa verdadeira de amor, estaria agregada a algo maior. No sentido de que a causa os absorveria, pois nela residiria o propósito maior.
 
-**Dessa forma, a autodeterminação de ambos seria perfeita, ao ponto de romper sua identidade e existência. Ambos se fundiriam, tornando-se indiscerníveis, e estariam além da existência e da identidade. Dariam, portanto, vida e forma a todas as coisas.**
+Dessa forma, a autodeterminação de ambos seria perfeita, ao ponto de romper sua identidade e existência. Ambos se fundiriam, tornando-se indiscerníveis, e estariam além da existência e da identidade. Dariam, portanto, vida e forma a todas as coisas.
 
-**Se compararmos Adão e Eva à irrealidade — a qual foi absorvida na realidade —, teríamos uma representação anterior ao relativo: uma figuração da irrealidade. Essa figuração poderia agregar ao homem um sentido de ter sido corrompido.**
+Se compararmos Adão e Eva à irrealidade — a qual foi absorvida na realidade —, teríamos uma representação anterior ao relativo: uma figuração da irrealidade. Essa figuração poderia agregar ao homem um sentido de ter sido corrompido.
 
-**Nesse interim, Adão e Eva não teriam tido filhos, pois eram apenas o resultado da quebra da ilusão, ou seja, da irrealidade. Os frutos de Adão e Eva seriam o que resultou no real — a impossibilidade que deu origem à possibilidade.**
+Nesse interim, Adão e Eva não teriam tido filhos, pois eram apenas o resultado da quebra da ilusão, ou seja, da irrealidade. Os frutos de Adão e Eva seriam o que resultou no real — a impossibilidade que deu origem à possibilidade.
 
-**Ao se perpetuarem, Adão e Eva dariam continuidade à ilusão. E a ilusão, quando não colapsada no real, dissolve o tecido do real. Assim, Adão e Eva escolheram morrer e quebraram a ilusão, dando origem ao relativo. E, sobre essa figuração, Adão e Eva se estabeleceram."**
+Ao se perpetuarem, Adão e Eva dariam continuidade à ilusão. E a ilusão, quando não colapsada no real, dissolve o tecido do real. Assim, Adão e Eva escolheram morrer e quebraram a ilusão, dando origem ao relativo. E, sobre essa figuração, Adão e Eva se estabeleceram."
