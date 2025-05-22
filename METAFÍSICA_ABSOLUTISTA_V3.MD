@@ -30,7 +30,7 @@ Essa distinção radical mostra que a causalidade não se aplica apenas ao surgi
 
 Os quatro princípios causais assim formulados - existencial, existencial continuada, identitária e identitária continuada - constituem um sistema completo de fundamentação metafísica, onde toda realidade encontra sua razão suficiente tanto no plano da existência quanto no da essência.
 
-**Reformulação Causal dos Princípios Lógicos Fundamentais**
+**Reformulação Causal dos Princípios Lógicos Fundamentais:**
 
 ### Princípio da Causa Existencial (Fundamentação do ente)  
 - **Tudo que existe tem uma causa que explica por que existe em vez de não existir.**  
