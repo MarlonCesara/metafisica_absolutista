@@ -104,9 +104,7 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 ### Irrealidade  
 - **Definição:** Subconjunto do Absoluto que compreende todas as impossibilidades.  
 
-
-
-# Propriedades Essenciais do Absoluto  
+### Propriedades Essenciais do Absoluto  
 
 ### Autofundamentação  
 - **Definição:** Refere-se à causa primeira da existência do Absoluto.  
