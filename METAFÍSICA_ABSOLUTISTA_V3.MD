@@ -1375,6 +1375,8 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 # O Ser e o nada
 
+### Os limites do relatívo
+
 **O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas as possibilidades e impossibilidades, sendo determinada pelo Ser.** O Nada indiferenciado não é a totalidade do Ser, mas sim uma possibilidade interna ao Ser. O Ser transcende o próprio relativo, pois, em seu “Ser-ai”, não se coloca inteiramente no âmbito do relativo. O Ser cria todas as coisas e possui a qualidade de estar além daquilo que chamamos de existência. Ou seja, compreendemos o “ai” do “Ser-ai”, mas o conceito real daquilo que provoca esse “ai” é inalcançável.
 
 **O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende tanto o existir quanto a distinção.** Se fosse observado sob o referencial de uma alma, seria como uma alma completa (em dualidade) que pode existir e não existir simultaneamente, ser ela mesma e todas ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria, de fato.
@@ -1395,9 +1397,14 @@ Para evitar esse tipo de aberração conceitual, propomos um conceito mais abstr
 
 Sendo o relativo um potencial do ultra-relativo — do amor, do ilógico, do abstrato, do não cognoscível —, compreendemos que há uma realidade que rompe com as leis da lógica. Uma realidade que não pode ser dita existente nem inexistente, com forma nem sem forma. Uma realidade que só pode ser apreendida como sentimento: uma abstração experienciável, mas não cognoscível.
 
+
+### Co-existência entre a manifestação da alma e o nada absoluto integral.
+
 **O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual.** O tempo coexiste com o Nada, pois há um avanço de todas as coisas rumo ao ponto de sua completa neutralização. A transcendência é plena quando referida, mas, enquanto não perceptível, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
 
 **A transcendência total seria perceptível apenas ao Ser.** Assim, o Nada indiferenciado poderia coexistir com todas as coisas. O Nada não é a total ausência, mas sim a transcendência do tempo, do espaço e até mesmo da definição ou forma.
+
+Sendo perceptível ao Ser é possível o ilógico, ou seja, que o Ser seja pleno e permita uma versão de si não plena, sob pontos de vista antagonicos.
 
 
 
