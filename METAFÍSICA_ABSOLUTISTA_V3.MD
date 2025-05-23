@@ -1387,8 +1387,6 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 **Não há como descrever o existir para além do existir, nem a alma para além da alma.** O conceito mais aproximado seria o do Nada absoluto — a ausência total e irrestrita de qualquer coisa, inclusive do próprio relativo. Essa "existência" fere o tecido da lógica, pois o nada, por definição, infere necessariamente algum potencial de si mesmo. No entanto, ao nos referirmos à inexistência sem tomar como base aquilo que existe, acabamos por estabelecer uma contradição lógica. Estaríamos afirmando um **ultra-relativo** — ou seja, a ideia de um nada sem qualquer potencial que, paradoxalmente, serviria como referência para um nada com potencial.
 
-Isto é, para alem do relativo a irrealidade é levada a um patamar realizável. Em outras palavras, para um ultra-relativo seria possível visualizar um circulo quadrado. Ou uma existencia que não existe. Para que não haja uma aberração, neste sentido, definimos um conceito mais abstrato para o conteúdo do Ser, ou seja, o autor da ação. Chamemos o autor de "Amor", no sentido de que é um potencial do fascinio, do vislumbre, no imcompreensível, do perfeito e do divíno. 
-
 **Isto é, para além do relativo, a irrealidade é elevada a um patamar realizável.** Em outras palavras, para um ultra-relativo, seria possível conceber um círculo quadrado — ou uma existência que, paradoxalmente, não existe.
 
 Para evitar esse tipo de aberração conceitual, propomos um conceito mais abstrato para o conteúdo do Ser — ou seja, para o autor da ação. Chamemos esse autor de **"Amor"**, no sentido de um potencial de fascínio, de vislumbre diante do incompreensível, do perfeito e do divino.
