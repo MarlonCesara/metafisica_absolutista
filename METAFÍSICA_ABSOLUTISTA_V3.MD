@@ -1391,7 +1391,9 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 Para evitar esse tipo de aberração conceitual, propomos um conceito mais abstrato para o conteúdo do Ser — ou seja, para o autor da ação. Chamemos esse autor de **"Amor"**, no sentido de um potencial de fascínio, de vislumbre diante do incompreensível, do perfeito e do divino.
 
-**Algo tão extraordinário que delimita os limites da investigação lógica e nos conduz à experiência.** Uma visão tão honorífica que permeia o campo do incompreensível, do inefável, do sublime — o que é digno de louvor e adoração.
+**Algo tão extraordinário que delimita os limites da investigação lógica e nos conduz à experiência.** Uma visão tão honorífica que permeia o campo do incompreensível, do inefável, do sublime.
+
+Sendo o relativo um potencial do ultra-relativo — do amor, do ilógico, do abstrato, do não cognoscível —, compreendemos que há uma realidade que rompe com as leis da lógica. Uma realidade que não pode ser dita existente nem inexistente, com forma nem sem forma. Uma realidade que só pode ser apreendida como sentimento: uma abstração experienciável, mas não cognoscível.
 
 **O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual.** O tempo coexiste com o Nada, pois há um avanço de todas as coisas rumo ao ponto de sua completa neutralização. A transcendência é plena quando referida, mas, enquanto não perceptível, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
 
