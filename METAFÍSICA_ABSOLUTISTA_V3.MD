@@ -1375,9 +1375,21 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 # O Ser e o nada
 
-O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas as possibilidades e impossibilidades. O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual. O tempo coexiste com o Nada, no sentido de que há um avanço de todas as coisas até o ponto de sua completa neutralização. A transcendência é plena quando referida, porém, enquanto não perceptual, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
+**O Absoluto é o Nada indiferenciado, e a interioridade desse Nada abarca todas as possibilidades e impossibilidades, sendo determinada pelo Ser.** O Nada indiferenciado não é a totalidade do Ser, mas sim uma possibilidade interna ao Ser. O Ser transcende o próprio relativo, pois, em seu “Ser-ai”, não se coloca inteiramente no âmbito do relativo. O Ser cria todas as coisas e possui a qualidade de estar além daquilo que chamamos de existência. Ou seja, compreendemos o “ai” do “Ser-ai”, mas o conceito real daquilo que provoca esse “ai” é inalcançável.
 
-A transcendência total já seria perceptual para o Ser. Desta forma, o nada indiferenciado poderia coexistir com todas as coisas. O nada não é a total ausência, mas a transcendência do tempo, do espaço e até mesmo da definição ou forma.
+**O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende tanto o existir quanto a distinção.** Se fosse observado sob o referencial de uma alma, seria como uma alma completa (em dualidade) que pode existir e não existir simultaneamente, ser ela mesma e todas ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria, de fato.
 
-O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende o próprio existir e transcende a distinção. Se fosse visto pelo referencial de uma alma, seria uma alma que pode existir e não existir simultaneamente, ser si mesma e todos ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria de fato.
+**A perfeição do Ser o retira do campo do cognoscível.** Ou seja, o que é cognoscível — aquilo que está dentro das leis lógicas ou até mesmo da transgressão dessas leis — não é suficiente para compreender a complexidade e a mensurabilidade do “Ser” dissociado do “Ser-ai”. O “ai” representa o relativo, e o conceito de Ser é o próprio pronunciamento da escassez conceitual de uma palavra que tente descrever algo que só é possível inferir por sua ação. Em outras palavras, o “Ser” é a ação que faz existir, embora ainda carregue um caráter indescritível.
+
+**Pensar que duas almas poderiam alcançar tal nível de perfeição implicaria que estariam numa esfera onde a lógica se desfaz e tende ao infinito da transcendência.** Ao transcender o próprio existir — isto é, quando essa dualidade supera a necessidade de realidade ou irrealidade para exercer ação como “Ser” — já se teria ultrapassado o existir rumo a um “ultra-existir”. A manifestação do relativo seria, então, o princípio do potencial real do Ser.
+
+**O Ser atinge a pureza absoluta.** Ao considerarmos o relativo, referimo-nos àquilo que não requer fundamento, ou seja, à autoexistência. Contudo, isso não significa que o relativo não esteja na esfera do absoluto. Dessa forma, o absoluto torna-se o compreensível — mas não a totalidade. O absoluto não possui pureza absoluta no sentido de não conter sequer o potencial de manifestação.
+
+**O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual.** O tempo coexiste com o Nada, pois há um avanço de todas as coisas rumo ao ponto de sua completa neutralização. A transcendência é plena quando referida, mas, enquanto não perceptível, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
+
+**A transcendência total seria perceptível apenas ao Ser.** Assim, o Nada indiferenciado poderia coexistir com todas as coisas. O Nada não é a total ausência, mas sim a transcendência do tempo, do espaço e até mesmo da definição ou forma.
+
+
+
+
 
