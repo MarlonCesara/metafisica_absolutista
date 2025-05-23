@@ -415,9 +415,9 @@ Enquanto as **almas do purgatório** vivem em um estado de esperança mínima, a
 
 Neste texto, apresento uma visão subjetiva dos apáticos, construída a partir de observações cotidianas. 
 
-O indivíduo apático se percebe como **resíduo**—isto é, aquilo que, uma vez esgotada sua função, aguarda apenas o descarte. Enquanto o valor de um animal corpóreo reside em sua inconsciência (ou em sua "alma", caso se queira), o apático, dotado de consciência de sua finitude, concebe-se como sobra.  
+O indivíduo apático se percebe como **resíduo**—isto é, aquilo que, uma vez esgotada sua função, aguarda apenas o descarte. Enquanto a percepçção de auto preservação de um animal corpóreo reside na inconsciência da sua finitude (ou em sua "alma", caso se queira e seja humano) que garanta sua infinitude, o apático, dotado de percepção de sua finitude, concebe-se como sobra. Sua alma simplesmente não é perceptual a si mesmo, não toma posse do animal.  
 
-O **resíduo** é um composto cujo único propósito é desfazer-se e ser eliminado. Essa noção ecoa a visão bíblica do inferno: aquilo que será lançado às trevas e consumido pelo fogo. Mesmo a matéria orgânica, em decomposição, ainda se qualificaria como resíduo alimentar—algo que já cumpriu seu papel e agora aguarda a dissolução final.  
+O **resíduo** é um composto cujo único propósito é desfazer-se e ser eliminado. Essa noção ecoa a visão bíblica do inferno: aquilo que será lançado nas mediações e consumido pelo fogo. Mesmo a matéria orgânica, em decomposição, ainda se qualificaria como resíduo alimentar—algo que já cumpriu seu papel e agora aguarda a dissolução final.  
 
 O apático não se vê como ruína, pois a ruína pressupõe uma estrutura outrora íntegra. Ele é, antes, o **resto** de um processo que nunca lhe conferiu significado. Sua existência não é tragédia, mas resquício.  
 
@@ -434,7 +434,7 @@ Não se trata de melancolia, mas de uma economia existencial perversa: ele se v�
 Enquanto alguns lutam contra o absurdo, ele o habita como um esqueleto habita suas próprias roupas. Não há revolta, apenas o silêncio de quem espera, não pela morte, mas pelo **fim do adiamento**.  
 
 ### **O Lixo que Pensa**  
-Eis o paradoxo terminal: ele tem consciência de sua condição de resíduo, o que o torna diferente do mero objeto descartado. Um cadáver não sabe que é cadáver; um copo quebrado não sofre por estar inútil. O apático, porém, **sabe-se supérfluo**, e essa consciência é o último vestígio de vida em seu deserto.  
+Eis o paradoxo terminal: ele tem percepção de sua condição de resíduo, o que o torna diferente do mero objeto descartado. Um cadáver não sabe que é cadáver; um copo quebrado não sofre por estar inútil. O apático, porém, **sabe-se supérfluo**, e essa percepção é o último vestígio de vida em seu deserto.  
 
 Talvez essa seja a verdadeira punição: não o fogo, não o gelo, mas a eterna **espera do lixo que ainda não foi recolhido**.  
 
@@ -464,5 +464,5 @@ Nossa época produz indivíduos como produtos de prateleira: **com data de valid
 - Enquanto alguns temem a insignificância, o apático **a encarna**.  
 - Enquanto outros buscam legado, ele **cultiva o efêmero**, porque sabe que nada persiste.  
 
-Sua única tradução possível é **o excesso que não serve para nada**—e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica destinos para depois jogá-los fora.  
+Sua única tradução possível é **o excesso que não serve para nada**—e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica objetos para depois jogá-los fora.  
 
