@@ -1,4 +1,4 @@
-# **Teologia Absolutista: Ações, Profecias e Revelações**  
+# **Teologia Absolutista: A lógica bíblica 
 
 # **Gênesis**  
 
