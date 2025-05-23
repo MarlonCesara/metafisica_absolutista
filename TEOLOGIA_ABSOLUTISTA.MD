@@ -1,4 +1,4 @@
-# **Teologia Absolutista: A lógica bíblica 
+# **Teologia Absolutista**
 
 # **Gênesis**  
 
