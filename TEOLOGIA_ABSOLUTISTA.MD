@@ -1,6 +1,6 @@
 # **Teologia Absolutista**
 
-# **Gênesis**  
+## **Gênesis**  
 
 A Bíblia, do ponto de vista do absolutismo, é vista como fundamentada nos axiomas absolutistas, porém com um teor de subjetividade atribuída pela intuição divina, de forma a orientar o homem em direção à sua plenitude. Visto que o homem, por si só, não tem clareza suficiente para compreender a vivência em sua essência verdadeira, nem força para sair de um estado de estagnação no qual se encerrou definitivamente.  
 
@@ -57,7 +57,7 @@ Caso haja realmente a corrupção, a única forma de restaurar a prole é tornan
 
 De fato, não faz sentido lógico o homem ser corrompido, considerando que toda criação de Deus segue um sentido perfeito e pleno de transcendência. O único que poderia causar a corrupção seria o próprio homem. Logo, a metáfora de Adão e Eva é uma exortação ao transcendente, ao passo que um duro aprendizado, nos fazendo colocar no papel de corrompidos. O sacrifício de Jesus trata da seriedade da possibilidade por meio da conscientização, antecipa essa possibilidade e a justifica antes que aconteça. Ao passo que, ao mesmo tempo, o Ser nos lança fortemente em favor da transcendência, comendo do fruto proibido por nós. Na condição de que poucos cometeriam a loucura de sair dos cuidados do infinito do Ser em busca de uma vida mais autêntica e fatalmente condicionada a um erro eterno ou a uma plenitude de aspirações.  
 
-### **Adão e Eva**: O inevitável  
+## **Adão e Eva**: O inevitável  
 
 Ao concluirmos que todo o universo é finito do ponto de vista das formas e que o mundo acabará, quer queiramos ou não, graças a fatores cósmicos, temos a sensação de que o Ser desejou que conhecêssemos a nossa verdadeira forma, tal como Adão e Eva. Ou seja, o comportamento de ambos foi criticado, ao passo que é incentivado de maneira irreversível pelo design do universo. Simplesmente fomos destinados a romper o plano de Deus na criação, de forma a limitar o número de manifestações do Ser, ao menos neste plano.  
 
@@ -71,7 +71,7 @@ O Ser, ao construir o mundo, gritou por responsabilidade, mas grita ainda mais a
 
 Em síntese, o sentido da morte é puramente transcendente: exortar o homem a saltar de seu ninho e alçar voos mais altos. Porém, não sem antes lhe dar uma lição preciosa — uma lição que o marcasse, de forma a não corromper o tecido da eternidade com decisões disformes à plenitude do Ser.  
 
-### **A Ultra-relatividade bíblica**  
+## **A Ultra-relatividade bíblica**  
 
 No contexto bíblico, encontramos certas contravenções lógicas que indicam a presença do ultra-relativo.  
 - A **glorificação**, por exemplo, implica que sejamos ao mesmo tempo almas e deuses, com a capacidade de interferir no desígnio estruturado pelo Ser.  
@@ -465,12 +465,4 @@ Nossa época produz indivíduos como produtos de prateleira: **com data de valid
 - Enquanto outros buscam legado, ele **cultiva o efêmero**, porque sabe que nada persiste.  
 
 Sua única tradução possível é **o excesso que não serve para nada**—e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica destinos para depois jogá-los fora.  
-
----  
-
-**(Se quiser, podemos explorar ainda mais a relação entre apatia e a cultura do descarte, ou então trazer exemplos concretos—como os "hikikomori" no Japão ou os "homens de quarto escuro" na China—que literalmente se tornam lixo humano em uma sociedade que não tem lugar para eles.)**
-
-
-
-
 
