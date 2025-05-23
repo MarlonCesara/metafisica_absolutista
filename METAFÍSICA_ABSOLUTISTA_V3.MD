@@ -1379,17 +1379,25 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 **O Ser, enquanto determinador ausente, pronunciado em sua própria realização (Ser), transcende tanto o existir quanto a distinção.** Se fosse observado sob o referencial de uma alma, seria como uma alma completa (em dualidade) que pode existir e não existir simultaneamente, ser ela mesma e todas ao mesmo tempo. O processo pelo qual uma alma atingiria esse nível de evolução não existiria, de fato.
 
-**A perfeição do Ser o retira do campo do cognoscível.** Ou seja, o que é cognoscível — aquilo que está dentro das leis lógicas ou até mesmo da transgressão dessas leis — não é suficiente para compreender a complexidade e a mensurabilidade do “Ser” dissociado do “Ser-ai”. O “ai” representa o relativo, e o conceito de Ser é o próprio pronunciamento da escassez conceitual de uma palavra que tente descrever algo que só é possível inferir por sua ação. Em outras palavras, o “Ser” é a ação que faz existir, embora ainda carregue um caráter indescritível.
+**A perfeição do Ser o retira do campo do cognoscível.** Ou seja, o que é cognoscível — aquilo que está dentro das leis lógicas ou até mesmo da transgressão dessas leis — não é suficiente para compreender a complexidade e a mensurabilidade do “Ser” dissociado do “Ser-ai”. O “ai” representa o relativo, e o conceito de Ser é o próprio pronunciamento da escassez conceitual de uma palavra que tente descrever algo que só é possível inferir por sua ação. Em outras palavras, o “Ser” é a ação que faz existir, embora ainda carregue um caráter indescritível a respeito do autor deste existir.
 
 **Pensar que duas almas poderiam alcançar tal nível de perfeição implicaria que estariam numa esfera onde a lógica se desfaz e tende ao infinito da transcendência.** Ao transcender o próprio existir — isto é, quando essa dualidade supera a necessidade de realidade ou irrealidade para exercer ação como “Ser” — já se teria ultrapassado o existir rumo a um “ultra-existir”. A manifestação do relativo seria, então, o princípio do potencial real do Ser.
 
-**O Ser atinge a pureza absoluta.** Ao considerarmos o relativo, referimo-nos àquilo que não requer fundamento, ou seja, à autoexistência. Contudo, isso não significa que o relativo não esteja na esfera do absoluto. Dessa forma, o absoluto torna-se o compreensível — mas não a totalidade. O absoluto não possui pureza absoluta no sentido de não conter sequer o potencial de manifestação.
+**O Ser atinge a pureza absoluta.** Ao considerarmos o relativo, referimo-nos àquilo que não requer fundamento, ou seja, à autoexistência. Contudo, não nos referimos ao que não é absoluto, no sentido de não estar na esfera do absoluto. Dessa forma, o absoluto torna-se o compreensível — mas não a totalidade. O absoluto não possui pureza absoluta no sentido de não conter sequer o potencial de manifestação.
+
+**Não há como descrever o existir para além do existir, nem a alma para além da alma.** O conceito mais aproximado seria o do Nada absoluto — a ausência total e irrestrita de qualquer coisa, inclusive do próprio relativo. Essa "existência" fere o tecido da lógica, pois o nada, por definição, infere necessariamente algum potencial de si mesmo. No entanto, ao nos referirmos à inexistência sem tomar como base aquilo que existe, acabamos por estabelecer uma contradição lógica. Estaríamos afirmando um **ultra-relativo** — ou seja, a ideia de um nada sem qualquer potencial que, paradoxalmente, serviria como referência para um nada com potencial.
+
+Isto é, para alem do relativo a irrealidade é levada a um patamar realizável. Em outras palavras, para um ultra-relativo seria possível visualizar um circulo quadrado. Ou uma existencia que não existe. Para que não haja uma aberração, neste sentido, definimos um conceito mais abstrato para o conteúdo do Ser, ou seja, o autor da ação. Chamemos o autor de "Amor", no sentido de que é um potencial do fascinio, do vislumbre, no imcompreensível, do perfeito e do divíno. 
+
+**Isto é, para além do relativo, a irrealidade é elevada a um patamar realizável.** Em outras palavras, para um ultra-relativo, seria possível conceber um círculo quadrado — ou uma existência que, paradoxalmente, não existe.
+
+Para evitar esse tipo de aberração conceitual, propomos um conceito mais abstrato para o conteúdo do Ser — ou seja, para o autor da ação. Chamemos esse autor de **"Amor"**, no sentido de um potencial de fascínio, de vislumbre diante do incompreensível, do perfeito e do divino.
+
+**Algo tão extraordinário que delimita os limites da investigação lógica e nos conduz à experiência.** Uma visão tão honorífica que permeia o campo do incompreensível, do inefável, do sublime — o que é digno de louvor e adoração.
 
 **O Nada não deve ser entendido como aniquilação, mas como transcendência perceptual.** O tempo coexiste com o Nada, pois há um avanço de todas as coisas rumo ao ponto de sua completa neutralização. A transcendência é plena quando referida, mas, enquanto não perceptível, não se realiza. O Nada é a totalidade em seu grau máximo de expansão.
 
 **A transcendência total seria perceptível apenas ao Ser.** Assim, o Nada indiferenciado poderia coexistir com todas as coisas. O Nada não é a total ausência, mas sim a transcendência do tempo, do espaço e até mesmo da definição ou forma.
-
-
 
 
 
