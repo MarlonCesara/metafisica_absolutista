@@ -64,6 +64,12 @@ O Ser, ao construir o mundo, gritou por responsabilidade, mas grita ainda mais a
 
 Em síntese, o sentido da morte é puramente transcendente: exortar o homem a saltar de seu ninho e alçar voos mais altos. Porém, não sem antes lhe dar uma lição preciosa — uma lição que o marcasse, de forma a não corromper o tecido da eternidade com decisões disformes à plenitude do Ser.
 
+### A **Ultra-relatividade** bíblica
+
+No contexto bíblico, encontramos certas contravenções lógicas que indicam a presença do ultra-relativo. 
+- A glorificação, por exemplo, implica que sejamos ao mesmo tempo almas e deuses, com a capacidade de interferir no desígnio estruturado pelo Ser.
+- As almas condenadas ao inferno estão, simultaneamente, mortas e vivas — mantêm sua identidade, ainda que sejam consumidas pela pureza do Ser em um tempo eterno.
+- Os anjos, por sua vez, seriam seres que existem e não existem ao mesmo tempo, pois existem sem alma: são constituídos de puro espírito.
 
 ## **Poema de Eva**  
 
