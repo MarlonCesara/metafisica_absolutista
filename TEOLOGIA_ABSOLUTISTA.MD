@@ -52,7 +52,7 @@ O purgatório representa um lugar onde todos precisam se purgar para se tornarem
 
 ### **Adão e Eva**: O inevitável
 
-Ao concluirmos que todo o universo é finito do ponto de vista das formas e que o mundo acabará, quer queiramos ou não, graças a fatores cósmicos, temos a sensação de que, falhamente, o Ser desejou que conhecêssemos a nossa verdadeira forma, tal como Adão e Eva. Ou seja, o comportamento de ambos foi criticado, ao passo que é incentivado de maneira irreversível pelo design do universo. Simplesmente fomos destinados a romper o plano de Deus na criação, de forma a limitar o número de manifestações do Ser, ao menos neste plano.
+Ao concluirmos que todo o universo é finito do ponto de vista das formas e que o mundo acabará, quer queiramos ou não, graças a fatores cósmicos, temos a sensação de que o Ser desejou que conhecêssemos a nossa verdadeira forma, tal como Adão e Eva. Ou seja, o comportamento de ambos foi criticado, ao passo que é incentivado de maneira irreversível pelo design do universo. Simplesmente fomos destinados a romper o plano de Deus na criação, de forma a limitar o número de manifestações do Ser, ao menos neste plano.
 
 Assim, a malícia de Adão e Eva, embora ocasionasse a destruição, é projetada de forma fatalística neste mundo como o único comportamento possível — do qual, meramente, tentamos fugir, criando formas de prolongamento da existência humana.
 
