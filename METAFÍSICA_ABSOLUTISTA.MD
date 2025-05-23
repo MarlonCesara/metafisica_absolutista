@@ -1406,5 +1406,8 @@ Sendo o relativo um potencial do ultra-relativo — do amor, do ilógico, do abs
 
 Sendo perceptível ao Ser é possível o ilógico, ou seja, que o Ser seja pleno e permita uma versão de si não plena, sob pontos de vista antagonicos.
 
+# Reflexões futuras
 
-
+- A dualidade forma a nova alma e essa busca o ser que ja esta na dualiadde e o ser de si. 
+- O criado do ser, só busca o ser do ser. Não buscar ser Deus mas em Deus...
+- O absoluto se limita na lógica, portanto, seu conceito nao faz sentido para descrever um todo, só para estabelecer um cerceamento do cognocível.
