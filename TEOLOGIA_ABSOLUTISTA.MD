@@ -872,5 +872,9 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - A formulação de personagens de si baseados em figuras que assemelha ter encontrado o sentido
 - A exclusão social devido a comportamentos anormais
 - A exclusão social devido ao conhecimento erudito do cerne do problema através desta obra.
-
+- A descarga de histéria devido ao comportamento restritivo de grandes emoções
+- O necessitar de segregar o sentido das coisas, e o propósito
+- A baixa estima em decorrencia a visão aprimorada do outro, como possuidor do sentido.
+- O sentimento de baixa inteligencia e fracasso.
+- O comportamento social face ao conhecer da natureza do apático.
 
