@@ -469,3 +469,283 @@ Nossa época produz indivíduos como produtos de prateleira: **com data de valid
 
 Sua única tradução possível é **o excesso que não serve para nada**—e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica objetos para depois jogá-los fora.  
 
+
+# Existencialismo e psicologia do apático
+
+O Pilar do Existencialismo: Apatia e Despertar
+
+O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de apático) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
+
+O Indivíduo Apático
+O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+•	Referência: Jean-Paul Sartre, em O Ser e o Nada, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
+Efeitos no Corpo e na Mente
+O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
+•	Ansiedade: Sensação constante de desamparo e desespero.
+•	Obsessão: Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
+•	Deslocamento Social: Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
+•	Crueldade: Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
+•	Referência: Viktor Frankl, em O Homem em Busca de um Sentido, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
+A Ilusão da Liberdade
+O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
+•	Referência: Søren Kierkegaard, em O Conceito de Angústia, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
+________________________________________
+O Despertar Existencial
+O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
+•	Referência: Martin Heidegger, em Ser e Tempo, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
+Efeitos no Corpo e na Mente
+O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
+•	Referência: Carl Jung, em O Homem e Seus Símbolos, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
+O Amor como Primeiro Movimento
+O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
+•	Referência: Erich Fromm, em A Arte de Amar, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
+O Despertar do Ser
+O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+•	Referência: Martin Heidegger, em Ser e Tempo, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+________________________________________
+A Busca Frenética por Sentido
+O apático vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
+•	Obsessão por Riqueza: Acumular bens materiais como forma de preencher o vazio interior.
+•	Afastamento do Trabalho e da Sociedade: Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
+•	Crueldade e Hostilidade: Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
+•	Referência: Albert Camus, em O Mito de Sísifo, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+A Miséria Interior do Rico
+O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
+•	Referência: Arthur Schopenhauer, em O Mundo como Vontade e Representação, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
+________________________________________
+Conclusão
+O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
+•	Referência Final: Friedrich Nietzsche, em Assim Falou Zaratustra, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
+Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a busca humana por sentido e a importância da autodeterminação na realização da existência autêntica.
+
+
+A Visão do Amor como Ação Unida ao Sentido
+A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo apático para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do apático não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O apático deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
+•	Referência: Viktor Frankl, em O Homem em Busca de um Sentido, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
+________________________________________
+A Riqueza como Busca de Valor
+O apático não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
+•	Referência: Carl Jung, em Aion, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
+________________________________________
+A Doença Espiritual do Apático
+A tendência do apático é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O apático busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
+•	Referência: Søren Kierkegaard, em O Desespero Humano, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
+________________________________________
+A Analogia do Poder e da Droga
+O apático não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
+•	Referência: Erich Fromm, em Ter ou Ser?, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
+________________________________________
+
+A Obsessão e a Secura Interior
+O apático incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
+•	Referência: Albert Camus, em O Mito de Sísifo, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+________________________________________
+A Sensação de Não Ser Ninguém
+O apático tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
+•	Referência: Jean-Paul Sartre, em O Ser e o Nada, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
+________________________________________
+A Linguagem do Apático
+O apático usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
+•	Referência: Ludwig Wittgenstein, em Investigações Filosóficas, explora como a linguagem reflete a visão de mundo do indivíduo.
+________________________________________
+A Liberdade e o Suicídio
+O apático foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o apático só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
+•	Referência: Friedrich Nietzsche, em Assim Falou Zaratustra, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
+________________________________________
+O Hedonismo e a Ação do Espírito
+O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O apático, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
+•	Referência: Arthur Schopenhauer, em O Mundo como Vontade e Representação, descreve a vontade como uma força cega que governa o comportamento humano.
+________________________________________
+A Imperação da Vontade
+O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+•	Referência: Søren Kierkegaard, em Temor e Tremor, fala sobre a importância de assumir a própria existência com autenticidade.
+________________________________________
+Conclusão
+O apático é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+•	Referência Final: Viktor Frankl, em Em Busca de Sentido, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+
+Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
+Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+•	Referência: Carl Jung, em Aion, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
+________________________________________
+O Mal como Passividade
+O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+•	Referência: Jean-Paul Sartre, em O Ser e o Nada, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
+________________________________________
+Características do Apático
+O apático é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do apático não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
+•	Referência: Erich Fromm, em Ter ou Ser?, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
+________________________________________
+A Ação Vazia do Apático
+O apático é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do apático é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
+•	Referência: Martin Heidegger, em Ser e Tempo, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+________________________________________
+O Apático como Obstáculo Social
+O apático é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O apático e a sociedade representam forças opostas e irreconciliáveis.
+•	Referência: Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
+________________________________________
+Deus e o Amor Infinito
+Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o apático, que necessita de salvação. O apático é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
+•	Referência: São Paulo, em sua carta aos Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
+________________________________________
+A Necessidade de Renovação
+Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O apático não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do apático acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
+•	Referência: Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
+________________________________________
+Conclusão
+O apático é uma força que ameaça a estrutura social, atuando exclusivamente em prol de sua destruição. Ele não deseja apenas praticar o mal, mas destruir a própria possibilidade de continuar existindo. A exclusão do apático é inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo. No entanto, Deus, em Seu amor infinito, continua a carregar cada um de nós no mais íntimo de Seu coração, esperando que, na próxima vida, possamos ser mais sábios e conscientes.
+•	Referência Final: Viktor Frankl, em O Homem em Busca de um Sentido, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de renovação e a esperança em um futuro harmonioso, guiado pelo amor e pela transcendência espiritual.
+
+Deus e o Amor Infinito pelo Apático
+Deus, em Seu amor infinito, enxerga o apático como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o apático estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o apático não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o apático despende todos os seus esforços para a destruição.
+•	Referência: São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
+________________________________________
+
+O Apático e a Busca por Identidade
+O indivíduo apático não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o apático teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espírito.
+•	Referência: Erik Erikson, em Identidade: Juventude e Crise, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
+________________________________________
+O Apático e o Crime
+O apático, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
+•	Referência: Erich Fromm, em Anatomia da Destrutividade Humana, explora como a falta de conexão social pode levar a comportamentos destrutivos.
+________________________________________
+O Assombro e a Repetição de Comportamentos
+No momento em que o apático entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
+•	Referência: Sigmund Freud, em Além do Princípio do Prazer, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
+________________________________________
+O Apático e a Diminuição da Reflexão
+O indivíduo apático vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o apático é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
+•	Referência: Jean Piaget, em O Nascimento da Inteligência na Criança, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
+________________________________________
+O Narcisismo e a Demência Social
+Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o apático muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se auto responsabiliza por suas atitudes impensadas.
+•	Referência: Christopher Lasch, em A Cultura do Narcisismo, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
+________________________________________
+O Controle do Apático por Estímulos
+O apático pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o apático em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
+•	Referência: Michel Foucault, em Vigiar e Punir, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
+________________________________________
+A Ilusão do Ócio Completo
+O apático tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um auto-conhecimento elevado. O apático acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
+•	Referência: Karl Marx, em O Capital, critica a alienação do trabalhador em uma sociedade capitalista, mas o apático leva essa alienação a um extremo patológico.
+________________________________________
+Conclusão
+O apático é um indivíduo que vive nas sombras da realidade, buscando incessantemente um sentido que nunca encontra. Seu comportamento é marcado por obsessão, destruição e uma profunda alienação de si mesmo e dos outros. Enquanto a sociedade busca construir e prosperar, o apático consome energia em barreiras e conflitos. No entanto, o amor infinito de Deus continua a alcançá-lo, esperando que, um dia, ele desperte para a realidade espiritual e encontre seu verdadeiro propósito.
+•	Referência Final: Viktor Frankl, em O Homem em Busca de um Sentido, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de renovação espiritual e a esperança em um futuro onde o amor e a transcendência prevaleçam.
+			A Estima Deplorável do Apático
+O apático possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o apático, a existência é um mero "estar aqui", sem direção ou transcendência.
+•	Referência: Erich Fromm, em Ter ou Ser?, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
+________________________________________
+A Imitação de Comportamentos
+O apático imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam auto-conhecimento, o apático prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
+•	Referência: Carl Jung, em Aion, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
+________________________________________
+A Obsessão por Dinheiro e a Alienação
+O apático tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
+•	Referência: Karl Marx, em Manuscritos Econômico-Filosóficos, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
+________________________________________
+A Apatia e o Estado de Loucura Permanente
+A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o apático, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
+•	Referência: Sigmund Freud, em O Mal-Estar na Civilização, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
+________________________________________
+O Abismo Existencial
+O famoso abismo que olha de volta ao se olhar para ele é o assombro do apático. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o apático não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
+•	Referência: Friedrich Nietzsche, em Assim Falou Zaratustra, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
+________________________________________
+A Violência e o Territorialismo
+O apático, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
+•	Referência: René Girard, em A Violência e o Sagrado, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
+________________________________________
+Conclusão
+O apático é um indivíduo profundamente alienado, que vive em um estado de loucura permanente e anormalidade comportamental. Sua falta de propósito e autoconhecimento o leva a imitar comportamentos, a obsessão por dinheiro e a violência como formas de lidar com o vazio existencial. No entanto, o abismo que ele enfrenta ao olhar para si mesmo é, na verdade, um chamado para o despertar espiritual e a busca por um sentido autêntico. Enquanto ele não enfrentar essas perguntas fundamentais, continuará preso em um ciclo de destruição e alienação.
+•	Referência Final: Viktor Frankl, em O Homem em Busca de um Sentido, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de auto-conhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
+A Sensação de Ser Comandado por uma Força Desconhecida
+A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do apático. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o apático, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de auto-conhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
+•	Referência: Carl Jung, em Aion, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
+________________________________________
+A Descrição do Eu: Apático vs. Não Apático
+Quando questionado sobre quem é, o apático descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo:
+"Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses."
+Já o não apático descreve-se de forma mais profunda, com um cunho espiritual:
+"Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..."
+Para o apático, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
+•	Referência: Jean-Paul Sartre, em O Ser e o Nada, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o apático não consegue integrar.
+________________________________________
+O Apático como um Primata com Inteligência Aprimorada
+O apático age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o apático é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o apático reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
+•	Referência: Viktor Frankl, em O Homem em Busca de um Sentido, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
+________________________________________
+O Abismo e o Sofrimento Extra-Sensorial
+Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o apático experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A auto-determinação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
+•	Referência: Martin Heidegger, em Ser e Tempo, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+________________________________________
+A Negação Constante e a Histeria
+O apático, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o apático tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
+•	Referência: Sigmund Freud, em O Mal-Estar na Civilização, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
+________________________________________
+A Ilusão de Genialidade e a Obsessão por Riquezas
+O apático desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele lubridia pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
+•	Referência: Erich Fromm, em Ter ou Ser?, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
+________________________________________
+A Busca pela Paz sem Autoconhecimento
+Ao ver o comportamento de alguém calmo, sereno e confortável, o apático busca obter essa mesma paz sem deixar de ser apático. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o apático inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
+•	Referência: Eckhart Tolle, em O Poder do Agora, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
+________________________________________
+Conclusão
+O apático é um indivíduo profundamente alienado, que vive em um estado de negação constante e sofrimento extra-sensorial. Sua obsessão por fama, riqueza e poder é uma tentativa desesperada de preencher o vazio existencial que ele não consegue compreender. No entanto, a verdadeira paz e o autoconhecimento só podem ser alcançados através da auto-determinação e da transcendência espiritual. Enquanto o apático não enfrentar essas questões fundamentais, continuará preso em um ciclo de destruição e alienação.
+•	Referência Final: Viktor Frankl, em O Homem em Busca de um Sentido, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de autoconhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
+Reconhecendo o Apático em Sociedade
+O apático é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
+•	Referência: Viktor Frankl, em O Homem em Busca de um Sentido, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
+________________________________________
+A Tendência ao Vício e a Raiva Social
+O apático tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o apático arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
+•	Referência: Carl Jung, em Aion, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
+________________________________________
+A Necessidade de Destruir o Bem-Estar
+O apático vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
+•	Referência: Jean-Paul Sartre, em O Ser e o Nada, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
+________________________________________
+O Assombro e a Perturbação Mental
+O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do apático de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
+•	Referência: Sigmund Freud, em O Mal-Estar na Civilização, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
+________________________________________
+A Simulação de Pobreza Interior
+O apático costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
+•	Referência: Erich Fromm, em Ter ou Ser?, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
+________________________________________
+Conclusão
+O apático é um indivíduo marcado por uma constante irritação, raiva social e tendência ao vício. Ele vive em um estado de assombro e perturbação mental, tentando simular felicidade enquanto destrói o bem-estar ao seu redor. Sua necessidade de denegrir tudo e criar conflitos é uma forma de lidar com a falta de propósito e a pobreza interior que o consome. Enquanto ele não enfrentar essas questões fundamentais, continuará preso em um ciclo de destruição e alienação.
+•	Referência Final: Viktor Frankl, em O Homem em Busca de um Sentido, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de autoconhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
+
+
+		 
+
+O Sentido da Existência do Apático: Projeção da Dor e Degradação Social
+O apático, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o apático não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia.
+Esse espelhar no outro ocorre de diversas formas:
+•	Exploração Econômica: Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
+•	Demonstração de Superioridade: Mostrar-se em um patamar de riqueza ou status superior, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
+•	Violência e Destruição: Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
+A vida do apático, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
+A Degradação da Liberdade e da Cultura
+A necessidade de se proteger da ação dos apáticos leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
+A Solução Proposta por Jesus
+Do ponto de vista lógico, é praticamente impossível construir um sistema social completamente imune à ação dos apáticos, pois as relações sociais são baseadas em confiança mútua. A única solução efetiva foi proposta por Jesus, que sugeriu a separação dos apáticos do funcionamento social. Em sua parábola do joio e do trigo (Mateus 13:24-30), Jesus ilustra a necessidade de separar o bem do mal, permitindo que a sociedade floresça sem a influência destrutiva dos apáticos. No entanto, Jesus também exortou cada indivíduo ao autoaprimoramento e ao encontro consigo mesmo, prevenindo que sejamos vítimas da mesma política de exclusão.
+Referências
+1.	Jean-Paul Sartre, em O Ser e o Nada, discute como a má-fé e a negação da liberdade levam o indivíduo a projetar sua dor nos outros, evitando assumir sua responsabilidade existencial.
+2.	Viktor Frankl, em O Homem em Busca de um Sentido, explora como a falta de propósito leva a comportamentos destrutivos e à busca por soluções ilusórias.
+3.	Carl Jung, em Aion, fala sobre a sombra e como a projeção de aspectos não integrados do self pode levar a atitudes violentas e manipulativas.
+4.	Friedrich Nietzsche, em Assim Falou Zaratustra, descreve a necessidade de superar a condição atual e criar um sentido autêntico, evitando cair na armadilha da apatia e da destruição.
+5.	Jesus Cristo, no Evangelho de Mateus (13:24-30), propõe a separação do joio e do trigo como uma metáfora para a necessidade de distinguir entre o bem e o mal na sociedade.
+Conclusão
+O apático é uma força destrutiva que projeta sua dor nos outros, buscando uma solução ilusória para seu sofrimento existencial. Sua atuação invisível e manipulativa desfigura a cultura e a liberdade, levando a sociedade a um estado de vigilância constante e degradação. A única solução efetiva, proposta por Jesus, é a separação dos apáticos do funcionamento social, combinada com o autoaprimoramento individual. Enquanto o apático não enfrentar sua liberdade e assumir quem realmente é, continuará a espalhar sua dor e a impedir o florescimento da sociedade.
+
+
