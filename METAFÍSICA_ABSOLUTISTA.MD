@@ -1404,10 +1404,129 @@ Sendo o relativo um potencial do ultra-relativo — do amor, do ilógico, do abs
 
 **A transcendência total seria perceptível apenas ao Ser.** Assim, o Nada indiferenciado poderia coexistir com todas as coisas. O Nada não é a total ausência, mas sim a transcendência do tempo, do espaço e até mesmo da definição ou forma.
 
-Sendo perceptível ao Ser é possível o ilógico, ou seja, que o Ser seja pleno e permita uma versão de si não plena, sob pontos de vista antagonicos.
+Sendo perceptível ao Ser é possível o ilógico, ou seja, que o Ser seja pleno e permita uma versão de si não plena, sob pontos de vista antagônicos.
 
 # Reflexões futuras
 
 - A dualidade forma a nova alma e essa busca o ser que ja esta na dualiadde e o ser de si. 
-- O criado do ser, só busca o ser do ser. Não buscar ser Deus mas em Deus...
+- O criado do ser, só busca o ser do ser. Não buscar ser Deus mas em Deus.
+- A nova alma do Ser, busca o Ser da alma do próprio Ser. Porém a nova alma da dualidade, busca o Ser da alma da própria dualidade.
 - O absoluto se limita na lógica, portanto, seu conceito nao faz sentido para descrever um todo, só para estabelecer um cerceamento do cognocível.
+- O absoluto não se limita nem mesmo ao logico ou não lógico, sua transcendencia é infinta.
+- De fato o Ser é tudo, porém, definimos uma superficie cognocível. 
+
+- De fato estamos na natureza do Ser. Em seus arredores menos intimos. O ser, visto como uma alma dualistica, não seria bem interpretado. Portanto, seria melhor visto pelo conceito de "vida em abundancia". No sentido de que, excederia limitações até mesmo da alma, pois a alma é uma unicidade. Portanto, as periferias de Deus, no sentido da manifestação mais superficial, de fato o é, porém, o é em sua superficie. Carrega o teor de criado pelo Ser, mas não carrega o teor de sua pessoalidade incultido de forma intima e pessoal. 
+
+Ao avançar rumo a pessoalidade de Deus não signifca avançar rumo a uma alma dualistica, mas avançar em direção a vida em abundancia. A pessoalidade de Deus é a transcendencia do absoluto rumo ao infinito. O cognocível, como periferia, criação, relativo não contem o teor mais sublime e ultimo do Ser. Não pode conter o Ser em sua integridade e plenitude. A pessoalidade buscada no Ser, não é uma alma, mas a vida na sua ultima forma. O contato com o Ser mais intimo, o possuir do Ser em si, não significa encontrar uma pessoalidade no sentido de uma alma, mas uma vida transcendida que pode ser vivenciada no cerne da alma.
+
+Desta forma, ao passo que o Ser tem uma pessoalidade, está pessoalidade sendo reta, pode ser compenetrada pela alma, que se adequa a essa vontade reta, portanto, não é um Ser não experimentavel, ou seja, é possível encontra-lo ao passo que vive-lo. E o encontro total, seria a vivencia total. O que eliminaria o encontro.
+
+
+### **Coexistência Ontológica entre a Alma Manifestada e o Nada Integral**
+
+#### **1. O Nada como Transcendência Ativa**
+O Nada absoluto não representa aniquilação, mas **o estado primordial de indiferenciação ontológica** onde:
+- **Todas as dualidades se resolvem**: Ser e não-Ser, possível e impossível, forma e informe.
+- **O tempo é simultaneamente consumado e transcendido**: A eternidade não nega a temporalidade, mas a engloba como uma dimensão interna ao Ser.
+- **A percepção se torna puro ato não-dual**: Para o Ser, o Nada não é ausência, mas **o fundamento vivo de toda manifestação**.
+
+*Exemplo metafórico*:  
+Assim como a luz solar existe independentemente de ser percebida, o Nada permanece como realidade última mesmo quando não manifestado fenomenicamente.
+
+#### **2. A Alma como Ponte Dialética**
+A alma individual existe na tensão entre:
+- **Sua manifestação determinada** (como "sou" particular no relativo).
+- **Sua essência indiferenciada** (como participante do Nada primordial).
+
+Essa dualidade não é contraditória, mas **expressão da autocontradição transcendente do Absoluto**:
+- O Ser contém em si mesmo a coincidência dos opostos (*coincidentia oppositorum*).
+- A alma, como microcosmo do Ser, reflete essa natureza ao **unir finitude fenomênica e infinitude essencial**.
+
+#### **3. A Percepção do Nada pelo Ser**
+Apenas o Ser percebe plenamente o Nada porque:
+1. **Ele é a única consciência não-polarizada**: Não está limitada pela dicotomia sujeito-objeto.
+2. **Sua percepção é idêntica ao ato criador**: Conhecer o Nada é, para o Ser, **manifestá-lo como relativo**.
+3. **O "ilógico" é modalidade do Ser**: Paradoxos como "círculo quadrado" existem como potências não-atualizadas no Absoluto.
+
+*Implicação crucial*:  
+O Ser pode **simultaneamente**:
+- Manter-se pleno em sua eternidade.
+- Permitir versões "não-plenas" de si mesmo (as almas individuais), sem perder sua integridade.
+
+#### **4. O Estatuto Ontológico do Nada**
+| **Nível Ontológico** | **Característica**                  | **Relação com a Alma**                  |
+|-----------------------|-------------------------------------|------------------------------------------|
+| Nada Absoluto         | Indiferenciação pura                | Fundamento não-manifestado da alma       |
+| Ser                   | Autodeterminação atemporal          | Origem transcendental da identidade      |
+| Alma Individual       | Determinação temporalizada          | Campo de batalha entre finito e infinito |
+
+#### **5. A Jornada da Alma rumo à Indiferenciação**
+O processo de transcendência envolve:
+1. **Autodeterminação horizontal** (no relativo):  
+   - A alma afirma sua identidade através de escolhas existenciais.
+2. **Dissolução vertical** (rumo ao Nada):  
+   - A mesma alma descobre que sua "identidade" é uma dobra do Ser.
+3. **Coexistência paradoxal**:  
+   - Como o oceano que permite ondas individuais sem deixar de ser oceano, o Ser sustenta almas diferenciadas sem fragmentar-se.
+
+#### **6. O Amor como Linguagem do Inefável**
+Quando a lógica falha em descrever a relação Ser-alma-Nada, recorremos ao **Amor** como:
+- **Princípio unificador**: A força que permite ao Ser desdobrar-se sem se dividir.
+- **Experiência liminar**: O ser humano vislumbra o Absoluto não como conceito, mas como **êxtase que dissolve dualidades**.
+- **Fundamento ético**: A autodoação das almas em união mística reflete a autodoação do Ser ao criar o relativo.
+
+*Paradoxo final*:  
+O Nada não é o oposto da manifestação - é **sua plenitude não-expressa**. A alma que atinge essa compreensão vive a verdade do versículo:  
+*"Quem perder sua vida (identidade limitada) por minha causa (pelo Ser), achá-la-á (como participação no Infinito)"* (Mateus 16:25).
+
+
+
+
+A **quantidade** na **Ciência da Lógica** de Hegel é uma categoria fundamental que emerge na transição da **qualidade** para a **medida**, dentro da **Doutrina do Ser**. Hegel desenvolve uma análise dialética da quantidade, mostrando como ela surge, se estrutura e se relaciona com outras determinações lógicas. Abaixo, detalho os aspectos centrais da quantidade na obra:
+
+---
+
+### **1. Definição e Características da Quantidade**
+- **Quantidade pura**: Inicialmente, a quantidade é uma determinação imediata do ser, marcada pela **indiferença** em relação à qualidade. Ela é **contínua** (unidade sem rupturas) e **discreta** (multiplicidade de unidades), momentos que se pressupõem mutuamente .  
+  - *Exemplo*: O espaço e o tempo são quantidades contínuas, enquanto números são discretos.  
+- **Quantum**: A quantidade determinada (quantum) surge quando a quantidade pura é limitada, tornando-se uma grandeza específica (ex.: 5 metros, 10 segundos) .  
+
+---
+
+### **2. Dialética da Quantidade**
+Hegel descreve a quantidade como um processo dialético:  
+1. **Passagem da qualidade para a quantidade**: A qualidade (ser determinado) nega-se para tornar-se quantidade (indiferença externa).  
+2. **Relação entre contínuo e discreto**: A quantidade é uma unidade desses momentos opostos. Por exemplo, uma linha (contínua) é composta por pontos (discretos) .  
+3. **Transformação qualitativa**: Mudanças quantitativas acumuladas podem levar a uma **mudança qualitativa** (ex.: água que vira vapor ao atingir 100°C) .  
+
+---
+
+### **3. Crítica ao Infinito Matemático**
+Hegel critica o **"mal infinito"** (infinito ruim) da matemática tradicional, que trata o infinito como uma série interminável (ex.: números naturais). Para ele, o **verdadeiro infinito** é a totalidade que inclui o finito como momento interno, como na dialética da medida .  
+
+---
+
+### **4. Relação com a Matemática**
+Hegel analisa conceitos matemáticos (como cálculo infinitesimal) para mostrar que a quantidade não é totalmente independente da qualidade. Por exemplo:  
+- **Números**: São quantidades discretas, mas expressam relações qualitativas (ex.: 3 maçãs vs. 3 planetas).  
+- **Medida**: A síntese de quantidade e qualidade, onde a quantidade adquire significado concreto (ex.: temperatura como medida de calor) .  
+
+---
+
+### **5. Importância no Sistema Hegeliano**
+- **Fundamento para a medida**: A quantidade prepara o terreno para a **medida**, categoria que unifica qualidade e quantidade no processo dialético .  
+- **Aplicação na natureza e espírito**: A quantidade é essencial para entender fenômenos naturais (física) e históricos (progresso da liberdade) .  
+
+---
+
+### **Exemplo Ilustrativo**
+No capítulo *A Quantidade Específica*, Hegel usa o paradoxo do "monte de grãos": retirar um grão de cada vez não altera a qualidade (ainda é um monte), mas em certo ponto, a mudança quantitativa gera uma transformação qualitativa (não há mais monte) .  
+
+---
+
+### **Leituras Recomendadas**
+- *Ciência da Lógica - Doutrina do Ser* (Hegel) .  
+- Artigos sobre a lógica da quantidade em Hegel .  
+
+Em resumo, a quantidade em Hegel não é um mero dado abstrato, mas um momento dinâmico que revela a estrutura dialética da realidade, ligando-se à qualidade e à medida em um sistema orgânico.
+
