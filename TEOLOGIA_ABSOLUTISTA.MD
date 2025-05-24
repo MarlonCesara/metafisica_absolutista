@@ -877,4 +877,5 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - A baixa estima em decorrencia a visão aprimorada do outro, como possuidor do sentido.
 - O sentimento de baixa inteligencia e fracasso.
 - O comportamento social face ao conhecer da natureza do apático.
+- O apátia na adolescencia, a formação da visão existencial, as pré percepções da ausencia do eu e o auto-entendimento social
 
