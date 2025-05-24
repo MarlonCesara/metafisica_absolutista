@@ -862,4 +862,15 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 
 *(O texto completo será finalizado com todas as seções organizadas e referenciadas de forma coesa.)*
 
+## A inteligencia emocional no apático
+
+- A descarga de expressão como força incontrolável ao corpo.
+- As manobras para o encaixe social 
+- A tentativa de simulação de paz e serinade
+- O deslocamento social
+- A expressão de si por meio de palavrões
+- A formulação de personagens de si baseados em figuras que assemelha ter encontrado o sentido
+- A exclusão social devido a comportamentos anormais
+- A exclusão social devido ao conhecimento erudito do cerne do problema através desta obra.
+
 
