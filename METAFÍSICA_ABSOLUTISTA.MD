@@ -1545,6 +1545,9 @@ A relação entre o **Ser** (unidade absoluta) e os múltiplos **"sous"** (manif
 - **Exemplo**:  
   Assim como o tempo é uno e indivisível em sua totalidade (contínuo), mas se expressa em horas, minutos e segundos (discreto), o Ser é **uno em essência**, mas pode **manifestar-se em múltiplos "sous"**.  
 
+- **Exemplo**:  
+  A pureza do absoluto carrega uma qualidade numérica, que, independente de sua ação, ainda é parte da pureza absoluta que permite a distinção em si.  
+
 ---
 
 ### **2. O Quantum do Ser: Determinação dos "Sous"**
