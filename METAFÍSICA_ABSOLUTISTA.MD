@@ -1230,6 +1230,10 @@ A nova entidade relacional enfrenta uma escolha metafísica:
 6. **Para o outro no outro**  
    - Determinação em relação à prole, sendo esta externa e independente em sua liberdade.  
 
+- **Tese (Ser em si)**: Uma afirmação ou conceito inicial.  
+- **Antítese (Ser outro)**: A negação ou contradição da tese.  
+- **Síntese (Ser em si e para si)**: A superação da contradição, resultando em um novo estágio mais elevado.  
+
 #### **11. Tipologia de Apatia**  
 1. **Apatia da Alma**  
    - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.  
