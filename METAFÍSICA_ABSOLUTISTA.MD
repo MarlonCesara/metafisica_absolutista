@@ -1,7 +1,5 @@
 # Reformulando os Princípios da lógica clássica
 
-#### **Prefácio**
-
 O **Princípio da Identidade** ("A é A") estabelece a natureza essencial das coisas, afirmando que todo ente possui uma identidade determinada e invariável em si mesma. Este princípio opera no plano atemporal da essência.
 
 Já o **Princípio da Não-Contradição** ("A não pode ser A e não-A ao mesmo tempo") introduz uma dimensão temporal implícita. Enquanto o Princípio da Identidade afirma o que algo é, a Não-Contradição estabelece como algo persiste no tempo: proíbe a coexistência de estados contraditórios num mesmo ente ao longo de sua existência.
@@ -20,7 +18,6 @@ O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro a
 
 # Formulando os Princípios Causais Metafísicos  
 
-#### **Prefácio**
 
 Ao integrarmos a causalidade aos princípios lógicos clássicos, descobrimos que toda realidade exige uma dupla fundamentação necessária: não apenas para a existência do ente, mas igualmente para sua identidade essencial. Essa análise revela dois eixos causais irredutíveis:
 
@@ -56,7 +53,6 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 # Definições Metafísicas Fundamentais  
 
-#### Prefácio
 
 Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade** e **impossibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
 
@@ -136,7 +132,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
 # **A Problemática da Coexistência entre Realidade e Irrealidade**  
 
-#### **Prefácio**
 
   Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto. Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa. Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
 
