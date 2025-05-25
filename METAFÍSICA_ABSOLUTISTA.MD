@@ -1949,6 +1949,7 @@ A única saída para a alma apática é *reconhecer-se como purgação*:
 *Essência do Argumento:*  
 A alma apática é o único ente que *pode falhar eternamente* – não por castigo, mas porque recusa *o único ato que a salvaria: deixar de ser apática. Sua tragédia não é o sofrimento, mas a **recusa de dar sentido a ele*.
 Purgatório seria o sofrimento que desperta como se a dor fosse prova de que existia alguém ali para fugir dela. O inferno é a prova do vazio, é a dor que não faz gritar uma alma viva. É a prova definitiva que não havia nenhum resquicio de vida na alma, pois nem mesmo o fogo lhe despertara.
+O purgatório, portanto, seria o estado de apatia sob esperança de que um dia seja possível o despertar da alma. 
 
 Não existe o relativo é o ultra real?
 No inferno haveria tempo?
