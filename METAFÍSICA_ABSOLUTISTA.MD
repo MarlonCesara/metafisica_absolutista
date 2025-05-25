@@ -1965,9 +1965,15 @@ Uma vez que a alma para de ser projetada no corpo, há uma escolha sobre ela (at
 Ao se definir como Ser, contrapõe-se à existência de si, pois não carrega a transcendência do Ser para a inexistência como transcendência. Portanto, sua definição é ser-para-purgação. A alma não pode se consumir no Ser, pois falta-lhe a pureza. Sua decisão não é aniquilação, mas a não decisão, o que leva necessariamente à purgação. Pois o nada não é a saciação de uma vontade, mas sim acidentar-se, estando à deriva em uma transcendência sem posse da mesma.
 
 
+# O relativo e o Ser
 
+Sim, o relativo é o Ser, pois o ser só pode retirar a manifestação de sua internalidade, porém, isto não quer dizer que o Ser tenha seu ambito mais intimo no relativo. O relativo trata-se de um infinito, de uma realidade limitada ao ao real e ao irreal em seu limite no real. O relativo é uma manifestação temporal do atemporal. 
 
+O Ser transcende o relativo, pois o relativo é o ambito cognocível do Ser. O relativo é o cognocível do absoluto. Pois, ao explorarmos o que transcende a lógica, não necessariamente encontramos a pessoalidade do Ser, encerramos o que é compreendível. O ser, de fato, pode se apresentar no relativo, ou seja, temporalmente. A apresentação pessoal do Ser, pode se dar em qualquer contexto. Porém, o total entendimento do que seja o Ser, não se retem ao relativo, e nem ao descritivo pela lógica.
 
+Ou seja, o Ser pode se manifestar sem transcender o cognocível e lógico, e pode exuberar toda sua extensão no ilógico. Pode elevar a realidade a um patamar imcompreensível ou faze-la compreensível. 
+
+Sua pessoalidade se define pelo mais alto de sua vida, pela vida em sua máxima transcendencia, considerando que o Ser é o próprio viver do vivente. Encontrar a pessoalidade do Ser é se encontrar também com o máximo potencial de si rumo ao todo.
 
 
 
