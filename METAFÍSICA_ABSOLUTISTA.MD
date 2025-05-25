@@ -1975,5 +1975,7 @@ Ou seja, o Ser pode se manifestar sem transcender o cognocível e lógico, e pod
 
 Sua pessoalidade se define pelo mais alto de sua vida, pela vida em sua máxima transcendencia, considerando que o Ser é o próprio viver do vivente. Encontrar a pessoalidade do Ser é se encontrar também com o máximo potencial de si rumo ao todo.
 
+# O paraíso
 
+O máximo potencial da vida, ou seja do próprio Deus, transcende infinitamente. Isto é, podemos imaginar não somente o realizar de todas as aspirações lógicas, mas realidades inconcebíveis, delirantes, uma visão literal de todas as possíbilidades frente a alma. Um total extase frente ao impossível realizavel e a visões que transcendem o conhecer da cognição ou a construção imaginaria. Delimitar um processo, um metodo, um acontecimento para essa realidade é simplesmente desmedido, ou até ineficaz.
 
