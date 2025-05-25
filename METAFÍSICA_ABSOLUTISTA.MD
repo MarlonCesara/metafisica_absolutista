@@ -1959,6 +1959,7 @@ O tempo que nunca cessa
 Ao criar um vestígio de vida a alma imediatamente se retira do purgatório
 O utra real é o relativo?
 
+O inferno é temporal pois corre em direção a uma transcendencia que nunca encontra sua completude. É o mal infinito. Não é tmeporal como no momento presente, mas incorrer rumo a uma transcendencia sem nunca alcançar a totalidade que incide, é, de certa forma, estar no tempo da plenitude. 
 
 Uma vez que a alma para de ser projetada no corpo, há uma escolha sobre ela (atuante) que a segrega do estado total de estagnação. Uma vez que a alma é fadada a tomar conta de si no eterno, nenhuma projeção é feita sobre ela — ou seja, nenhuma escolha operante a projeta —, de forma que não há vontade operante, fazendo com que a alma se sobressaia rumo ao "nada mal", ou seja, ao estado de completa pureza sem acessá-lo.
 
