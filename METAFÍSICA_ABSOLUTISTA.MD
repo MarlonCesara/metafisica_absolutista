@@ -2054,6 +2054,14 @@ Ao abandonar o corpo, a alma experimenta, não mais o corpo, mas o nada, porém 
 
 Ex: a alma apatica, ao morrer, se assemelha a um espirito possuido pelo fogo, sua personalidade é descrita como uma perseguição ao alivio do mal infinito, um eterno processo de absorvição. O ser abosorvida nunca tem sua realização, portanto, se produziria o efeito do tempo.
 
+A alma apática, ja esta para alem do corpo, ou seja, ja esta em um nada, no sentido de que é para o corpo, quando for para si mesma, sem o referencial do corpo, não só transcende o nada, mas vai em direção ao nada absoluto.
+
+
+Tudo aquilo que é, é no Ser, o ser absorve tudo. Logo, a alma, se é, é no Ser, e se lhe falta um componente, o Ser lhe absorve.
+
+
+
+
 
 
 
