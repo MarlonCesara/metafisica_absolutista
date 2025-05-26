@@ -2024,6 +2024,7 @@ O ser ai, onde o ''ai'' é a projeção do relativo.
 
 O Ser ai pode construir sua definiçao no ai?
 
+O tudo, ao mesmo tempo, se neutraliza. O relativo é todas as coisas ao mesmo tempo em seu máximo potencial.
 
 
 
