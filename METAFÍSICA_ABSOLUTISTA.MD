@@ -2040,3 +2040,20 @@ O nada é o limite da manifestação, e o nada absoluto o limite do que existe, 
 
 O nada absoluto é o limite até de si como determinador, pois dispensa até mesmo sua auto determinação, simplesmente é-ai.
 
+O nada abosoluto, unido ao conceito de Ser, é a pureza viva, e não o nada absoluto. Ao considerar o apático, que vai diretamente para o fundamento, pureza absoluta, se dando como o nada absoluto, sem ser pureza absoluta, temos, portanto um nada não gerador de vida, não frutifero, discrepante ao nada puro. Ao tentar se diluir no nada primordial, puro, se vivifica pelo fogo. Abre os olhos e grita uma sofrimennto lancinante sem ser desfeito, pois já é nada.
+
+Ou seja, ao tentar se fadar no nada, o Ser já está neste nada devido a sua transendencia e pureza. O ser-para-transcendnecia, incide no nada. Não na aniquilação. Pois a aniquilação seria uma decisão, porém, a alma, não destruida, inoperante, se sucede ao nada como fundamento de si. Ser para o nada, ou seja, para o vazio. Isso faz com que sua personalidade, de ser para a vida, seja purgação. A deriva da alma a resulta na purgação.
+
+A personalidade ganha vida pelo fogo que a transpassa sem a dissolver. O fogo não a transpassa de forma que aceite este, mas a transpassa corrompendo-lhe, preenchendo o eu sem previa autorização, porém, em ocasião da deriva. 
+
+Ex: o corpo é jogado no fogo, porém, não partilha do mesmo plasma que o fogo para compo-lo, mas é dilacerado pelo fogo sem nunca tornar-se ele. A alma apatica não é transparente, não é luminosa ao Ser. Portanto, o ser não a transpassa, mas a penetra corrompendo-lhe seu potencial de eu. A alma é definida pelo fogo, não pelo eu, que é a posse do Ser em si. 
+
+Ex: uma janela com o vidro deixa passar a luz, mas essa o aquece. Somente com uma pureza total como o ar, é possível que a luz passe sem esquentar nada. Ao fechar as janelas, o ente se torna mais refratario ainda e o calor almenta. Como a alma esta a deriva, se coloca num ultimo estagio no qual seria somente suportavel pela pureza. 
+
+Ao abandonar o corpo, a alma experimenta, não mais o corpo, mas o nada, porém ainda sendo alma não animada. A total translucidez para o Ser seria dada por sua vontade ou pela sua destruição.
+
+Ex: a alma apatica, ao morrer, se assemelha a um espirito possuido pelo fogo, sua personalidade é descrita como uma perseguição ao alivio do mal infinito, um eterno processo de absorvição. O ser abosorvida nunca tem sua realização, portanto, se produziria o efeito do tempo.
+
+
+
+
