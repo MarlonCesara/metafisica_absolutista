@@ -2026,7 +2026,7 @@ O Ser ai pode construir sua definiçao no ai?
 
 O tudo, ao mesmo tempo, se neutraliza. O relativo é todas as coisas ao mesmo tempo em seu máximo potencial.
 
-
+O infinito da realidade é o nada, porém, o infinito do relativo é a soma de realidade e irrealidade. 
 
 
 
