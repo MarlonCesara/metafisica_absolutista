@@ -192,6 +192,15 @@ onde permanece – um ser em gestação contínua,
 demasiado vasto para habitar apenas um corpo,  
 mas demasiado frágil para existir por si mesmo.  
 
+
+## **A união verdadeira**
+
+Duas almas se encontram no céu, mas, não motivadas pelo verdadeiro amor, possuem um medo aterrador de se unirem. A limitação é o medo. O amor deve ser suficientente grande para permitir a ação. Só o amor verdadeiro faz com que o medo seja perdido. O mesmo frente a um erro eterno.
+
+
+
+
+
 ## **Jesus sob outra perspectiva**  
 
 Jesus foi um jovem sonhador, embora dotado de uma sabedoria divina. Suas afirmações estavam constantemente fundamentadas na manifestação do impossível. Seu direcionamento era sempre voltado à melhoria imediata da apatia ou ao fortalecimento das almas de luz fraca. Ao instituir a Eucaristia, provavelmente se referia a um ato impossível: condensar todo o amor divino na partilha do pão, para que toda apatia fosse eliminada. Consumir o amor como pão, para que o amor nasça no próprio ser.  
