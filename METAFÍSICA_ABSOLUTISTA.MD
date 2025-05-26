@@ -2036,5 +2036,5 @@ Temos as possibilidades incognocíveis ou cognocíveis.
 
 Quando chegamos a prounucia de que tudo existe, estamos nos nos referindo ao tudo (possibilidades e impossibilidades). Portanto, estamos afirmando a existencia e está transcende. Quando se fala no transcender se fala no nada absoluto, a plenitude, o limite da transcendencia. O limite da pureza.
 
-
+O nada é o limite da manifestação, e o nada absoluto o limite do que existe, e o que existe extravasa a possibilidade cognocível e incongnocível  e impossibilidade cognocível e incognocível.
 
