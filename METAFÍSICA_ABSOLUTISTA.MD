@@ -2038,3 +2038,5 @@ Quando chegamos a prounucia de que tudo existe, estamos nos nos referindo ao tud
 
 O nada é o limite da manifestação, e o nada absoluto o limite do que existe, e o que existe extravasa a possibilidade cognocível e incongnocível  e impossibilidade cognocível e incognocível.
 
+O nada absoluto é o limite até de si como determinador, pois dispensa até mesmo sua auto determinação, simplesmente é-ai.
+
