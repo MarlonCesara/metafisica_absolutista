@@ -1995,6 +1995,8 @@ Como o ser-ai pode estar no relativo?
 
 O ser ai, onde o ''ai'' é a projeção do relativo.
 
+O Ser ai pode construir sua definiçao no ai?
+
 
 
 
