@@ -1980,3 +1980,23 @@ Sua pessoalidade se define pelo mais alto de sua vida, pela vida em sua máxima 
 
 O máximo potencial da vida, ou seja do próprio Deus, transcende infinitamente. Isto é, podemos imaginar não somente o realizar de todas as aspirações lógicas, mas realidades inconcebíveis, delirantes, uma visão literal de todas as possíbilidades frente a alma. Um total extase frente ao impossível realizavel e a visões que transcendem o conhecer da cognição ou a construção imaginaria. Delimitar um processo, um metodo, um acontecimento para essa realidade é simplesmente desmedido, ou até ineficaz.
 
+
+# O relativo
+
+O relativo abarca mais que duas possibilidades (lógico e ilógico). 
+
+Também envolve o supra-lógico (ilógico manifestado).
+
+Alem-lógico (Alem do que é cognocível pelo pensamento)
+
+Alem da possibildiade e da impossibilidade.
+
+Como o ser-ai pode estar no relativo? 
+
+O ser ai, onde o ''ai'' é a projeção do relativo.
+
+
+
+
+
+
