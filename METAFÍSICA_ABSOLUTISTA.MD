@@ -2026,7 +2026,11 @@ O Ser ai pode construir sua definiçao no ai?
 
 O tudo, ao mesmo tempo, se neutraliza. O relativo é todas as coisas ao mesmo tempo em seu máximo potencial.
 
-O infinito da realidade é o nada, porém, o infinito do relativo é a soma de realidade e irrealidade. A soma não produz necessariamente o nada.
+O infinito da realidade é o nada, porém, o infinito do relativo é a soma de realidade e irrealidade. A soma não produz necessariamente o nada. Mas produz uma transcendencia rumo ao infinito.
+
+Pois o todo envolve, não o todo de si, mas o de si e o infinito de sua potencia. Portanto, se tem o infinito dentro do contexto do possível e impossível.
+
+O infinito se manifesta pelo nada. Portanto, não é um infinito de manifestação, é um infinito de relativo. Diferentemente do infinito de realidade.
 
 
 
