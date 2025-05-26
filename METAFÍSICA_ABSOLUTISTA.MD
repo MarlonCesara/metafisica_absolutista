@@ -86,8 +86,35 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 **Definição:** Existência ilógica.  
 - **Exemplo:** "Um círculo quadrado" é impossível por definição.  
 
-### Absoluto  
-**Definição:** Conjunto de todas as possibilidades e impossibilidades.  
+### **Incognoscível**  
+**Definição:** O domínio metafísico que transcende as categorias de possível e impossível, situando-se além da capacidade de conceptualização, representação ou idealização racional.  
+- **Características:**  
+  - **Inacessível à razão pura:** Não pode ser deduzido, demonstrado ou descrito por estruturas lógicas ou linguagem discursiva.  
+  - **Sujeito à experiência direta:** Sua única via de aproximação é a intuição imediata ou a vivência não-conceitual.  
+  - **Transcende a dicotomia ser/não-ser:** Não se enquadra nas determinações de existência ou inexistência, realidade ou irrealidade.  
+
+**Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições místicas sugerem.  
+
+**Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
+
+### **Absoluto**  
+**Definição:** A totalidade irredutível que abarca e fundamenta todas as dimensões metafísicas:  
+- **Possibilidades** (existência lógica)  
+- **Impossibilidades** (existência ilógica)  
+- **Incognoscível** (o que transcende toda categorização)  
+
+**Natureza Ontológica:**  
+- **Plenitude indeterminada:** Não é limitado por dicotomias (ser/não-ser, real/irreal), mas as contém como aspectos parciais.  
+- **Autofundação radical:** Sua existência, essência e persistência derivam exclusivamente de sua própria natureza necessária.  
+- **Não-polarizado:** Não privilegia a priori realidade sobre irrealidade, ou cognoscível sobre incognoscível.  
+
+**Propriedades Fundamentais:**  
+1. **Incondicionado:** Não depende de nenhum princípio ou ente externo para existir ou ser o que é.  
+2. **Omniabrangente:** Nada lhe é exterior; até mesmo o "nada" só pode ser concebido como categoria interna a ele.  
+3. **Metadeterminante:** Estabelece as condições de inteligibilidade para todos os demais níveis de realidade, sem estar submetido a elas.  
+
+**Exemplo Paradigmático:**  
+O conceito neoplatônico do "Uno" (Ἕν) – anterior ao ser e ao não-ser, inefável mas fonte de toda determinação.  
 
 **Propriedade Essencial:** Causa integral de si mesmo.  
 - Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio, não seria absoluto.  
@@ -132,7 +159,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
 # **A Problemática da Coexistência entre Realidade e Irrealidade**  
 
-
   Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto. Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa. Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
 
   Ao considerar a possibilidade de uma existência ilógica (impossíve), despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Dessa forma, ainda que haja existência ou o próprio nada, tudo terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
@@ -147,6 +173,7 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
   Quando definimos o impossível como existente e o lançamos para o Absoluto, fica a cargo do Absoluto dissolver essa dualidade numa resolução que tentaremos entender adiante.
 
+   A tentativa de negar o nada é falha uma vez que a negação do nada ainda é a afirmação da possibilidade concomitantemente à negação da impossibilidade. Ao afirmarmos possibildiade e impossibilidade, a afirmativa se desfaz e dá espaço para o relativo. Porém, ao afirmarmos mais uma vez o cognocível, temos novamente uma afirmação para absoluto, então afirmamos também o incognocível. Desta forma, a indiferenciação torna-se completa, pois se produz um estado indiferenciado. 
 
 ### **1. O Problema da Determinação Ativa**  
 Se o Absoluto fosse **determinado a priori** (ex.: "só a realidade existe"), isso implicaria:  
