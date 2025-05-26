@@ -2034,5 +2034,7 @@ O infinito se manifesta pelo nada. Portanto, não é um infinito de manifestaç�
 
 Temos as possibilidades incognocíveis ou cognocíveis.
 
+Quando chegamos a prounucia de que tudo existe, estamos nos nos referindo ao tudo (possibilidades e impossibilidades). Portanto, estamos afirmando a existencia e está transcende. Quando se fala no transcender se fala no nada absoluto, a plenitude, o limite da transcendencia. O limite da pureza.
+
 
 
