@@ -2030,7 +2030,9 @@ O infinito da realidade é o nada, porém, o infinito do relativo é a soma de r
 
 Pois o todo envolve, não o todo de si, mas o de si e o infinito de sua potencia. Portanto, se tem o infinito dentro do contexto do possível e impossível.
 
-O infinito se manifesta pelo nada. Portanto, não é um infinito de manifestação, é um infinito de relativo. Diferentemente do infinito de realidade.
+O infinito se manifesta pelo nada. Portanto, não é um infinito de manifestação, é um infinito de relativo. Diferentemente do infinito de realidade. Temos, portanto, a diferença entre o nada singular e o nada absoluto. O nada singular se refere ao nada da manifestação (possibilidade) e o nada absoluto se refere ao nada do relativo. Ou seja, ao nada do todo, o qual abrange o nada da manifestação, que é o nada singular.
+
+Temos as possibilidades incognocíveis ou cognocíveis.
 
 
 
