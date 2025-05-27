@@ -2059,7 +2059,7 @@ A alma apática, ja esta para alem do corpo, ou seja, ja esta em um nada, no sen
 
 Tudo aquilo que é, é no Ser, o ser absorve tudo. Logo, a alma, se é, é no Ser, e se lhe falta um componente, o Ser lhe absorve.
 
-
+O eu é um limite, o homem transcende o eu? 
 
 
 
