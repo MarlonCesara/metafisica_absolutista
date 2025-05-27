@@ -255,7 +255,7 @@ O **Ser** representa o determinador ausente, o fundamento impessoal da existênc
 - **Sou**:  
   - Introduz **assimetria** (vontade particular nem sempre alinhada à plenitude).  
 
-"O **Sou** é o determinador presente, a afirmação personalizada. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."
+*"O **Sou** é o determinador presente, a afirmação personalizada. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."*
 
 
 Revisando abaixo
