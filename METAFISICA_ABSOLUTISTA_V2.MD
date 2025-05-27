@@ -49,10 +49,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 - **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**  
   - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma razão contínua.  
 
-
-
 # Definições Metafísicas Fundamentais  
-
 
 Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade** e **impossibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
 
@@ -161,21 +158,18 @@ O conceito neoplatônico do "Uno" (Ἕν) – anterior ao ser e ao não-ser, ine
 
   Ao considerarmos somente a realidade como existente, estamos sugerindo a necessidade de uma determinação extrínseca ao Absoluto. Porém, ao considerar que o Absoluto é autocausal, ou seja, já se dá como determinado, faz-se necessário dispensar a determinação ativa. Ou seja, torna-se dispensável supor um ente ativo determinando A ou B para o relativo, o que significaria a determinação de realidade ou irrealidade.
 
-  Ao considerar a possibilidade de uma existência ilógica (impossíve), despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido escolhida. Dessa forma, ainda que haja existência ou o próprio nada, tudo terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
+  Ao considerar a possibilidade de uma existência ilógica (impossíve), despolarizamos o Absoluto, de forma que ele não seja mais um conjunto determinado por uma escolha, mas um conjunto onde todas as alternativas coexistem sem que uma tenha sido feita uma escolha. Dessa forma, qualquer existência terá uma dissolução no sentido de que dispensará uma vontade ativa, ou seja, uma ação de determinar.
 
   Se o Absoluto é realidade e existência, e há outra opção de existência (a irrealidade), logo, está determinado como realidade, sendo a irrealidade existente ou não. Isso quer dizer que, ainda que a irrealidade não exista, temos que considerá-la no campo das possibilidades como existente, para que não haja uma determinação prévia no relativo. Pois, sendo o inexistente não referenciável, torna o existente a única escolha.
 
-  Se o impossível não existe, então o Absoluto necessita de uma ação imperativa, e essa ação deve ser produzida por um agente. Portanto, o nada, como existência ou inexistência, nunca será possível. Se afirmo que o nada não existe, então o nada é uma opção, porém inválida. Quando afirmo que o nada existe, estou me referindo à realidade, que é uma opção válida. Portanto, há o nada que não existe e o nada que existe.
+  Se o impossível não existe, então o Absoluto necessita de uma ação imperativa, e essa ação deve ser produzida por um agente. Quando afirmo que o nada existe, estou me referindo à realidade, que é uma opção válida. Portanto, afirmando a realidade (nada), nunca se chega ao indiferenciado, pois está se considerando somente a opção "realidade".
 
-  Se tenho duas opções — o possível e o impossível — e considero que a opção "impossível" não existe, então só tenho a opção "possível". Isso faz com que a existência do possível seja determinada e que, por isso, sempre exija um determinador existente, anulando a própria ideia do nada como eficaz. Pois a ideia do nada anula a existência sem anular o que determinou o nada como nada. Mas, se considero que o impossível existe, então tenho duas opções para o Absoluto, e isso me permite pensá-lo como um fator que dispensa escolha prévia. Assim, quando penso no nada para o relativo, posso pensar em um nada sem escolha, pois o nada não é possível nem impossível, mas uma coexistência de ambos os fatores sem um agente determinador.
+  Se tenho duas opções — o possível e o impossível — e considero que a opção "impossível" não existe, então só tenho a opção "possível". Isso faz com que a existência do possível seja determinada e que, por isso, sempre exija um determinador existente, anulando a própria ideia do nada como eficaz. Pois a ideia do nada anula a existência sem anular o que determinou o nada como nada. Mas, se considero que o impossível existe, então todas as opções cognocíveis para o Absoluto, e isso me permite pensá-lo como um fator que dispensa escolha prévia. Assim, quando penso no nada para o relativo, posso pensar em um nada sem escolha, pois o nada não é possível nem impossível, mas uma coexistência de ambos os fatores sem um agente determinador.
 
-  Ao considerar que o impossível não existe, a determinação do Absoluto se localiza latente na própria afirmação de que o impossível não existe. E isso faz com que o Absoluto afirme a realidade como opção como consequência da crença na inexistência da impossibilidade. Portanto, ao considerar o Absoluto como existência pura, dispensando o agente que escolhe o que o Absoluto deve ser, deve-se levar em consideração o mesmo em sua pureza, sem parcialidade entre impossível e possível, sendo ambos os fatores existentes, cada qual com sua natureza individual e homogênea em relação ao outro. E essa homogeneidade chamaremos de relativo.
-
-  Quando definimos o impossível como existente e o lançamos para o Absoluto, fica a cargo do Absoluto dissolver essa dualidade numa resolução que tentaremos entender adiante.
-
-   A tentativa de negar o nada é falha uma vez que a negação do nada ainda é a afirmação da possibilidade concomitantemente à negação da impossibilidade. Ao afirmarmos possibildiade e impossibilidade, a afirmativa se desfaz e dá espaço para o relativo. Porém, ao afirmarmos mais uma vez o cognocível, temos novamente uma afirmação para absoluto, então afirmamos também o incognocível. Desta forma, a indiferenciação torna-se completa, pois se produz um estado indiferenciado. 
+  Ao considerar que o impossível não existe, a determinação do Absoluto se localiza latente na própria afirmação de que o impossível não existe. E isso faz com que o Absoluto afirme a realidade como opção por consequência da crença na inexistência da impossibilidade. Portanto, ao considerar o Absoluto dispensando o agente que escolhe o que o Absoluto deve ser, deve-se levar em consideração o mesmo sem parcialidade entre impossível e possível, sendo ambos os fatores existentes, cada qual com sua natureza individual. E essa condição de suspensão chamaremos de relativo. O relativo é o ausência até mesmo da própria determinação. Todas as possibilidades e impossibilidades estão suspensas.
 
 ### **1. O Problema da Determinação Ativa**  
+
 Se o Absoluto fosse **determinado a priori** (ex.: "só a realidade existe"), isso implicaria:  
 - Um **ato de seleção** (escolha entre realidade e irrealidade).  
 - Um **agente determinador** (algo ou alguém que "decidiu" que a realidade prevalece).  
@@ -187,17 +181,6 @@ Mas isso contradiz a **autocausalidade do Absoluto**, pois:
 ### **2. Solução: O Absoluto como Indeterminação Primordial**  
 Para evitar um regresso infinito de determinações, o Absoluto deve ser:  
 - **Não-polarizado:** Não privilegia realidade ou irrealidade a priori.  
-- **Coexistencial:** Realidade e irrealidade são aspectos do Absoluto, não opções mutuamente excludentes.  
-
-**Consequências:**  
-- **A irrealidade não "existe" no sentido convencional**, mas está contida no Absoluto como impossibilidade lógica.  
-- **A realidade emerge não por uma "escolha"**, mas como manifestação necessária da estrutura autoconsistente do Absoluto.  
-
-### **3. O Nada e a Autofundamentação**  
-- Se o "nada absoluto" fosse possível, exigiria uma **razão para sua prevalência** sobre o ser.  
-- Mas o nada **não tem poder causal**, logo, não pode anular o ser.  
-- Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.  
-
 
 ### **Estruturação Final do Absoluto**  
 
@@ -205,112 +188,22 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
    - O Absoluto contém **todas as possibilidades e impossibilidades** sem distinção.  
    - Não há "escolha" ou "ato criador"; há apenas a totalidade irredutível.  
 
-2. **Nível de Manifestação (Realidade):**  
-   - A realidade emerge como o subconjunto autoconsistente do Absoluto.  
-   - A irrealidade permanece como "não-manifesta" (impossibilidades lógicas).  
-
 3. **Autofundamentação:**  
    - O Absoluto não precisa "decidir" ser; ele já é autossuficiente.  
-   - A realidade não é "escolhida", mas é a única configuração possível que se sustenta.  
 
 ### **Conclusão: O Absoluto como Fundamento Não-Dual**  
-- **Não há um agente que escolhe entre ser e nada.**  
-- **Não há uma "determinação ativa" que privilegie a realidade.**  
 - O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**.  
+- **Não há uma "determinação ativa" que privilegie a realidade.**  
 
 **Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
-
-
-### **Dissolução entre Realidade e Irrealidade**  
-1. **Existência Dual (Real e Irreal):**  
-   - Tanto a **realidade** quanto a **irrealidade** configuram modos de existência.  
-   - Logo, devem ser **indiscerníveis** em seu fundamento ontológico.  
-
-2. **Interpenetração entre Real e Irreal:**  
-   - A irrealidade **não é uma existência segregada** ou paralela à realidade.  
-   - Ela **exerce efeitos sobre o real**, assim como o real **modifica a irrealidade**, realizando o impossível.  
-   - O **impossível**, portanto, não constitui uma nova realidade, mas a **dissolução da distinção** entre realidade e irrealidade.  
-
-## **A Força Ontológica da Irrealidade**  
-
-### **Hipótese da Existência da Irrealidade**  
-
-#### **1. Paradoxo Ontológico Fundamental**  
-- **Tese:** Se a irrealidade possui existência ontológica, sua própria essência exige **autossupressão**.  
-  - *Mecanismo:* A irrealidade, ao se atualizar, **nega sua condição de impossibilidade**, tornando-se real e, portanto, deixando de ser irreal.  
-  - *Efeito colateral:* Essa autonegação **se dissolve simultaneamente na própria realidade**, pois a realidade depende da irrealidade como contraste definidor. 
-
-#### **2. Estado de Suspensão Ontológica**  
-- **Resultado:** Emerge um **estado liminar** onde:  
-  - Não há **realidade afirmada** (pois seu fundamento contrastivo desapareceu).  
-  - Não há **irrealidade realizada** (pois sua manifestação a dissolveu no real).  
-  - Vigora uma **indiferenciação radical**:  
-    - *Possibilidade* e *impossibilidade* perdem seus estatutos.  
-    - O Absoluto existe em **indiferenciação pura**, sem atualização determinada.  
-
-#### **3. Dinâmica do Processo**  
-1. **Fase 1 (Ativação):**  
-   - A irrealidade tenta se manifestar **como impossibilidade**.  
-   - Isso exige que ela **seja real** enquanto impossível (contradição performativa).  
-
-2. **Fase 2 (Colapso Dialético):**  
-   - A realidade **perde seu contraste constitutivo** (a irrealidade).  
-   - A irrealidade **perde seu status** ao se atualizar.  
-   - Ambas se neutralizam mutuamente.  
-
-3. **Fase 3 (Estado Residual):**  
-   - Sobra apenas o **relativo puro**:  
-     - Não é "real" (pois falta o irreal como contraste).  
-     - Não é "irreal" (pois essa categoria foi dissipada).  
-   - Equivale ao **relativo ontológico**.  
-
-#### **4. Consequências Filosóficas**  
-- **Para a Metafísica:**  
-  - Revela que realidade/irrealidade são **categorias interdependentes**.  
-  - Expõe a **natureza paradoxal** do Absoluto (que deve conter essa dialética).  
-
-- **Para a Epistemologia:**  
-  - Mostra que o pensamento humano **depende de dualidades instáveis**.  
-  - Sugere que a "suspensão" pode ser o **estado fundamental do ser**.  
-
-*Exemplo ilustrativo:*  
-> "Como tentar visualizar um 'círculo quadrado' - ao concretizar a imagem, ela ou vira círculo (real) ou quadrado (real), destruindo a impossibilidade inicial. O que resta é apenas a *tentativa*, nem forma nem deformidade."  
-
-### **A Manifestação Não Disruptiva do Irreal na Realidade**  
-
-#### **Fundamento Ontológico**  
-- Se **realidade** e **irrealidade** coexistem sem colapsar, então a **impossibilidade** não pode se manifestar como **negação abrupta do real**, mas como **integração harmoniosa**.  
-- A realidade, portanto, **não é fechada** – ela está **aberta ao impossível**, desde que este **não a destrua**, mas a **plenifique**.  
-
-#### **Mecanismo de Manifestação**  
-- O impossível **não rompe** a estrutura do real, mas **atua nela de forma transfiguradora**.  
-- Sua aparição **não anula** a realidade, mas **corrobora sua plenitude**, revelando que o real **não se esgota no meramente factual**.  
-
-
-### **Exemplos Concretos**  
-
-#### **1. O Milagre como Impossível Integrado**  
-> *"Um indivíduo muda após a imposição de mãos do sacerdote – isso é um milagre!"*  
-- **Antes:** A condição (física, moral ou espiritual) parecia **irreversível** (impossível de ser alterada pelas leis naturais conhecidas).  
-- **Depois:** A mudança ocorre **sem destruir a realidade** (as leis da natureza não são revogadas, mas **transcendidas**).  
-- **Efeito:** O impossível **não nega** o mundo, mas **revela sua profundidade oculta**.  
-
-
-### **Implicações Filosóficas e Teológicas**  
-1. **Realidade Aberta:**  
-   - O real **não é um sistema fechado** – ele admite o **transcendente sem colapso**.  
-   - Isso evita tanto o **materialismo dogmático** (que nega o impossível) quanto o **ocultismo caótico** (que destrói a ordem real).  
-
-2. **Graça e Natureza (em Tomás de Aquino):**  
-   - A **graça** (o divino) **não destrói a natureza**, mas **a aperfeiçoa**.  
-   - Analogamente, o impossível **não corrompe** o real, mas **o leva a sua plenitude**.  
 
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como relativo autodeterminado  
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo.  
   - Isso significa que o relativo não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.  
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente ativo da determinação é uma pessoalidade.  
+  - O agente da autodeterminação é ausente, porém a ação da determinação é eficaz. Há portanto o "Ser-ai".
+  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza total.  
 
 ### Autodeterminação Vertical (Espírito)  
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
@@ -2063,5 +1956,118 @@ O eu é um limite, o homem transcende o eu?
 
 
 
+
+
+
+
+
+
+
+### **Dissolução entre Realidade e Irrealidade**  
+
+- **Não há um agente que escolhe entre ser e nada.**  
+
+- **Coexistencial:** Realidade e irrealidade são aspectos do Absoluto, não opções mutuamente excludentes.  
+
+**Consequências:**  
+- **A irrealidade não "existe" no sentido convencional**, mas está contida no Absoluto como impossibilidade lógica.  
+- **A realidade emerge não por uma "escolha"**, mas como manifestação necessária da estrutura autoconsistente do Absoluto.  
+
+
+2. **Nível de Manifestação (Realidade):**  
+   - A realidade emerge como o subconjunto autoconsistente do Absoluto.  
+   - A irrealidade permanece como "não-manifesta" (impossibilidades lógicas).  
+
+   - A realidade não é "escolhida", mas é a única configuração possível que se sustenta.  
+
+### **3. O Nada e a Autofundamentação**  
+- Se o "nada absoluto" fosse possível, exigiria uma **razão para sua prevalência** sobre o ser.  
+- Mas o nada **não tem poder causal**, logo, não pode anular o ser.  
+- Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.  
+
+
+
+1. **Existência Dual (Real e Irreal):**  
+   - Tanto a **realidade** quanto a **irrealidade** configuram modos de existência.  
+   - Logo, devem ser **indiscerníveis** em seu fundamento ontológico.  
+
+2. **Interpenetração entre Real e Irreal:**  
+   - A irrealidade **não é uma existência segregada** ou paralela à realidade.  
+   - Ela **exerce efeitos sobre o real**, assim como o real **modifica a irrealidade**, realizando o impossível.  
+   - O **impossível**, portanto, não constitui uma nova realidade, mas a **dissolução da distinção** entre realidade e irrealidade.  
+
+## **A Força Ontológica da Irrealidade**  
+
+### **Hipótese da Existência da Irrealidade**  
+
+#### **1. Paradoxo Ontológico Fundamental**  
+- **Tese:** Se a irrealidade possui existência ontológica, sua própria essência exige **autossupressão**.  
+  - *Mecanismo:* A irrealidade, ao se atualizar, **nega sua condição de impossibilidade**, tornando-se real e, portanto, deixando de ser irreal.  
+  - *Efeito colateral:* Essa autonegação **se dissolve simultaneamente na própria realidade**, pois a realidade depende da irrealidade como contraste definidor. 
+
+#### **2. Estado de Suspensão Ontológica**  
+- **Resultado:** Emerge um **estado liminar** onde:  
+  - Não há **realidade afirmada** (pois seu fundamento contrastivo desapareceu).  
+  - Não há **irrealidade realizada** (pois sua manifestação a dissolveu no real).  
+  - Vigora uma **indiferenciação radical**:  
+    - *Possibilidade* e *impossibilidade* perdem seus estatutos.  
+    - O Absoluto existe em **indiferenciação pura**, sem atualização determinada.  
+
+#### **3. Dinâmica do Processo**  
+1. **Fase 1 (Ativação):**  
+   - A irrealidade tenta se manifestar **como impossibilidade**.  
+   - Isso exige que ela **seja real** enquanto impossível (contradição performativa).  
+
+2. **Fase 2 (Colapso Dialético):**  
+   - A realidade **perde seu contraste constitutivo** (a irrealidade).  
+   - A irrealidade **perde seu status** ao se atualizar.  
+   - Ambas se neutralizam mutuamente.  
+
+3. **Fase 3 (Estado Residual):**  
+   - Sobra apenas o **relativo puro**:  
+     - Não é "real" (pois falta o irreal como contraste).  
+     - Não é "irreal" (pois essa categoria foi dissipada).  
+   - Equivale ao **relativo ontológico**.  
+
+#### **4. Consequências Filosóficas**  
+- **Para a Metafísica:**  
+  - Revela que realidade/irrealidade são **categorias interdependentes**.  
+  - Expõe a **natureza paradoxal** do Absoluto (que deve conter essa dialética).  
+
+- **Para a Epistemologia:**  
+  - Mostra que o pensamento humano **depende de dualidades instáveis**.  
+  - Sugere que a "suspensão" pode ser o **estado fundamental do ser**.  
+
+*Exemplo ilustrativo:*  
+> "Como tentar visualizar um 'círculo quadrado' - ao concretizar a imagem, ela ou vira círculo (real) ou quadrado (real), destruindo a impossibilidade inicial. O que resta é apenas a *tentativa*, nem forma nem deformidade."  
+
+### **A Manifestação Não Disruptiva do Irreal na Realidade**  
+
+#### **Fundamento Ontológico**  
+- Se **realidade** e **irrealidade** coexistem sem colapsar, então a **impossibilidade** não pode se manifestar como **negação abrupta do real**, mas como **integração harmoniosa**.  
+- A realidade, portanto, **não é fechada** – ela está **aberta ao impossível**, desde que este **não a destrua**, mas a **plenifique**.  
+
+#### **Mecanismo de Manifestação**  
+- O impossível **não rompe** a estrutura do real, mas **atua nela de forma transfiguradora**.  
+- Sua aparição **não anula** a realidade, mas **corrobora sua plenitude**, revelando que o real **não se esgota no meramente factual**.  
+
+
+### **Exemplos Concretos**  
+
+#### **1. O Milagre como Impossível Integrado**  
+> *"Um indivíduo muda após a imposição de mãos do sacerdote – isso é um milagre!"*  
+- **Antes:** A condição (física, moral ou espiritual) parecia **irreversível** (impossível de ser alterada pelas leis naturais conhecidas).  
+- **Depois:** A mudança ocorre **sem destruir a realidade** (as leis da natureza não são revogadas, mas **transcendidas**).  
+- **Efeito:** O impossível **não nega** o mundo, mas **revela sua profundidade oculta**.  
+
+
+### **Implicações Filosóficas e Teológicas**  
+1. **Realidade Aberta:**  
+   - O real **não é um sistema fechado** – ele admite o **transcendente sem colapso**.  
+   - Isso evita tanto o **materialismo dogmático** (que nega o impossível) quanto o **ocultismo caótico** (que destrói a ordem real).  
+
+2. **Graça e Natureza (em Tomás de Aquino):**  
+   - A **graça** (o divino) **não destrói a natureza**, mas **a aperfeiçoa**.  
+   - Analogamente, o impossível **não corrompe** o real, mas **o leva a sua plenitude**.  
 
 
