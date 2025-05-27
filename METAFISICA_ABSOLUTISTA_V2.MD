@@ -18,7 +18,6 @@ O **Princípio do Terceiro Excluído** ("A ou não-A") complementa este quadro a
 
 # Formulando os Princípios Causais Metafísicos  
 
-
 Ao integrarmos a causalidade aos princípios lógicos clássicos, descobrimos que toda realidade exige uma dupla fundamentação necessária: não apenas para a existência do ente, mas igualmente para sua identidade essencial. Essa análise revela dois eixos causais irredutíveis:
 
 1. **Causa Existencial** - Responde à questão fundamental: *"Por que A existe em vez de não-existir?"*  
@@ -168,6 +167,9 @@ O conceito neoplatônico do "Uno" (Ἕν) – anterior ao ser e ao não-ser, ine
 
   Ao considerar que o impossível não existe, a determinação do Absoluto se localiza latente na própria afirmação de que o impossível não existe. E isso faz com que o Absoluto afirme a realidade como opção por consequência da crença na inexistência da impossibilidade. Portanto, ao considerar o Absoluto dispensando o agente que escolhe o que o Absoluto deve ser, deve-se levar em consideração o mesmo sem parcialidade entre impossível e possível, sendo ambos os fatores existentes, cada qual com sua natureza individual. E essa condição de suspensão chamaremos de relativo. O relativo é o ausência até mesmo da própria determinação. Todas as possibilidades e impossibilidades estão suspensas.
 
+   Temos, portanto, o nada absoluto (relativo) que se refere ao nada em relação ao absoluto (possibilidades e impossibildades); diferentemente do nada convencional que é o nada do fenomeno (ausencia fenomenica). A ausencia do fenomeno é uma possibilidade, enquanto o relativo é a indiferenciação total.
+Sendo até mesmo o seu agente determinador ausente.
+
 ### **1. O Problema da Determinação Ativa**  
 
 Se o Absoluto fosse **determinado a priori** (ex.: "só a realidade existe"), isso implicaria:  
@@ -203,7 +205,8 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo.  
   - Isso significa que o relativo não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.  
   - O agente da autodeterminação é ausente, porém a ação da determinação é eficaz. Há portanto o "Ser-ai".
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza total.  
+  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza total, pois ao passo que existe, é dissolvido no 
+    relativo. Tendo sua ação concomitantemente à sua ausencia, temos portanto, a pureza perfeita. A existencia indetectavel. A forma de existencia mais livre,       aquela que não depende nem mesmo do existir.
 
 ### Autodeterminação Vertical (Espírito)  
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
@@ -251,6 +254,12 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - Espírito e Alma são as duas dimensões da autodeterminação:  
   - O Espírito garante a existência e a perfeição.  
   - A Alma introduz a liberdade e a personalidade na estrutura do Real.  
+
+
+
+
+
+
 
 # **O Nada Indiferenciado como Fundamento Ontológico**  
 
