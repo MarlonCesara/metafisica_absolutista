@@ -62,7 +62,7 @@ A **possibilidade** define tudo o que é coerente do ponto de vista lógico-meta
 A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **irrealidade**.  
 
 - **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.  
-- **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a realidade.  
+- **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a existência.  
 
 ### **A Causalidade no Âmbito do Absoluto**  
 Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade e irrealidade se sustentam.  
