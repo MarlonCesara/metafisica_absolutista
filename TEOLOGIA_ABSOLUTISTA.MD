@@ -825,6 +825,8 @@ O indivíduo rico, embora tenha recursos materiais, sofre de uma **miséria inte
 
 **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.  
 
+O mal do ponto de vista biológico talvez nao corrobore para a sustentação da sociedade, o mal, a extrema crueldade é uma perversão de sentido, que incita o humano a fazer qualquer coisa em prol do desespero de encontrar o que atribua razão e continuidade a sua existencia, considera portanto sua causa, ter maior teor de urgencia que qualquer outra e não lança mão de manifestar essa urgencia através de excessiva crueldade e hostildidade, pois considera sua busca ser temporal, ou seja, ter prazo e ser de extrema importancia para si.
+
 ---  
 
 # **3. A constante interpretação de personagens opressores**  
