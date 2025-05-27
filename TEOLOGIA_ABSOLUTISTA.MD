@@ -827,6 +827,21 @@ O indivíduo rico, embora tenha recursos materiais, sofre de uma **miséria inte
 
 ---  
 
+# **3. A constante interpretação de personagens opressores**  
+O apático tem sua vida como um teatro continuo de uma figura que espera incorporar seu eu ou ao menos obte-lo de alguma forma.
+
+A imitação de um senhor de engenho, que mantem cativas pessoas no intuito de obter algum tipo de resposta, na mentalidade de que, estas pessoas estão lhe escondendo algo. E que, para recuperar este algo, necessitam faze-las refens. E isto se espelha a cultura escravista ao longo da história, individuos que se perverteram ao ponto de tentar encontrar no outro, por meio de coação e violencia, o próprio eu perdido, pelo qual, fariam qualquer coisa, ainda que isto fosse cruel e desumano.
+
+A imitação de constantes personagens que assemelham atribuir-lhe pessoalidade, personalidade e o eu perdido. 
+O individuo manfiesta a todo momento uma interpretação vazia, metódica, objetal, sem vida, vazia de sentido e questionamento.
+
+Quando questionado de seu personagem, se poe num pranto triste. Relatam não haver sentido.
+Querem oprimir manifestações naturais de alegria. 
+Quando pessoas alegres e calmas estão presentes, tentam imita-las com uma risada sombria ou dizem se sentir incomodadas.
+
+---  
+
+
 # **4. Conclusão**  
 O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz **alívio, serenidade e uma sensação de plenitude**, enquanto a apatia gera **angústia, obsessão e desespero**.  
 
