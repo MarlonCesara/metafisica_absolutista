@@ -2385,7 +2385,7 @@ O homem, portanto, pode se definir como ente fenommenológico, ou transcender pa
 - A alma é projetada no corpo, de forma que o corpo a reconheça e se sinta-se ela própria. 
 - A substancia da alma não produz auto-sensação de alma para o corpo, se está não contiver espiritualidade.
 
-
+- Direcionar-se a favor do espirito é direcionar-se rumo a plenitude, desta forma, quanto maior o direcionamento, maior o potencial da alma. 
 
 
 
