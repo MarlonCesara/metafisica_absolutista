@@ -271,7 +271,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 ## Não recursividade ou ato do Ser
 - A Autocausalidade para o Ser não está em ato único ou ato de sustentação, pois o determinador é ausente. Desta forma não se busca infinitamente em uma autocausaldiade recursiva e nem está em ato. Exemplo, o Ser causa a si mesmo, porém, não em um ciculo infinito de causa e efeito, pois sua pureza dispensa esta circularidade, esta rotatividade, ao passo que também dispensa a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" está ausente, ou seja, sua pureza dispensa existencia.
 
-
 ## A Natureza Não-Dual do Ser  
 
 - **Indiferença Ontológica**:  
@@ -287,7 +286,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   1. Regressão infinita (ciclo causal recursivo)  
   2. Ato pontual de autogeracão  
   Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
-
 
 # Estruturando o Relativo 
 
@@ -312,17 +310,13 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 - A manifestação (A) e o relativo (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
 
-- Se a manifestação (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
+- Se a manifestação (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço do relativizado (já que potencial implica em manifestação, incompatível com a ausência total).  
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
   - *Potenciais opostos:* Excluem-se, pois o "relativo" não pode conter possibilidades e impossibilidades latentes sem perder sua definição.  
-
-
 
 # Estruturando o possível e o impossível  
 
 ### **Dissolução entre Realidade e Irrealidade**  
-
-- **Não há um agente que escolhe entre ser e nada.**  
 
 - **Coexistencial:** Realidade e irrealidade são aspectos do Absoluto, não opções mutuamente excludentes.  
 
@@ -341,8 +335,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - Se o "nada absoluto" fosse possível, exigiria uma **razão para sua prevalência** sobre o ser.  
 - Mas o nada **não tem poder causal**, logo, não pode anular o ser.  
 - Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.  
-
-
 
 1. **Existência Dual (Real e Irreal):**  
    - Tanto a **realidade** quanto a **irrealidade** configuram modos de existência.  
@@ -408,7 +400,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - O impossível **não rompe** a estrutura do real, mas **atua nela de forma transfiguradora**.  
 - Sua aparição **não anula** a realidade, mas **corrobora sua plenitude**, revelando que o real **não se esgota no meramente factual**.  
 
-
 ### **Exemplos Concretos**  
 
 #### **1. O Milagre como Impossível Integrado**  
@@ -416,7 +407,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - **Antes:** A condição (física, moral ou espiritual) parecia **irreversível** (impossível de ser alterada pelas leis naturais conhecidas).  
 - **Depois:** A mudança ocorre **sem destruir a realidade** (as leis da natureza não são revogadas, mas **transcendidas**).  
 - **Efeito:** O impossível **não nega** o mundo, mas **revela sua profundidade oculta**.  
-
 
 ### **Implicações Filosóficas e Teológicas**  
 1. **Realidade Aberta:**  
@@ -428,7 +418,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
    - Analogamente, o impossível **não corrompe** o real, mas **o leva a sua plenitude**.  
 
 ### **Incognoscível**  
-**Definição:** O domínio metafísico que transcende as categorias de possível e impossível, situando-se além da capacidade de conceptualização, representação ou idealização racional.  
+**Definição:** O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.  
 - **Características:**  
   - **Inacessível à razão pura:** Não pode ser deduzido, demonstrado ou descrito por estruturas lógicas ou linguagem discursiva.  
   - **Sujeito à experiência direta:** Sua única via de aproximação é a intuição imediata ou a vivência não-conceitual.  
@@ -439,48 +429,20 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
 
 
-3. **A irrealidade como estado indiferenciado**  
-   - Afirmar o impossível (o ilógico) cria uma zona de indistinção ontológica.  
-   - Nesse estado, possibilidade e impossibilidade não se opõem, mas coexistem como **faces da mesma indiferenciação primordial**.  
+# A Dialética do possível, impossível e o relativo
 
-### **Consequências Metafísicas**  
-- **O irreal como espelho do real**:  
-   Assim como a escuridão só existe em relação à luz, o impossível só tem significado como contraste do possível. Sua "existência" é sempre **relacional e negativa**.  
+## O Relativo e o Relativizado: Princípios Indiscerníveis  
 
-
-
-
+- "Relativo" e "relativizado" são o mesmo conceito sob perspectivas opostas:  
+  - O relativo é a integralidade do relativizado, de forma a suspender o relativizado expondo todo seu potencial
+  - O relativo é a nadificação absoluta de tudo, mediante a exposição integral do tudo (possível e impossível)
+  - O relativizado é o tudo afirmado (existência sem limites para possível e impossível).  
+  - O relativizado só existe porque o relativo o define. 
 
 
 
 
-# A Dialética do possível/impossível e o relativo
-
-## O Infinito e o Nada: Princípios Indiscerníveis  
-
-Pelo **princípio da indiscernibilidade dos idênticos**, possível e impossível (manifestação) e relativo compartilham propriedades essenciais:  
-
-- **Ausência de dimensões absolutas**: Nem o nada nem a manifestação podem ser delimitados espacial ou temporalmente.  
-- **Dependência de um segundo termo**:  
-  - O nada só é definível em relação à manifestação (ex.: escuridão vs. luz).  
-  - A manifestação só é reconhecível em contraste com o nada (ex.: existência vs. ausência).  
-
-### Dualidade Necessária  
-
-- Sem dualidade, ambos colapsam:  
-  - O nada é ininteligível sem a manifestação.  
-  - A manifestação em sua integralidade é indistinguível do nada.  
-
-### Conclusão  
-
-- "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:  
-  - O nada é o infinito negado (ausência de forma).  
-  - A manifestação é o infinito afirmado (forma sem limites).  
-  - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
-
-
-
-
+por aqui
 
 
 # A Convergência entre Relativo e Manifestação  
@@ -2334,3 +2296,19 @@ O relativo é autofundamentado – não requer um princípio externo, pois é su
 - **Indeterminação Criadora**:  
   - Não há multiplicidade ou unidade prévias – **a diferença emerge da não-diferença**.  
   - *Paradoxo:* "O vazio que gera forma sem se tornar forma."  
+
+
+
+- **Não há um agente que escolhe entre ser e nada.**  
+
+
+
+3. **A irrealidade como estado indiferenciado**  
+   - Afirmar o impossível (o ilógico) cria uma zona de indistinção ontológica.  
+   - Nesse estado, possibilidade e impossibilidade não se opõem, mas coexistem como **faces da mesma indiferenciação primordial**.  
+
+### **Consequências Metafísicas**  
+- **O irreal como espelho do real**:  
+   Assim como a escuridão só existe em relação à luz, o impossível só tem significado como contraste do possível. Sua "existência" é sempre **relacional e negativa**.  
+
+
