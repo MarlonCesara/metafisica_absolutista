@@ -906,3 +906,9 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - O apátia na adolescencia, a formação da visão existencial, as pré percepções da ausencia do eu e o auto-entendimento social
 - Incomodo ao ver os outros em paz e tranquilos
 - Tentativa de degradar as belezas naturais e tudo que impoe proposito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmonico, catastrófico.
+
+
+
+- O apático se define pelo corpo, o eu dele se refere a massa corporal, intelecto e memória, mas não ao espirito. Ou seja, o eu do apático é efemero, refere-se a carne, a substancia que se degrada no corpo. A construção conceptual de seu eu depende unica e exclusivamente da massa encefálica, da construção de sua memorias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
+
+- O apatico tem um zelo grande por ter o melhor plano de saúde.
