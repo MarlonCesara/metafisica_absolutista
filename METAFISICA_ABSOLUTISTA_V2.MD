@@ -440,11 +440,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - O relativizado só existe porque o relativo o define. 
 
 
-
-
-por aqui
-
-
 # A Convergência entre Relativo e a Manifestação do possível e impossível
 
 ## O Espírito do Ser como Princípio de Manifestação  
@@ -454,21 +449,33 @@ A relação entre o relativo e a manifestação (possível e impossível) é med
 - **Integralidade → relativo**: Quando o espirito manifesta a totalidade sem recortes, percebe o vazio ou infinito puro.  
 - **Fragmentação → Possível e impossível**: Ao adotar um ângulo específico de manifestação, o relativo se polariza em possível ou impossível.  
 
-O espirito é inerente à manifestação, pois sua ação de delimitar cria o mundo possível e impossível. Essa relação é dialética: a manifestação só existe para o observador, e o observador só existe na manifestação.  
+O espirito puro não é inerente à manifestação, sua ação de delimitar cria o mundo possível e impossível e ainda permanece alheio a esta criação. Ou seja, a manifestação, apesar de ser Manifestação do Ser, não necessariamente agrega seu nível de pureza essêncial. Sendo a criação, transpassada pela pureza do Ser, sendo homogênea ou não a Ele.
 
 ### Tese Central  
 
 O relativo é o produto dinâmico de três elementos irredutíveis:  
 
-1. O **Nada** como fundamento.  
-2. O **Observador** como princípio ativo.  
-3. A **Manifestação** como efeito relacional.  
+1. O **O nada absoluto (Ser puro)** como fundamento.  
+2. O **Espirito** como princípio performático.  
+3. A **Manifestação do possível e impossível** como efeito relacional.  
 
 ## O Nada como Estado Relacional  
 
-- Sua anulação só faz sentido para o observador, não em si mesmo.  
-- *Exemplo:* Um horizonte ilimitado é "nada" até que o observador defina um ângulo de visão, convertendo-o em paisagem.  
-- *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (nada). Quando focamos num barco específico (recorte), manifesta-se a forma particular.  
+- Sua existência só faz sentido mediante a ação do espirito, não em si mesmo.  
+- *Exemplo:* Um horizonte ilimitado é "nada absoluto" até que o espirito defina um ângulo de existência, convertendo-o em paisagem.  
+- *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
+
+
+
+
+
+
+
+por aqui
+
+
+
+
 
 ## Criação a partir do Nada  
 
