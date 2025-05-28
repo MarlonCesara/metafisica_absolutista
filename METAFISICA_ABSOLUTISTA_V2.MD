@@ -2318,3 +2318,5 @@ O **Ser** é o nada indiferenciado em ato – não como ausência, mas como rela
 - Tudo é inerente ao Ser, ainda que em sua periferia?
 
 - Deus não é a transendencia exata do que está alem do lógico e fenomenológico e fenomenoilógico, mas não se define por ambos. De modo que, não se conheça Deus pela esfera do lógico ou ilógico. Ou seja, é incognocivel, não está alem do lógico e ilógico, mas é incognocível. Sendo a definição mais aproximada (alem lógico e ilógico) não porque essa definição O define, mas revela o que o Ser transcende, o mostra com base naquilo que não é sua plenitude. Pois o que é, se faz irreferenciavel.
+
+O homem, portanto, pode se definir como ente fenommenológico, ou transcender para o incognocível. Sendo deifnido por fenomeno,se defne determiação previa. De si ou de outrem. Se defindindo transcendente a determinação, se define transcendente.
