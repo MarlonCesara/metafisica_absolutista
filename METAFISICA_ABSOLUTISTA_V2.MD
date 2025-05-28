@@ -2302,5 +2302,10 @@ O **Ser** é o nada indiferenciado em ato – não como ausência, mas como rela
 - Somente o Relativo pode se autofundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. É a completa indiferenciação entre o real e o irreal.  
 
 
+- Ser no Ser, significa Ser na pureza? Transparencia? Ou Ser alem da possibilidade? O ente que se define pela ação, ou seja, pela manifestação, do possíve ou impossível. Necessita da 
+  ação que não tem para se determinar. Ou seja, a alma, fica em estado integral de inatividade, sem ação, e ao passo que não porta vida sobre si, consciencia, autopresença, ou seja, 
+  espirito sobre si. Sua personalidade não se faz real sem o espirito, é inativa. A personalidade torna-se sem expressão. Permanece um nada sem expressão, sem ação do espirito, sem 
+  manifestação.
 
+- O ser pode determinar a si mesmo e de si, que é quando se deterina com sua plenitude.
 
