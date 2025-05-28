@@ -2362,10 +2362,6 @@ O homem, portanto, pode se definir como ente fenommenológico, ou transcender pa
 
 *"Somos tanto criadores quanto criaturas do real"*  
 
-
-
-
-
 - O Ser não se referencia de forma quantificável como uma ou múltiplas identidades.  
 - O Ser simplesmente é a fundamentação do existir.  
 
@@ -2381,12 +2377,13 @@ O homem, portanto, pode se definir como ente fenommenológico, ou transcender pa
 - O nada corresponde ao nada da manifestação tal como o Ser se equivaleria ao nada do determinador.  
 
 
-
-
 ### 3. **A Limitação Fenomênica do "Sou"**  
 - O "sou" individual não pode manifestar plenamente seu próprio infinito, pois toda aparição é um **recorte do ilimitado**.  
 - Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — nunca a totalidade do Ser que a fundamenta.  
 
+
+- A alma é projetada no corpo, de forma que o corpo a reconheça e se sinta-se ela própria. 
+- A substancia da alma não produz auto-sensação de alma para o corpo, se está não contiver espiritualidade.
 
 
 
