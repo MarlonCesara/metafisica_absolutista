@@ -494,11 +494,13 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
 
 
-# Estruturando o Nada  
+# Estruturando o Nada determinado (ausência do fenômeno)
 
 ## Determinação
 
 - Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
+- O nada é fenomenológico, ou seja, dentro do contexto lógico do possível. Um fenômeno lógico.
+
 
 ## Definição por Negação  
 
@@ -2308,4 +2310,10 @@ O **Ser** é o nada indiferenciado em ato – não como ausência, mas como rela
   manifestação.
 
 - O ser pode determinar a si mesmo e de si, que é quando se deterina com sua plenitude.
+
+
+- O ser não esta na esfera do fenomenológico ou feonmenoilógico, pois fenomeno por si memso se determina em numéro.
+- O ser está na esfera do impensável, incognocível. Somente pela experiencia é possível conhece-lo. A forma mais proxima de descrição é como pureza absoluta. O nada até mesmo do nada, 
+  porém que tem ação. Está alem de tudo.
+- Tudo é inerente ao Ser, ainda que em sua periferia?
 
