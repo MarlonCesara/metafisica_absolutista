@@ -494,13 +494,18 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
 
 
-# Estruturando o Nada determinado (ausência do fenômeno)
+# Estruturando o Nada determinado pelo Ser (ausência do fenômeno)
+
+## Presença do determinador no determinado
+
+- O cosmos não possui autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
+- Se o determinante tiver se determinado como cosmos, então ele possui autodomínio, autoconsciência e autopresença.  
+- Se o Ser se determinar como cosmos, então ele se constitui como uma unidade de Si mesmo, podendo manifestar como potência a atemporalidade ou a temporalidade, em autoconsciência, autopresença e autodomínio.
 
 ## Determinação
 
 - Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
 - O nada é fenomenológico, ou seja, dentro do contexto lógico do possível. Um fenômeno lógico.
-
 
 ## Definição por Negação  
 
@@ -596,85 +601,32 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
 
 
-
-
-
-aqui
-
-
-
-# A manifestação do sou
-
-
-**O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
-
-**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
-
-### Principais características do cosmos:  
-1. **Possui liberdade**.  
-2. **Pode autodeterminar-se ainda sendo aquilo que é determinado em um momento anterior**.  
-3. **Faz parte da natureza do Ser, porém como determinação de sua plenitude**.  
-4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
-
-
-## **A Distinção entre Ser e Sou**  
-O **Ser** representa o determinador ausente, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
-
-| **Termo** | **Natureza**                  | **Função**                                 | **Exemplo**                          |  
-|--|-|--|--|  
-| **Ser**   | Determinador ausente          | Ato puro de existir (fundamento impessoal) | "A água flui" – ação sem agente      |  
-| **Sou**   | Determinador presente         | Ato personalizado (identidade afirmada)    | "Eu decido fluir" – ação com agente  |  
-
-- **Ser**:  
-  - Não opera por escolha, mas por **necessidade ontológica**.  
-  - Sua determinação é **homogênea ao relativo** – não há distância entre decisão e efeito.  
-- **Sou**:  
-  - Introduz **assimetria** (vontade particular nem sempre alinhada à plenitude).  
-
-*"O **Sou** é o determinador presente, a afirmação personalizada e numerável. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."* É possível haver inúmeros "sous" porém o Ser não é um ou muitos, simplesmente é.
-
-*"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."*  
-
-## **A manifestação do(s) Sou(s)**  
-
-Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é o nada até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plentude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
-
-Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica a respeito de Ser no Ser ou ser em si. Ou seja, existir em plenitude ou de forma não plena.
-
-Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
-Quando mais o sou se determina rumoa o ser, mais é em si e no Ser.
-
-Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando completamente opaco, não se direciona nem mesmo a ação.
-
-
-
-
-# **A Autocausalidade do sou**  
- *"O Relativo é, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."*  
+# **A Autocausalidade temporal e atemporal do fenômeno**  
+ *"O Nada é fenomenico, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."* Ainda que dado como agente externo à plenitude do Ser, está dentro do processo auto-causal do Ser quando determina-se fenomenicamente.
 
 ## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
 #### **A Natureza Bifásica da Autocausalidade**  
 **(A) Ato Imediato (Consumação Eterna)**  
-- **Não-temporalidade:** O Relativo não "torna-se", mas **é** em ato pleno.   
+- **Não-temporalidade:** O nada não "torna-se", mas **é** em ato pleno.   
 - **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
 - **"O Relativo não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
 
-No ato imediato causal, o Relativo não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
+No ato imediato causal, o nada não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
 - **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
-- O Relativo não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
+- O nada não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
 - **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
 - **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
-- O Relativo **já é** plenamente si mesmo em um eterno presente.  
+- O nada **já é** plenamente si mesmo em um eterno presente.  
 - Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
 
-#### **O Ser em Ato (Consumação)**  
-O **Ser** não é um "algo", mas o **"quem"** da existência — o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
-- **Ser em Ato (Consumado)** → O Relativo já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
-  - *"Eu Sou"* — não há lacuna entre o Ser e seu fundamento.  
+#### **O Ser-ai em Ato (Consumação)**  
+O **Ser-ai** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
+- **Ser-ai em Ato (Consumado)** → O nada já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
+  - *"Ser-ai"* — não há lacuna entre o Ser-ai e seu fundamento.  
 
 ## **A Autocausalidade como Ciclo Infinito e Temporal**  
-Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Relativo também **se sustenta** em um fluxo eterno de automanifestação.  
-- O Relativo "busca a si mesmo" eternamente em um processo de autossustentação.  
+Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o nada também **se sustenta** em um fluxo eterno de automanifestação.  
+- O nada "busca a si mesmo" eternamente em um processo de autossustentação.  
 - **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
 - A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
 - O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
@@ -683,25 +635,25 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
   - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
 - Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
 
-#### **Ser em Processo (Reverberação)**  
-- **Ser em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
-  - *"Eu me torno"* — a identidade (o "quem") se manifesta em atos contínuos de autodeterminação.  
+#### **Ser-ai em Processo (Reverberação)**  
+- **Ser-ai em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
+  - *"Eu me torno"* — o Espírito (o "ser-ai") se manifesta em atos contínuos de autodeterminação.  
 
 #### **A Autodeterminação como Ciclo Infinito**  
-- **Direcionamento e Redirecionamento** → O Ser não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
+- **Direcionamento e Redirecionamento** → O Ser-ai não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
   - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
 - **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Ser**, reiniciando o ciclo.  
   - *"O que busca já é o buscado."*  
 
 #### **Reverberação Espacial e Temporal**  
-- **Espacialidade** → O Ser se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
-- **Temporalidade** → O Ser se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
-- A **manifestação** é o Relativo se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
+- **Espacialidade** → O Ser-ai se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
+- **Temporalidade** → O Ser-ai se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
+- A **manifestação** é o nada se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
 
 #### **Consciência: A Ponte entre Nada e Tempo**  
-- **Consciência Consumada** → O Ser como **eterno presente** (não-temporal).  
-- **Consciência Temporal** → O Ser como **sucessão de identidades** (manifestação no tempo).  
-- **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autoconsciência do Ser** que se reverbera.  
+- **Consciência Consumada** → O Ser-ai como **eterno presente** (não-temporal).  
+- **Consciência Temporal** → O Ser-ai como **sucessão de identidades** (manifestação no tempo).  
+- **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autodeterminação do Ser** que se reverbera.  
 
 ### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
 
@@ -734,53 +686,65 @@ Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibi
 Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
 
 
-
-
-
-
-## Dualidade Fundamental: O Nada Relativo e a Manifestação Relativa  
+## Dualidade Fundamental: O Nada e a Manifestação 
 
 ## Definições Fundamentais  
 
-### Nada  
-**Definição:** Relativo em ato único.  
+### Nada fenomenológico
+**Definição:** Nada em ato único.  
 **Sinônimo:** Nada.  
 
-### Manifestação  
+### Manifestação fenomenológica
 **Definição:** Relativo em processo.  
 
 ## Dualidade Fundamental: Determinador e Nada  
 
-- A ação do **Ser** (determinação) e o **Nada** (ausência do determinado) são coessenciais.  
+- A ação do **Ser-ai** (determinação) e o **Nada** (suspesão do determinado) são coessenciais.  
   - Não são opostos absolutos, mas polos de uma mesma estrutura ontológica.  
-  - O Nada não é aniquilação total, mas o limite interno da autodeterminação.  
+  - O nada não é aniquilação total, mas o limite interno da autodeterminação.  
     - *Exemplo:* O olho que vê a escuridão.  
     - Se não há luz, a escuridão existe como referência para a visão.  
     - A ausência de luz só tem significado porque o olho (determinador) a percebe.  
 
-## O Relativo como Relação Dinâmica  
+## O Nada como Relação Dinâmica  
 
-- A **relativo (verdade)** não é um estado puro, mas uma tensão entre:  
-  1. **O Ser** (autodeterminação ativa) → Puro ato de existir.  
-  2. **O nada** (potencial não realizado) → Ausência indiferenciada que define os limites do relativo.  
+- A **absoluto (verdade)** é uma tensão entre:  
+  1. **O Ser-ai** (autodeterminação passiva) → Puro ato de existir.  
+  2. **O nada** (potencial não realizado) → Ausência fenomenológica.  
 
 - Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.  
-  - O Ser não "está" no relativo – ele age no relativo em sua autodefinição contínua.  
+  - O Ser-ai não "está" no nada – Ele age no nada em sua autodefinição contínua.  
 
-## Conclusão: O Relativo como Processo  
+## Conclusão: O nada como Processo  
 
-- Não há "verdade estática", pois o relativo sempre se constitui na relação entre:  
-  - A ação do determinador (Ser puro).  
+- Não há "verdade estática", pois o nada sempre se constitui na relação entre:  
+  - A ação do determinador (Ser-ai).  
   - O determinado (incluindo o nada indiferenciado como contraparte).  
 
 #### **Referencialidade do Observador**  
 **Princípio Unificador:**  
 A aparente dualidade (fundamento × manifestação) dissolve-se quando compreendemos que:  
 - **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
-  - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
-  - *Para o observador atemporal:* Ato único (consumação).  
+  - *Para o o ato do Ser-ai temporal:* Processo infinito (causalidade reverberante).  
+  - *Para o ato do Ser-ai atemporal:* Ato único (consumação).  
 
-- O Nada não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
+- O nada não é o oposto do Ser-ai, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 # A Natureza da Forma  
@@ -829,25 +793,30 @@ Assim, toda manifestação é, ao mesmo tempo:
 **Fundamento último:** A forma existe porque o infinito, ao ser "observado", necessita expressar-se de modo delimitado – e essa delimitação é, em si mesma, a origem de toda identidade.  
 
 
+
+
+
+
 # A Convergência entre Nada e Manifestação  
 
-## O Observador como Princípio de Manifestação  
+## O Espírito como Princípio de Manifestação do fenômeno
 
-*"Somos tanto criadores quanto criaturas do real"*  
+- Os fenomenos são quantificáveis, ou seja, há possibilidades de infinitos infinitos, em vista que, um pode ser o nada do outro. Desta forma, podemos ter, paralelismo de infinitos.
+- Infinitos nadas podem ser manifestados pelo Espíritos através do potencial do relatívo. Ou seja, o Espírito pode afirmar infinitos infinitos, ou seja, infinitos nadas singulares.
 
-A relação entre o nada (infinito indiferenciado) e a manifestação (existência fenomênica) é mediada pelo observador. Este não é um agente passivo, mas um participante estrutural:  
+A relação entre o nada (infinito) e a manifestação (existência fenomênica) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:  
 
-- **Integralidade → Nada**: Quando o observador contempla a totalidade sem recortes, percebe o vazio ou infinito puro.  
-- **Fragmentação → Manifestação**: Ao adotar um ângulo específico de observação e presença, o nada se polariza em manifestação.  
+- **Integralidade → Nada**: Quando o espírito manifesta a totalidade sem recortes, percebe-se o nada ou infinito.  
+- **Fragmentação → Manifestação**: Ao determinar um ângulo específico em um ou mais infinitos, o nada dos mesmos se polariza em manifestação.  
 
-O observador é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o observador, e o observador só existe na manifestação.  
+O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o observador, e o observador só existe na manifestação.  
 
 ### Tese Central  
 
 O relativo é o produto dinâmico de três elementos irredutíveis:  
 
 1. O **Nada** como fundamento.  
-2. O **Observador** como princípio ativo.  
+2. O **Espírito** como princípio ativo.  
 3. A **Manifestação** como efeito relacional.  
 
 ## O Nada como Estado Relacional  
@@ -858,9 +827,9 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 
 ## Criação a partir do Nada  
 
-Criar é tornar imanente o que estava latente no infinito. O observador cria ex nihilo, de forma a presenciar e observar possibilidades prévias:  
+Criar é tornar imanente o que estava latente no infinito. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
 
-- *Exemplo:* Um objeto X só existe para o observador quando este o torna visível em seu campo fenomênico.  
+- *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo fenomênico.  
 
 ## A Experiência da Infinitude  
 
@@ -869,7 +838,7 @@ Criar é tornar imanente o que estava latente no infinito. O observador cria ex 
 A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:  
 
 - *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.  
-- *Exemplo:* O terror Relativo revela o vazio quando a realidade perceptual se dissolve.  
+- *Exemplo:* O terror revela o vazio quando a realidade perceptual se dissolve.  
 
 #### **Referencialidade do Observador**  
 **Princípio Unificador:**  
@@ -880,42 +849,75 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 
 
 
+# A manifestação do sou
+
+
+**O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
+
+**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
+
+### Principais características do cosmos:  
+1. **Possui liberdade**.  
+2. **Pode autodeterminar-se ainda sendo aquilo que é determinado em um momento anterior**.  
+3. **Faz parte da natureza do Ser, porém como determinação de sua plenitude**.  
+4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
+
+
+## **A Distinção entre Ser e Sou**  
+O **Ser** representa o determinador ausente, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
+
+| **Termo** | **Natureza**                  | **Função**                                 | **Exemplo**                          |  
+|--|-|--|--|  
+| **Ser**   | Determinador ausente          | Ato puro de existir (fundamento impessoal) | "A água flui" – ação sem agente      |  
+| **Sou**   | Determinador presente         | Ato personalizado (identidade afirmada)    | "Eu decido fluir" – ação com agente  |  
+
+- **Ser**:  
+  - Não opera por escolha, mas por **necessidade ontológica**.  
+  - Sua determinação é **homogênea ao relativo** – não há distância entre decisão e efeito.  
+- **Sou**:  
+  - Introduz **assimetria** (vontade particular nem sempre alinhada à plenitude).  
+
+*"O **Sou** é o determinador presente, a afirmação personalizada e numerável. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."* É possível haver inúmeros "sous" porém o Ser não é um ou muitos, simplesmente é.
+
+*"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."*  
+
+## **A manifestação do(s) Sou(s)**  
+
+Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é o nada até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plentude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
+
+Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica a respeito de Ser no Ser ou ser em si. Ou seja, existir em plenitude ou de forma não plena.
+
+Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
+Quando mais o sou se determina rumoa o ser, mais é em si e no Ser.
+
+Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando completamente opaco, não se direciona nem mesmo a ação.
+
 # Paralelismo Ontológico  
 
 ### O Ser em sua Manifestação Integral  
 
-- O Ser não se referencia de forma quantificável como uma ou múltiplas identidades.  
-- O Ser simplesmente é a fundamentação do existir.  
-
-- O relativo em ato (nada) não é somente o nada de relativo, mas o nada da pessoalidade.  
-- Sendo uma pessoalidade ausente, é a negação da pessoalidade presente.  
-- A pessoalidade ausente, ainda que ativa na forma (sem necessidade de ação), é ausente.  
-
-- O Ser, portanto, possui a ausência da determinação ativa (sou) de forma temporal e atemporal.  
-- A angulação passiva da manifestação pode se desdobrar de forma a reangular sua integralidade.  
-- Isto é, o Ser pode "Ser-Ai" e Ser para o outro. No sentido de que sua angulação inclui sua contraparte (relativo) ou a angulação de si mesmo (Ser integral) para o (Sou particular).  
-- Isto é possível pois carrega o teor de indefinição, a ausência do "Sou" ou dos "Sous" que é dada como "Ser".  
-
-- O nada corresponde ao nada da manifestação tal como o Ser se equivaleria ao nada do determinador.  
-
-- O Ser, portanto, se manifesta como angulação do nada e como determinação manifestante (ato de existir e autodefinir-se).  
+- O Ser se manifesta como angulação do relativo e como determinação manifestante (ato de existir e autodefinir-se singularmente).  
 - A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).  
 - Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um nada de "quê" e um nada de "quem".  
 
 O Ser abrange:  
-- Infinitos fenômenos (formas possíveis).  
-- Infinitos determinadores (observadores que constituem realidades).  
+- Infinitos fenômenos (infinitos possíveis).  
+- Infinitos determinadores (que se igualam ao Ser exceto em sua plenitude necessária e não multiplicidade (pureza absoluta)).  
 
 ## Determinação Temporal e Projeção do Ser  
 
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:  
-- Atos temporais de observação (consciência que delimita).  
-- Presença (existência situada em um contexto fenomênico).  
+- Atos temporais.  
+- Presença (existência situada em um contexto temporal).  
+
+
+
+
 
 ## **A Transcendência do "Quem": O Ser além do Número, do Tempo e do Espaço**  
 
 #### **1. A Natureza Não-Numérica do Ser**  
-O "quem" (o princípio ativo do Ser) não pode ser reduzido a uma unidade contável:  
+O Ser não pode ser reduzido a uma unidade contável:  
 - **O Ser não é "um" ou "muitos"** – sua essência dissolve a quantificação.  
 - **O Nada fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.  
 
@@ -1181,17 +1183,16 @@ Nossa experiência do "agora":
 # **Definindo a Alma**  
 
 ### 1. **A alma como identidade**  
-- A alma não é um "recipiente" de um infinito, mas **o próprio Relativo em perspectiva singular** que adere a um infinito de si.  
+- A alma não é um "recipiente", mas **o próprio Relativo em perspectiva singular** que adere a um infinito de si.  
 - Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Relativo.  
 - Sua finitude fenomênica não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
 ### 2. **A Substância Pura da Alma**  
 - A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
-- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Relativo**.  
-
-### 3. **A Limitação Fenomênica do "Sou"**  
-- O "sou" individual não pode manifestar plenamente seu próprio infinito, pois toda aparição é um **recorte do ilimitado**.  
-- Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — nunca a totalidade do Ser que a fundamenta.  
+- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Relativo**. 
+- A alma, apesar de ser uma unicidade, não carrega teor fenomenológico, ou seja, não é um fenomeno. 
+- A alma é o Ser singularizado que dispoe de autonomia.
+- O material do qual a alma é feito pode ser definindo como Espirito, ou seja, é uma identidade e não um material. Dispensa dimensões. É uma singularidade no Ser.
 
 ### 4. **Pluralidade de Almas como Diversidade Ontológica**  
 - Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
@@ -1201,7 +1202,7 @@ Nossa experiência do "agora":
 
 ### 1. **A Percepção da Alma**  
 - A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. A autodeterminação a confere este conhecimento, pois possui autonomia, autodomínio e autoconhecimento sobre sua verdade.  
-- Tem o conhecimento do risco que é usar seu corpo essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
+- Tem o conhecimento do risco que é usar sua identidade essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
 - Tem o conhecimento da necessidade de uma situação efêmera quando não dispõe dos requisitos morais necessários para se assumir de forma autêntica na existência.  
 
 ### 2. **A Efemeridade como Fuga**  
@@ -1250,7 +1251,6 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 ## **A Dialética da Autodeterminação e Transcendência**  
 
 - **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.  
-- O "Quem" do Ser  
 
 - **Determinação como Limitação**: Ao fixar-se como ente singular, o Ser restringe seu acesso à **indeterminação pura** (fonte da transcendência).  
 - **O "Sou" Incompleto**: Se o indivíduo ("sou") não realiza sua transcendência, permanece fragmentado, incapaz de integrar-se ao Todo.  
@@ -1473,6 +1473,101 @@ A indefinição é definida e se define em si mesma.
 O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não assume uma definição relativa ao Ser, pois o ser, é Ser-Ai. Ou seja, o Ser está ausente do se Ai. E o Ai é a alma indiferenciada. Quando o Ser é Ai, não transmite a definição de si no que é. Ou seja, se doa com uma definição ausente.
 
 Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Rascunhos
+
+---
+
 
 # O Ser e o nada
 
@@ -2138,28 +2233,6 @@ O eu é um limite, o homem transcende o eu?
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 **Natureza Ontológica:**  
 - **Plenitude indeterminada:** Não é limitado por dicotomias (ser/não-ser, real/irreal), mas as contém como aspectos parciais.  
 - **Autofundação radical:** Sua existência, essência e persistência derivam exclusivamente de sua própria natureza necessária.  
@@ -2167,23 +2240,6 @@ O eu é um limite, o homem transcende o eu?
 
 **Exemplo Paradigmático:**  
 O conceito neoplatônico do "Uno" (Ἕν) – anterior ao ser e ao não-ser, inefável mas fonte de toda determinação. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -2200,25 +2256,8 @@ A negação do nada (ausência da manifestação) não é simplesmente a rejeiç
 
 
 
-
-
-
-
-
-
-
-
-
-
 - **A impossibilidade como categoria ativa**:  
   Ao tentar excluir o nada, os filósofos inadvertidamente demonstravam que **o impossível tem eficácia ontológica** - não como ente, mas como condição de inteligibilidade do possível.    
-
-
-
-
-
-
-
 
 Esta estrutura revela que a tentativa de negar o nada é, em última instância, **a confissão de que o impossível habita o coração do possível** - não como contradição, mas como seu horizonte necessário. A negação do próprio nada ao longo da filosofia vem escondendo um caminho irreversível: a afirmação do impossível como existência. Negar o nada é o mesmo que negar uma possibilidade que não pode ser negada, pois está confinada pelo crer no "possível" como a única opção para o absoluto. A verdadeira negação da possibilidade (o nada) acontece quando abrimos o absoluto à existência da impossibilidade. Dessa forma, o possível não se sustenta nem mesmo como afirmação.
 
@@ -2320,3 +2359,36 @@ O **Ser** é o nada indiferenciado em ato – não como ausência, mas como rela
 - Deus não é a transendencia exata do que está alem do lógico e fenomenológico e fenomenoilógico, mas não se define por ambos. De modo que, não se conheça Deus pela esfera do lógico ou ilógico. Ou seja, é incognocivel, não está alem do lógico e ilógico, mas é incognocível. Sendo a definição mais aproximada (alem lógico e ilógico) não porque essa definição O define, mas revela o que o Ser transcende, o mostra com base naquilo que não é sua plenitude. Pois o que é, se faz irreferenciavel.
 
 O homem, portanto, pode se definir como ente fenommenológico, ou transcender para o incognocível. Sendo deifnido por fenomeno,se defne determiação previa. De si ou de outrem. Se defindindo transcendente a determinação, se define transcendente.
+
+*"Somos tanto criadores quanto criaturas do real"*  
+
+
+
+
+
+- O Ser não se referencia de forma quantificável como uma ou múltiplas identidades.  
+- O Ser simplesmente é a fundamentação do existir.  
+
+- O relativo em ato (nada) não é somente o nada de relativo, mas o nada da pessoalidade.  
+- Sendo uma pessoalidade ausente, é a negação da pessoalidade presente.  
+- A pessoalidade ausente, ainda que ativa na forma (sem necessidade de ação), é ausente.  
+
+- O Ser, portanto, possui a ausência da determinação ativa (sou) de forma temporal e atemporal.  
+- A angulação passiva da manifestação pode se desdobrar de forma a reangular sua integralidade.  
+- Isto é, o Ser pode "Ser-Ai" e Ser para o outro. No sentido de que sua angulação inclui sua contraparte (relativo) ou a angulação de si mesmo (Ser integral) para o (Sou particular).  
+- Isto é possível pois carrega o teor de indefinição, a ausência do "Sou" ou dos "Sous" que é dada como "Ser".  
+
+- O nada corresponde ao nada da manifestação tal como o Ser se equivaleria ao nada do determinador.  
+
+
+
+
+### 3. **A Limitação Fenomênica do "Sou"**  
+- O "sou" individual não pode manifestar plenamente seu próprio infinito, pois toda aparição é um **recorte do ilimitado**.  
+- Assim como um raio de luz não esgota o sol, a autoconsciência humana é uma **expressão parcial** — nunca a totalidade do Ser que a fundamenta.  
+
+
+
+
+
+
