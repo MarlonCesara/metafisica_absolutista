@@ -465,44 +465,30 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 - *Exemplo:* Um horizonte ilimitado é "nada absoluto" até que o espirito defina um ângulo de existência, convertendo-o em paisagem.  
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
 
+## Criação a partir do Nada absoluto 
 
+Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de forma a tornar existente possibilidades prévias:  
 
+- *Exemplo:* Um objeto X só abandona sua suspensão e se torna existênte devido a determinação do Espírito.  
 
-
-
-
-por aqui
-
-
-
-
-
-## Criação a partir do Nada  
-
-Criar é tornar imanente o que estava latente no infinito. O observador cria ex nihilo, de forma a presenciar e observar possibilidades prévias:  
-
-- *Exemplo:* Um objeto X só existe para o observador quando este o torna visível em seu campo fenomênico.  
-
-## A Experiência da Infinitude  
+## A Experiência da Ser  
 
 ### Abstração e Sentimento  
 
-A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:  
+O Ser não é uma dimensão mensurável, mas uma experiência abstrata:  
 
-- *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.  
-- *Exemplo:* O terror Relativo revela o vazio quando a realidade perceptual se dissolve.  
+- *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é o Ser manifestado como emoção.  
 
-#### **Referencialidade do Observador**  
-**Princípio Unificador:**  
-A aparente dualidade (fundamento × manifestação) dissolve-se quando compreendemos que:  
-- **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
-  - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
-  - *Para o observador atemporal:* Ato único (consumação).  
+
+# A manifestação do cosmos
+
+O cosmos é o resultado da manifestação impessoal do Ser, no sentido de que, não transmite a si mesmo como determinador e livre. Mas, faz sugir uma possibilidade alheia a si como determinador, mas contida em sua como potencial. E chamaremos isto de cosmos ou natureza. A vida que é perififérica a vida central, a periferia do Ser, no sentido de que agrega a vida, mas não a vida total. 
 
 
 
 
 
+aqui
 
 
 
@@ -520,6 +506,28 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# A manifestação do sou
 
 ## **A Distinção entre Ser e Sou**  
 O **Ser** representa o determinador ausente, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
@@ -535,61 +543,20 @@ O **Ser** representa o determinador ausente, o fundamento impessoal da existênc
 - **Sou**:  
   - Introduz **assimetria** (vontade particular nem sempre alinhada à plenitude).  
 
-*"O **Sou** é o determinador presente, a afirmação personalizada. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."*
-
-
-### **Espírito e Alma no Ser**  
-O **Espírito** manifesta-se como existência não personalizada, agindo de modo direto e necessário, como a gravidade. Ele não possui alma, pois sua ação é pura e desprovida de particularidades.  
-
-A **Alma**, por sua vez, está ausente no Ser puro, pois este não se individualiza. Ela só surge no âmbito do *Sou*, onde a existência se expressa através de uma identidade definida.  
-
-- **Espírito (Autofundação)**:  
-  - Manifesta-se como **existência não personalizada**.  
-  - Não requer alma, pois sua ação é **direta e necessária** (como a gravidade).  
-- **Alma (Autoexpressão)**:  
-  - Ausente no Ser puro, pois este **não se particulariza**.  
-  - Surge apenas no âmbito do *Sou* (Absoluto personalizado).  
-
-- **Plenitude da Indiferenciação**:  
-  - O relativo não é um efeito, mas a causa de si mesmo 
-  - Unifica real e irreal sem suprimir nenhum dos dois.  
-  - *Metáfora:* Como um espelho que reflete tanto o que está diante dele quanto sua própria capacidade de refletir.  
-
-## **Conclusão Dialética**  
-O **Ser** é o nada indiferenciado em ato – não como ausência, mas como relativo. O **relativo** não se opõe ao Absoluto; é seu modo de ser não afirmativo, onde a existência se sustenta sem precisar de justificação.  
-
-- O **Ser** é o **nada indiferenciado em ato** – não como ausência, mas como **indefinição**.  
-- O **relativo** não é oposto ao Absoluto: é seu **modo de ser não afirmativo**, onde a existência se sustenta **sem necessidade de justificação**.  
-
-*"O Ser não decide ser – ele é a decisão."*  
-
-## **Síntese**  
-- No relativo, não há a necessidade ativa de um determinador, pois não há afirmação em prol de um estado: realidade ou irrealidade. O relativo simplesmente existe sem a necessidade de uma configuração inicial.  
-
-- O termo **"Ser"** remete ao **"determinador"** ausente do Absoluto (pessoalidade ausente ativa), pois é definido pelo seu resultado e não pelo sujeito da ação, o qual não houve. O Ser é o próprio ato puro de existir, desprovido de **"quem"** para o **"o quê"** foi determinado. O determinado simplesmente é, sem necessidade de afirmação ou negação de si. Pois o relativo é indiferenciado, ou seja, simplesmente é e se dá como tal, sem a atuação de uma escolha.  
-
-- O **"Ser"**, embora não exerça escolha na totalidade do que é — ou seja, na integralidade atemporal (em ato único) do relativo —, tem sua determinação efetivada no ato de existir do determinado. Ou seja, o Ser é o que fomenta o existir, de forma que não necessita agir sobre este, pois seu fundamento coopera necessariamente para a fundamentação do todo. Sua decisão é homogênea ao relativo.  
-
-- O **"Sou"** é um determinador afirmado em prol de si, de uma assinatura particular de si, e não é homogêneo ao Ser, de forma a não fomentar necessariamente em prol da existência e plenitude.  
-
-- O termo **"Sou"** remete ao determinador presente no Absoluto (pessoalidade presente ativa), definido pelo sujeito da ação e pelo resultado da ação.  
-
-- O termo **"Ser"** remete ao **"determinador"** ausente do Absoluto (pessoalidade ativa), enquanto **"existir"** refere-se ao **"determinado"** da realidade (o ato ausente da determinação no Absoluto indiferenciado). Portanto, o termo **"Ser"** é o mais apropriado, pois o relativo, enquanto autodeterminado (governado pelo espírito), é uma pessoalidade existente ausente. Ou seja, é o **"Ser"** em detrimento do **"Sou"** (sujeito ativo existente).  
-
-- O termo **"Ser"** remete ao **"quem"** do Absoluto (o sujeito ausente que determina), enquanto **"existir"** refere-se ao **"que"** do relativo (o ato ausente da determinação). Portanto, o termo **"Ser"** é o mais apropriado, pois o relativo, enquanto autodeterminante (governado pelo espírito), é uma pessoalidade.  
-
-- Somente o Relativo pode se autodeterminar, pois é a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou multiplicidade que determine, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um determinador referenciável.  
-
-- O Relativo simplesmente é — não há um ente **"existente"** ou algo **"existido"**, há apenas o ato puro de existir, o verbo sem sujeito. O Ser indiferenciado. Não afirmado (possibilidade) e nem negado (impossibilidade).  
-
-- O espírito do Ser manifesta-se a partir do ato puro de existir; portanto, o Ser não possui alma criada. Podendo, assim, ter sua causa e fundamento em si mesmo, ou seja, em seu ato puro de Ser. Logo, a alma do Ser (não criada) dispensa fundamento para sua existência e atividade.  
-
-- Somente o Relativo pode se autofundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. É a completa indiferenciação entre o real e o irreal.  
+*"O **Sou** é o determinador presente, a afirmação personalizada e numerável. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."* É possível haver inúmeros "sous" porém o Ser não é um ou muitos, simplesmente é.
 
 *"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."*  
 
+## **A manifestação do(s) Sou(s)**  
 
+Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é o nada até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plentude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
 
+Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica a respeito de Ser no Ser ou ser em si. Ou seja, existir em plenitude ou de forma não plena.
+
+Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
+Quando mais o sou se determina rumoa o ser, mais é em si e no Ser.
+
+Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando completamente opaco, não se direciona nem mesmo a ação.
 
 
 
@@ -706,6 +673,20 @@ Isso unifica:
 
 Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Dualidade Fundamental: O Nada Relativo e a Manifestação Relativa  
 
 ## Definições Fundamentais  
@@ -740,6 +721,13 @@ Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibi
 - Não há "verdade estática", pois o relativo sempre se constitui na relação entre:  
   - A ação do determinador (Ser puro).  
   - O determinado (incluindo o nada indiferenciado como contraparte).  
+
+#### **Referencialidade do Observador**  
+**Princípio Unificador:**  
+A aparente dualidade (fundamento × manifestação) dissolve-se quando compreendemos que:  
+- **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
+  - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
+  - *Para o observador atemporal:* Ato único (consumação).  
 
 - O Nada não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
 
@@ -2317,5 +2305,61 @@ O relativo é autofundamentado – não requer um princípio externo, pois é su
 ### **Consequências Metafísicas**  
 - **O irreal como espelho do real**:  
    Assim como a escuridão só existe em relação à luz, o impossível só tem significado como contraste do possível. Sua "existência" é sempre **relacional e negativa**.  
+
+
+
+
+- O nada absoluto é o Ser sem espirito. Porém, isto não existe de fato pois o Ser está no nada absoluto.
+E isto é o inferno. Ir para onde não é possível ir, pois Deus está lá também. Ao escolher não ser se escolhe Ser.
+
+
+
+
+A **Alma**, por sua vez, está ausente no Ser puro, pois este não se individualiza. Ela só surge no âmbito do *Sou*, onde a existência se expressa através de uma identidade definida.  
+
+- **Espírito (Autofundação)**:  
+  - Manifesta-se como **existência não personalizada**.  
+  - Não requer alma, pois sua ação é **direta e necessária** (como a gravidade).  
+- **Alma (Autoexpressão)**:  
+  - Ausente no Ser puro, pois este **não se particulariza**.  
+  - Surge apenas no âmbito do *Sou* (Absoluto personalizado).  
+
+- **Plenitude da Indiferenciação**:  
+  - O relativo não é um efeito, mas a causa de si mesmo 
+  - Unifica real e irreal sem suprimir nenhum dos dois.  
+  - *Metáfora:* Como um espelho que reflete tanto o que está diante dele quanto sua própria capacidade de refletir.  
+
+## **Conclusão Dialética**  
+O **Ser** é o nada indiferenciado em ato – não como ausência, mas como relativo. O **relativo** não se opõe ao Absoluto; é seu modo de ser não afirmativo, onde a existência se sustenta sem precisar de justificação.  
+
+- O **Ser** é o **nada indiferenciado em ato** – não como ausência, mas como **indefinição**.  
+- O **relativo** não é oposto ao Absoluto: é seu **modo de ser não afirmativo**, onde a existência se sustenta **sem necessidade de justificação**.  
+
+*"O Ser não decide ser – ele é a decisão."*  
+
+## **Síntese**  
+- No relativo, não há a necessidade ativa de um determinador, pois não há afirmação em prol de um estado: realidade ou irrealidade. O relativo simplesmente existe sem a necessidade de uma configuração inicial.  
+
+- O termo **"Ser"** remete ao **"determinador"** ausente do Absoluto (pessoalidade ausente ativa), pois é definido pelo seu resultado e não pelo sujeito da ação, o qual não houve. O Ser é o próprio ato puro de existir, desprovido de **"quem"** para o **"o quê"** foi determinado. O determinado simplesmente é, sem necessidade de afirmação ou negação de si. Pois o relativo é indiferenciado, ou seja, simplesmente é e se dá como tal, sem a atuação de uma escolha.  
+
+- O **"Ser"**, embora não exerça escolha na totalidade do que é — ou seja, na integralidade atemporal (em ato único) do relativo —, tem sua determinação efetivada no ato de existir do determinado. Ou seja, o Ser é o que fomenta o existir, de forma que não necessita agir sobre este, pois seu fundamento coopera necessariamente para a fundamentação do todo. Sua decisão é homogênea ao relativo.  
+
+- O **"Sou"** é um determinador afirmado em prol de si, de uma assinatura particular de si, e não é homogêneo ao Ser, de forma a não fomentar necessariamente em prol da existência e plenitude.  
+
+- O termo **"Sou"** remete ao determinador presente no Absoluto (pessoalidade presente ativa), definido pelo sujeito da ação e pelo resultado da ação.  
+
+- O termo **"Ser"** remete ao **"determinador"** ausente do Absoluto (pessoalidade ausente ativa), enquanto **"existir"** refere-se ao **"determinado"** da realidade (o ato ausente da determinação no Absoluto indiferenciado). Portanto, o termo **"Ser"** é o mais apropriado, pois o relativo, enquanto autodeterminado (governado pelo espírito), é uma pessoalidade existente ausente. Ou seja, é o **"Ser"** em detrimento do **"Sou"** (sujeito ativo existente).  
+
+- O termo **"Ser"** remete ao **"quem"** do Absoluto (o sujeito ausente que determina), enquanto **"existir"** refere-se ao **"que"** do relativo (o ato ausente da determinação). Portanto, o termo **"Ser"** é o mais apropriado, pois o relativo, enquanto autodeterminante (governado pelo espírito), é uma pessoalidade.  
+
+- Somente o Relativo pode se autodeterminar, pois é a indiferenciação do determinador. Dispensa ação ativa: afirmação ou negação. Não há unidade ou multiplicidade que determine, e nem o determinado carrega teor de multiplicidade ou unicidade. As opções do relativo existem sem que haja ação de um determinador referenciável.  
+
+- O Relativo simplesmente é — não há um ente **"existente"** ou algo **"existido"**, há apenas o ato puro de existir, o verbo sem sujeito. O Ser indiferenciado. Não afirmado (possibilidade) e nem negado (impossibilidade).  
+
+- O espírito do Ser manifesta-se a partir do ato puro de existir; portanto, o Ser não possui alma criada. Podendo, assim, ter sua causa e fundamento em si mesmo, ou seja, em seu ato puro de Ser. Logo, a alma do Ser (não criada) dispensa fundamento para sua existência e atividade.  
+
+- Somente o Relativo pode se autofundamentar, pois é a indiferenciação da possibilidade e da impossibilidade. É a completa indiferenciação entre o real e o irreal.  
+
+
 
 
