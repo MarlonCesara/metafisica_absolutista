@@ -482,7 +482,116 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # A manifestação do cosmos
 
-O cosmos é o resultado da manifestação impessoal do Ser, no sentido de que, não transmite a si mesmo como determinador e livre. Mas, faz sugir uma possibilidade alheia a si como determinador, mas contida em sua como potencial. E chamaremos isto de cosmos ou natureza. A vida que é perififérica a vida central, a periferia do Ser, no sentido de que agrega a vida, mas não a vida total. 
+
+**O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
+
+**A vida**, nesse contexto, **é periférica em relação à vida central** – a periferia do Ser –, no sentido de que **agrega vida, mas não a vida em sua totalidade**.  
+
+### Principais características do cosmos:  
+1. **Não possui liberdade**.  
+2. **Não pode autodeterminar-se; é aquilo que é determinado**.  
+3. **Faz parte da natureza do Ser, porém em sua escassez, não em sua abundância**.  
+4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
+
+
+# Estruturando o Nada  
+
+## Determinação
+
+- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
+
+## Definição por Negação  
+
+- O **"nada"** é a não-expressão de A (ex.: escuridão = não-luz).  
+- Requer uma referência (A) para ser definido.  
+  - *Exemplo:* Só há escuridão se houver luz.  
+
+## Referencialidade Obrigatória  
+
+- A negação só existe se A já foi manifestado ou é possível.  
+- Não há "nada" sem relação com um "algo".  
+  - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
+
+## Não-Coexistência de Opostos Relativos  
+
+- A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios.  
+  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.  
+
+## Referencial Possível  
+
+- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
+
+- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
+  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
+  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
+
+## Dissolução Espacial  
+
+- A nulidade abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
+
+## Tempo Potencial e Expresso (Atemporalidade)  
+
+- O tempo existe como:  
+  1. **Tempo expresso** (manifestado).  
+  2. **Tempo inexpresso** (potencial não realizado).  
+
+- A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.  
+- A nulidade consuma o tempo em sua expressão e inexpressão.  
+
+
+# Estruturando a Manifestação  
+
+## Determinação
+
+- Se a manifestação é uma possibilidade, então ela é afirmada e, consequentemente, **admite numerabilidade**. Assim, não há uma única manifestação, mas **uma ou múltiplas manifestações**.  
+
+## Não-localidade  
+
+- A manifestação não se origina em um lugar específico, pois não há um ponto de origem Relativo, sendo em si seu próprio ponto de origem.  
+  - *Exemplo:* O universo não pode ter começado em lugar nenhum.  
+
+## Espaço Infinito  
+
+- O espaço da manifestação é infinitamente percorrível, sem bordas ou confinamento.  
+  - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.  
+  - *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.  
+
+## Indivisibilidade Fenomênica  
+
+- Fenômenos não são separáveis, pois qualquer divisão gera uma regressão infinita de intermediários (ex.: entre A e B há C, entre A e C há D, etc.).  
+  - *Exemplo:* Ao separar blocos, sempre será possível colocar um bloco no meio dos blocos separados.  
+
+## Temporalidade Infinita  
+
+- O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.  
+  - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.  
+  - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
+  - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.  
+
+
+# A Dialética do Infinito e do Nada  
+
+## O Infinito e o Nada: Princípios Indiscerníveis  
+
+Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestação) e nada compartilham propriedades essenciais:  
+
+- **Ausência de dimensões absolutas**: Nem o nada nem a manifestação podem ser delimitados espacial ou temporalmente.  
+- **Dependência de um segundo termo**:  
+  - O nada só é definível em relação à manifestação (ex.: escuridão vs. luz).  
+  - A manifestação só é reconhecível em contraste com o nada (ex.: existência vs. ausência).  
+
+### Dualidade Necessária  
+
+- Sem dualidade, ambos colapsam:  
+  - O nada é ininteligível sem a manifestação.  
+  - A manifestação em sua integralidade é indistinguível do nada.  
+
+### Conclusão  
+
+- "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:  
+  - O nada é o infinito negado (ausência de forma).  
+  - A manifestação é o infinito afirmado (forma sem limites).  
+  - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
 
 
 
@@ -672,10 +781,7 @@ Isso unifica:
 — como aspectos inseparáveis do mesmo Relativo autodeterminante.  
 
 Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
-
-
-
-
+Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
 
 
 
@@ -734,8 +840,11 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 
 
 
-
 # Estruturando o Nada  
+
+## Determinação
+
+- Sendo o nada uma possibilidade é afirmada, portanto, porta numerabilidade. É uma ou mais nadas. 
 
 ## Definição por Negação  
 
@@ -776,11 +885,11 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 - A nulidade consuma o tempo em sua expressão e inexpressão.  
 
 
-
-
-
-
 # Estruturando a Manifestação  
+
+## Determinação
+
+- Sendo a manifestação uma possibilidade é afirmada, portanto, porta numerabilidade. É uma ou mais manifestações. 
 
 ## Não-localidade  
 
@@ -806,15 +915,7 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
   - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.  
 
 
-
-
-
-
 # A Dialética do Infinito e do Nada  
-
-
-
-
 
 ## O Infinito e o Nada: Princípios Indiscerníveis  
 
