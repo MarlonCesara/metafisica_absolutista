@@ -904,4 +904,5 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - O sentimento de baixa inteligencia e fracasso.
 - O comportamento social face ao conhecer da natureza do apático.
 - O apátia na adolescencia, a formação da visão existencial, as pré percepções da ausencia do eu e o auto-entendimento social
-
+- Incomodo ao ver os outros em paz e tranquilos
+- Tentativa de degradar as belezas naturais e tudo que impoe proposito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmonico, catastrófico.
