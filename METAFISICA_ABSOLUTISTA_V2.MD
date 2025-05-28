@@ -471,7 +471,7 @@ Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de fo
 
 - *Exemplo:* Um objeto X só abandona sua suspensão e se torna existênte devido a determinação do Espírito.  
 
-## A Experiência da Ser  
+## A Experiência do Ser  
 
 ### Abstração e Sentimento  
 
