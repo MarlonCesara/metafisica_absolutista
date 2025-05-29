@@ -142,11 +142,11 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 - **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.  
 - **Envolve três aspectos:**  
   1. **Autoexistência:** Ser presente em si mesmo.  
-     - O ser deve estar em si mesmo para ser o agente ativo da determinação.  
+     - O Absoluto deve estar em si mesmo para ser o agente ativo da determinação.  
   2. **Autonomia:** Poder sobre si mesmo.  
-     - O ser deve ter o domínio sobre si para que haja autodeterminação.  
+     - O Absoluto deve ter o domínio sobre si para que haja autodeterminação.  
   3. **Autoconsciência:** Conhecimento de si mesmo.  
-     - O ser deve conhecer totalmente a sua estrutura para que haja ação autocausada.  
+     - O Absoluto deve conhecer totalmente a sua estrutura para que haja ação autocausada.  
 - **Implicações:**  
   - Explica como o Absoluto mantém identidade (não é caótico ou aleatório).  
   - Mostra que ele não é apenas um "ser estático", mas um ser ativo que se autogoverna.  
