@@ -354,6 +354,8 @@ A possibilidade não veio do tempo, de uma antitese determinada (nada/tudo), vei
 
 Desta forma o Ser determina-se de forma que todas as coisas não necessariamente seriam criadas como antitese de si, mas foram criadas pelo amor. No tempo do amor e conforme o amor. 
 
+Todas as coisas estavam no amor e foram criadas pelo amor, no inexplicável, no imcompreenssível, na verdadeira mágica da vida. No que carece de explicações. Na ilimitanação total. 
+
 
 ### O Relativo como Ser Autônomo  
 - "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
