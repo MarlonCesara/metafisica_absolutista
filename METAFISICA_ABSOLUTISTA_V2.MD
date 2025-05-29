@@ -347,6 +347,12 @@ Ex: o nada mais puro tem o potencial de manifestar-se com potencial ou não. Log
 - Quando o Ser se esvazia totalmente de si, o ultimo conceito que se sobra é o Amor, pois é a tendencia à plenitude que concretiza o relativo não por ser sua afirmação ou antitese, mas por estar rumo a sua plenitude.
 - Ou seja, a pureza do Ser, ou seja, a pessoalidade do Ser tende ao infinito. Não pode ser capturada pela conceituação. Desta forma, a respota para perguta, de onde veio o relátivo? Não teria nem mesmo a pureza absoluta como resposta, pois está também não se apresenta como conceito alcancável. A melhor resposta seria: veio do amor do Ser. 
 
+- A pureza, portanto, anularia a si mesma, restando apenas a tendencia a plenitude. 
+- A resposta para a pergunta, portanto, de onde surgiu a possibilidade e a impossibilidade? quando? De que forma foi causada? Já era a antitese de algo? Era o nada absoluto que tinha como referencia o tudo absoluto? A resposta é que, é impossível alcançar o ultimo nada para fundamentar o absoluto, a unico fundamento é o amor. 
+
+A possibilidade não veio do tempo, de uma antitese determinada (nada/tudo), veio da pura tendencia a plenitude, do amor. Essa é a unica descrição cognocível mais aproximada a explicação da causa do relativo que é uma afirmação do relativizado. O relativizado não veio da negação do relativizado, pois a negação do relativizado, teria que ser afirmada também em um retrocesso infinito. Mas veio do amor. O possível e impossível foi determinado unicamente pelo amor do Ser.
+
+Desta forma o Ser determina-se de forma que todas as coisas não necessariamente seriam criadas como antitese de si, mas foram criadas pelo amor. No tempo do amor e conforme o amor. 
 
 
 ### O Relativo como Ser Autônomo  
