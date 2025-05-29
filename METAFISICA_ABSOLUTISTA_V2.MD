@@ -213,19 +213,19 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 
 # Estrutura da Autodeterminação  
 
-### O Absoluto como relativo autodeterminado  
-- O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo.  
-  - Isso significa que o relativo não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.  
-
 ### O Absoluto como Pessoalidade e Pureza
   - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma       forma, dissolvendo-se imediatamente no relativo. Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência       indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
 
 > * O Absoluto se mostra como pura personalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
 
 ### O relativo como Ser-aí
-  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser" do "Ser-ai", não anterior ou  extrinseco ao "Ai", mas puro ao "Ai" que seria o relatívo.
-  - O "Ser" designa o determinador que age "aí", ou seja, a existência de sua ação não define sua própria existência.
+  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (relativo), mas puro ao "Ai".
+  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
   - O Ser, não define-se em sua ação "Aí". Existe além do que é existido ou referenciável.
+
+### O Ser como pureza autodeterminada
+- O Ser, enquanto absoluto, se autodetermina Ser.  
+  - Isso significa que o potencial do Ser (relativo) não é um acidente, mas uma expressão necessária em sua autodefinição.  
 
 ### Autodeterminação Vertical (Espírito)  
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
@@ -263,7 +263,7 @@ O Espírito (autodeterminação do Relativo) atua em três dimensões:
    - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
    - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
 
-Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia na realidade de forma a fundamentá-la, plenificá-la e construí-la.  
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
 
 ## Conclusão  
 
