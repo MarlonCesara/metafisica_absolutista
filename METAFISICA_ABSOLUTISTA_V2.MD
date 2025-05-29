@@ -220,10 +220,12 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 ### O Absoluto como Pessoalidade e Pureza
   - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma       forma, dissolvendo-se imediatamente no relativo. Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência       indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
 
+* O Absoluto se mostra como pura personalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
+
 ### O relativo como Ser-aí
   - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser" do "Ser-ai", não anterior ou  extrinseco ao "Ai", mas puro ao "Ai" que seria o relatívo.
   - O "Ser" designa o determinador que age "aí", ou seja, a existência de sua ação não define sua própria existência.
-  - O Ser, não define-se em sua ação "Aí". Existe alem do que é existido ou referenciável.
+  - O Ser, não define-se em sua ação "Aí". Existe além do que é existido ou referenciável.
 
 ### Autodeterminação Vertical (Espírito)  
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
