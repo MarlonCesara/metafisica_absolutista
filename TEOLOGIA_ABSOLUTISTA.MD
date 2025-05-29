@@ -377,13 +377,26 @@ E, no entanto,
 a saudade é a única prova  
 de que um dia existi.  
 
-# **Almas do Purgatório**  
+# **Almas de baixa luminosidade**  
 
 ### **Características Principais**  
 - **Brilho espiritual extremamente baixo**: O indivíduo não tem uma definição clara de si mesmo, mas possui uma noção vaga de sua eternidade. Ele percebe sua extensão existencial, mas não consegue se definir além da matéria.  
 - **Identidade material**: A alma se enxerga principalmente através do corpo físico, sem conseguir afirmar plenamente sua natureza espiritual. Não se trata de um aprisionamento, mas de uma fraqueza na percepção do Eu verdadeiro.  
 - **Estado de mínima esperança**: Vive em um estado de descontentamento e falta de alegria, mas sem a desesperança total da alma apática. Há uma paz relativa, porém pouca expectativa de transcendência.  
 - **Consciência da eternidade, mas apego ao material**: O indivíduo sabe, em algum nível, que transcende a morte, mas ainda se define pelo mundo físico.  
+
+# **Almas do purgatório**  
+
+- O purgatório é o livre-arbitrio das almas do inferno, porém, o purgatório considera que as almas não se abre ao Ser por possuirem uma tendencia venial absoluta que a impede de se abrir, como o orgulho, a avareza, etc. Ou seja, considera que há alguém na alma, ou potenical de vida na alma, porém, que esta bloqueado por uma tendencia da alma. Uma vez que a alma despertará, então, sua dormencia considera-se intencional.
+
+# **Almas do inferno**  
+
+- O inferno seria o estado da alma que não tem potencial de despertar, que já se define por um tempo eterno como tal. É o mesmo estado do purgatório, porem, definitiivo. A alma, se internaliza e torna-se inacessíveo ao outro e a Deus internamente. De forma a se fazer, não pureza, aboluta, mas o nada absoluto transpassado de forma a queimar seu Eu na pureza do Ser. 
+A alma do inferno "cai" e não se "entrega" ao Ser, de forma a não ser homogenea mas simular um potencial que a agride em seu eu, ou seja, o potencial da pureza a toma inteiramente, cada "espaço" de sua alma é preenchida por Deus de forma a consumir-se sem ser homogenea. A lzu de Deus não a transpassa, a queima.
+
+Analogia: o vidro tranpassa a luz e retem menos calor que o o aço, que retem o calor e torna-se quente, ate que derrete, não muda de composição, mas se torna liquido.
+
+# A ressurreição
 
 ### **Diferença em relação às almas apáticas**  
 - Não vive em estado de histeria ou cegueira existencial, como a alma apática.  
