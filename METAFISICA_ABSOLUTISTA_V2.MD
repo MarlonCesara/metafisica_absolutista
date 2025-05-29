@@ -356,6 +356,8 @@ Desta forma o Ser determina-se de forma que todas as coisas não necessariamente
 
 Todas as coisas estavam no amor e foram criadas pelo amor, no inexplicável, no imcompreenssível, na verdadeira mágica da vida. No que carece de explicações. Na ilimitanação total. 
 
+Havendo verdadeiro nada, ou seja, a evasão da antitese, a criação carece de explicação, não é mais cognocível. Tanto o Ser quanto sua capacidade de Criar temporalmente atemporalmente, possivelmente ou o impossível fogem a congição. A unica via de compreender é o amor. O amor é única compreenssão possível.
+
 
 ### O Relativo como Ser Autônomo  
 - "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
