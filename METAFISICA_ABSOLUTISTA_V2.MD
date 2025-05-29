@@ -318,6 +318,16 @@ resolve
 - A pureza absoluta é tão pura que deixa somente o que é impuro de si. Torna-se homogenea à sua referencia. De forma que a transpassa, sem a Ser.
 
 
+- O relativo, portanto é o nada do nada. Porém, o nada do nada, portanto ainda um referencial (o lógico e o ilógico), ainda não atingimos o nada absoluto.
+- O nada absoluto não retem a referencia, ou seja, o nada ultimo seria o nada até mesmo da antitese relativo e relativizado, ausencia ou presença do fenomeno.
+- O nada absoluto, portanto, é cognocível por aquilo efeito que provoca na esfera lógica ou ilógica (Ser), porém, não há conceito que o descreva exatamente.
+- O conceito mais aproximado é pureza absoluta, ou, força que coage a plenitude de forma perfeita (amor). 
+- Conclui-se que o relativo é determinado como relativo, ou seja, o relativo não tem um espirito inerente a si o qual o define e o determina, mas é 
+  determinado pelo espírito, de forma que o espírito decida o teor de si que agregará no relativo afirmado ou negado. Ou seja, delimita a translucidez do que é 
+  criado.
+- A pureza total se define até mesmo com ou sem potencial. Dispensando à própria antitese anulação/presença.
+
+
 ### O Relativo como Ser Autônomo  
 - "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
   - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
