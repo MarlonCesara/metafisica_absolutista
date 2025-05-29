@@ -362,7 +362,7 @@ A criação a partir da pureza inancanvável, é como mágica, carece de explica
 
 - Quando a antitese deixa de existir, a criação passa a não conter mais explicação cognocível, pois o criado não estava como forma nula de si. Criar deixa de ser um processo de determinação e passa a ser de criação.
 
-
+- Portanto, a criação por revelação, ou seja, desdobramento do infinito, em finito não é criação, é revelação. A existencia revelada, portanto, sempre antecede infintamente a si mesma como uma nulidade reveladora. Somente a manifestação criadora pode ser dada como fonte de toda criação. E está carece de explicação.
 
 
 
