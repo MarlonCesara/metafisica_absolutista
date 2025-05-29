@@ -198,9 +198,6 @@ mas demasiado frágil para existir por si mesmo.
 Duas almas se encontram no céu, mas, não motivadas pelo verdadeiro amor, possuem um medo aterrador de se unirem. A limitação é o medo. O amor deve ser suficientente grande para permitir a ação. Só o amor verdadeiro faz com que o medo seja perdido. O mesmo frente a um erro eterno.
 
 
-
-
-
 ## **Jesus sob outra perspectiva**  
 
 Jesus foi um jovem sonhador, embora dotado de uma sabedoria divina. Suas afirmações estavam constantemente fundamentadas na manifestação do impossível. Seu direcionamento era sempre voltado à melhoria imediata da apatia ou ao fortalecimento das almas de luz fraca. Ao instituir a Eucaristia, provavelmente se referia a um ato impossível: condensar todo o amor divino na partilha do pão, para que toda apatia fosse eliminada. Consumir o amor como pão, para que o amor nasça no próprio ser.  
@@ -214,6 +211,17 @@ O primeiro dia representa a ação do Espírito; o segundo, a personalização; 
 Ao retornar com o corpo glorioso, Jesus revelou que o ser humano glorificado pode transcender o próprio design — ou seja, a alma glorificada pode superar as formas originalmente estabelecidas. Ainda que o design (formas, leis físicas e conceituais) seja um presente divino, possuir o poder de desfigurá-lo não significa necessariamente alcançar a plenitude. As formas são uma expressão da natureza divina.  
 
 O corpo ressuscitado mostrou que o apático poderia transcender não somente seu ego animalesco, mas a própria realidade circundante. No sentido de que Jesus superpotencializou o humano no intuito de incentivar seu potencial. Aos que nem mesmo dominavam a si mesmos, Jesus quis mostrar que poderiam dominar até as leis físicas.  
+
+
+## **Jesus e o corpo ressuscitado**  
+
+A consequencia natural, sem ação do Ser, seria a alma se isolar em si mesma, pois abandonaria a determinação do corpo inicial em direção ao seu próprio nada, sua integridade sem ação, porém sem vida. Dessa forma, iria direto para o espírito fundamentador. 
+
+A ação de atribuir-lhe um corpo espiritual significa a ação de romper a natureza de Deus interferindo até no design natural das coisas. Ou seja, igualar-se a Deus. 
+Como se Jesus quisesse dar sua vida ao apático, considerando que, o apático não criou vida em si.
+
+A pureza de Jesus sonhou como nenhum humano seria capaz de sonhar, não é só seu espirito perfeito, mas sua capacidade de acreditar no outro até as ultimas consequencias. Sua não aceitação do destino do apático.
+
 
 # **Existencialismo e Política: A Patologia da Apatia**  
 
