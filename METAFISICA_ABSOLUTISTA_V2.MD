@@ -326,6 +326,29 @@ resolve
   determinado pelo espírito, de forma que o espírito decida o teor de si que agregará no relativo afirmado ou negado. Ou seja, delimita a translucidez do que é 
   criado.
 - A pureza total se define até mesmo com ou sem potencial. Dispensando à própria antitese anulação/presença.
+- O nada puro, desta forma, tem o poder absoluto. Não se limita a determinar-se por um relativo. Desta forma, sem o querer do Ser não haveria a possibilidade ou 
+  a impossibilidade.
+- O relativo existe porque existe o amor, ou seja, está no querer do relativo as possibilidades e impossibilidades.
+- Ou seja, o amor sempre existiu, a tendencia de algo que transcende a imaginação, portanto, o conceito mais aproximado é Amor.
+
+
+- O relativo não é necessario, mas o amor é necessario, logo, o relativo se fez necessário? 
+- A manifestação do relativo da pureza absoluta, se dá sem necessidade do lógico ou ilógico, se a pureza absoluta não tinha potencial, como o relativo começou?
+- O amor sempre esteve na pureza absoluta. O amor é a tendencia pelo bem. Portanto, se o relativo é manifestação do amor, o relativo sempre existiu. 
+
+- O espirito é o que teria potencial relativo. O relativo do relativo. Logo, sempre que tentamos capturar o nada ultimo, este transcende rumo ao infinito.
+- Mais adiante teriamos o relativo do relativo do relativo.
+- Nunca se chega a pureza final, a qual se esvazia até mesmo do potencial de realização.
+
+Ex: o nada mais puro tem o potencial de manifestar-se com potencial ou não. Logo, o nada mais puro tem potencial. Então definamos o nada mais puro como a não possibilidade nem de manifestar o potencial. O nada infertil. Porém, o nada infertil teria potencial de ser fertil, e seu impecilho seria uma barreira e não uma impossibilidade.
+
+- Desta forma, a regressão até o nada absoluto torna-se incognocível, restringindo a investigação ao relativo, sendo sua causa incognocível. 
+- O nada não é mais capaz de descrevê-la. 
+- Quando o Ser se esvazia totalmente de si, o ultimo conceito que se sobra é o Amor, pois é a tendencia à plenitude que concretiza o relativo não por ser sua afirmação ou antitese, mas por estar rumo a sua plenitude.
+
+
+
+
 
 
 ### O Relativo como Ser Autônomo  
