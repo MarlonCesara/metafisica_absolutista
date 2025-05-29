@@ -6,7 +6,7 @@ O **Princípio da Identidade** ("A é A") estabelece a essência invariável de 
 
 Já o **Princípio da Não-Contradição** ("A não pode ser não-A ao mesmo tempo") introduz uma **dimensão temporal**, garantindo que um ente não assuma estados opostos **simultaneamente**. Contudo, ele se restringe à relação entre **um ente e sua negação** (A vs. ¬A), sem abordar a possibilidade de um ente **tentar ser outro ente distinto** (A vs. B).  
 
-Foi essa lacuna que motivou a criação do **Princípio da Não-Disformidade** ("A não pode ser B ao mesmo tempo"). Ele funciona como a **versão temporal do Princípio da Identidade**, assegurando que:  
+Foi essa lacuna que motivou a criação do **Princípio da Não-Disformidade** ("A não pode ser B ao mesmo tempo"). Da mesma forma que o princípio da não-contradição se dá como uma versão temporal do princípio do terceiro excluído, o principio da não-deformidade funciona como a **versão temporal do Princípio da Identidade**, assegurando que:  
 - **Um ente não pode se confundir ou se substituir por outro** no decorrer de sua existência.  
 - **A identidade não apenas se mantém em si mesma (atemporalmente), mas também se diferencia de outras identidades (temporalmente).**  
 
