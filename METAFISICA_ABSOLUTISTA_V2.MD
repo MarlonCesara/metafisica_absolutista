@@ -297,13 +297,25 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 resolve 
 
 ### O Ser como suspenso juntamente à suspensão (relativo).
-- O relativo está suspenso tal como o Ser, porém, o Ser está até mesmo alem do relatívo.
+- O relativo está suspenso tal como o Ser, porém, o Ser está até mesmo além do relatívo.
 - O relativo é a suspensão do todo, enquanto, o que o define está suspenso ao próprio potencial do relatívo.
 - O Espírito, portanto, não é o relatívo, mas o relativo é a expressão da determinação do Espírito.
 - O relativo é determinado pelo Espírito.
 - O Ser é puro até mesmo ao relátivo, e ao relativo determinado.
 - O que possui potencial ou referencia ainda não é a pureza total.
-
+- O absoluto é um sistema fechado. Portanto, transcende ao infinito em seu potencial. Ou seja, há algo que anula até o potencial, uma existencia cujo potencial ou não é arbitrário. 
+- A anulação do Relativo para se produzir a pureza absoluta não existe, pois o infinito não é capturável.
+- A pureza absoluta, é constraste do impuro.
+- Alem da dicotomia existir e inexistir. Forma e disformidade.
+- Tudo que inexiste tem potencial.
+- Tudo que existe tem potencial de anulação.
+- Ao levarmos em consideração isso
+- O relativo ainda é uma referencia variável. Ainda não é o nada, tem potencial.
+- O que trabalha com potencial do relativo é uma pureza absoluta.
+- A pureza absoluta está alem do relativo, o qual porta potencial. A pureza absoluta contem tudo. 
+- A pureza absoluta não contem potencial, ela é o potencial. Ou seja, ela não tem uma referencia, ela é a referencia.
+- A pureza absoluta tende ao infinito. O nada sem potencia, autodetermina-se potencia. Pois o referencial anula-se.
+- A pureza absoluta é tão pura que deixa somente o que é impuro de si. Torna-se homogenea à sua referencia. De forma que a transpassa, sem a Ser.
 
 
 ### O Relativo como Ser Autônomo  
