@@ -227,9 +227,9 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - O Ser, enquanto absoluto, se autodetermina Ser.  
   - Isso significa que o potencial do Ser (relativo) não é um acidente, mas uma expressão necessária em sua autodefinição.  
 
-### O Ser como não mentalizável
+### O Ser como não cognoscível
 
-- Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste, mas transcende o fenômeno. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela lógica ou ilógica, possível ou impossível.
+- Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste como fenômeno, mas transcende o fenômenológico. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela lógica ou ilógica, possível ou impossível.
 
 # Ações e pessoalidades do Espírito 
 
