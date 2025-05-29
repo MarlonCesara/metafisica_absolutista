@@ -928,6 +928,8 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - O apátia na adolescencia, a formação da visão existencial, as pré percepções da ausencia do eu e o auto-entendimento social
 - Incomodo ao ver os outros em paz e tranquilos
 - Tentativa de degradar as belezas naturais e tudo que impoe proposito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmonico, catastrófico.
+- Imposição de altar cargas de trabalho ao homem na tentativa de faze-lo compreender que o apatico nao vive a vida, mas a passa sem sentido. Não se permite o deleite pois necessita manter a vida em um patamar de ausencia de grandes emoções.
+- Tentativa de evitar que a sociedade se dê conta do problema da apatia através de personagens que o apático assume. Assumir-se feitor de engenhenho, vilão, são tentativas de mascarar o problema, pois uma vez que os apatico são identificados, perderão cargos, lidranças, papeis sociais e afetivos na vida das pessoas, perderão força de expressão, etc.
 
 
 
