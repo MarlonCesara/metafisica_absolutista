@@ -294,7 +294,17 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - Se sustenta pela autocontinuidade do Ser.  
   - Se atualiza através da autodeterminação.  
 
-aqui 
+resolve 
+
+### O Ser como suspenso juntamente à suspensão (relativo).
+- O relativo está suspenso tal como o Ser, porém, o Ser está até mesmo alem do relatívo.
+- O relativo é a suspensão do todo, enquanto, o que o define está suspenso ao próprio potencial do relatívo.
+- O Espírito, portanto, não é o relatívo, mas o relativo é a expressão da determinação do Espírito.
+- O relativo é determinado pelo Espírito.
+- O Ser é puro até mesmo ao relátivo, e ao relativo determinado.
+- O que possui potencial ou referencia ainda não é a pureza total.
+
+
 
 ### O Relativo como Ser Autônomo  
 - "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
