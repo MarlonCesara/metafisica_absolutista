@@ -216,8 +216,17 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 ### O Absoluto como relativo autodeterminado  
 - O Absoluto, enquanto totalidade das possibilidades, se autodetermina como relativo.  
   - Isso significa que o relativo não é um acidente, mas uma expressão necessária do Absoluto em sua autodefinição.  
-  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'.
+
+### O Absoluto como Pessoalidade e Pureza
   - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma       forma, dissolvendo-se imediatamente no relativo. Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência       indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
+
+### O relativo como Ser-aí
+  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. 
+  - O "Ser" designa o determinador que age "aí", ou seja, a existência de sua ação não define sua própria existência.
+  - O Ser, não define-se em sua ação ausente (Ser-aí). Existe alem do que é existido ou referenciável.
+
+
+
 
 ### Autodeterminação Vertical (Espírito)  
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
@@ -2414,4 +2423,16 @@ O homem, portanto, pode se definir como ente fenommenológico, ou transcender pa
 - Direcionar-se a favor do espirito é direcionar-se rumo a plenitude, desta forma, quanto maior o direcionamento, maior o potencial da alma. 
 
 - O espírito pode manifestar-se materialmente ou espiritualmente, não havendo limites ou formas limitadas. O espírito independe da manifestação fenomenológica.
+
+
+
+
+
+
+
+
+### O Ser e o Sou
+  - Temos, portanto, o determinador puro que chamaremos de Ser, e, em contraste, temos o Ser determinado, que chamaremos de sou. 
+  - O Ser, portanto, se define como agente da ação ausente "Ser-ai", enquanto o sou, agente da ação presente "Ser-em-Si".
+  - O Ser tem pureza absoluta e é autundamentado, enquanto o Sou é referenciável, numerável e distinguível e determinado.
 
