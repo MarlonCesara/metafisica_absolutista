@@ -345,9 +345,7 @@ Ex: o nada mais puro tem o potencial de manifestar-se com potencial ou não. Log
 - Desta forma, a regressão até o nada absoluto torna-se incognocível, restringindo a investigação ao relativo, sendo sua causa incognocível. 
 - O nada não é mais capaz de descrevê-la. 
 - Quando o Ser se esvazia totalmente de si, o ultimo conceito que se sobra é o Amor, pois é a tendencia à plenitude que concretiza o relativo não por ser sua afirmação ou antitese, mas por estar rumo a sua plenitude.
-
-
-
+- Ou seja, a pureza do Ser, ou seja, a pessoalidade do Ser tende ao infinito. Não pode ser capturada pela conceituação. Desta forma, a respota para perguta, de onde veio o relátivo? Não teria nem mesmo a pureza absoluta como resposta, pois está também não se apresenta como conceito alcancável. A melhor resposta seria: veio do amor do Ser. 
 
 
 
