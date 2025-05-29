@@ -221,8 +221,7 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
   - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma       forma, dissolvendo-se imediatamente no relativo. Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência       indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
 
 ### O relativo como Ser-aí
-  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser" do "Ser-ai", não anterior ou    
-    extrinseco ao "Ai", mas puro ao "Ai" que seria o relatívo.
+  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser" do "Ser-ai", não anterior ou  extrinseco ao "Ai", mas puro ao "Ai" que seria o relatívo.
   - O "Ser" designa o determinador que age "aí", ou seja, a existência de sua ação não define sua própria existência.
   - O Ser, não define-se em sua ação "Aí". Existe alem do que é existido ou referenciável.
 
