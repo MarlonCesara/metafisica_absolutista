@@ -2387,5 +2387,5 @@ O homem, portanto, pode se definir como ente fenommenológico, ou transcender pa
 
 - Direcionar-se a favor do espirito é direcionar-se rumo a plenitude, desta forma, quanto maior o direcionamento, maior o potencial da alma. 
 
-
+- O espírito pode manifestar-se materialmente ou espiritualmente, não havendo limites ou formas limitadas. O espírito independe da manifestação fenomenológica.
 
