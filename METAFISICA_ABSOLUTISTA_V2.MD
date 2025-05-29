@@ -6,17 +6,17 @@ O **Princípio da Identidade** ("A é A") estabelece a essência invariável de 
 
 Já o **Princípio da Não-Contradição** ("A não pode ser não-A ao mesmo tempo") introduz uma **dimensão temporal**, garantindo que um ente não assuma estados opostos **simultaneamente**. Contudo, ele se restringe à relação entre **um ente e sua negação** (A vs. ¬A), sem abordar a possibilidade de um ente **tentar ser outro ente distinto** (A vs. B).  
 
-Foi essa lacuna que motivou a criação do **Princípio da Não-Disformidade** ("A não pode ser B ao mesmo tempo"). Da mesma forma que o princípio da não-contradição se dá como uma versão temporal do princípio do terceiro excluído, o principio da não-deformidade funciona como a **versão temporal do Princípio da Identidade**, assegurando que:  
+Foi essa lacuna que motivou a criação do **Princípio da Não-Disformidade** ("A não pode ser B ao mesmo tempo"). Assim como o Princípio da Não-Contradição atua como uma versão temporal do Princípio do Terceiro Excluído, o Princípio da Não-Disformidade funciona como a versão temporal do Princípio da Identidade, assegurando que:"
 - **Um ente não pode se confundir ou se substituir por outro** no decorrer de sua existência.  
 - **A identidade não apenas se mantém em si mesma (atemporalmente), mas também se diferencia de outras identidades (temporalmente).**  
 
-#### **Por que Isso é Necessário?**  
+#### **A Necessidade do Princípio da Não-Disformidade**  
 1. **A Identidade Precisa de uma Defesa no Tempo**  
    - A **Identidade** diz *"A é A"* (definição estática).  
    - A **Não-Disformidade** diz *"A não se torna B"* (proteção dinâmica).  
    - Sem ela, poderíamos ter situações absurdas como *"Sócrates é Platão"* ou *"Este círculo é um quadrado"*, onde identidades distintas se misturam.  
 
-2. **A Não-Contradição Não Basta**  
+2. **A Limitação do Princípio da Não-Contradição**  
    - A **Não-Contradição** impede que algo seja **ele mesmo e sua negação** (A e ¬A).  
    - Mas não impede que algo **tente ser outra coisa** (A e B).  
    - A **Não-Disformidade** fecha essa brecha, garantindo que **identidades distintas permaneçam distintas**.  
