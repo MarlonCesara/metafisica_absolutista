@@ -360,8 +360,7 @@ Havendo verdadeiro nada, ou seja, a evasão da antitese, a criação carece de e
 
 A criação a partir da pureza inancanvável, é como mágica, carece de explicação, uma aventura que nem mesmo pode ser hipotetizada. O criador e seu ato não se pode compreender, sem antes se pensar em sua razão: o amor, que é o verdadeiro inexplicável, o ingonocivel, o incategorizavel ou não racionalizavel. A tendencia a vida. O que fomenta a verdadeira mágica de Ser.
 
-
-
+- Quando a antitese deixa de existir, a criação passa a não conter mais explicação cognocível, pois o criado não estava como forma nula de si. Criar deixa de ser um processo de determinação e passa a ser de criação.
 
 
 
