@@ -113,13 +113,13 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 - **Possibilidades** (existência lógica)  
 - **Impossibilidades** (existência ilógica)  
 
-**Propriedades Fundamentais:**  
+**Atributos Constitutivos:**  
 1. **Incondicionado:** Não depende de nenhum princípio ou ente externo para existir ou ser o que é.  
 2. **Omniabrangente:** Nada lhe é exterior; até mesmo o "nada" só pode ser concebido como categoria interna a ele.  
 3. **Metadeterminante:** Estabelece as condições de inteligibilidade para todos os demais níveis de realidade, sem estar submetido a elas.  
 
 **Propriedade Essencial:** Causa integral de si mesmo.  
-- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio, não seria absoluto.  
+- Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio, não seria absoluto. Qualquer dependência externa anularia sua condição absoluta  
 - Sua existência, permanência e identidade são autocausadas.  
 - O Absoluto é auto fundamentado, autodeterminado e autocontinuado.  
 
