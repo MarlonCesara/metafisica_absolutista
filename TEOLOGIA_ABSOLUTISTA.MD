@@ -253,6 +253,7 @@ A resposta política radical — porém necessária — é a **separação entre
 ### **4. A Urgência da Exclusão**  
 - **Um só apático pode destruir uma civilização**, pois sua *mania* é **incontrolável** — não por maldade, mas por *desespero ontológico*.  
 - **Eles não buscam paz, mas alívio temporário** para um vazio que só a *autoconsciência* preencheria.  
+- Os apáticos devem ser identificados por seu comportamento e afastados de cargos de liderança, pois sua mania é incontrolável. Não conseguem deixar de espelhar sua realidade conlitante par ao próximo de forma a impor crueldade.
 
 # **A Apatia no Absolutismo Metafísico e no Cristianismo**  
 
