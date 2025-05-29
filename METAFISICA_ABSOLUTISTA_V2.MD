@@ -278,7 +278,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 - A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
 - Espírito e Alma são as duas dimensões da autodeterminação:  
   - O Espírito garante a existência e a perfeição.  
-  - A Alma introduz a liberdade e a personalidade na estrutura do Real.  
+  - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
 ### O Ser como Autodeterminador  
 - O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
@@ -294,8 +294,10 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - Se sustenta pela autocontinuidade do Ser.  
   - Se atualiza através da autodeterminação.  
 
+aqui 
+
 ### O Relativo como Ser Autônomo  
-- "O Absoluto é o Ser, e o Ser é o relativo autodeterminado."  
+- "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
   - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
 **"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**  
 
