@@ -930,7 +930,7 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - Tentativa de degradar as belezas naturais e tudo que impoe proposito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmonico, catastrófico.
 - Imposição de altar cargas de trabalho ao homem na tentativa de faze-lo compreender que o apatico nao vive a vida, mas a passa sem sentido. Não se permite o deleite pois necessita manter a vida em um patamar de ausencia de grandes emoções.
 - Tentativa de evitar que a sociedade se dê conta do problema da apatia através de personagens que o apático assume. Assumir-se feitor de engenhenho, vilão, são tentativas de mascarar o problema, pois uma vez que os apatico são identificados, perderão cargos, lidranças, papeis sociais e afetivos na vida das pessoas, perderão força de expressão, etc.
-
+- As pessoas tentam conscientizar, o papel da conscientização para sanar os males do mundo não é totalmente eficaz porque a apatia não é concientizável, é um sintoma não anulável da ausencia do eu, e tem sintomas imparáveis. Ou seja, não há uma maneira de conscientizar o apatico e de direciona-lo.
 
 
 - O apático se define pelo corpo, o eu dele se refere a massa corporal, intelecto e memória, mas não ao espirito. Ou seja, o eu do apático é efemero, refere-se a carne, a substancia que se degrada no corpo. A construção conceptual de seu eu depende unica e exclusivamente da massa encefálica, da construção de sua memorias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
