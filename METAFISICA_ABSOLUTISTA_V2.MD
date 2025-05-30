@@ -76,22 +76,36 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 # Definições Metafísicas Fundamentais  
 
-Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
+Ao tomarmos o **Absoluto**, considerando cognocível ou não, como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
 
-### **Possibilidade: O Domínio da Realidade Lógica**  
+#### Definindo os conceitos fundamentais:
+
+### **Possibilidade: O Domínio da Realidade**  
+**Definição:** Existência lógica.  
+
 A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico, constituindo o que chamamos de **realidade**.  
 
 - **Exemplo:** Um círculo é uma realidade geométrica possível, pois sua definição não contém contradição.  
+- **Exemplo:** "Um triângulo de quatro lados" é impossível; "um universo com leis físicas diferentes" é possível.  
+
 - **Implicação:** Tudo o que é possível pertence ao domínio da **Realidade**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
 
-### **Impossibilidade: O Domínio da Irrealidade Lógica**  
+**Nível de cognocibilidade"": A realidade pode ser imaginada com defiição. É possível mentalizar um circulo ou um quadrado.
+
+### **Impossibilidade: O Domínio da Irrealidade**  
+**Definição:** Existência ilógica.  
+
 A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **irrealidade**.  
 
-- **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.  
+- **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.
+- **Exemplo:** "Um círculo quadrado" é impossível por definição.  
+
 - **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a existência.  
 
+**Nível de cognocibilidade"": A irrealidade pode ser imaginada em partes. É possível mentalizar um circulo e um quadrado, porém não é possível unir os dois.
 
-### **incognoscibilidade**  
+
+### **Incognoscibilidade**  
 **Definição:** O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.  
 - **Características:**  
   - **Inacessível à razão pura:** Não pode ser deduzido, demonstrado ou descrito por estruturas lógicas ou linguagem discursiva.  
@@ -102,16 +116,25 @@ A **impossibilidade** abrange tudo o que é logicamente contraditório, pertence
 
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
 
+**Nível de cognocibilidade"": não pode ser nem mesmo idealizado de forma aproximada. É inalcancável pela conceituação. Incapturavel. Inconceituavel.
 
-Absoluto cognocível
+
+### **Absoluto**  
+**Definição:** A totalidade irredutível que abarca e fundamenta todas as dimensões metafísicas:  
+- **Possibilidades** (existência lógica)  
+- **Impossibilidades** (existência ilógica) 
+- **Incognocível** (não compreensível)
+
+
+## Absoluto cognocível
 
 Os limites da razão, a realidade onde impera uma explicação cabível ao reino do fenomenológico. É o absoluto reduzido pelo conhecimento, abrangido somente pelo cognocível. Ou seja, não corresponde a totalidade do que se tenta compreender, mas a uma visão residual, no que tange a capacidade humana. É a integralidade dos conceitos abrangidos e representaveis pelo entendimento e não a integralidade de todas as coisas que compreendemos e não compreendemos. Ou seja, é um falso absoluto. O absoluto correspodende a mensuração da razão.
 
-Absoluto incognocível
+## Absoluto incognocível
 
-Totalidade que compreende o absoluto, não como um sistema fechado pelo compreendimento lógico, mas aberto a infinitude, ou a expansão constante e infindável. De forma a compreende-lo fora do contexto do entendimento. Ou seja, é o absoluto não pensável. É onde os limites da razão extravasam para o compreensível e o inexplicavel.  
+Totalidade que compreende o absoluto, não como um sistema fechado pelo compreendimento lógico, mas aberto a infinitude, ou a expansão constante e infindável. De forma a compreende-lo fora do contexto do entendimento. Ou seja, é o absoluto não pensável. É onde os limites da razão extravasam para o compreensível e o inexplicavel. O conceito absoluto, é fechado em si mesmo, de forma a capturar a infinitude como qualidade, portanto, exclui o que extravasa sem limites definindo um escopo. Portanto, serve para mensurar o pensável, porém não para delimitar realmente o que há alem do pensável. Portanto, o absoluto é absoluto daquilo que se pode pensar e não do que existe.
 
-
+No entanto, consideremos o absoluto uma união do possível, impossível e incognocível para aplicarmos os principios da causalidade de forma a considerar o que não poderá ser mentalizável ou alcançado por definição.
 
 
 ### **A Causalidade no Âmbito do Absoluto**  
@@ -121,21 +144,6 @@ Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, cheg
 - **Consequência Metafísica:** Qualquer tentativa de explicar a origem ou natureza do real ou irreal deve partir do Absoluto como princípio inquestionável, pois ele é a única noção que não requer uma causa externa – sua existência e essência são **autofundadas, autodeterminadas e autocontinuadas**.  
 
 Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas revela que **a própria distinção entre possível e impossível é uma expressão de sua natureza dinâmica e autossuficiente**.
-
-#### Definindo os conceitos fundamentais:
-
-### Possibilidade  
-**Definição:** Existência lógica.  
-- **Exemplo:** "Um triângulo de quatro lados" é impossível; "um universo com leis físicas diferentes" é possível.  
-
-### Impossibilidade  
-**Definição:** Existência ilógica.  
-- **Exemplo:** "Um círculo quadrado" é impossível por definição.  
-
-### **Absoluto**  
-**Definição:** A totalidade irredutível que abarca e fundamenta todas as dimensões metafísicas:  
-- **Possibilidades** (existência lógica)  
-- **Impossibilidades** (existência ilógica)  
 
 **Atributos Constitutivos:**  
 1. **Incondicionado:** Não depende de nenhum princípio ou ente externo para existir ou ser o que é.  
@@ -147,11 +155,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 - Sua existência, permanência e identidade são autocausadas.  
 - O Absoluto é auto fundamentado, autodeterminado e autocontinuado.  
 
-### Realidade  
-- **Definição:** Subconjunto do Absoluto que compreende todas as possibilidades.  
-
-### Irrealidade  
-- **Definição:** Subconjunto do Absoluto que compreende todas as impossibilidades.  
 
 ### Propriedades Essenciais do Absoluto  
 
