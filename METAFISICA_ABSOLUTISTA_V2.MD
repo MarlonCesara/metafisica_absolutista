@@ -395,6 +395,8 @@ A criação a partir da pureza inancanvável, é como mágica, carece de explica
 
 - Ao se negar o relativo, não se tem ainda o nada, mas um potencial para relativo ou não relativo. Logo, se tem o relativo do relativo, ao se negar o relativo do relativo se tem uma linha de negação infinita sem nunca se chegar no primeiro agente causal criador. Isto acontece pois a negação da existencia é na verdade, um potencial para revelaão da existencia e não para criação. O verdadeiro nada não é definivel. O nada que cria sem revelar. A definição mais aproximada é amor, a tendencia que corrobora para vida, cuja existencia é totalmente pura, a ponto de somente sobrar o que corrobora a vida, a plenitude.
 
+Ou seja, o verdadeiro existir, a verdadeira causa, está alem da conceptualização e sua ação também trancende a revelação. A primeira causa, absoluta, que porta todas as camadas subsequentes é incognocível. Nem mesmo pode ser imaginada, ou pensado sobre seu processo de criação. Embora amor biológicamnete pareça representar um processo bioquimico cerebral, me refiro ao amor como força misteriosa, que corrobora a plenitude. Não no mero sentido material, mas espiritual.
+
 ### **O Ser como Suspensão e a Pureza Absoluta: Além do Relativo**
 
 #### **1. O Ser e o Relativo como Suspensão**  
