@@ -364,12 +364,7 @@ A criação a partir da pureza inancanvável, é como mágica, carece de explica
 
 - Portanto, a criação por revelação, ou seja, desdobramento do infinito, em finito não é criação, é revelação. A existencia revelada, portanto, sempre antecede infintamente a si mesma como uma nulidade reveladora. Somente a manifestação criadora pode ser dada como fonte de toda criação. E está carece de explicação.
 
-
-
-
-
-
-
+- Há o nada fenomenológico, o nada indiferenciado (relativo) e o nada absoluto que dissolve ele mesmo. No naba absoluto só existe o amor, e pelo amor foram criadas todas as coisas.
 
 
 
