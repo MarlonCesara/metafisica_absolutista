@@ -484,6 +484,14 @@ Ou seja, o verdadeiro existir, a verdadeira causa, está alem da conceptualizaç
 
 A regressão de nadas, nunca atinge a pureza absoluta, onde se extrai a essencia mais pura do amor, da pureza da direção a plenitude. Quando o nada se torna tão limpido que dispensa referencia, ou ser a negação de uma antitese, e o que sobressai é só o espirito, somente o amor. Aquilo que move em direção a vida.
 
+Sendo Relativo existencia, ou seja o nada indiferenciado em si mesmo. Ainda é referenciado em sua existencia. Ou seja, é afirmado potencial. Portanto, se o determinador reside em si, ou seja, no relativo, não tem poder de suspender o proprio potencial. Desta formula, o relativo não tem total poder sobre si.
+
+Quando regredimos o relativo, nunca o esgotamos, sempre há existencia em potencial e o nada abosluto nunca e atingido. Ou seja, ao se esgotar o nada fenomenológico temos o nada indiferenciado em si mesmo, porém não indiferenciado para absoluto. Ao tentarmos purificar ou esgotar a existencia do relativo, nunca chegamos ao resultado final, inferindo sobre a subsequencia de anulações.
+
+Caso conseguissemos chegar na causa final, chegariamos no espirito puro. No puro ato causal. O ato causal tem o poder de criar, e não somente de revelar sobre o que é nulo, ou seja, não somente desanula, mas não necessita de um potencial prévio para criar. Está totalmente livre de precisar explicar a criação, tudo emerge a vontade pura, do amor puro. 
+
+O amor, portanto, não extrai do nada, pois o nada se purificou, e só há a vontade. Portanto, extrai, da propria vontade. Extrair do nada, é extrair da vontade, já que o nada já se purificou ao ponto de extinguir a existencia e sobressair somente o querer, a vontade pelo bem, pela existencia e plenitude.
+
 ### **O Ser como Suspensão e a Pureza Absoluta: Além do Relativo**
 
 #### **1. O Ser e o Relativo como Suspensão**  
