@@ -76,7 +76,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 # Definições Metafísicas Fundamentais  
 
-Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade** e **impossibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
+Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
 
 ### **Possibilidade: O Domínio da Realidade Lógica**  
 A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico, constituindo o que chamamos de **realidade**.  
@@ -89,6 +89,30 @@ A **impossibilidade** abrange tudo o que é logicamente contraditório, pertence
 
 - **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.  
 - **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a existência.  
+
+
+### **incognoscibilidade**  
+**Definição:** O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.  
+- **Características:**  
+  - **Inacessível à razão pura:** Não pode ser deduzido, demonstrado ou descrito por estruturas lógicas ou linguagem discursiva.  
+  - **Sujeito à experiência direta:** Sua única via de aproximação é a intuição imediata ou a vivência não-conceitual.  
+  - **Transcende a dicotomia ser/não-ser:** Não se enquadra nas determinações de existência ou inexistência, realidade ou irrealidade.  
+
+**Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições religiosas sugerem.  
+
+**Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
+
+
+Absoluto cognocível
+
+Os limites da razão, a realidade onde impera uma explicação cabível ao reino do fenomenológico. É o absoluto reduzido pelo conhecimento, abrangido somente pelo cognocível. Ou seja, não corresponde a totalidade do que se tenta compreender, mas a uma visão residual, no que tange a capacidade humana. É a integralidade dos conceitos abrangidos e representaveis pelo entendimento e não a integralidade de todas as coisas que compreendemos e não compreendemos. Ou seja, é um falso absoluto. O absoluto correspodende a mensuração da razão.
+
+Absoluto incognocível
+
+Totalidade que compreende o absoluto, não como um sistema fechado pelo compreendimento lógico, mas aberto a infinitude, ou a expansão constante e infindável. De forma a compreende-lo fora do contexto do entendimento. Ou seja, é o absoluto não pensável. É onde os limites da razão extravasam para o compreensível e o inexplicavel.  
+
+
+
 
 ### **A Causalidade no Âmbito do Absoluto**  
 Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade e irrealidade se sustentam.  
