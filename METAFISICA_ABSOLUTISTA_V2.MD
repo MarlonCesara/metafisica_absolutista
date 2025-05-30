@@ -482,6 +482,8 @@ A criação a partir da pureza inancanvável, é como mágica, carece de explica
 
 Ou seja, o verdadeiro existir, a verdadeira causa, está alem da conceptualização e sua ação também trancende a revelação. A primeira causa, absoluta, que porta todas as camadas subsequentes é incognocível. Nem mesmo pode ser imaginada, ou pensado sobre seu processo de criação. Embora amor biológicamnete pareça representar um processo bioquimico cerebral, me refiro ao amor como força misteriosa, que corrobora a plenitude. Não no mero sentido material, mas espiritual.
 
+A regressão de nadas, nunca atinge a pureza absoluta, onde se extrai a essencia mais pura do amor, da pureza da direção a plenitude. Quando o nada se torna tão limpido que dispensa referencia, ou ser a negação de uma antitese, e o que sobressai é só o espirito, somente o amor. Aquilo que move em direção a vida.
+
 ### **O Ser como Suspensão e a Pureza Absoluta: Além do Relativo**
 
 #### **1. O Ser e o Relativo como Suspensão**  
