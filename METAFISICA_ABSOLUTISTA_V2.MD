@@ -102,7 +102,7 @@ A **possibilidade** define tudo o que é coerente do ponto de vista lógico-meta
 
 - **Implicação:** Tudo o que é possível pertence ao domínio da **Realidade**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
 
-### **Impossibilidade: O Domínio da Irrealidade**  
+### **Impossibilidade: O limite interno da realidade**  
 
 **Definição Ontológica:**
 A classe de pseudo-entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais. Existência ilógica.  
