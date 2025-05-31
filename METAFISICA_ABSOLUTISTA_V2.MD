@@ -320,10 +320,11 @@ Dessa forma, nunca se chega a um estado de pureza ideal, onde até mesmo o poten
 A cada regressão do potencial (P → P1 → P2...), o potencial se afasta do determinador, mas nunca deixa de estar sendo afirmado. Ou seja, a ação de existir nunca se esgota para o absoluto cognoscível. Portanto, a completa pureza que fundamenta o Absoluto por dispensar determinação ativa definimos como **Absoluto incognoscível**.  
 
 
+### **A regressão infinita de ações e potenciais: O determinador incognocível**  
 
+O determinador necessita existir, porém, sem decisão prévia extipulada. Ou seja, o absoluto cognocível carrega uma decisão necessaria e prévia - a existencia. Porém, o absoluto verdadeiro não pode ser dito definindo uma ação para ele, de forma a tribui-lo qualquer existencia, sendo está em seu estado nulo ou manifestado. Pois, qualquer decisão atribuida a ele, ou qualquer ente considerado existe anula a ideia de auto fundamentação.
 
-
-
+Sendo portanto, o determinador incognocível uma realidade inimaginavelmente pura.
 
 
 ### **1. O Problema da Determinação Ativa**  
