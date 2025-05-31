@@ -311,9 +311,9 @@ Temos, pois, o **nada indiferenciado (relativo)**, que se refere ao nada em rela
 A negação da ausência do fenômeno lógico e ilógico — ou seja, a negação do relativo — produz uma busca infinita pela pureza, pois o relativo se traduz como potencial para possibilidade e impossibilidade sem um determinador intrínseco, mas ainda possui um determinador extrínseco, visto que a determinação de "relativo" em vez de "não relativo" existe de tal forma que não pode ser eliminada. Toda tentativa de purificar o relativo até mesmo de sua potencialidade — ou seja, de sua existência de forma nula — acarreta uma regressão infinita de negações, pois toda negação porta em si, em um nível superior, o mesmo potencial do relativo.  
 
 **Exemplo:**  
-- A negação do potencial "P" revela um potencial "P1" de afirmar o potencial "P" .  
-- A negação de P1 implica no potencial "P2" de negar o potencial "P1".  
-- E assim por diante...  
+- A negação do existencia "E" revela uma nulidade "P1" , possui potencial de revelar a existencia "P" .  
+- A negação de E1 implica na nulidade "E2", que possui o potencial de revelar "E1".  
+- E assim por diante...sempre havendo a existencia "E" não revelada.
 
 Dessa forma, nunca se chega a um estado de pureza ideal, onde até mesmo o potencial estaria dissolvido, sendo verdadeiramente desprovido de uma opção ativa e necessária (existência do potencial — relativo). Ou seja, no âmbito do absoluto cognoscível, é impossível segregar o potencial ativo e necessariamente existente. Assim, a pureza total — o nada absoluto — torna-se incompreensível, inalcançável pela razão.  
 
