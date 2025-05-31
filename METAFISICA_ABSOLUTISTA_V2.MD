@@ -21,7 +21,6 @@ Foi essa lacuna que motivou a criação do **Princípio da Não-Disformidade** (
    - Mas não impede que algo **tente ser outra coisa** (A e B).  
    - A **Não-Disformidade** fecha essa brecha, garantindo que **identidades distintas permaneçam distintas**.  
 
-
 #### **Conclusão**  
 O **Princípio da Não-Disformidade** é, portanto, **a contraparte temporal do Princípio da Identidade**. Enquanto a **Identidade** afirma *o que algo é*, a **Não-Disformidade** protege *o que algo não pode se tornar*. Isso não apenas **preenche uma lacuna na lógica clássica**, mas também **fortalece a estrutura metafísica** ao evitar ambiguidades entre entes distintos no fluxo do tempo.  
 
@@ -94,7 +93,6 @@ O conjunto de todos os estados de coisas cuja estrutura essencial não viola os 
 1. **Plenamente Cognoscível:** Entes matemáticos e lógicos ideais (círculo, triângulo)
 2. **Parcialmente Cognoscível:** Objetos físicos (sujeitos a limitações empíricas)
 3. **Cognoscível por Analogia:** Realidades metafísicas superiores (bondade, verdade)
-
 
 A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico, constituindo o que chamamos de **realidade**.  
 
@@ -195,8 +193,6 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 **Exemplo:**  
 - A física lida com o **Absoluto cognoscível** ao descrever leis universais, mas não pode abordar o que está além da observação e modelagem matemática.  
 
----
-
 ### **Absoluto Incognoscível (O "Absoluto Ilimitado")**  
 **Definição:** A dimensão do Absoluto que transcende qualquer estruturação lógica, linguagem ou conceptualização.  
 - **Características:**  
@@ -209,8 +205,6 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 
 **Exemplo:**  
 - O *nirguna Brahman* (Absoluto sem atributos) do Vedanta ou o *Deus absconditus* (Deus oculto) da teologia negativa.  
-
----
 
 ### **Princípios Causais Revisados em Relação ao Absoluto**  
 
@@ -228,7 +222,6 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 4. **Princípio da Não-Disformidade**  
    - **Preserva a individuação** no plano lógico, mas **não se aplica** onde não há distinção (ex.: união mística com o Absoluto).  
 
----
 
 ### **Conclusão: Uma Metafísica Expandida**  
 - O **Absoluto cognoscível** é o campo da **lógica**, da **ciência** e da **filosofia sistemática**.  
@@ -237,35 +230,6 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 
 **Formulação final:**  
 > *"O Absoluto é tanto o fundamento de toda razão quanto o abismo que a dissolve. Cognoscível em suas manifestações, incognoscível em sua essência."*  
-
-
-
-
-
-
-
-
-
-
-
-
-### **Absoluto**  
-**Definição:** A totalidade irredutível que abarca e fundamenta todas as dimensões metafísicas:  
-- **Possibilidades** (existência lógica)  
-- **Impossibilidades** (existência ilógica) 
-- **Incognocível** (não compreensível)
-
-
-## Absoluto cognocível
-
-Os limites da razão, a realidade onde impera uma explicação cabível ao reino do fenomenológico. É o absoluto reduzido pelo conhecimento, abrangido somente pelo cognocível. Ou seja, não corresponde a totalidade do que se tenta compreender, mas a uma visão residual, no que tange a capacidade humana. É a integralidade dos conceitos abrangidos e representaveis pelo entendimento e não a integralidade de todas as coisas que compreendemos e não compreendemos. Ou seja, é um falso absoluto. O absoluto correspodende a mensuração da razão.
-
-## Absoluto incognocível
-
-Totalidade que compreende o absoluto, não como um sistema fechado pelo compreendimento lógico, mas aberto a infinitude, ou a expansão constante e infindável. De forma a compreende-lo fora do contexto do entendimento. Ou seja, é o absoluto não pensável. É onde os limites da razão extravasam para o compreensível e o inexplicavel. O conceito absoluto, é fechado em si mesmo, de forma a capturar a infinitude como qualidade, portanto, exclui o que extravasa sem limites definindo um escopo. Portanto, serve para mensurar o pensável, porém não para delimitar realmente o que há alem do pensável. Portanto, o absoluto é absoluto daquilo que se pode pensar e não do que existe.
-
-No entanto, consideremos o absoluto uma união do possível, impossível e incognocível para aplicarmos os principios da causalidade de forma a considerar o que não poderá ser mentalizável ou alcançado por definição.
-
 
 ### **A Causalidade no Âmbito do Absoluto**  
 Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade e irrealidade se sustentam.  
@@ -284,7 +248,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 - Se o Absoluto dependesse de algo externo, anterior ou paralelo a ele próprio, não seria absoluto. Qualquer dependência externa anularia sua condição absoluta  
 - Sua existência, permanência e identidade são autocausadas.  
 - O Absoluto é auto fundamentado, autodeterminado e autocontinuado.  
-
 
 ### Propriedades Essenciais do Absoluto  
 
@@ -315,7 +278,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Persistência ativa (não apenas existência passiva).  
   - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
-
 
 ### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**
 
@@ -2753,4 +2715,25 @@ O homem, portanto, pode se definir como ente fenommenológico, ou transcender pa
   - Temos, portanto, o determinador puro que chamaremos de Ser, e, em contraste, temos o Ser determinado, que chamaremos de sou. 
   - O Ser, portanto, se define como agente da ação ausente "Ser-ai", enquanto o sou, agente da ação presente "Ser-em-Si".
   - O Ser tem pureza absoluta e é autundamentado, enquanto o Sou é referenciável, numerável e distinguível e determinado.
+
+
+
+
+### **Absoluto**  
+**Definição:** A totalidade irredutível que abarca e fundamenta todas as dimensões metafísicas:  
+- **Possibilidades** (existência lógica)  
+- **Impossibilidades** (existência ilógica) 
+- **Incognocível** (não compreensível)
+
+
+## Absoluto cognocível
+
+Os limites da razão, a realidade onde impera uma explicação cabível ao reino do fenomenológico. É o absoluto reduzido pelo conhecimento, abrangido somente pelo cognocível. Ou seja, não corresponde a totalidade do que se tenta compreender, mas a uma visão residual, no que tange a capacidade humana. É a integralidade dos conceitos abrangidos e representaveis pelo entendimento e não a integralidade de todas as coisas que compreendemos e não compreendemos. Ou seja, é um falso absoluto. O absoluto correspodende a mensuração da razão.
+
+## Absoluto incognocível
+
+Totalidade que compreende o absoluto, não como um sistema fechado pelo compreendimento lógico, mas aberto a infinitude, ou a expansão constante e infindável. De forma a compreende-lo fora do contexto do entendimento. Ou seja, é o absoluto não pensável. É onde os limites da razão extravasam para o compreensível e o inexplicavel. O conceito absoluto, é fechado em si mesmo, de forma a capturar a infinitude como qualidade, portanto, exclui o que extravasa sem limites definindo um escopo. Portanto, serve para mensurar o pensável, porém não para delimitar realmente o que há alem do pensável. Portanto, o absoluto é absoluto daquilo que se pode pensar e não do que existe.
+
+No entanto, consideremos o absoluto uma união do possível, impossível e incognocível para aplicarmos os principios da causalidade de forma a considerar o que não poderá ser mentalizável ou alcançado por definição.
+
 
