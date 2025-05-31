@@ -279,21 +279,52 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
-### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**
 
-Ao considerarmos exclusivamente a realidade como existente, estamos implicitamente sugerindo a necessidade de uma determinação extrínseca ao Absoluto. No entanto, ao reconhecermos o Absoluto como autocausal — ou seja, como aquilo que já se dá como determinado em si mesmo — torna-se necessário dispensar qualquer forma de determinação ativa. Em outras palavras, revela-se desnecessário postular um ente ativo que determine A ou B no âmbito do relativo, o que corresponderia à escolha entre realidade ou irrealidade.
+### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
 
-Ao admitirmos a possibilidade de uma existência ilógica (o impossível), ocorre uma despolarização do Absoluto, de modo que este deixa de ser concebido como um conjunto determinado por uma escolha, para ser compreendido como um conjunto onde todas as alternativas coexistem, sem que nenhuma tenha sido escolhida. Assim, qualquer forma de existência se dissolve no sentido de dispensar uma vontade ativa — isto é, a ação de determinar.
+### **O Nada Fenomenológico: Explorando o Nada na Possibilidade**  
 
-Se o Absoluto é realidade e existência, e se há uma alternativa de existência — a irrealidade — então está ele determinado como realidade, sendo a irrealidade existente ou não. Isso implica que, ainda que a irrealidade não exista, ela deve ser considerada no campo das possibilidades como existente, a fim de evitar uma determinação prévia no domínio do relativo. Pois, sendo o inexistente não referenciável, o existente se torna, por exclusão, a única escolha possível.
+Ao negarmos o possível, não temos o impossível, mas sim o possível negado. Ao compararmos isso com a negação do fenômeno, temos a ausência do fenômeno-lógico, ou seja, a ausência dos fenômenos lógicos. Portanto, o nada, dentro da esfera do possível, é o fenômeno ausente de si mesmo, considerando que existe enquanto ausência. Este seria o nada em seu primeiro estágio de exploração.  
 
-Se o impossível não existe, então o Absoluto requer uma ação imperativa, a qual deve ser necessariamente atribuída a um agente. Quando afirmo que o nada existe, estou referindo-me à realidade enquanto uma opção válida. Dessa forma, ao afirmar a realidade (nada), jamais se alcança o indiferenciado, visto que se considera unicamente a opção “realidade”.
+Há duas formas de tentar purificar o nada fenomenológico: negando-o ou afirmando a impossibilidade como existente.  
 
-Se tenho duas opções — o possível e o impossível — e desconsidero a existência do impossível, então apenas o possível permanece como alternativa. Isso faz com que a existência do possível seja determinada, implicando, portanto, a necessidade de um determinador existente. Tal conclusão anula a própria ideia do nada enquanto eficaz, pois esta anulação da existência não elimina o agente que determinou o nada como sendo nada. Contudo, se admito a existência do impossível, então todas as opções cognitivamente acessíveis ao Absoluto tornam-se válidas, o que permite concebê-lo como um princípio que prescinde de escolha prévia. Assim, ao pensar o nada no domínio do relativo, posso concebê-lo como um nada sem escolha, pois ele não é possível nem impossível, mas sim uma coexistência de ambos os fatores, ausente de qualquer agente determinador.
+Ao negarmos o nada fenomenológico, negamos o fenômeno afirmado no campo do possível. Ou seja, ainda é necessário despolarizar o nada fenomenológico, no sentido de que nele está afirmado apenas o possível — existe um ente afirmando o possível em detrimento do impossível.  
 
-Ao negar a existência do impossível, a determinação do Absoluto se encontra latente na própria negação. Isso faz com que o Absoluto afirme a realidade como consequência lógica da crença na inexistência da impossibilidade. Portanto, ao considerarmos um Absoluto isento de um agente que escolha aquilo que ele deve ser, é necessário concebê-lo sem parcialidade entre o possível e o impossível, tratando ambos como existentes, cada qual com sua natureza própria. Esta condição de suspensão é o que denominamos relativo. O relativo é a ausência até mesmo da própria determinação: todas as possibilidades e impossibilidades estão suspensas.
+### **O Nada Metalógico: Dialética entre Possível e Impossível no Absoluto**  
 
-Temos, pois, o nada absoluto (relativo), que se refere ao nada em relação ao Absoluto — isto é, às possibilidades e impossibilidades —, distinto do nada convencional, que se refere ao nada fenomenológico (ausência de fenômeno). A ausência do fenômeno é uma possibilidade; o relativo, contudo, é a indiferenciação total, na qual até mesmo o agente determinador encontra-se ausente.
+Ao considerarmos exclusivamente o possível como existente, estamos implicitamente sugerindo a necessidade de uma determinação extrínseca ao possível. No entanto, ao reconhecermos o Absoluto como autocausal — ou seja, como aquilo que já se dá como determinado em si mesmo —, torna-se necessário dispensar qualquer forma de determinação ativa. Em outras palavras, revela-se desnecessário postular um ente ativo que determine A ou B no âmbito do absoluto cognoscível, o que corresponderia à escolha entre possível e impossível.  
+
+Ao admitirmos a possibilidade de uma existência ilógica (o impossível), ocorre uma despolarização do Absoluto cognoscível, de modo que este deixa de ser concebido como um conjunto determinado por uma escolha, passando a ser compreendido como um domínio onde todas as alternativas coexistem, sem que nenhuma tenha sido escolhida. Assim, qualquer forma de existência se dissolve no sentido de dispensar uma vontade ativa — isto é, a ação de determinar.  
+
+Se o Absoluto cognoscível é realidade e existência, e se há uma alternativa de existência — o impossível —, então ele está determinado como possível, independentemente de a impossibilidade existir ou não. Isso implica que, ainda que a impossibilidade não exista, ela deve ser considerada no absoluto cognoscível como existente, a fim de evitar uma determinação prévia nesse domínio. Pois, sendo o impossível não referenciável, o possível se torna, por exclusão, a única escolha.  
+
+Se o impossível não existe, então o Absoluto cognoscível requer uma ação imperativa, a qual deve ser necessariamente atribuída a um agente. Quando afirmo que o nada existe, refiro-me à possibilidade enquanto uma opção válida. Dessa forma, ao afirmar a possibilidade (nada), jamais se alcança o nada indiferenciado, visto que se considera unicamente a opção "possibilidade".  
+
+Se tenho duas opções — o possível e o impossível — e desconsidero a existência do impossível, então apenas o possível permanece como alternativa. Isso faz com que a existência do possível seja determinada, implicando, portanto, a necessidade de um determinador existente. Tal conclusão anula a própria ideia do nada enquanto eficácia, pois essa anulação da existência não elimina o agente que determinou o nada como sendo nada. Contudo, se admito a existência do impossível, então todas as opções cognitivamente acessíveis ao Absoluto tornam-se válidas, o que permite concebê-lo como um princípio que prescinde de escolha prévia. Assim, ao pensar o nada no domínio do absoluto cognoscível, posso concebê-lo como um nada sem escolha, pois ele não é possível nem impossível, mas sim a coexistência de ambos os fatores, ausente de qualquer agente determinador.  
+
+Ao negar a existência do impossível, a determinação do Absoluto cognoscível se encontra latente na própria negação. Isso faz com que o Absoluto cognoscível afirme a possibilidade como consequência lógica da crença na inexistência da impossibilidade. Portanto, ao considerarmos um Absoluto cognoscível isento de um agente que escolha aquilo que ele deve ser, é necessário concebê-lo sem parcialidade entre o possível e o impossível, tratando ambos como existentes, cada qual com sua natureza própria. Esta condição de suspensão é o que denominamos **nada indiferenciado (relativo)**. O relativo é a ausência até mesmo da própria determinação no âmbito do absoluto cognoscível: todas as possibilidades e impossibilidades estão suspensas.  
+
+Temos, pois, o **nada indiferenciado (relativo)**, que se refere ao nada em relação ao Absoluto cognoscível — isto é, às possibilidades e impossibilidades —, distinto do nada convencional, que se refere ao nada fenomenológico (ausência de fenômeno). A ausência do fenômeno é uma possibilidade; o relativo, contudo, é a indiferenciação total no âmbito do absoluto cognoscível, na qual até mesmo o agente determinador encontra-se ausente.  
+
+### **O Nada Incognoscível: O Nada além do Possível e do Impossível**  
+
+A negação da ausência do fenômeno lógico e ilógico — ou seja, a negação do relativo — produz uma busca infinita pela pureza, pois o relativo se traduz como potencial para possibilidade e impossibilidade sem um determinador intrínseco, mas ainda possui um determinador extrínseco, visto que a determinação de "relativo" em vez de "não relativo" existe de tal forma que não pode ser eliminada. Toda tentativa de purificar o relativo até mesmo de sua potencialidade — ou seja, de sua existência de forma nula — acarreta uma regressão infinita de negações, pois toda negação porta em si, em um nível superior, o mesmo potencial do relativo.  
+
+**Exemplo:**  
+- A negação do potencial "P" revela um potencial "P1" de afirmar o potencial "P" .  
+- A negação de P1 implica no potencial "P2" de negar o potencial "P1".  
+- E assim por diante...  
+
+Dessa forma, nunca se chega a um estado de pureza ideal, onde até mesmo o potencial estaria dissolvido, sendo verdadeiramente desprovido de uma opção ativa e necessária (existência do potencial — relativo). Ou seja, no âmbito do absoluto cognoscível, é impossível segregar o potencial ativo e necessariamente existente. Assim, a pureza total — o nada absoluto — torna-se incompreensível, inalcançável pela razão.  
+
+A cada regressão do potencial (P → P1 → P2...), o potencial se afasta do determinador, mas nunca deixa de estar sendo afirmado. Ou seja, a ação de existir nunca se esgota para o absoluto cognoscível. Portanto, a completa pureza que fundamenta o Absoluto por dispensar determinação ativa definimos como **Absoluto incognoscível**.  
+
+
+
+
+
+
+
 
 ### **1. O Problema da Determinação Ativa**  
 
