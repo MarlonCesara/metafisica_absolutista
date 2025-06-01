@@ -936,3 +936,5 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - O apático se define pelo corpo, o eu dele se refere a massa corporal, intelecto e memória, mas não ao espirito. Ou seja, o eu do apático é efemero, refere-se a carne, a substancia que se degrada no corpo. A construção conceptual de seu eu depende unica e exclusivamente da massa encefálica, da construção de sua memorias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
 
 - O apatico tem um zelo grande por ter o melhor plano de saúde.
+
+- O apatico tem obsessão por mostrar seu problema, quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
