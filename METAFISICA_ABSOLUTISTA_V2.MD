@@ -2808,4 +2808,7 @@ No entanto, consideremos o absoluto uma união do possível, impossível e incog
 
 
 Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivalente a nada.
+- O amor é pura autodeterminação rumo a plenitude. Ele não se determina somete sobre o fenomeno, mas sobre qual ele é. Quantos ele é.
+- Somos pura autodeterminação, livres da existencia necessaria. Somos personalidades espirituais, personalidades do espirito santo que ganhamos vida?
+- no campo do espirito nao ha limitaçoes, o fenomeno perde suas limitações. A relações se tornam incognocíveis. Tudo se torna incognocível. O conceito de alma se pode conceber por sua ação, mas não pelo que é, somente a experiencia revela. 
 
