@@ -2818,4 +2818,6 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O principio da causalidade aplicado ao incognocivel se elege como pureza sendo a contraparte do determinador reto. 
 - Portatanto, do nada absoluto tudo é criado e não revelado ou manifestado.
 - O nada absoluto de potencial, da um poder absoluto. Ao contrário do relativo de potecial.
+- O espirito tem como contrapartida o nada absoluto.
+
 
