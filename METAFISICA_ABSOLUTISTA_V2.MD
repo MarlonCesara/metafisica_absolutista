@@ -2821,4 +2821,21 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O espirito n tem como contrapartida o nada absoluto, pois o nada absoluto nao existe, só existe o espirito.
 - Somente o nada absoluto tem potencial de existencia e inexistencia como fonte criadora. 
 
+- O nada puro se anula completamente a ponto de sobressair somente o determinador, ou seja, o que fundamenta, o espirito.
+- Criar do nada, não é criar do nada, é somente criar sem explicação, pois o nada não existe para ser referenciado ou para que extraia qualquer coisa de si.
+- A palavra ''nada'', no contexto ''criar do nada'', designa criar incognocivelmente, sem explicação.
+- O impossível é o real levado a seu limite incognocível, ou seja, é o existente semi-cognocível. 
+
+- Ao transcender o infinito do do infinito, a manifestação tornando-se indetectavel, ausentando-se, se teria o nada absoluto.
+- Neste patamar, não há manifestação velada, ou seja, não há o nada fenomenológico que é uma sucessão de infinitos, que nunca transcendem a própria existencia.
+- O nada perfeito permite criar, enquanto o nada existente somente permite a revelação.
+- Desta forma, o nada perfeito permite até mesmo criar o nada fenomenológico. Ou seja, criar o infinito de um não infinito.
+- O nada seria a transcendencia do infinito de infinitos ou não está associado a nenhuma transcendencia de infinitos?
+- O nada é a forma final, ate mesmo da transcendencia que se desconecta da existencia.
+- O nada molda somente aquilo que existe, a autodeterminação, o nada afirma o que dele se sobressai, ou seja, o nada modela.
+- O Ser, portanto, existe sem contraparte, nada polui sua existencia, é o amor em sua forma mais consistente.
+- Enquanto o infinito é a revelação de sua re-transcendencia, ou seja, enquanto manifestar é retroceder a forma fininta, a criação permite avançar rumo ao infinito.
+- O amor, portanto, tem como contra parte ele mesmo, cria nele e permanece puro ao criado.
+
+
 
