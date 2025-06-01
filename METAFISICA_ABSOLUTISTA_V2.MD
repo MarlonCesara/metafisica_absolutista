@@ -2811,4 +2811,11 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O amor é pura autodeterminação rumo a plenitude. Ele não se determina somete sobre o fenomeno, mas sobre qual ele é. Quantos ele é.
 - Somos pura autodeterminação, livres da existencia necessaria. Somos personalidades espirituais, personalidades do espirito santo que ganhamos vida?
 - no campo do espirito nao ha limitaçoes, o fenomeno perde suas limitações. A relações se tornam incognocíveis. Tudo se torna incognocível. O conceito de alma se pode conceber por sua ação, mas não pelo que é, somente a experiencia revela. 
+- Ao transcender o limite do infinito (relativo) se tem outro infinito com limite, e assim nunca se atinge a infinitude de infintos. Nunca se escapando da existencia.
+- A nao existencia nao é existencia e não existencia ao mesmo tempo, pois essa situação ilógica é possível conceber pelas metades.
+- O espirito é uma não existencia sem fronterias, no sentido de que nem é mesmo um infinito, pois o infinto é um conceito transponível em distinção e existencia.
+- Já o nada absoluto é instransponivel em distinção e existencia.
+- O principio da causalidade aplicado ao incognocivel se elege como pureza sendo a contraparte do determinador reto. 
+- Portatanto, do nada absoluto tudo é criado e não revelado ou manifestado.
+- O nada absoluto de potencial, da um poder absoluto. Ao contrário do relativo de potecial.
 
