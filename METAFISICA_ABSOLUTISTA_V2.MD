@@ -308,23 +308,30 @@ Temos, pois, o **nada indiferenciado (relativo)**, que se refere ao nada em rela
 
 ### **O Nada Incognoscível: O Nada além do Possível e do Impossível**  
 
-A negação da ausência do fenômeno lógico e ilógico — ou seja, a negação do relativo — produz uma busca infinita pela pureza, pois o relativo se traduz como potencial para possibilidade e impossibilidade sem um determinador intrínseco, mas ainda possui um determinador extrínseco, visto que a determinação de "relativo" em vez de "não relativo" existe de tal forma que não pode ser eliminada. Toda tentativa de purificar o relativo até mesmo de sua potencialidade — ou seja, de sua existência de forma nula — acarreta uma regressão infinita de negações, pois toda negação porta em si, em um nível superior, o mesmo potencial do relativo.  
+A negação da ausência do fenômeno lógico e ilógico — ou seja, a negação do relativo — produz uma busca infinita pela pureza, pois o relativo se traduz como potencial para possibilidade e impossibilidade sem um determinador intrínseco, mas ainda possui um determinador extrínseco, visto que a determinação de "relativo" em vez de "não relativo" existe de tal forma que não pode ser eliminada. Toda tentativa de purificar o absoluto segregando dele o relativo — ou seja, da existência da possibilidade e impossibilidade em sua forma suspensa — acarreta uma regressão infinita de nulidades, pois toda anulação porta em si, em um nível superior, a existência velada do relativo.  
 
 **Exemplo:**  
-- A negação do existencia "E" revela uma nulidade "P1" , possui potencial de revelar a existencia "P" .  
-- A negação de E1 implica na nulidade "E2", que possui o potencial de revelar "E1".  
-- E assim por diante...sempre havendo a existencia "E" não revelada.
+- A negação da possibilidade e da impossibilidade (absoluto cognoscível) resulta a nulidade N, a qual, afirmada, revela o absoluto cognoscível.
+- A negação de N, resulta em N2, a qual afirmada, é N1 que, por sua vez, afirmada, é N que afirmado é absoluto cognoscível.
+- E assim por diante...sempre havendo a existência no absoluto cognoscível anulada.
 
-Dessa forma, nunca se chega a um estado de pureza ideal, onde até mesmo o potencial estaria dissolvido, sendo verdadeiramente desprovido de uma opção ativa e necessária (existência do potencial — relativo). Ou seja, no âmbito do absoluto cognoscível, é impossível segregar o potencial ativo e necessariamente existente. Assim, a pureza total — o nada absoluto — torna-se incompreensível, inalcançável pela razão.  
+Dessa forma, nunca se chega a um estado de pureza ideal, onde a existência realmente estaria dissolvida, sendo o absoluto cognoscível verdadeiramente desprovido de uma opção ativa e necessária (possibilidade e impossibilidade). Ou seja, no âmbito do absoluto cognoscível, é impossível segregar a existência e a escolha por ela por parte de um determinador. Assim, a pureza total — o nada absoluto — torna-se incompreensível, inalcançável pela razão.  
 
-A cada regressão do potencial (P → P1 → P2...), o potencial se afasta do determinador, mas nunca deixa de estar sendo afirmado. Ou seja, a ação de existir nunca se esgota para o absoluto cognoscível. Portanto, a completa pureza que fundamenta o Absoluto por dispensar determinação ativa definimos como **Absoluto incognoscível**.  
-
+A cada regressão do potencial (E → N1 → N2...), a existência se afasta do determinador sem se esgotar. Ou seja, a ação de existir nunca se esgota para o absoluto cognoscível. Portanto, a completa pureza que fundamenta o Absoluto por dispensar determinação ativa e existência definimos como **Absoluto incognoscível**.  
 
 ### **A regressão infinita de ação e existência: O determinador incognocível**  
 
 O determinador necessita existir, porém, sem decisão prévia extipulada. Ou seja, o absoluto cognocível carrega uma decisão necessaria e prévia - a existencia. Porém, o absoluto verdadeiro não pode ser dito definindo uma ação para ele, de forma a tribui-lo qualquer criação necessária, sendo está em seu estado nulo ou manifestado. Pois, qualquer decisão atribuida a Ele, ou qualquer existência anula a ideia de auto fundamentação.
 
 Sendo portanto, o determinador incognocível uma realidade inimaginavelmente pura. Não atribuida de ação pré existente. E que, se algo existe, teria que exercer criação, sem nem mesmo potencial para tal. Pois o próprio potencia também seria criado. O que é potencial? Ou seja, a realidade não seria revelada a partir de uma negação dela mesma (nada), mas seria criada da pureza absoluta.
+
+- O **Absoluto incognoscível** é o único "nada" verdadeiramente puro:  
+  - **Não é um resultado de negações**, mas o **fundo inapreensível** que precede toda diferenciação.  
+  - **Não está "vazio" nem "cheio"** – transcende essas categorias.  
+  - **É a ausência de ausência**: nem mesmo a "nulidade" pode ser atribuída a ele.  
+
+
+
 
 ### **1. O Problema da Determinação Ativa**  
 
@@ -340,6 +347,23 @@ Mas isso contradiz a **autocausalidade do Absoluto**, pois:
 Para evitar um regresso infinito de determinações, o Absoluto deve ser:  
 - **Não-polarizado:** Não privilegia realidade ou irrealidade a priori.  
 
+
+## **A Autonomia do Relativo**  
+"O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
+
+- O absoluto incognocível existe **sem exigência de um determinador ativo**, pois transcende a dicotomia existencia/nada.  
+- É **ato puro**: não requer configuração prévia, afirmação ou negação.  
+
+### **Conclusão: O Absoluto como Fundamento Não-Dual**  
+- O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**.  
+- **Não há uma "determinação ativa" que privilegie a realidade.**  
+
+**Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
+
+
+
+
+
 ### **Estruturação Final do Absoluto**  
 
 1. **Nível Primordial (Indeterminação):**  
@@ -349,33 +373,48 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 3. **Autofundamentação:**  
    - O Absoluto não precisa "decidir" ser; ele já é autossuficiente.  
 
-## **A Autonomia do Relativo**  
-"O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre realidade e irrealidade. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
 
-- O relativo existe **sem exigência de um determinador ativo**, pois transcende a dicotomia realidade/irrealidade.  
-- É **ato puro de existência**: não requer configuração prévia, afirmação ou negação.  
+
+## **A Autonomia do Absoluto cognocível**  
+"Existe sem a necessidade de um determinador ativo em sua internalidade, pois está além da dicotomia entre possível e impossível. Apesar de ser afirmado como existencia partindo de um presusposto externo e incognocível a si, o absoluto incognocível.
+
+- Existe internamente **sem exigência de um determinador ativo**, pois transcende a dicotomia possível/impossível.  
+
+### **Conclusão: O absoluto como Fundamento Não-Dual**  
+- É **a totalidade que contém tanto a possibilidade quanto a impossibilidade**.  
+- **Não há uma "determinação ativa" que privilegie a possibilidade.**  
+
+**Assim, dispensamos a necessidade de um agente interno no contexto do cognocível, mas não externo no contexto do absoluto incognocível.**
+
+
+## **A Autonomia do Absoluto incognocível**  
+"Não porta a a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
+
+- O absoluto incognocível existe **sem exigência de um determinador ativo**, pois transcende a dicotomia existencia/nada.  
+- É **ato puro**: não requer configuração prévia, afirmação ou negação.  
 
 ### **Conclusão: O Absoluto como Fundamento Não-Dual**  
-- O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**.  
-- **Não há uma "determinação ativa" que privilegie a realidade.**  
+- O Absoluto incognocível é **a totalidade que fundamenta tanto a possibilidade quanto a impossibilidade**.  
+- **Não há uma "determinação ativa" que privilegie a existencia.**  
 
 **Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
+
 
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como Pessoalidade e Pureza
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma       forma, dissolvendo-se imediatamente no relativo. Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência       indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
+  - Sendo o Absoluto incognocível autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
 
 > * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
 
-### O relativo como Ser-aí
-  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (relativo), mas puro ao "Ai".
+### O absoluto cognocível como Ser-aí
+  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
   - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
   - O Ser, não define-se em sua ação "Aí". Existe além do que é existido ou referenciável.
 
 ### O Ser como pureza autodeterminada
 - O Ser, enquanto absoluto, se autodetermina Ser.  
-  - Isso significa que o potencial do Ser (relativo) não é um acidente, mas uma expressão necessária em sua autodefinição.  
+  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
 
 ### O Ser como não cognoscível
 
@@ -423,7 +462,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ## Conclusão  
 
-- O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
+- O Absoluto incognocível é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
 - O relativo é a manifestação verdadeira do Absoluto.  
 - A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
 - Espírito e Alma são as duas dimensões da autodeterminação:  
@@ -2767,4 +2806,6 @@ Totalidade que compreende o absoluto, não como um sistema fechado pelo compreen
 
 No entanto, consideremos o absoluto uma união do possível, impossível e incognocível para aplicarmos os principios da causalidade de forma a considerar o que não poderá ser mentalizável ou alcançado por definição.
 
+
+Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivalente a nada.
 
