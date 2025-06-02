@@ -2858,7 +2858,10 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 
 - Não é possível negar o relativo, pois o impossível já existe e inexiste ao mesmo tempo. Não seria possível negar o que não existe.
 - Só é possível negar o possível. A ação de sucumbir o possível, o esconde, e o perpetua. Sim como a ação de anular a existencia.
+- A definição do nada absoluto, ou seja, negação do fenomenomeno, e até do infinito, é a mesma que a do infinito: não tem fronteiras.
+- O nada, portanto é sempre o mesmo infinito referenciavel.
 
+- Portanto, não há como atingir a indiferenciação ou a suspensão da existencia através do conceito que a refere, porém, ao adicionarmos uma nova propriedade a existencia - o impossível - alcançamos um estado de suspensão. Ao adicionarmos o potencial do ilógico, temos
 
 
 
