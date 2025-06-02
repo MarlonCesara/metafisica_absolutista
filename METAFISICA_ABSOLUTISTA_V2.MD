@@ -2857,5 +2857,8 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - Ao negarmos a existencia, teriamos a ação da inexistencia, portanto, ainda teriamos um determinador ativo. Ao eliminarmos a ação ativa, resultaria em nem negação e nem afirmação da existencia, que seria um estado em que ambas as possibilidades estão suspensas, sendo assim uma realidade espiritual.
 
 - Não é possível negar o relativo, pois o impossível já existe e inexiste ao mesmo tempo. Não seria possível negar o que não existe.
-- Só é possível negar o possível. 
+- Só é possível negar o possível. A ação de sucumbir o possível, o esconde, e o perpetua. Sim como a ação de anular a existencia.
+
+
+
 
