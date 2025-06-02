@@ -2854,3 +2854,8 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 
 - A afirmação do possível e a negação do infinito ou negação total, leva sempre ao mesmo estado espiritual. Porém, não é um espirito material, mas vivo.
 
+- Ao negarmos a existencia, teriamos a ação da inexistencia, portanto, ainda teriamos um determinador ativo. Ao eliminarmos a ação ativa, resultaria em nem negação e nem afirmação da existencia, que seria um estado em que ambas as possibilidades estão suspensas, sendo assim uma realidade espiritual.
+
+- Não é possível negar o relativo, pois o impossível já existe e inexiste ao mesmo tempo. Não seria possível negar o que não existe.
+- Só é possível negar o possível. 
+
