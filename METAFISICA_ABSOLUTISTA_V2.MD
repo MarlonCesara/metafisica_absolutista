@@ -2850,5 +2850,5 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O nada, portanto é um estado de indiferenciação entre existencia e a negação efetiva da existencia.
 
 - Ao adicionarmos a suspensão da existencia, tal como da ação da inexistencia, temos o ilógico. O espirito.
-- 
+- Ao afirmar a impossibilidade, temos o ilógico. Da mesma forma, ao suspendermos o existente, não obtemos o nada, pois o nada é a afirmação do nada. Obtemos novamente o ilógico.
 
