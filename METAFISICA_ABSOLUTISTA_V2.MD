@@ -2852,3 +2852,5 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - Ao adicionarmos a suspensão da existencia, tal como da ação da inexistencia, temos o ilógico. O espirito.
 - Ao afirmar a impossibilidade, temos o ilógico. Da mesma forma, ao suspendermos o existente, não obtemos o nada, pois o nada é a afirmação do nada. Obtemos novamente o ilógico.
 
+- A afirmação do possível e a negação do infinito ou negação total, leva sempre ao mesmo estado espiritual. Porém, não é um espirito material, mas vivo.
+
