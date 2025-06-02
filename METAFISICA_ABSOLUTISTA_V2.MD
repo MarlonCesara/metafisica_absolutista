@@ -2861,7 +2861,9 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - A definição do nada absoluto, ou seja, negação do fenomenomeno, e até do infinito, é a mesma que a do infinito: não tem fronteiras.
 - O nada, portanto é sempre o mesmo infinito referenciavel.
 
-- Portanto, não há como atingir a indiferenciação ou a suspensão da existencia através do conceito que a refere, porém, ao adicionarmos uma nova propriedade a existencia - o impossível - alcançamos um estado de suspensão. Ao adicionarmos o potencial do ilógico, temos
+- Portanto, não há como atingir a indiferenciação ou a suspensão da existencia através do conceito que a refere, porém, ao adicionarmos uma nova propriedade a existencia - o impossível - alcançamos um estado de suspensão. Ao adicionarmos o potencial do ilógico, para elevar ao máximo a realidade ao nosso pensar, poderiamos conceber um estado de suspensão, onde o estado de sumultaneadede entre existir e inexistencial.  No entanto o estado ilógico existe.
+
+
 
 
 
