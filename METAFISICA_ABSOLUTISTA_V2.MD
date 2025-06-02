@@ -2838,4 +2838,17 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O amor, portanto, tem como contra parte ele mesmo, cria nele e permanece puro ao criado.
 
 
+-  O nada é espiritual? Existe e não existe ao mesmo tempo. É toda existencia e nenhuma ao mesmo tempo, pois esta dissolvido em tudo e não é nenhuma das coisas ao mesmo tempo.
+
+- Ao colocarmos a existencia em um estado ilógico, ou seja, do impossível, temos existencia e não existencia ao mesmo tempo. E existencia que é toda forma e nenhuma ao mesmo tempo, pois é pura. E transpassa toda noção de contorno.
+
+- O nada, portanto, sem ser afirmado como infinito, ou seja, existente, torna-se um infinito espiritual. Obtem uma existencia transparente.
+- O nada não é o infinito negado, nem o infinito afirmado. É um infinito espiritual, existente e não existente ao mesmo tempo.
+- Cuja tendencia é a si mesmo. 
+
+- Ao suspender a existencia temos o nada. Mas ao negar a existencia ainda não temos o nada, pois é uma afirmação.
+- O nada, portanto é um estado de indiferenciação entre existencia e a negação efetiva da existencia.
+
+- Ao adicionarmos a suspensão da existencia, tal como da ação da inexistencia, temos o ilógico. O espirito.
+- 
 
