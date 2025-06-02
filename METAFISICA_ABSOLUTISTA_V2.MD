@@ -2865,7 +2865,8 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 
 - Se o ilógico abalasse a existencia a ponto de consumi-la, iriamos ter o lógico novamente, o nada fenomenológico. 
 - Quando o ilógico eleva a realidade a seu limite, temos o espiritual, que é a fronteira tranpassada do existente. ???
-
+- O limite lógico, não possibilita imaginar o nada, a negação do nada é a manifestação novamente.
+- O limite da mentalização pode ser transponível ao imaginar o ilógico, e não o nada verdadeiro.
 
 
 
