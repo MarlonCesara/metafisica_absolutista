@@ -315,7 +315,10 @@ Desta forma nos resta o nada relativo como unico estado de indiferenciação, o 
 não havendo nem mesmo relativo, que é o fenomeno na forma transcendida, diferentemente de nada.
 
 O nada é esgotado desde que haja o que o esgote. Ou seja, haja o que se presencie diante da sua ausencia, desta forma o nada é manifestado.
-A plenitude, a vontade perfeita, é 
+A plenitude, a vontade perfeita, é o que se sobressai em um absoluto esgotado.
+
+
+Ao aplicarmos os principios causais no absoluto que tende a se esgotar até mesmo do nada, temos a direção, a vontade. 
 
 
 ### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
