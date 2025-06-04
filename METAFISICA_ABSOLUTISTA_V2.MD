@@ -317,8 +317,18 @@ não havendo nem mesmo relativo, que é o fenomeno na forma transcendida, difere
 O nada é esgotado desde que haja o que o esgote. Ou seja, haja o que se presencie diante da sua ausencia, desta forma o nada é manifestado.
 A plenitude, a vontade perfeita, é o que se sobressai em um absoluto esgotado.
 
-
 Ao aplicarmos os principios causais no absoluto que tende a se esgotar até mesmo do nada, temos a direção, a vontade. 
+
+Temos o determinador e em sua contra parte não temos nada. Só há o determinador perante a si mesmo.
+
+Portanto, o esgotamento da existencia, trás nenhuma pontencia, pois não é uma nulidade da existencia, mas o esgotamento de qualquer infinito.
+
+Sendo, portanto, o amor, tendencia, persona, vontade espiritual, ou seja, imaterial, porém existente, a unica existencia e fonte do tempo e materia.
+
+Portanto em si a contraparte do nada verdadeiro, ou seja, o que não é de si considerando que não existe, não considerando que existe. Ou seja, 
+Não existe criar do nada, mas simplesmente criar. 
+
+A vontade, o amor, já é todas as coisas. Nascemos da vida pura.
 
 
 ### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
