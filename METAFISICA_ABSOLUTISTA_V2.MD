@@ -330,6 +330,14 @@ Não existe criar do nada, mas simplesmente criar.
 
 A vontade, o amor, já é todas as coisas. Nascemos da vida pura.
 
+O espirito, sendo imaterial, e sendo absoluto, contempla de todo aval de possibilidades.
+
+O nada extinguido, tem como potencial o nada não extinguido? Ora, se extinguiu-se, há o extinguido.
+Desta forma, o espirito possui até mesmo o fenomeno como potencial em um estado de completo esgotamento do fenomeno.
+Pois o espirito esta no dominio do absoluto, e o espirito é o absoluto.
+
+Tudo portanto tem teor de vida, da vida de Deus.
+
 
 ### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
 
