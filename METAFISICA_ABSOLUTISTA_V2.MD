@@ -159,7 +159,7 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
    ↓
 2. **Possível** (realidade estruturada)
    ↓
-3. **Impossível** (sombra lógica do possível)
+3. **Impossível** (limite não lógico do possível)
 
 **Observação Crucial:**
 Esta estrutura não é meramente classificatória, mas revela a arquitetura ontológica fundamental:
@@ -280,9 +280,45 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 
-### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
 
 ### **O Nada Fenomenológico: Explorando o Nada na Possibilidade**  
+
+Ao negarmos o nada caimos em uma regressão onde, qualquer tentativa de ausentar o nada resulta na queda no mesmo conceito de nada: uma situaçao imaterial, sem fronteiras e delimitações.
+Ao imaginarmos o nada, tudo que imaginamos é um espaço vazio e infinito. Ou seja, um espaço ausente de fenomeno, ou seja, ausente de limitações.
+
+Ao negarmos o proprio nada, novamente caimos no mesmo conceito. O nada como ausencia do fenomeno. Não há, portanto, nenhum tipo de ausencia que não pressuponha a persença.
+Estando o nada na esfera do possivel e lógico, e havendo a possibildiade do impossível e do cognocível. Ao abrirmos o leque de possibilidades, produzimos o conceito que mais se aproximaria do nada, no sentido de que, exista uma situação sem uma causa deterministica definida.
+
+Quando elaboramos a opção "possivel", e, existindo a mentalização do impossível, excluimos do absoluto essa possibilidade mentalizada, alimentamos um determinador que nasceu de nossa propria descrença no impossível. Portanto, para absoluto, qualquer situalção mentalizavel deve ser levada em consdieração pelo simples motivo que não faz sentido descarta-la ao considerar que conhecemos a realidade em partes e não em sua totalidade. 
+
+Portanto, sendo o nada uma unica opção, esta carrega uma escola. O nada é necessariamente escolhido nada. Porém, ao suspendermos todas as opções: possível, impossível e incognocivel, temos o que chamamos de relativo - todas as opções suspensas, apenas em estado de existencia e não de configuração determinada por um agente externo. Ou seja, o relativo não é a possibilidde, a impossibilidade ou o incognocível, mas um estado de suspensão de todas as coisas possíveis, impossiveis e incognociveis para absoluto de forma que, não haja uma escolha. De forma que produza o que chamaremos de indiferenciado, uma existencia sem um escolha ativa. Um resumo do todo, ainda que desconhecendo e não mensurando o que ainda seja o todo, e nem conhecendo a possibilidade e podemos formalizar um ''escopo'' para o que chamaos de existencia. 
+
+Ao tentarmos ausentar o ''todo'', ou o ''relativo'', novamente caimos na ideia de uma realidade sem fronteiras, infinita, e vazia, que seria a ausencia de qualquer coisa, ainda que seja do possivel ou impossivel e incognocível, porém a forma de imaginarmos remete ao nada.
+
+Ao considerarmos o relativo a ausencia do relativizado, temos novamente a ausencia do fenomeno como referencia.
+Ao imaginarmos o nada como ausencia do fenomeno, ou seja, com referencialidade a existencia do fenomeno, temos o mesmo resultado que imaginar a ausencia do relativo.
+
+Porém, temos um nada indiferenciado. Ou seja, se a completude de tudo for nada, da mesma forma que a ausencia do fenomeno, o relativo seria uma nada indiferenciado. 
+Uma transcendencia indiferenciada de todas as coisas.
+
+Sendo o nada ainda existencia, não é possível mentalizar a pureza total, sendo esta no campo incognocível, pois a pureza total se anularia em si mesma, não persiste no pensamento.
+Ao considerarmos seu potencial de efeito total.
+
+Ao termos a ausencia total, até de si, essa ausencia não permanece, deixando a presença, ou seja, o existir. 
+Sem um referencial de existencia, a ausencia total não se extingue de forma a se realizar como ausencia até de si mesma.
+Por isto, a ausencia até do infinito ou seja, do nada, não se sustenta, implicando necessariamente um referencial existente para que está se extinga em si mesma.
+
+Portanto, o nada é fenomeno. E a ausencia até mesmo do nada seria o fenomeno, cuja ação do nada se concretizou em presença.
+
+Desta forma nos resta o nada relativo como unico estado de indiferenciação, o que mais se aproximaria do conceito de não causado. Pois dispensa causa de determinação ativa e causa existencial. No entanto, sendo nada um infinito, sua configuração interna exige causa. O nada, verdadeiro, portanto, se esgota face a uma existencia de vontade plena.
+
+não havendo nem mesmo relativo, que é o fenomeno na forma transcendida, diferentemente de nada.
+
+O nada é esgotado desde que haja o que o esgote. Ou seja, haja o que se presencie diante da sua ausencia, desta forma o nada é manifestado.
+A plenitude, a vontade perfeita, é 
+
+
+### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
 
 Ao negarmos o possível, não temos o impossível, mas sim o possível negado. Ao compararmos isso com a negação do fenômeno, temos a ausência do fenômeno-lógico, ou seja, a ausência dos fenômenos lógicos. Portanto, o nada, dentro da esfera do possível, é o fenômeno ausente de si mesmo, considerando que existe enquanto ausência. Este seria o nada em seu primeiro estágio de exploração.  
 
