@@ -2868,6 +2868,6 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O limite lógico, não possibilita imaginar o nada, a negação do nada é a manifestação novamente.
 - O limite da mentalização pode ser transponível ao imaginar o ilógico, e não o nada verdadeiro.
 
-
+- A alma é dependente no momento que foi criada, permanecendo na ação na qual foi criada. Se depois de criada, manipulada, não é independente em si. Logo, não seria viavel recuperar a alma para determina-la uma vez que ela está consolidada, dando aval para que a alma torne-se independente e livre, ainda que sem movimentos.
 
 
