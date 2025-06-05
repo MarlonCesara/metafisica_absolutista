@@ -339,6 +339,10 @@ Pois o espirito esta no dominio do absoluto, e o espirito é o absoluto.
 Tudo portanto tem teor de vida, da vida de Deus.
 
 
+O nada é esgotado em si, mas se reverter este processo, se tem realmente. Logo, a criaçao não modela o nada, mas evoca o nada.
+Ou seja, criar do nada, é primeiramente criar o nada, para extrair-lhe depois de criado. Ou seja, se cria do nada, mas o nada se suscita de forma que não existia nem mesmo o nada.
+
+
 ### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
 
 Ao negarmos o possível, não temos o impossível, mas sim o possível negado. Ao compararmos isso com a negação do fenômeno, temos a ausência do fenômeno-lógico, ou seja, a ausência dos fenômenos lógicos. Portanto, o nada, dentro da esfera do possível, é o fenômeno ausente de si mesmo, considerando que existe enquanto ausência. Este seria o nada em seu primeiro estágio de exploração.  
