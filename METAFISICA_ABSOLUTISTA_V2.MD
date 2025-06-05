@@ -281,6 +281,29 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
 
 
+
+
+
+
+
+
+
+
+
+Camadas
+
+1- Indiferenciado o possivel, o impossivel e o incognocível para produzir o relativo - o indiferenciado - sem determinação ativa.
+2- Reduzindo o indiferenciado frente as alternativas nada e manifestação.
+3- Esgotando o fenomeno e encontrando o fundamento, sem determinação ativa - fenomeno ou não fenomeno.
+4- Encontrando o fundamento necessario através da causalidade
+5- O fundamento desdobrado em tempo e ato unico.
+
+
+
+
+
+
+
 ### **O Nada Fenomenológico: Explorando o Nada na Possibilidade**  
 
 Ao negarmos o nada caimos em uma regressão onde, qualquer tentativa de ausentar o nada resulta na queda no mesmo conceito de nada: uma situaçao imaterial, sem fronteiras e delimitações.
