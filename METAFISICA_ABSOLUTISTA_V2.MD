@@ -292,9 +292,9 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
 Camadas
 
-1- Indiferenciado o possivel, o impossivel e o incognocível para produzir o relativo - o indiferenciado - sem determinação ativa.
+1- Indiferenciado o possivel, o impossivel e o incognocível para produzir o relativo - o indiferenciado - sem determinação ativa. Ou seja, para produzir o indiferenciado.
 2- Reduzindo o indiferenciado frente as alternativas nada e manifestação.
-3- Esgotando o fenomeno e encontrando o fundamento, sem determinação ativa - fenomeno ou não fenomeno.
+3- Esgotando o fenomeno (nada) e encontrando o fundamento, sem determinação ativa - fenomeno ou não fenomeno.
 4- Encontrando o fundamento necessario através da causalidade
 5- O fundamento desdobrado em tempo e ato unico.
 
