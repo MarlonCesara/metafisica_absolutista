@@ -342,6 +342,10 @@ Tudo portanto tem teor de vida, da vida de Deus.
 O nada é esgotado em si, mas se reverter este processo, se tem realmente. Logo, a criaçao não modela o nada, mas evoca o nada.
 Ou seja, criar do nada, é primeiramente criar o nada, para extrair-lhe depois de criado. Ou seja, se cria do nada, mas o nada se suscita de forma que não existia nem mesmo o nada.
 
+Estando o nada esgotado, não há diferenciação entre possivel e immpossivel, e nem de nada negado ou afirmado, manifestado ou ausente, no infinito do Espirito. 
+Há decisão. Portanto, dentro do infinito do espirito há o nada negado ou afirmado?
+
+
 
 ### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
 
