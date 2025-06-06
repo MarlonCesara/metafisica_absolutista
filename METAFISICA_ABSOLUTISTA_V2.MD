@@ -103,12 +103,10 @@ A **possibilidade** define tudo o que é coerente do ponto de vista lógico-meta
 ### **Impossibilidade: O limite interno da realidade**  
 
 **Definição Ontológica:**
-A classe de pseudo-entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais. Existência ilógica.  
+A classe de entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais. Existência ilógica.  
 
 **Tipologia:**
 - **Contradições Explícitas:** "Círculo quadrado" (viola Não-Disformidade)
-- **Paradoxos Essenciais:** "O conjunto de todos os conjuntos" (viola Identidade)
-- **Negações Absolutas:** "O nada absoluto" (viola Causa Existencial)
 
 **Status Metafísico:**
 - Não constitui meramente a ausência de possibilidade
@@ -121,7 +119,7 @@ A classe de pseudo-entes cuja própria definição constitui violação direta d
 3. **Delimitador Transcendental:** Mostra os limites do pensamento coerente
 4. **Mentalização parcial:** A irrealidade pode ser imaginada em partes. É possível mentalizar um circulo e um quadrado, porém não é possível unir os dois.
 
-A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **irrealidade**.  
+A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **impossibilidade**.  
 
 - **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.
 
@@ -145,7 +143,6 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 - **Características:**  
   - **Inacessível à razão pura:** Não pode ser deduzido, demonstrado ou descrito por estruturas lógicas ou linguagem discursiva.  
   - **Sujeito à experiência direta:** Sua única via de aproximação é a intuição imediata ou a vivência não-conceitual.  
-  - **Transcende a dicotomia ser/não-ser:** Não se enquadra nas determinações de existência ou inexistência, realidade ou irrealidade.  
 
 **Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições religiosas sugerem.  
 
@@ -159,13 +156,13 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
    ↓
 2. **Possível** (realidade estruturada)
    ↓
-3. **Impossível** (limite não lógico do possível)
+3. **Impossível** (limite do possível)
 
 **Observação Crucial:**
 Esta estrutura não é meramente classificatória, mas revela a arquitetura ontológica fundamental:
 - O Incognoscível funda a possibilidade da realidade
 - O Possível manifesta-se como ordem no seio do Absoluto
-- O Impossível surge como limite interno do sistema metafísico
+- O Impossível surge como limite interno da possibilidade
 
 ### **Reformulação dos Conceitos Metafísicos Fundamentais**  
 
@@ -185,7 +182,7 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 - **Características:**  
   - **Delimitado pelos princípios da identidade, não-contradição e causalidade.**  
   - **Corresponde ao "mundo inteligível"**, onde entes e relações podem ser definidos e analisados.  
-  - **É um "falso absoluto" no sentido estrito**, pois não engloba o incognoscível ou o meta-lógico.  
+  - **É um "falso absoluto" no sentido estrito**, pois não engloba o incognoscível ou o impossível.  
 - **Função:**  
   - **Fornece um modelo operacional da realidade**, útil para a filosofia, ciência e matemática.  
   - **Permite a construção de sistemas coerentes de conhecimento**, ainda que incompletos.  
