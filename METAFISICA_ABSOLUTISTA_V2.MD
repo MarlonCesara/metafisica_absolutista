@@ -75,7 +75,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 # Definições Metafísicas Fundamentais  
 
-Ao tomarmos o **Absoluto**, considerando cognocível ou não, como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
+Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
 
 #### Definindo os conceitos fundamentais:
 
