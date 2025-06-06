@@ -2959,3 +2959,16 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - A alma é dependente no momento que foi criada, permanecendo na ação na qual foi criada. Se depois de criada, manipulada, não é independente em si. Logo, não seria viavel recuperar a alma para determina-la uma vez que ela está consolidada, dando aval para que a alma torne-se independente e livre, ainda que sem movimentos.
 
 
+- A alma é pura vontade
+- A vontade principal é ser
+- Em cima do ser há todas as diversificados de vontades
+- No tempo do ser
+- Do espirito
+- A alma se dá no tempo do ser
+- Há o tempo espiritual
+- O tempo do ser eleva o ser completo, ao contrário do tempo do fenômeno, que não expõe o ser completo?
+- O espirito é temporal e atemporal ao mesmo tempo, encontra sua plenitude no tempo
+- Não há nulidade ou manifestação
+- O espirito encontra sua plenitude no próprio tempo
+
+
