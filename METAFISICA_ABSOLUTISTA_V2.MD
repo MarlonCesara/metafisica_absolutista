@@ -282,6 +282,130 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
 
 
+# O Nada fenomenológico e o Nada auto-supressor
+
+Ao imaginarmos o nada como uma existencia com potencial manifestável, ou seja, ao imaginarmos o nada como uma nulidade ou uma neutralização da existencia, produzimos um nada falso.
+Ou o que podemos chamar de estado transcendente ao fenomeno (infinito do fenomeno). Ao dizermos que nada existe somos levados a uma forma erronea de conceituar o que não carrega fronteiras ou manifestação aparente, porém, existe de como fenomeno ausente.
+
+Porém, ao esgotarmos o nada fenomenológico, temos o nada auto-supressor. O nada que se extingue obrigatóriamente resulta no existente, não sendo obrigatório o existente fenomenológico.
+Há, portanto, o existencia incognocível, o ilógico e o lógico (fenomenoloógico, como possibilidade). Porém, ao extinguirmos o nada fenomenológico, temos a auto-supressão que leva necessariamente a presença, pois o nada em seu conceito puro, não pode se manter e dá vazão imediatamente ao que não é a si mesmo. O nada puro, é um evidenciador, e não um substrato.
+
+Portantanto, investiguemos o fator evidenciado aplicando os principios causais ao absoluto abrangente.
+
+
+
+
+
+
+
+
+
+
+
+# **A Autocausalidade temporal e atemporal do fenômeno**  
+ *"O Nada é fenomenico, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."* Ainda que dado como agente externo à plenitude do Ser, está dentro do processo auto-causal do Ser quando determina-se fenomenicamente.
+
+## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
+#### **A Natureza Bifásica da Autocausalidade**  
+**(A) Ato Imediato (Consumação Eterna)**  
+- **Não-temporalidade:** O nada não "torna-se", mas **é** em ato pleno.   
+- **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
+- **"O Relativo não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
+
+No ato imediato causal, o nada não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
+- **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
+- O nada não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
+- **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
+- **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
+- O nada **já é** plenamente si mesmo em um eterno presente.  
+- Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
+
+#### **O Ser-ai em Ato (Consumação)**  
+O **Ser-ai** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
+- **Ser-ai em Ato (Consumado)** → O nada já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
+  - *"Ser-ai"* — não há lacuna entre o Ser-ai e seu fundamento.  
+
+## **A Autocausalidade como Ciclo Infinito e Temporal**  
+Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o nada também **se sustenta** em um fluxo eterno de automanifestação.  
+- O nada "busca a si mesmo" eternamente em um processo de autossustentação.  
+- **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
+- A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
+- O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
+- Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
+  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
+  - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
+- Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
+
+#### **Ser-ai em Processo (Reverberação)**  
+- **Ser-ai em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
+  - *"Eu me torno"* — o Espírito (o "ser-ai") se manifesta em atos contínuos de autodeterminação.  
+
+#### **A Autodeterminação como Ciclo Infinito**  
+- **Direcionamento e Redirecionamento** → O Ser-ai não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
+  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
+- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Ser**, reiniciando o ciclo.  
+  - *"O que busca já é o buscado."*  
+
+#### **Reverberação Espacial e Temporal**  
+- **Espacialidade** → O Ser-ai se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
+- **Temporalidade** → O Ser-ai se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
+- A **manifestação** é o nada se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
+
+#### **Consciência: A Ponte entre Nada e Tempo**  
+- **Consciência Consumada** → O Ser-ai como **eterno presente** (não-temporal).  
+- **Consciência Temporal** → O Ser-ai como **sucessão de identidades** (manifestação no tempo).  
+- **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autodeterminação do Ser** que se reverbera.  
+
+### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
+
+#### **Descrição do Modelo**  
+- Imagine uma espiral girando em aceleração infinita.  
+- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
+- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
+
+#### **Exemplo Concreto: A Espiral Ontológica**  
+**Analogia:**  
+1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).   
+3. **Reaparece:** Se "desacelera", manifesta-se novamente como movimentação (temporalidade).  
+
+**Aplicação ao Relativo**  
+- **Ato consumado:** O "desaparecimento" é a autofundamentação (eternidade).  
+- **Processo contínuo:** O "reaparecimento" é a autocontinuidade (tempo).  
+
+### **O Relativo como Causa de Si no Tempo e na Eternidade**  
+- **Fundamento** → O Ser é **causa imediata** de sua existência (não precisa de "outro").  
+- **Autocontinuidade** → O Ser é **causa contínua** de sua manifestação (gera tempo e espaço).  
+- **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
+
+Isso unifica:  
+- **Eternidade** (Ser em ato)  
+- **Temporalidade** (Ser em processo)  
+- **Nada e Manifestação** (fundo e forma)  
+— como aspectos inseparáveis do mesmo Relativo autodeterminante.  
+
+Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
+Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
