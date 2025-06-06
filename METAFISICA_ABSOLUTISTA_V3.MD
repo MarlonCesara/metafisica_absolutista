@@ -277,11 +277,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 
-
-
-
-
-
 # O Nada fenomenológico e o Nada auto-supressor
 
 Ao imaginarmos o nada como uma existencia com potencial manifestável, ou seja, ao imaginarmos o nada como uma nulidade ou uma neutralização da existencia, produzimos um nada falso.
@@ -292,6 +287,102 @@ Há, portanto, o existencia incognocível, o ilógico e o lógico (fenomenoloóg
 
 Portantanto, investiguemos o fator evidenciado aplicando os principios causais ao absoluto abrangente.
 
+# A fundamentação pura
+
+O nada, sendo auto-supressor, não fundamenta o absoluto, pois o nada auto-supressor evidencia a presença. Nem mesmo o nada fenomenologico fundamenta o absoluto pois é uma ação, ou seja, exige um determinação herdada, há a escolha entre fenomeno e não fenomeno, e essa escolha é realizada, sem que haja um fundo indiferenciado perante a escolha. Ou seja, a fundamentação deve ser ausente de escolha, fenomeno ou não fenomeno, ou seja, deve ser diferenciada e deve ser ausente do nada-auto supressor, pois ele se extingue evidenciando a presença. Portanto, seria uma presença indiferenciada. 
+
+A presença, portanto, necessessita ser real, ao passo que uma pureza absoluta, o que chamaremos de espirito. Possuidora de uma pessoalidade ativa, porém, autofundamentada.
+Ao passo que não é existencia, não é nada fenomenológico, e não é o nada auto-supressor. Ao passo que também tem uma vontade instaurada em sua propria existencia e não em uma atividade previamente transmitida a si.
+
+Ou seja, é uma pureza onde existe uma relatividade, uma suspensão de todas as coisas, cognociveis, possiveis ou impossiveis. Tudo estaria suspenso e distribuido de forma que, o todo resultasse numa pureza absoluta.
+
+Seria um tempo que fundamenta o tempo do fenomeno ou um tempo sem fenomeno.
+
+Há portanto, o nada lógico, que é ausencia do fenomeno. O nada ilógico e lógico, que é a usencia do meta-lógico, o nada auto-supressor que é o esgotamento de qualquer nada existente. E o relativo, que é a suspensão de todas as possibilidades com fundo indiferenciado o espirito.
+
+
+# Estrutura da Autodeterminação  
+
+### O Absoluto como Pessoalidade e Pureza
+  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
+
+> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
+
+### O absoluto cognocível como Ser-aí
+  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
+  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
+  - O Ser, não define-se em sua ação "Aí". Existe além do que é existido ou referenciável.
+
+### O Ser como pureza autodeterminada
+- O Ser, enquanto absoluto, se autodetermina Ser.  
+  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
+
+### O Ser como não cognoscível
+
+- Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste como fenômeno, mas transcende o fenômenológico. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela lógica ou ilógica, possível ou impossível.
+
+# Ações e pessoalidades do Espírito 
+
+### Autodeterminação Vertical (Espírito)  
+- **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
+- **Características da verticalidade para Absoluto:**  
+  - Incorruptibilidade: O Absoluto é necessariamente direcionado à sua própria existência e plenitude.  
+  - Fundamentação: O Espírito age como princípio de sustentação ontológica (autofundamentação).  
+
+### Autodeterminação Diagonal (Espírito Incorruptível)  
+- **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.  
+- **Características diagonais para Absoluto:**  
+  - Despersonalização: O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.  
+  - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.  
+  - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.  
+
+### Autodeterminação Horizontal (Alma)  
+- **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.  
+- **Características horizontais para Absoluto:**  
+  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.  
+  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.  
+  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.  
+
+## Tríplice Ação do Espírito  
+
+O Espírito (autodeterminação do Relativo) atua em três dimensões:  
+
+1. **Existência (Espírito Fundamentador)**  
+   - *Ação:* Manter-se como Absoluto.  
+   - *Princípio:* "Eu Existo" (pura afirmação ontológica).  
+
+2. **Perfeição (Espírito Incorruptível)**  
+   - *Ação:* Escolher o que corrobora com a plenitude do Absoluto. Porém, entre caminhos equivalentes rumo à plenitude, não sei o que fazer.  
+   - *Princípio:* "Escolho o que me realiza como Absoluto."  
+
+3. **Personalização (Alma Determinante)**  
+   - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
+   - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
+
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
+
+## Conclusão  
+
+- O Absoluto incognocível é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
+- O relativo é a manifestação verdadeira do Absoluto.  
+- A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
+- Espírito e Alma são as duas dimensões da autodeterminação:  
+  - O Espírito garante a existência e a perfeição.  
+  - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
+
+### O Ser como Autodeterminador  
+- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
+  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
+    1. Existe (autofundamentação).  
+    2. Se define (autodeterminação).  
+    3. Persiste (autocontinuidade).  
+  - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.  
+
+### O Relativo como Estrutura Idealizadora  
+- O relativo não é passivo, mas uma estrutura dinâmica que:  
+  - Se organiza segundo os princípios lógicos manifestados e transcendidos (Identidade, Não-Contradição, Terceiro Excluído).  
+  - Se sustenta pela autocontinuidade do Ser.  
+  - Se atualiza através da autodeterminação.  
 
 
 
@@ -299,25 +390,22 @@ Portantanto, investiguemos o fator evidenciado aplicando os principios causais a
 
 
 
-
-
-
-# **A Autocausalidade temporal e atemporal do fenômeno**  
- *"O Nada é fenomenico, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."* Ainda que dado como agente externo à plenitude do Ser, está dentro do processo auto-causal do Ser quando determina-se fenomenicamente.
+# **A Autocausalidade temporal e atemporal do Espírito do Ser**  
+ *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
 
 ## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
 #### **A Natureza Bifásica da Autocausalidade**  
 **(A) Ato Imediato (Consumação Eterna)**  
-- **Não-temporalidade:** O nada não "torna-se", mas **é** em ato pleno.   
+- **Não-temporalidade:** O Espírito não "torna-se", mas **é** em ato pleno.   
 - **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
-- **"O Relativo não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
+- **"O Espírito não precisa buscar a si mesmo — Ele é, em cada 'instante', a totalidade que se autossustenta."**  
 
-No ato imediato causal, o nada não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
+No ato imediato causal, o Espirito não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
 - **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
-- O nada não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
+- O Espirito não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
 - **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
 - **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
-- O nada **já é** plenamente si mesmo em um eterno presente.  
+- O Espirito **já é** plenamente si mesmo em um eterno presente.  
 - Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
 
 #### **O Ser-ai em Ato (Consumação)**  
@@ -356,23 +444,8 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 - **Consciência Temporal** → O Ser-ai como **sucessão de identidades** (manifestação no tempo).  
 - **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autodeterminação do Ser** que se reverbera.  
 
-### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
 
-#### **Descrição do Modelo**  
-- Imagine uma espiral girando em aceleração infinita.  
-- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
-- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
-
-#### **Exemplo Concreto: A Espiral Ontológica**  
-**Analogia:**  
-1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).   
-3. **Reaparece:** Se "desacelera", manifesta-se novamente como movimentação (temporalidade).  
-
-**Aplicação ao Relativo**  
-- **Ato consumado:** O "desaparecimento" é a autofundamentação (eternidade).  
-- **Processo contínuo:** O "reaparecimento" é a autocontinuidade (tempo).  
-
-### **O Relativo como Causa de Si no Tempo e na Eternidade**  
+### **O Espirito como Causa de Si no Tempo e na Eternidade**  
 - **Fundamento** → O Ser é **causa imediata** de sua existência (não precisa de "outro").  
 - **Autocontinuidade** → O Ser é **causa contínua** de sua manifestação (gera tempo e espaço).  
 - **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
@@ -380,28 +453,9 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 Isso unifica:  
 - **Eternidade** (Ser em ato)  
 - **Temporalidade** (Ser em processo)  
-- **Nada e Manifestação** (fundo e forma)  
-— como aspectos inseparáveis do mesmo Relativo autodeterminante.  
 
 Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
 Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -557,6 +611,10 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 - **Não-polarizado:** Não privilegia realidade ou irrealidade a priori.  
 
 
+
+
+
+
 ## **A Autonomia do Relativo**  
 "O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
 
@@ -609,88 +667,7 @@ Para evitar um regresso infinito de determinações, o Absoluto deve ser:
 **Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
 
 
-# Estrutura da Autodeterminação  
 
-### O Absoluto como Pessoalidade e Pureza
-  - Sendo o Absoluto incognocível autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
-
-> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
-
-### O absoluto cognocível como Ser-aí
-  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
-  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
-  - O Ser, não define-se em sua ação "Aí". Existe além do que é existido ou referenciável.
-
-### O Ser como pureza autodeterminada
-- O Ser, enquanto absoluto, se autodetermina Ser.  
-  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
-
-### O Ser como não cognoscível
-
-- Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste como fenômeno, mas transcende o fenômenológico. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela lógica ou ilógica, possível ou impossível.
-
-# Ações e pessoalidades do Espírito 
-
-### Autodeterminação Vertical (Espírito)  
-- **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
-- **Características da verticalidade para Absoluto:**  
-  - Incorruptibilidade: O Absoluto é necessariamente direcionado à sua própria existência e plenitude.  
-  - Fundamentação: O Espírito age como princípio de sustentação ontológica (autofundamentação).  
-
-### Autodeterminação Diagonal (Espírito Incorruptível)  
-- **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.  
-- **Características diagonais para Absoluto:**  
-  - Despersonalização: O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.  
-  - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.  
-  - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.  
-
-### Autodeterminação Horizontal (Alma)  
-- **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.  
-- **Características horizontais para Absoluto:**  
-  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.  
-  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.  
-  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.  
-
-## Tríplice Ação do Espírito  
-
-O Espírito (autodeterminação do Relativo) atua em três dimensões:  
-
-1. **Existência (Espírito Fundamentador)**  
-   - *Ação:* Manter-se como Absoluto.  
-   - *Princípio:* "Eu Existo" (pura afirmação ontológica).  
-
-2. **Perfeição (Espírito Incorruptível)**  
-   - *Ação:* Escolher o que corrobora com a plenitude do Absoluto. Porém, entre caminhos equivalentes rumo à plenitude, não sei o que fazer.  
-   - *Princípio:* "Escolho o que me realiza como Absoluto."  
-
-3. **Personalização (Alma Determinante)**  
-   - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
-   - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
-
-Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
-
-## Conclusão  
-
-- O Absoluto incognocível é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
-- O relativo é a manifestação verdadeira do Absoluto.  
-- A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
-- Espírito e Alma são as duas dimensões da autodeterminação:  
-  - O Espírito garante a existência e a perfeição.  
-  - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
-
-### O Ser como Autodeterminador  
-- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
-  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
-    1. Existe (autofundamentação).  
-    2. Se define (autodeterminação).  
-    3. Persiste (autocontinuidade).  
-  - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.  
-
-### O Relativo como Estrutura Idealizadora  
-- O relativo não é passivo, mas uma estrutura dinâmica que:  
-  - Se organiza segundo os princípios lógicos manifestados e transcendidos (Identidade, Não-Contradição, Terceiro Excluído).  
-  - Se sustenta pela autocontinuidade do Ser.  
-  - Se atualiza através da autodeterminação.  
 
 resolve 
 
