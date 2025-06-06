@@ -79,10 +79,10 @@ Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, 
 
 #### Definindo os conceitos fundamentais:
 
-### **Possibilidade: O Domínio da Realidade**  
+### **Possibilidade: O Domínio da Existência lógica**  
 
 **Definição Ontológica:**
-O conjunto de todos os estados de coisas cuja estrutura essencial não viola os princípios lógicos fundamentais (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade). Existência lógica.
+O conjunto de todos os estados de coisas cuja estrutura essencial não viola os princípios lógicos fundamentais (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade). .
 
 **Características Essenciais:**
 - **Coerência Lógica:** Exibe consistência interna e externa com o sistema de princípios metafísicos
@@ -96,11 +96,11 @@ O conjunto de todos os estados de coisas cuja estrutura essencial não viola os 
 
 A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico, constituindo o que chamamos de **realidade**.  
 
-- **Exemplo:** Um círculo é uma realidade geométrica possível, pois sua definição não contém contradição. "Um triângulo de quatro lados" é impossível; "um universo com leis físicas diferentes" é possível.  
+- **Exemplo:** Um círculo é uma realidade geométrica possível, pois sua definição não contém contradição. "Um triângulo de quatro lados" é impossível, portanto, não se enquadraria no domínio da existência lógica.
 
 - **Implicação:** Tudo o que é possível pertence ao domínio da **Realidade**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
 
-### **Impossibilidade: O limite interno da realidade**  
+### **Impossibilidade: O limite interno da existência**  
 
 **Definição Ontológica:**
 A classe de entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais. Existência ilógica.  
@@ -117,7 +117,7 @@ A classe de entes cuja própria definição constitui violação direta dos prin
 1. **Reconhecível Formalmente:** Podemos identificar a contradição lógica
 2. **Ininteligível Essencialmente:** Não pode ser concebido como conteúdo positivo
 3. **Delimitador Transcendental:** Mostra os limites do pensamento coerente
-4. **Mentalização parcial:** A irrealidade pode ser imaginada em partes. É possível mentalizar um circulo e um quadrado, porém não é possível unir os dois.
+4. **Mentalização parcial:** A impossibilidade pode ser imaginada em partes. É possível mentalizar um circulo e um quadrado, porém não é possível unir os dois.
 
 A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **impossibilidade**.  
 
@@ -128,7 +128,7 @@ A **impossibilidade** abrange tudo o que é logicamente contraditório, pertence
 ### **Incognoscibilidade: O Domínio da Transcendência Radical**  
 
 **Definição Ontológica:**
-A dimensão do real que excede permanentemente qualquer estruturação conceitual, permanecendo além dos aparatos lógicos e linguísticos. O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.  
+A dimensão do real que excede permanentemente qualquer estruturação conceitual plena ou parcial, permanecendo além dos aparatos lógicos, ilógicos e linguísticos. O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional completa ou incompleta.  
 
 **Modos de Manifestação:**
 - **Transcendência Positiva:** Aquilo que é "mais que ser" (o Bem em Platão)
@@ -146,9 +146,9 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 
 **Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições religiosas sugerem.  
 
-**Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
+**Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica e até mesmo a corrupção da mesma cede lugar a outras formas de apreensão da realidade, distantes de serem mentalizadas ao menos parcialmente. 
 
-**Nível de cognocibilidade"": não pode ser nem mesmo idealizado de forma aproximada. É inalcancável pela conceituação. Incapturavel. Inconceituavel.
+**Nível de cognocibilidade"": não pode ser nem mesmo idealizado de forma aproximada. É inalcancável pela conceituação. Incapturavel. Inconceituavel. Até mesmo o ilógico se poderia visualizar de forma turva, porém o incognocível em nenhum conceito se permite comparar ou ser entendido.
 
 ### **Relação Hierárquica dos Domínios**
 
@@ -190,12 +190,12 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 **Exemplo:**  
 - A física lida com o **Absoluto cognoscível** ao descrever leis universais, mas não pode abordar o que está além da observação e modelagem matemática.  
 
-### **Absoluto Incognoscível (O "Absoluto Ilimitado")**  
+### **Absoluto Ilimitado**  
 **Definição:** A dimensão do Absoluto que transcende qualquer estruturação lógica, linguagem ou conceptualização.  
 - **Características:**  
   - **Não obedece aos princípios da lógica clássica**, pois está além da dicotomia "possível/impossível".  
   - **Não pode ser representado, definido ou mesmo negado** sem cair em paradoxo.  
-  - **É experienciável apenas por via não-conceitual** (intuição mística, silêncio metafísico, etc.).  
+  - **É experienciável totalmente apenas por via não-conceitual** (intuição mística, silêncio metafísico, etc.).  
 - **Implicações:**  
   - **Desafia a noção de "totalidade fechada"**, pois não pode ser circunscrito por definições.  
   - **Revela os limites da razão**, mostrando que o pensamento discursivo não esgota a realidade.  
