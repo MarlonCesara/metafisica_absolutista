@@ -145,11 +145,9 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 
 **Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições religiosas sugerem.  
 
-aqui 
-
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica e até mesmo a corrupção da mesma cede lugar a outras formas de apreensão da realidade, distantes de serem mentalizadas ao menos parcialmente. 
 
-**Nível de cognocibilidade"": não pode ser nem mesmo idealizado de forma aproximada. É inalcancável pela conceituação. Incapturavel. Inconceituavel. Até mesmo o ilógico se poderia visualizar de forma turva, porém o incognocível em nenhum conceito se permite comparar ou ser entendido.
+**Nível de cognocibilidade"": não pode sequer ser idealizado de forma aproximada. É inalcançável pela conceituação, incapturável, inconcebível. Até mesmo o ilógico poderia ser vislumbrado de maneira difusa, mas o incognoscível não se permite qualquer comparação ou compreensão por meio de conceitos.
 
 ### **Relação Hierárquica dos Domínios**
 
@@ -177,63 +175,11 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
   - **Não é um "ente" entre outros**, mas o fundamento último de toda diferenciação ontológica.  
   - **Não está confinado ao cognoscível**, pois inclui o inexprimível e o inapreensível pela razão discursiva.  
 
-
-### **Absoluto Cognoscível (O "Absoluto Mensurado pela Razão")**  
-**Definição:** A porção do Absoluto que pode ser apreendida por estruturas lógicas, conceituais ou fenomenológicas.  
-- **Características:**  
-  - **Delimitado pelos princípios da identidade, não-contradição e causalidade.**  
-  - **Corresponde ao "mundo inteligível"**, onde entes e relações podem ser definidos e analisados.  
-  - **É um "falso absoluto" no sentido estrito**, pois não engloba o incognoscível ou o impossível.  
-- **Função:**  
-  - **Fornece um modelo operacional da realidade**, útil para a filosofia, ciência e matemática.  
-  - **Permite a construção de sistemas coerentes de conhecimento**, ainda que incompletos.  
-
-**Exemplo:**  
-- A física lida com o **Absoluto cognoscível** ao descrever leis universais, mas não pode abordar o que está além da observação e modelagem matemática.  
-
-### **Absoluto Ilimitado**  
-**Definição:** A dimensão do Absoluto que transcende qualquer estruturação lógica, linguagem ou conceptualização.  
-- **Características:**  
-  - **Não obedece aos princípios da lógica clássica**, pois está além da dicotomia "possível/impossível".  
-  - **Não pode ser representado, definido ou mesmo negado** sem cair em paradoxo.  
-  - **É experienciável totalmente apenas por via não-conceitual** (intuição mística, silêncio metafísico, etc.).  
-- **Implicações:**  
-  - **Desafia a noção de "totalidade fechada"**, pois não pode ser circunscrito por definições.  
-  - **Revela os limites da razão**, mostrando que o pensamento discursivo não esgota a realidade.  
-
-**Exemplo:**  
-- O *nirguna Brahman* (Absoluto sem atributos) do Vedanta ou o *Deus absconditus* (Deus oculto) da teologia negativa.  
-
-### **Princípios Causais Revisados em Relação ao Absoluto**  
-
-1. **Causa Existencial (Por que algo existe?)**  
-   - No **Absoluto cognoscível**, segue o Princípio da Razão Suficiente (tudo tem uma causa demonstrável).  
-   - No **Absoluto incognoscível**, a causalidade pode ser **não linear**, **acausal** ou **inefável**.  
-
-2. **Causa Identitária (Por que algo é o que é?)**  
-   - No **Absoluto cognoscível**, obedece à **Não-Disformidade** (A ≠ B).  
-   - No **Absoluto incognoscível**, identidades podem **fundir-se**, **transmutar-se** ou **dissolver-se** sem contradição.  
-
-3. **Princípio da Não-Contradição**  
-   - Válido no **domínio cognoscível**, mas **relativizado** no incognoscível (ex.: paradoxos do infinito, estados quânticos superpostos).  
-
-4. **Princípio da Não-Disformidade**  
-   - **Preserva a individuação** no plano lógico, mas **não se aplica** onde não há distinção (ex.: união mística com o Absoluto).  
-
-
-### **Conclusão: Uma Metafísica Expandida**  
-- O **Absoluto cognoscível** é o campo da **lógica**, da **ciência** e da **filosofia sistemática**.  
-- O **Absoluto incognoscível** é o domínio do **mistério**, do **inefável** e da **transcendência**.  
-- **A verdadeira metafísica não se restringe a um dos polos**, mas os integra numa visão **dialética** ou **complementar**.  
-
-**Formulação final:**  
-> *"O Absoluto é tanto o fundamento de toda razão quanto o abismo que a dissolve. Cognoscível em suas manifestações, incognoscível em sua essência."*  
-
 ### **A Causalidade no Âmbito do Absoluto**  
-Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade e irrealidade se sustentam.  
+Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.  
 
 - **Causalidade Absoluta:** O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.  
-- **Consequência Metafísica:** Qualquer tentativa de explicar a origem ou natureza do real ou irreal deve partir do Absoluto como princípio inquestionável, pois ele é a única noção que não requer uma causa externa – sua existência e essência são **autofundadas, autodeterminadas e autocontinuadas**.  
+- **Consequência Metafísica:** Qualquer tentativa de explicar a origem ou natureza do possível ou impossível deve partir do Absoluto como princípio inquestionável, pois ele é a única noção que não requer uma causa externa – sua existência e essência são **autofundadas, autodeterminadas e autocontinuadas**.  
 
 Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas revela que **a própria distinção entre possível e impossível é uma expressão de sua natureza dinâmica e autossuficiente**.
 
@@ -3071,3 +3017,56 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 - O espirito encontra sua plenitude no próprio tempo
 
 
+
+
+
+### **Absoluto Cognoscível (O "Absoluto Mensurado pela Razão")**  
+**Definição:** A porção do Absoluto que pode ser apreendida por estruturas lógicas, conceituais ou fenomenológicas.  
+- **Características:**  
+  - **Delimitado pelos princípios da identidade, não-contradição e causalidade.**  
+  - **Corresponde ao "mundo inteligível"**, onde entes e relações podem ser definidos e analisados.  
+  - **É um "falso absoluto" no sentido estrito**, pois não engloba o incognoscível.  
+- **Função:**  
+  - **Fornece um modelo operacional da realidade**, útil para a filosofia, ciência e matemática.  
+  - **Permite a construção de sistemas coerentes de conhecimento**, ainda que incompletos.  
+
+**Exemplo:**  
+- A física lida com o **Absoluto cognoscível** ao descrever leis universais, mas não pode abordar o que está além da observação e modelagem matemática.  
+
+### **Absoluto Ilimitado**  
+**Definição:** A dimensão do Absoluto que transcende qualquer estruturação lógica, linguagem ou conceptualização.  
+- **Características:**  
+  - **Não obedece aos princípios da lógica clássica**, pois está além da dicotomia "possível/impossível".  
+  - **Não pode ser representado, definido ou mesmo negado** sem cair em paradoxo.  
+  - **É experienciável totalmente apenas por via não-conceitual** (intuição mística, silêncio metafísico, etc.).  
+- **Implicações:**  
+  - **Desafia a noção de "totalidade fechada"**, pois não pode ser circunscrito por definições.  
+  - **Revela os limites da razão**, mostrando que o pensamento discursivo não esgota a realidade.  
+
+**Exemplo:**  
+- O *nirguna Brahman* (Absoluto sem atributos) do Vedanta ou o *Deus absconditus* (Deus oculto) da teologia negativa.  
+
+### **Princípios Causais Revisados em Relação ao Absoluto**  
+
+1. **Causa Existencial (Por que algo existe?)**  
+   - No **Absoluto cognoscível**, segue o Princípio da Razão Suficiente (tudo tem uma causa demonstrável).  
+   - No **Absoluto incognoscível**, a causalidade pode ser **não linear**, **acausal** ou **inefável**.  
+
+2. **Causa Identitária (Por que algo é o que é?)**  
+   - No **Absoluto cognoscível**, obedece à **Não-Disformidade** (A ≠ B).  
+   - No **Absoluto incognoscível**, identidades podem **fundir-se**, **transmutar-se** ou **dissolver-se** sem contradição.  
+
+3. **Princípio da Não-Contradição**  
+   - Válido no **domínio cognoscível**, mas **relativizado** no incognoscível (ex.: paradoxos do infinito, estados quânticos superpostos).  
+
+4. **Princípio da Não-Disformidade**  
+   - **Preserva a individuação** no plano lógico, mas **não se aplica** onde não há distinção (ex.: união mística com o Absoluto).  
+
+
+### **Conclusão: Uma Metafísica Expandida**  
+- O **Absoluto cognoscível** é o campo da **lógica**, da **ciência** e da **filosofia sistemática**.  
+- O **Absoluto incognoscível** é o domínio do **mistério**, do **inefável** e da **transcendência**.  
+- **A verdadeira metafísica não se restringe a um dos polos**, mas os integra numa visão **dialética** ou **complementar**.  
+
+**Formulação final:**  
+> *"O Absoluto é tanto o fundamento de toda razão quanto o abismo que a dissolve. Cognoscível em suas manifestações, incognoscível em sua essência."*  
