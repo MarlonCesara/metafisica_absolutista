@@ -30,7 +30,6 @@ Em suma:
 
 Isso torna a lógica mais robusta para lidar com problemas de **mudança, identidade persistente e distinção categórica**.
 
-
 ### **Síntese dos Princípios Lógicos**
 
 1. **Princípios Atemporais**
@@ -82,7 +81,7 @@ Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, 
 ### **Possibilidade: O Domínio da Existência lógica**  
 
 **Definição Ontológica:**
-O conjunto de todos os estados de coisas cuja estrutura essencial não viola os princípios lógicos fundamentais (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade). .
+O conjunto de todos os estados de coisas cuja estrutura essencial não viola os princípios lógicos fundamentais (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade). 
 
 **Características Essenciais:**
 - **Coerência Lógica:** Exibe consistência interna e externa com o sistema de princípios metafísicos
@@ -94,16 +93,16 @@ O conjunto de todos os estados de coisas cuja estrutura essencial não viola os 
 2. **Parcialmente Cognoscível:** Objetos físicos (sujeitos a limitações empíricas)
 3. **Cognoscível por Analogia:** Realidades metafísicas superiores (bondade, verdade)
 
-A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico, constituindo o que chamamos de **realidade**.  
+A **possibilidade** define tudo o que é coerente do ponto de vista lógico-metafísico.  
 
 - **Exemplo:** Um círculo é uma realidade geométrica possível, pois sua definição não contém contradição. "Um triângulo de quatro lados" é impossível, portanto, não se enquadraria no domínio da existência lógica.
 
 - **Implicação:** Tudo o que é possível pertence ao domínio da **Realidade**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
 
-### **Impossibilidade: O limite interno da existência**  
+### **Impossibilidade: O Domínio da Existência ilógica**  
 
 **Definição Ontológica:**
-A classe de entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais. Existência ilógica.  
+A classe de entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais.  
 
 **Tipologia:**
 - **Contradições Explícitas:** "Círculo quadrado" (viola Não-Disformidade)
@@ -145,6 +144,8 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
   - **Sujeito à experiência direta:** Sua única via de aproximação é a intuição imediata ou a vivência não-conceitual.  
 
 **Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições religiosas sugerem.  
+
+aqui 
 
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica e até mesmo a corrupção da mesma cede lugar a outras formas de apreensão da realidade, distantes de serem mentalizadas ao menos parcialmente. 
 
