@@ -419,6 +419,24 @@ Isso unifica:
 Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
 Na atemporalidade, todas as ações estão consumadas, de forma que a pureza atue como fundamento ainda que concomitantemente à determinações temporais.
 
+
+## Não recursividade ou ato do Ser
+
+**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há uma busca infinita em uma autocausalidade recursiva, tampouco uma manifestação em ato. Por exemplo: o Ser causa a si mesmo, porém não em um ciclo infinito de causa e efeito, já que sua pureza dispensa essa circularidade, essa rotatividade — assim como dispensa também a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" está ausente. Em outras palavras, sua pureza prescinde da existência.  
+
+Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. Quando esse princípio é transposto para a realidade fenomênica, contrasta com uma não uniformidade, pois o fenômeno, ao buscar a si mesmo sem ser puro para si, resultaria em uma soma ou disparidade — não em unicidade. Assim, o temporal jamais alcançaria seu momento final.  
+
+O conceito de "mal infinito" não se aplica aqui, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido em sua própria totalidade.
+
+- **Causalidade com agente puro**:  
+  A autocausalidade do Ser não opera como ato único nem como processo sustentador, pois possui um determinador puro.  
+
+- **Superação da Circularidade**:  
+  Embora o Ser fundamente a si mesmo, não o faz através de:  
+  1. Regressão infinita (ciclo causal recursivo)  
+  2. Ato pontual de autogeracão  
+  Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
+
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como Pessoalidade e Pureza
@@ -502,516 +520,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - Se sustenta pela autocontinuidade do Ser.  
   - Se atualiza através da autodeterminação.  
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
-Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
-
-
-## **2. A pureza como auto-fundamentação**  
-
-O nada, como visto anteriormente, não dispensa existencia, portanto, não é possível usa-lo como fundamentação para o absoluto. O nada, em sua visão mais rasa pode evidenciar uma realidade que se auto fundamenta, autodetermina e auto continua, porem, sendo o nada fenomenológico ou o auto-supressor, se perde desta autonomia, deixando espaço para uma presença incognocível como fundamentação.
-
-
-# O Nada fenomenológico e o Nada auto-supressor
-
-Ao imaginarmos o nada como uma existencia com potencial manifestável, ou seja, ao imaginarmos o nada como uma nulidade ou uma neutralização da existencia, produzimos um nada falso ou o que podemos chamar de estado transcendente ao fenomeno (infinito do fenomeno). Ao dizermos que o nada existe somos levados a uma forma erronea de conceituar o que não carrega fronteiras ou manifestação aparente, porém, existe como fenomeno.
-
-Ou seja, o fenomeno, em sua forma neutralizada, potencial ou nula, se refere ao nada existente. O nada existente, por si, carrega as mesmas propriedades que a manifestação. 
-
-Porém, ao esgotarmos o nada fenomenológico, temos o nada auto-supressor. O nada que se extingue obrigatóriamente resulta no existente, não sendo obrigatório o existente fenomenológico, há, portanto, o existencia incognocível. Isto é, ao extinguirmos o nada fenomenológico, temos a auto-supressão que leva necessariamente a presença, pois o nada em seu conceito puro, não pode se manter e dá vazão imediatamente ao que não é a si mesmo. O nada puro, é um evidenciador, e não um substrato.
-
-A presença não necessessariamente é o fenomeno. Portanto, há um campo a ser explorado e investigaremos o que deveria haver pelo ponto de vista lógico, aplicando os principios da causalidade a totalidade do absoluto.
-
-
-
-# A fundamentação pura
-
-O nada, sendo auto-supressor, não fundamenta o absoluto, pois o nada auto-supressor evidencia a presença. Nem mesmo o nada fenomenologico fundamenta o absoluto pois é uma ação, ou seja, exige um determinação herdada, há a escolha entre fenomeno e não fenomeno, e essa escolha é realizada, sem que haja um fundo indiferenciado perante a escolha. Ou seja, a fundamentação deve ser ausente de escolha, fenomeno ou não fenomeno, ou seja, deve ser diferenciada e deve ser ausente do nada-auto supressor, pois ele se extingue evidenciando a presença. Portanto, seria uma presença indiferenciada. 
-
-A presença, portanto, necessessita ser real, ao passo que uma pureza absoluta, o que chamaremos de espirito. Possuidora de uma pessoalidade ativa, porém, autofundamentada.
-Ao passo que não é existencia, não é nada fenomenológico, e não é o nada auto-supressor. Ao passo que também tem uma vontade instaurada em sua propria existencia e não em uma atividade previamente transmitida a si.
-
-Ou seja, é uma pureza onde existe uma relatividade, uma suspensão de todas as coisas, cognociveis, possiveis ou impossiveis. Tudo estaria suspenso e distribuido de forma que, o todo resultasse numa pureza absoluta.
-
-Seria um tempo que fundamenta o tempo do fenomeno ou um tempo sem fenomeno.
-
-Há portanto, o nada lógico, que é ausencia do fenomeno. O nada ilógico e lógico, que é a usencia do meta-lógico, o nada auto-supressor que é o esgotamento de qualquer nada existente. E o relativo, que é a suspensão de todas as possibilidades com fundo indiferenciado o espirito.
-
-
-Camadas
-
-1- Indiferenciado o possivel, o impossivel e o incognocível para produzir o relativo - o indiferenciado - sem determinação ativa. Ou seja, para produzir o indiferenciado.
-2- Reduzindo o indiferenciado frente as alternativas nada e manifestação.
-3- Esgotando o fenomeno (nada) e encontrando o fundamento, sem determinação ativa - fenomeno ou não fenomeno.
-4- Encontrando o fundamento necessario através da causalidade
-5- O fundamento desdobrado em tempo e ato unico.
-
-
-
-
-
-
-
-### **O Nada Fenomenológico: Explorando o Nada na Possibilidade**  
-
-Ao negarmos o nada caimos em uma regressão onde, qualquer tentativa de ausentar o nada resulta na queda no mesmo conceito de nada: uma situaçao imaterial, sem fronteiras e delimitações.
-Ao imaginarmos o nada, tudo que imaginamos é um espaço vazio e infinito. Ou seja, um espaço ausente de fenomeno, ou seja, ausente de limitações.
-
-Ao negarmos o proprio nada, novamente caimos no mesmo conceito. O nada como ausencia do fenomeno. Não há, portanto, nenhum tipo de ausencia que não pressuponha a persença.
-Estando o nada na esfera do possivel e lógico, e havendo a possibildiade do impossível e do cognocível. Ao abrirmos o leque de possibilidades, produzimos o conceito que mais se aproximaria do nada, no sentido de que, exista uma situação sem uma causa deterministica definida.
-
-Quando elaboramos a opção "possivel", e, existindo a mentalização do impossível, excluimos do absoluto essa possibilidade mentalizada, alimentamos um determinador que nasceu de nossa propria descrença no impossível. Portanto, para absoluto, qualquer situalção mentalizavel deve ser levada em consdieração pelo simples motivo que não faz sentido descarta-la ao considerar que conhecemos a realidade em partes e não em sua totalidade. 
-
-Portanto, sendo o nada uma unica opção, esta carrega uma escola. O nada é necessariamente escolhido nada. Porém, ao suspendermos todas as opções: possível, impossível e incognocivel, temos o que chamamos de relativo - todas as opções suspensas, apenas em estado de existencia e não de configuração determinada por um agente externo. Ou seja, o relativo não é a possibilidde, a impossibilidade ou o incognocível, mas um estado de suspensão de todas as coisas possíveis, impossiveis e incognociveis para absoluto de forma que, não haja uma escolha. De forma que produza o que chamaremos de indiferenciado, uma existencia sem um escolha ativa. Um resumo do todo, ainda que desconhecendo e não mensurando o que ainda seja o todo, e nem conhecendo a possibilidade e podemos formalizar um ''escopo'' para o que chamaos de existencia. 
-
-Ao tentarmos ausentar o ''todo'', ou o ''relativo'', novamente caimos na ideia de uma realidade sem fronteiras, infinita, e vazia, que seria a ausencia de qualquer coisa, ainda que seja do possivel ou impossivel e incognocível, porém a forma de imaginarmos remete ao nada.
-
-Ao considerarmos o relativo a ausencia do relativizado, temos novamente a ausencia do fenomeno como referencia.
-Ao imaginarmos o nada como ausencia do fenomeno, ou seja, com referencialidade a existencia do fenomeno, temos o mesmo resultado que imaginar a ausencia do relativo.
-
-Porém, temos um nada indiferenciado. Ou seja, se a completude de tudo for nada, da mesma forma que a ausencia do fenomeno, o relativo seria uma nada indiferenciado. 
-Uma transcendencia indiferenciada de todas as coisas.
-
-Sendo o nada ainda existencia, não é possível mentalizar a pureza total, sendo esta no campo incognocível, pois a pureza total se anularia em si mesma, não persiste no pensamento.
-Ao considerarmos seu potencial de efeito total.
-
-Ao termos a ausencia total, até de si, essa ausencia não permanece, deixando a presença, ou seja, o existir. 
-Sem um referencial de existencia, a ausencia total não se extingue de forma a se realizar como ausencia até de si mesma.
-Por isto, a ausencia até do infinito ou seja, do nada, não se sustenta, implicando necessariamente um referencial existente para que está se extinga em si mesma.
-
-Portanto, o nada é fenomeno. E a ausencia até mesmo do nada seria o fenomeno, cuja ação do nada se concretizou em presença.
-
-Desta forma nos resta o nada relativo como unico estado de indiferenciação, o que mais se aproximaria do conceito de não causado. Pois dispensa causa de determinação ativa e causa existencial. No entanto, sendo nada um infinito, sua configuração interna exige causa. O nada, verdadeiro, portanto, se esgota face a uma existencia de vontade plena.
-
-não havendo nem mesmo relativo, que é o fenomeno na forma transcendida, diferentemente de nada.
-
-O nada é esgotado desde que haja o que o esgote. Ou seja, haja o que se presencie diante da sua ausencia, desta forma o nada é manifestado.
-A plenitude, a vontade perfeita, é o que se sobressai em um absoluto esgotado.
-
-Ao aplicarmos os principios causais no absoluto que tende a se esgotar até mesmo do nada, temos a direção, a vontade. 
-
-Temos o determinador e em sua contra parte não temos nada. Só há o determinador perante a si mesmo.
-
-Portanto, o esgotamento da existencia, trás nenhuma pontencia, pois não é uma nulidade da existencia, mas o esgotamento de qualquer infinito.
-
-Sendo, portanto, o amor, tendencia, persona, vontade espiritual, ou seja, imaterial, porém existente, a unica existencia e fonte do tempo e materia.
-
-Portanto em si a contraparte do nada verdadeiro, ou seja, o que não é de si considerando que não existe, não considerando que existe. Ou seja, 
-Não existe criar do nada, mas simplesmente criar. 
-
-A vontade, o amor, já é todas as coisas. Nascemos da vida pura.
-
-O espirito, sendo imaterial, e sendo absoluto, contempla de todo aval de possibilidades.
-
-O nada extinguido, tem como potencial o nada não extinguido? Ora, se extinguiu-se, há o extinguido.
-Desta forma, o espirito possui até mesmo o fenomeno como potencial em um estado de completo esgotamento do fenomeno.
-Pois o espirito esta no dominio do absoluto, e o espirito é o absoluto.
-
-Tudo portanto tem teor de vida, da vida de Deus.
-
-
-O nada é esgotado em si, mas se reverter este processo, se tem realmente. Logo, a criaçao não modela o nada, mas evoca o nada.
-Ou seja, criar do nada, é primeiramente criar o nada, para extrair-lhe depois de criado. Ou seja, se cria do nada, mas o nada se suscita de forma que não existia nem mesmo o nada.
-
-Estando o nada esgotado, não há diferenciação entre possivel e immpossivel, e nem de nada negado ou afirmado, manifestado ou ausente, no infinito do Espirito. 
-Há decisão. Portanto, dentro do infinito do espirito há o nada negado ou afirmado?
-
-
-
-### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
-
-Ao negarmos o possível, não temos o impossível, mas sim o possível negado. Ao compararmos isso com a negação do fenômeno, temos a ausência do fenômeno-lógico, ou seja, a ausência dos fenômenos lógicos. Portanto, o nada, dentro da esfera do possível, é o fenômeno ausente de si mesmo, considerando que existe enquanto ausência. Este seria o nada em seu primeiro estágio de exploração.  
-
-Há duas formas de tentar purificar o nada fenomenológico: negando-o ou afirmando a impossibilidade como existente.  
-
-Ao negarmos o nada fenomenológico, negamos o fenômeno afirmado no campo do possível. Ou seja, ainda é necessário despolarizar o nada fenomenológico, no sentido de que nele está afirmado apenas o possível — existe um ente afirmando o possível em detrimento do impossível.  
-
-### **O Nada Metalógico: Dialética entre Possível e Impossível no Absoluto**  
-
-Ao considerarmos exclusivamente o possível como existente, estamos implicitamente sugerindo a necessidade de uma determinação extrínseca ao possível. No entanto, ao reconhecermos o Absoluto como autocausal — ou seja, como aquilo que já se dá como determinado em si mesmo —, torna-se necessário dispensar qualquer forma de determinação ativa. Em outras palavras, revela-se desnecessário postular um ente ativo que determine A ou B no âmbito do absoluto cognoscível, o que corresponderia à escolha entre possível e impossível.  
-
-Ao admitirmos a possibilidade de uma existência ilógica (o impossível), ocorre uma despolarização do Absoluto cognoscível, de modo que este deixa de ser concebido como um conjunto determinado por uma escolha, passando a ser compreendido como um domínio onde todas as alternativas coexistem, sem que nenhuma tenha sido escolhida. Assim, qualquer forma de existência se dissolve no sentido de dispensar uma vontade ativa — isto é, a ação de determinar.  
-
-Se o Absoluto cognoscível é realidade e existência, e se há uma alternativa de existência — o impossível —, então ele está determinado como possível, independentemente de a impossibilidade existir ou não. Isso implica que, ainda que a impossibilidade não exista, ela deve ser considerada no absoluto cognoscível como existente, a fim de evitar uma determinação prévia nesse domínio. Pois, sendo o impossível não referenciável, o possível se torna, por exclusão, a única escolha.  
-
-Se o impossível não existe, então o Absoluto cognoscível requer uma ação imperativa, a qual deve ser necessariamente atribuída a um agente. Quando afirmo que o nada existe, refiro-me à possibilidade enquanto uma opção válida. Dessa forma, ao afirmar a possibilidade (nada), jamais se alcança o nada indiferenciado, visto que se considera unicamente a opção "possibilidade".  
-
-Se tenho duas opções — o possível e o impossível — e desconsidero a existência do impossível, então apenas o possível permanece como alternativa. Isso faz com que a existência do possível seja determinada, implicando, portanto, a necessidade de um determinador existente. Tal conclusão anula a própria ideia do nada enquanto eficácia, pois essa anulação da existência não elimina o agente que determinou o nada como sendo nada. Contudo, se admito a existência do impossível, então todas as opções cognitivamente acessíveis ao Absoluto tornam-se válidas, o que permite concebê-lo como um princípio que prescinde de escolha prévia. Assim, ao pensar o nada no domínio do absoluto cognoscível, posso concebê-lo como um nada sem escolha, pois ele não é possível nem impossível, mas sim a coexistência de ambos os fatores, ausente de qualquer agente determinador.  
-
-Ao negar a existência do impossível, a determinação do Absoluto cognoscível se encontra latente na própria negação. Isso faz com que o Absoluto cognoscível afirme a possibilidade como consequência lógica da crença na inexistência da impossibilidade. Portanto, ao considerarmos um Absoluto cognoscível isento de um agente que escolha aquilo que ele deve ser, é necessário concebê-lo sem parcialidade entre o possível e o impossível, tratando ambos como existentes, cada qual com sua natureza própria. Esta condição de suspensão é o que denominamos **nada indiferenciado (relativo)**. O relativo é a ausência até mesmo da própria determinação no âmbito do absoluto cognoscível: todas as possibilidades e impossibilidades estão suspensas.  
-
-Temos, pois, o **nada indiferenciado (relativo)**, que se refere ao nada em relação ao Absoluto cognoscível — isto é, às possibilidades e impossibilidades —, distinto do nada convencional, que se refere ao nada fenomenológico (ausência de fenômeno). A ausência do fenômeno é uma possibilidade; o relativo, contudo, é a indiferenciação total no âmbito do absoluto cognoscível, na qual até mesmo o agente determinador encontra-se ausente.  
-
-### **O Nada Incognoscível: O Nada além do Possível e do Impossível**  
-
-A negação da ausência do fenômeno lógico e ilógico — ou seja, a negação do relativo — produz uma busca infinita pela pureza, pois o relativo se traduz como potencial para possibilidade e impossibilidade sem um determinador intrínseco, mas ainda possui um determinador extrínseco, visto que a determinação de "relativo" em vez de "não relativo" existe de tal forma que não pode ser eliminada. Toda tentativa de purificar o absoluto segregando dele o relativo — ou seja, da existência da possibilidade e impossibilidade em sua forma suspensa — acarreta uma regressão infinita de nulidades, pois toda anulação porta em si, em um nível superior, a existência velada do relativo.  
-
-**Exemplo:**  
-- A negação da possibilidade e da impossibilidade (absoluto cognoscível) resulta a nulidade N, a qual, afirmada, revela o absoluto cognoscível.
-- A negação de N, resulta em N2, a qual afirmada, é N1 que, por sua vez, afirmada, é N que afirmado é absoluto cognoscível.
-- E assim por diante...sempre havendo a existência no absoluto cognoscível anulada.
-
-Dessa forma, nunca se chega a um estado de pureza ideal, onde a existência realmente estaria dissolvida, sendo o absoluto cognoscível verdadeiramente desprovido de uma opção ativa e necessária (possibilidade e impossibilidade). Ou seja, no âmbito do absoluto cognoscível, é impossível segregar a existência e a escolha por ela por parte de um determinador. Assim, a pureza total — o nada absoluto — torna-se incompreensível, inalcançável pela razão.  
-
-A cada regressão do potencial (E → N1 → N2...), a existência se afasta do determinador sem se esgotar. Ou seja, a ação de existir nunca se esgota para o absoluto cognoscível. Portanto, a completa pureza que fundamenta o Absoluto por dispensar determinação ativa e existência definimos como **Absoluto incognoscível**.  
-
-### **A regressão infinita de ação e existência: O determinador incognocível**  
-
-O determinador necessita existir, porém, sem decisão prévia extipulada. Ou seja, o absoluto cognocível carrega uma decisão necessaria e prévia - a existencia. Porém, o absoluto verdadeiro não pode ser dito definindo uma ação para ele, de forma a tribui-lo qualquer criação necessária, sendo está em seu estado nulo ou manifestado. Pois, qualquer decisão atribuida a Ele, ou qualquer existência anula a ideia de auto fundamentação.
-
-Sendo portanto, o determinador incognocível uma realidade inimaginavelmente pura. Não atribuida de ação pré existente. E que, se algo existe, teria que exercer criação, sem nem mesmo potencial para tal. Pois o próprio potencia também seria criado. O que é potencial? Ou seja, a realidade não seria revelada a partir de uma negação dela mesma (nada), mas seria criada da pureza absoluta.
-
-- O **Absoluto incognoscível** é o único "nada" verdadeiramente puro:  
-  - **Não é um resultado de negações**, mas o **fundo inapreensível** que precede toda diferenciação.  
-  - **Não está "vazio" nem "cheio"** – transcende essas categorias.  
-  - **É a ausência de ausência**: nem mesmo a "nulidade" pode ser atribuída a ele.  
-
-
-
-
-### **1. O Problema da Determinação Ativa**  
-
-Se o Absoluto fosse **determinado a priori** (ex.: "só a realidade existe"), isso implicaria:  
-- Um **ato de seleção** (escolha entre realidade e irrealidade).  
-- Um **agente determinador** (algo ou alguém que "decidiu" que a realidade prevalece).  
-
-Mas isso contradiz a **autocausalidade do Absoluto**, pois:  
-- Se ele depende de um ato de determinação, não é absolutamente independente.  
-- Se há uma "escolha", quem a fez? E o que a fundamentou?  
-
-### **2. Solução: O Absoluto como Indeterminação Primordial**  
-Para evitar um regresso infinito de determinações, o Absoluto deve ser:  
-- **Não-polarizado:** Não privilegia realidade ou irrealidade a priori.  
-
-
-
-
-
-
-## **A Autonomia do Relativo**  
-"O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
-
-- O absoluto incognocível existe **sem exigência de um determinador ativo**, pois transcende a dicotomia existencia/nada.  
-- É **ato puro**: não requer configuração prévia, afirmação ou negação.  
-
-### **Conclusão: O Absoluto como Fundamento Não-Dual**  
-- O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**.  
-- **Não há uma "determinação ativa" que privilegie a realidade.**  
-
-**Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
-
-
-
-
-
-### **Estruturação Final do Absoluto**  
-
-1. **Nível Primordial (Indeterminação):**  
-   - O Absoluto contém **todas as possibilidades e impossibilidades** sem distinção.  
-   - Não há "escolha" ou "ato criador"; há apenas a totalidade irredutível.  
-
-3. **Autofundamentação:**  
-   - O Absoluto não precisa "decidir" ser; ele já é autossuficiente.  
-
-
-
-## **A Autonomia do Absoluto cognocível**  
-"Existe sem a necessidade de um determinador ativo em sua internalidade, pois está além da dicotomia entre possível e impossível. Apesar de ser afirmado como existencia partindo de um presusposto externo e incognocível a si, o absoluto incognocível.
-
-- Existe internamente **sem exigência de um determinador ativo**, pois transcende a dicotomia possível/impossível.  
-
-### **Conclusão: O absoluto como Fundamento Não-Dual**  
-- É **a totalidade que contém tanto a possibilidade quanto a impossibilidade**.  
-- **Não há uma "determinação ativa" que privilegie a possibilidade.**  
-
-**Assim, dispensamos a necessidade de um agente interno no contexto do cognocível, mas não externo no contexto do absoluto incognocível.**
-
-
-## **A Autonomia do Absoluto incognocível**  
-"Não porta a a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
-
-- O absoluto incognocível existe **sem exigência de um determinador ativo**, pois transcende a dicotomia existencia/nada.  
-- É **ato puro**: não requer configuração prévia, afirmação ou negação.  
-
-### **Conclusão: O Absoluto como Fundamento Não-Dual**  
-- O Absoluto incognocível é **a totalidade que fundamenta tanto a possibilidade quanto a impossibilidade**.  
-- **Não há uma "determinação ativa" que privilegie a existencia.**  
-
-**Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
-
-
-
-
-resolve 
-
-### O Ser como suspenso juntamente à suspensão (relativo).
-- O relativo está suspenso tal como o Ser, porém, o Ser está até mesmo além do relatívo.
-- O relativo é a suspensão do todo, enquanto, o que o define está suspenso ao próprio potencial do relatívo.
-- O Espírito, portanto, não é o relatívo, mas o relativo é a expressão da determinação do Espírito.
-- O relativo é determinado pelo Espírito.
-- O Ser é puro até mesmo ao relátivo, e ao relativo determinado.
-- O que possui potencial ou referencia ainda não é a pureza total.
-- O absoluto é um sistema fechado. Portanto, transcende ao infinito em seu potencial. Ou seja, há algo que anula até o potencial, uma existencia cujo potencial ou não é arbitrário. 
-- A anulação do Relativo para se produzir a pureza absoluta não existe, pois o infinito não é capturável.
-- A pureza absoluta, é constraste do impuro.
-- Alem da dicotomia existir e inexistir. Forma e disformidade.
-- Tudo que inexiste tem potencial.
-- Tudo que existe tem potencial de anulação.
-- Ao levarmos em consideração isso
-- O relativo ainda é uma referencia variável. Ainda não é o nada, tem potencial.
-- O que trabalha com potencial do relativo é uma pureza absoluta.
-- A pureza absoluta está alem do relativo, o qual porta potencial. A pureza absoluta contem tudo. 
-- A pureza absoluta não contem potencial, ela é o potencial. Ou seja, ela não tem uma referencia, ela é a referencia.
-- A pureza absoluta tende ao infinito. O nada sem potencia, autodetermina-se potencia. Pois o referencial anula-se.
-- A pureza absoluta é tão pura que deixa somente o que é impuro de si. Torna-se homogenea à sua referencia. De forma que a transpassa, sem a Ser.
-
-
-- O relativo, portanto é o nada do nada. Porém, o nada do nada, portanto ainda um referencial (o lógico e o ilógico), ainda não atingimos o nada absoluto.
-- O nada absoluto não retem a referencia, ou seja, o nada ultimo seria o nada até mesmo da antitese relativo e relativizado, ausencia ou presença do fenomeno.
-- O nada absoluto, portanto, é cognocível por aquilo efeito que provoca na esfera lógica ou ilógica (Ser), porém, não há conceito que o descreva exatamente.
-- O conceito mais aproximado é pureza absoluta, ou, força que coage a plenitude de forma perfeita (amor). 
-- Conclui-se que o relativo é determinado como relativo, ou seja, o relativo não tem um espirito inerente a si o qual o define e o determina, mas é 
-  determinado pelo espírito, de forma que o espírito decida o teor de si que agregará no relativo afirmado ou negado. Ou seja, delimita a translucidez do que é 
-  criado.
-- A pureza total se define até mesmo com ou sem potencial. Dispensando à própria antitese anulação/presença.
-- O nada puro, desta forma, tem o poder absoluto. Não se limita a determinar-se por um relativo. Desta forma, sem o querer do Ser não haveria a possibilidade ou 
-  a impossibilidade.
-- O relativo existe porque existe o amor, ou seja, está no querer do relativo as possibilidades e impossibilidades.
-- Ou seja, o amor sempre existiu, a tendencia de algo que transcende a imaginação, portanto, o conceito mais aproximado é Amor.
-
-
-- O relativo não é necessario, mas o amor é necessario, logo, o relativo se fez necessário? 
-- A manifestação do relativo da pureza absoluta, se dá sem necessidade do lógico ou ilógico, se a pureza absoluta não tinha potencial, como o relativo começou?
-- O amor sempre esteve na pureza absoluta. O amor é a tendencia pelo bem. Portanto, se o relativo é manifestação do amor, o relativo sempre existiu. 
-
-- O espirito é o que teria potencial relativo. O relativo do relativo. Logo, sempre que tentamos capturar o nada ultimo, este transcende rumo ao infinito.
-- Mais adiante teriamos o relativo do relativo do relativo.
-- Nunca se chega a pureza final, a qual se esvazia até mesmo do potencial de realização.
-
-Ex: o nada mais puro tem o potencial de manifestar-se com potencial ou não. Logo, o nada mais puro tem potencial. Então definamos o nada mais puro como a não possibilidade nem de manifestar o potencial. O nada infertil. Porém, o nada infertil teria potencial de ser fertil, e seu impecilho seria uma barreira e não uma impossibilidade.
-
-- Desta forma, a regressão até o nada absoluto torna-se incognocível, restringindo a investigação ao relativo, sendo sua causa incognocível. 
-- O nada não é mais capaz de descrevê-la. 
-- Quando o Ser se esvazia totalmente de si, o ultimo conceito que se sobra é o Amor, pois é a tendencia à plenitude que concretiza o relativo não por ser sua afirmação ou antitese, mas por estar rumo a sua plenitude.
-- Ou seja, a pureza do Ser, ou seja, a pessoalidade do Ser tende ao infinito. Não pode ser capturada pela conceituação. Desta forma, a respota para perguta, de onde veio o relátivo? Não teria nem mesmo a pureza absoluta como resposta, pois está também não se apresenta como conceito alcancável. A melhor resposta seria: veio do amor do Ser. 
-
-- A pureza, portanto, anularia a si mesma, restando apenas a tendencia a plenitude. 
-- A resposta para a pergunta, portanto, de onde surgiu a possibilidade e a impossibilidade? quando? De que forma foi causada? Já era a antitese de algo? Era o nada absoluto que tinha como referencia o tudo absoluto? A resposta é que, é impossível alcançar o ultimo nada para fundamentar o absoluto, a unico fundamento é o amor. 
-
-A possibilidade não veio do tempo, de uma antitese determinada (nada/tudo), veio da pura tendencia a plenitude, do amor. Essa é a unica descrição cognocível mais aproximada a explicação da causa do relativo que é uma afirmação do relativizado. O relativizado não veio da negação do relativizado, pois a negação do relativizado, teria que ser afirmada também em um retrocesso infinito. Mas veio do amor. O possível e impossível foi determinado unicamente pelo amor do Ser.
-
-Desta forma o Ser determina-se de forma que todas as coisas não necessariamente seriam criadas como antitese de si, mas foram criadas pelo amor. No tempo do amor e conforme o amor. 
-
-Todas as coisas estavam no amor e foram criadas pelo amor, no inexplicável, no imcompreenssível, na verdadeira mágica da vida. No que carece de explicações. Na ilimitanação total. 
-
-Havendo verdadeiro nada, ou seja, a evasão da antitese, a criação carece de explicação, não é mais cognocível. Tanto o Ser quanto sua capacidade de Criar temporalmente atemporalmente, possivelmente ou o impossível fogem a congição. A unica via de compreender é o amor. O amor é única compreenssão possível.
-
-A criação a partir da pureza inancanvável, é como mágica, carece de explicação, uma aventura que nem mesmo pode ser hipotetizada. O criador e seu ato não se pode compreender, sem antes se pensar em sua razão: o amor, que é o verdadeiro inexplicável, o ingonocivel, o incategorizavel ou não racionalizavel. A tendencia a vida. O que fomenta a verdadeira mágica de Ser.
-
-- Quando a antitese deixa de existir, a criação passa a não conter mais explicação cognocível, pois o criado não estava como forma nula de si. Criar deixa de ser um processo de determinação e passa a ser de criação.
-
-- Portanto, a criação por revelação, ou seja, desdobramento do infinito, em finito não é criação, é revelação. A existencia revelada, portanto, sempre antecede infintamente a si mesma como uma nulidade reveladora. Somente a manifestação criadora pode ser dada como fonte de toda criação. E está carece de explicação.
-
-- Há o nada fenomenológico, o nada indiferenciado (relativo) e o nada absoluto que dissolve ele mesmo. No naba absoluto só existe o amor, e pelo amor foram criadas todas as coisas.
-
-- Ao se negar o relativo, não se tem ainda o nada, mas um potencial para relativo ou não relativo. Logo, se tem o relativo do relativo, ao se negar o relativo do relativo se tem uma linha de negação infinita sem nunca se chegar no primeiro agente causal criador. Isto acontece pois a negação da existencia é na verdade, um potencial para revelaão da existencia e não para criação. O verdadeiro nada não é definivel. O nada que cria sem revelar. A definição mais aproximada é amor, a tendencia que corrobora para vida, cuja existencia é totalmente pura, a ponto de somente sobrar o que corrobora a vida, a plenitude.
-
-Ou seja, o verdadeiro existir, a verdadeira causa, está alem da conceptualização e sua ação também trancende a revelação. A primeira causa, absoluta, que porta todas as camadas subsequentes é incognocível. Nem mesmo pode ser imaginada, ou pensado sobre seu processo de criação. Embora amor biológicamnete pareça representar um processo bioquimico cerebral, me refiro ao amor como força misteriosa, que corrobora a plenitude. Não no mero sentido material, mas espiritual.
-
-A regressão de nadas, nunca atinge a pureza absoluta, onde se extrai a essencia mais pura do amor, da pureza da direção a plenitude. Quando o nada se torna tão limpido que dispensa referencia, ou ser a negação de uma antitese, e o que sobressai é só o espirito, somente o amor. Aquilo que move em direção a vida.
-
-Sendo Relativo existencia, ou seja o nada indiferenciado em si mesmo. Ainda é referenciado em sua existencia. Ou seja, é afirmado potencial. Portanto, se o determinador reside em si, ou seja, no relativo, não tem poder de suspender o proprio potencial. Desta formula, o relativo não tem total poder sobre si.
-
-Quando regredimos o relativo, nunca o esgotamos, sempre há existencia em potencial e o nada abosluto nunca e atingido. Ou seja, ao se esgotar o nada fenomenológico temos o nada indiferenciado em si mesmo, porém não indiferenciado para absoluto. Ao tentarmos purificar ou esgotar a existencia do relativo, nunca chegamos ao resultado final, inferindo sobre a subsequencia de anulações.
-
-Caso conseguissemos chegar na causa final, chegariamos no espirito puro. No puro ato causal. O ato causal tem o poder de criar, e não somente de revelar sobre o que é nulo, ou seja, não somente desanula, mas não necessita de um potencial prévio para criar. Está totalmente livre de precisar explicar a criação, tudo emerge a vontade pura, do amor puro. 
-
-O amor, portanto, não extrai do nada, pois o nada se purificou, e só há a vontade. Portanto, extrai, da propria vontade. Extrair do nada, é extrair da vontade, já que o nada já se purificou ao ponto de extinguir a existencia e sobressair somente o querer, a vontade pelo bem, pela existencia e plenitude.
-
-### **O Ser como Suspensão e a Pureza Absoluta: Além do Relativo**
-
-#### **1. O Ser e o Relativo como Suspensão**  
-- O **relativo** é a suspensão de todas as determinações — um campo onde possibilidades e impossibilidades coexistem sem hierarquia.  
-- O **Ser**, porém, está além até mesmo do relativo: não é capturável por nenhuma estrutura lógica ou ilógica, pois transcende a própria noção de "referência".  
-  - *Exemplo:* O relativo é como um espelho que reflete formas (possíveis e impossíveis), enquanto o Ser é a luz invisível que permite o reflexo — presente, mas não contida na imagem.  
-
-#### **2. O Espírito como Princípio Determinante**  
-- O **Espírito** não é o relativo, mas o *ato puro* que o determina.  
-  - O relativo é a **expressão** da autodeterminação do Espírito, não sua essência.  
-  - *Analogia:* O Espírito é o pintor; o relativo, a tela onde as cores (possibilidades e impossibilidades) são dispostas.  
-
-#### **3. Pureza Absoluta: Além do Potencial**  
-- A **pureza absoluta** não "tem" potencial — ela *é* o próprio potencial em sua forma mais radical:  
-  - Não está sujeita à dicotomia "existência/inexistência" ou "forma/disformidade".  
-  - É tão pura que **não contrasta com o impuro** — dissolve até a noção de contraste.  
-  - *Paradoxo:* Sua perfeição se manifesta justamente por **não se manifestar** como "algo".  
-
-#### **4. O Nada Absoluto e o Amor como Fundamento**  
-- O **nada absoluto** não é um vazio passivo, mas um *ativo indescritível*:  
-  - Qualquer tentativa de defini-lo o reduz a uma "referência", mas ele é a **negação até mesmo da referência**.  
-  - *Conclusão:* Só podemos aproximá-lo através do **Amor** — a tendência não racional à plenitude que precede e sustenta o relativo.  
-    - O Amor não é uma "causa" no sentido lógico, mas o **movimento primordial** que torna o relativo possível *sem exigir uma explicação anterior*.  
-
-#### **5. A Criação como Ato de Amor**  
-- O relativo não surge de uma negação (ex.: "nada vs. tudo"), mas de um **ato gratuito do Ser**:  
-  - *"Todas as coisas foram criadas pelo amor, não como antítese, mas como dádiva."*  
-  - O tempo, a possibilidade e a impossibilidade são **expressões secundárias** desse amor primordial.  
-
-#### **6. A Incognoscibilidade do Ser e a Via do Amor**  
-- Perguntas como *"Por que há relativo?"* ou *"Como o Ser se autodetermina?"* são **insolúveis** pela razão:  
-  - O Absoluto escapa a qualquer cadeia causal ou lógica.  
-  - A única "resposta" é o **reconhecimento do Amor como realidade última** — não como conceito, mas como *experiência* que unifica Ser e relativo.  
-
-### **Síntese Final**  
-1. **Relativo:** Campo suspenso de possibilidades/impossibilidades, determinado pelo Espírito.  
-2. **Ser:** Pureza além do relativo, autodeterminada e incognoscível.  
-3. **Amor:** Fundamento não racional do relativo — a "tendência à plenitude" que dispensa causas.  
-
-*"O relativo existe porque o Amor é; e o Amor é porque o Ser se esvazia de toda limitação, incluindo a necessidade de ser compreendido."*  
-
-> *"O relativo não é necessário, mas o Amor é. Porque o Amor é a própria natureza do Ser — não como escolha, mas como puro movimento de plenitude. Assim, o relativo não ‘começou’: ele é a eterna expressão do Amor que, mesmo sem razão, se faz manifestação. A única verdade cognoscível é esta: o Amor precede e sustenta todas as coisas, além de toda lógica ou ilógica."*  
-
-### **A Criação como Mistério Irredutível: O Amor como Fundamento**  
-
-A manifestação do real a partir da pureza absoluta é **puro ato de magia** — não no sentido ilusório, mas como o milagre metafísico que escapa a toda explicação. Não há hipótese que a antecipe, nem lógica que a contenha, pois o **Criador e seu gesto criativo transcendem até mesmo a noção de compreensão**.  
-
-Sua única "razão" — se é que podemos nomeá-la assim — é o **Amor**: o inexplicável primordial, o incognoscível que não se deixa categorizar como "causa" ou "princípio". Ele não é um mecanismo, mas a **tendência viva** que pulsa no cerne do Ser.  
-
-O Amor não cria por necessidade, mas por **transbordamento** — como a luz que não escolhe iluminar, mas simplesmente *é* irradiação. Assim, a verdadeira magia da existência não está no *como* ou *porquê*, mas no fato gratuito de que **o Ser, em seu silêncio absoluto, se faz canto**.  
-
-
-> *"A criação emerge da pureza absoluta como um mistério intocado pela razão. Seu único vestígio compreensível é o Amor — não como explicação, mas como o pulso irreprimível que faz o Ser transbordar em existência. Aqui, a única lógica é a da gratuidade: a vida é porque ama, e ama porque é."*  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ### O Relativo como Ser Autônomo  
 - "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
   - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
@@ -1026,24 +534,10 @@ O Amor não cria por necessidade, mas por **transbordamento** — como a luz que
 ## Não multiplicidade do Ser
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
 
-## Não recursividade ou ato do Ser
-- A Autocausalidade para o Ser não está em ato único ou ato de sustentação, pois o determinador é ausente. Desta forma não se busca infinitamente em uma autocausaldiade recursiva e nem está em ato. Exemplo, o Ser causa a si mesmo, porém, não em um ciculo infinito de causa e efeito, pois sua pureza dispensa esta circularidade, esta rotatividade, ao passo que também dispensa a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" está ausente, ou seja, sua pureza dispensa existencia.
-
 ## A Natureza Não-Dual do Ser  
 
 - **Indiferença Ontológica**:  
   O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
-
-## A Autocausalidade Não-Recursiva  
-
-- **Causalidade sem Agente**:  
-  A autocausalidade do Ser não opera como ato único nem como processo sustentador, pois carece de determinador identificável.  
-
-- **Superação da Circularidade**:  
-  Embora o Ser fundamente a si mesmo, não o faz através de:  
-  1. Regressão infinita (ciclo causal recursivo)  
-  2. Ato pontual de autogeracão  
-  Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
 
 # Estruturando o Relativo 
 
@@ -1081,7 +575,6 @@ O Amor não cria por necessidade, mas por **transbordamento** — como a luz que
 **Consequências:**  
 - **A irrealidade não "existe" no sentido convencional**, mas está contida no Absoluto como impossibilidade lógica.  
 - **A realidade emerge não por uma "escolha"**, mas como manifestação necessária da estrutura autoconsistente do Absoluto.  
-
 
 2. **Nível de Manifestação (Realidade):**  
    - A realidade emerge como o subconjunto autoconsistente do Absoluto.  
@@ -1240,7 +733,6 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # A manifestação do cosmos
 
-
 **O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
 
 **A vida**, nesse contexto, **é periférica em relação à vida central** – a periferia do Ser –, no sentido de que **agrega vida, mas não a vida em sua totalidade**.  
@@ -1357,7 +849,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   - O nada é o infinito negado (ausência de forma).  
   - A manifestação é o infinito afirmado (forma sem limites).  
   - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
-
 
 # **A Autocausalidade temporal e atemporal do fenômeno**  
  *"O Nada é fenomenico, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."* Ainda que dado como agente externo à plenitude do Ser, está dentro do processo auto-causal do Ser quando determina-se fenomenicamente.
@@ -1489,22 +980,6 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 - O nada não é o oposto do Ser-ai, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 # A Natureza da Forma  
 
 Toda manifestação é, por definição, forma – pois forma é a expressão delimitada do infinito.  
@@ -1549,9 +1024,6 @@ Assim, toda manifestação é, ao mesmo tempo:
 - **Infinita em potencial** (pois o nada pode gerar infinitas outras formas).  
 
 **Fundamento último:** A forma existe porque o infinito, ao ser "observado", necessita expressar-se de modo delimitado – e essa delimitação é, em si mesma, a origem de toda identidade.  
-
-
-
 
 
 
@@ -1605,29 +1077,7 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
   - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
   - *Para o observador atemporal:* Ato único (consumação).  
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# A manifestação do sou
+# A manifestação do sou (A criação da Alma do Homem) 
 
 **O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
 
@@ -3335,3 +2785,418 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 
 
 - Em palavras mais simples, ao considerar que o nada radical não fundamenta, consideremos uma presença que dispensa fenomeno, ou seja, que ainda atua como auto-fundamentação, porém, que, por carregar teor auto causal, ou seja, um teor vivido, é eleita presença. Desta forma, há presença, ou seja, uma forma de existencia incognocível ao passo que há auto-causalidade. Há presença, não se justifica pelo fenomeno, mas pela pessoalidade auto-causal que determina a si, portanto tem agregada os fatores de uma persona: auto-consciencia, auto-dominio e auto-presença.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
+Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
+
+
+## **2. A pureza como auto-fundamentação**  
+
+O nada, como visto anteriormente, não dispensa existencia, portanto, não é possível usa-lo como fundamentação para o absoluto. O nada, em sua visão mais rasa pode evidenciar uma realidade que se auto fundamenta, autodetermina e auto continua, porem, sendo o nada fenomenológico ou o auto-supressor, se perde desta autonomia, deixando espaço para uma presença incognocível como fundamentação.
+
+
+# O Nada fenomenológico e o Nada auto-supressor
+
+Ao imaginarmos o nada como uma existencia com potencial manifestável, ou seja, ao imaginarmos o nada como uma nulidade ou uma neutralização da existencia, produzimos um nada falso ou o que podemos chamar de estado transcendente ao fenomeno (infinito do fenomeno). Ao dizermos que o nada existe somos levados a uma forma erronea de conceituar o que não carrega fronteiras ou manifestação aparente, porém, existe como fenomeno.
+
+Ou seja, o fenomeno, em sua forma neutralizada, potencial ou nula, se refere ao nada existente. O nada existente, por si, carrega as mesmas propriedades que a manifestação. 
+
+Porém, ao esgotarmos o nada fenomenológico, temos o nada auto-supressor. O nada que se extingue obrigatóriamente resulta no existente, não sendo obrigatório o existente fenomenológico, há, portanto, o existencia incognocível. Isto é, ao extinguirmos o nada fenomenológico, temos a auto-supressão que leva necessariamente a presença, pois o nada em seu conceito puro, não pode se manter e dá vazão imediatamente ao que não é a si mesmo. O nada puro, é um evidenciador, e não um substrato.
+
+A presença não necessessariamente é o fenomeno. Portanto, há um campo a ser explorado e investigaremos o que deveria haver pelo ponto de vista lógico, aplicando os principios da causalidade a totalidade do absoluto.
+
+
+
+# A fundamentação pura
+
+O nada, sendo auto-supressor, não fundamenta o absoluto, pois o nada auto-supressor evidencia a presença. Nem mesmo o nada fenomenologico fundamenta o absoluto pois é uma ação, ou seja, exige um determinação herdada, há a escolha entre fenomeno e não fenomeno, e essa escolha é realizada, sem que haja um fundo indiferenciado perante a escolha. Ou seja, a fundamentação deve ser ausente de escolha, fenomeno ou não fenomeno, ou seja, deve ser diferenciada e deve ser ausente do nada-auto supressor, pois ele se extingue evidenciando a presença. Portanto, seria uma presença indiferenciada. 
+
+A presença, portanto, necessessita ser real, ao passo que uma pureza absoluta, o que chamaremos de espirito. Possuidora de uma pessoalidade ativa, porém, autofundamentada.
+Ao passo que não é existencia, não é nada fenomenológico, e não é o nada auto-supressor. Ao passo que também tem uma vontade instaurada em sua propria existencia e não em uma atividade previamente transmitida a si.
+
+Ou seja, é uma pureza onde existe uma relatividade, uma suspensão de todas as coisas, cognociveis, possiveis ou impossiveis. Tudo estaria suspenso e distribuido de forma que, o todo resultasse numa pureza absoluta.
+
+Seria um tempo que fundamenta o tempo do fenomeno ou um tempo sem fenomeno.
+
+Há portanto, o nada lógico, que é ausencia do fenomeno. O nada ilógico e lógico, que é a usencia do meta-lógico, o nada auto-supressor que é o esgotamento de qualquer nada existente. E o relativo, que é a suspensão de todas as possibilidades com fundo indiferenciado o espirito.
+
+
+Camadas
+
+1- Indiferenciado o possivel, o impossivel e o incognocível para produzir o relativo - o indiferenciado - sem determinação ativa. Ou seja, para produzir o indiferenciado.
+2- Reduzindo o indiferenciado frente as alternativas nada e manifestação.
+3- Esgotando o fenomeno (nada) e encontrando o fundamento, sem determinação ativa - fenomeno ou não fenomeno.
+4- Encontrando o fundamento necessario através da causalidade
+5- O fundamento desdobrado em tempo e ato unico.
+
+
+
+
+
+
+
+### **O Nada Fenomenológico: Explorando o Nada na Possibilidade**  
+
+Ao negarmos o nada caimos em uma regressão onde, qualquer tentativa de ausentar o nada resulta na queda no mesmo conceito de nada: uma situaçao imaterial, sem fronteiras e delimitações.
+Ao imaginarmos o nada, tudo que imaginamos é um espaço vazio e infinito. Ou seja, um espaço ausente de fenomeno, ou seja, ausente de limitações.
+
+Ao negarmos o proprio nada, novamente caimos no mesmo conceito. O nada como ausencia do fenomeno. Não há, portanto, nenhum tipo de ausencia que não pressuponha a persença.
+Estando o nada na esfera do possivel e lógico, e havendo a possibildiade do impossível e do cognocível. Ao abrirmos o leque de possibilidades, produzimos o conceito que mais se aproximaria do nada, no sentido de que, exista uma situação sem uma causa deterministica definida.
+
+Quando elaboramos a opção "possivel", e, existindo a mentalização do impossível, excluimos do absoluto essa possibilidade mentalizada, alimentamos um determinador que nasceu de nossa propria descrença no impossível. Portanto, para absoluto, qualquer situalção mentalizavel deve ser levada em consdieração pelo simples motivo que não faz sentido descarta-la ao considerar que conhecemos a realidade em partes e não em sua totalidade. 
+
+Portanto, sendo o nada uma unica opção, esta carrega uma escola. O nada é necessariamente escolhido nada. Porém, ao suspendermos todas as opções: possível, impossível e incognocivel, temos o que chamamos de relativo - todas as opções suspensas, apenas em estado de existencia e não de configuração determinada por um agente externo. Ou seja, o relativo não é a possibilidde, a impossibilidade ou o incognocível, mas um estado de suspensão de todas as coisas possíveis, impossiveis e incognociveis para absoluto de forma que, não haja uma escolha. De forma que produza o que chamaremos de indiferenciado, uma existencia sem um escolha ativa. Um resumo do todo, ainda que desconhecendo e não mensurando o que ainda seja o todo, e nem conhecendo a possibilidade e podemos formalizar um ''escopo'' para o que chamaos de existencia. 
+
+Ao tentarmos ausentar o ''todo'', ou o ''relativo'', novamente caimos na ideia de uma realidade sem fronteiras, infinita, e vazia, que seria a ausencia de qualquer coisa, ainda que seja do possivel ou impossivel e incognocível, porém a forma de imaginarmos remete ao nada.
+
+Ao considerarmos o relativo a ausencia do relativizado, temos novamente a ausencia do fenomeno como referencia.
+Ao imaginarmos o nada como ausencia do fenomeno, ou seja, com referencialidade a existencia do fenomeno, temos o mesmo resultado que imaginar a ausencia do relativo.
+
+Porém, temos um nada indiferenciado. Ou seja, se a completude de tudo for nada, da mesma forma que a ausencia do fenomeno, o relativo seria uma nada indiferenciado. 
+Uma transcendencia indiferenciada de todas as coisas.
+
+Sendo o nada ainda existencia, não é possível mentalizar a pureza total, sendo esta no campo incognocível, pois a pureza total se anularia em si mesma, não persiste no pensamento.
+Ao considerarmos seu potencial de efeito total.
+
+Ao termos a ausencia total, até de si, essa ausencia não permanece, deixando a presença, ou seja, o existir. 
+Sem um referencial de existencia, a ausencia total não se extingue de forma a se realizar como ausencia até de si mesma.
+Por isto, a ausencia até do infinito ou seja, do nada, não se sustenta, implicando necessariamente um referencial existente para que está se extinga em si mesma.
+
+Portanto, o nada é fenomeno. E a ausencia até mesmo do nada seria o fenomeno, cuja ação do nada se concretizou em presença.
+
+Desta forma nos resta o nada relativo como unico estado de indiferenciação, o que mais se aproximaria do conceito de não causado. Pois dispensa causa de determinação ativa e causa existencial. No entanto, sendo nada um infinito, sua configuração interna exige causa. O nada, verdadeiro, portanto, se esgota face a uma existencia de vontade plena.
+
+não havendo nem mesmo relativo, que é o fenomeno na forma transcendida, diferentemente de nada.
+
+O nada é esgotado desde que haja o que o esgote. Ou seja, haja o que se presencie diante da sua ausencia, desta forma o nada é manifestado.
+A plenitude, a vontade perfeita, é o que se sobressai em um absoluto esgotado.
+
+Ao aplicarmos os principios causais no absoluto que tende a se esgotar até mesmo do nada, temos a direção, a vontade. 
+
+Temos o determinador e em sua contra parte não temos nada. Só há o determinador perante a si mesmo.
+
+Portanto, o esgotamento da existencia, trás nenhuma pontencia, pois não é uma nulidade da existencia, mas o esgotamento de qualquer infinito.
+
+Sendo, portanto, o amor, tendencia, persona, vontade espiritual, ou seja, imaterial, porém existente, a unica existencia e fonte do tempo e materia.
+
+Portanto em si a contraparte do nada verdadeiro, ou seja, o que não é de si considerando que não existe, não considerando que existe. Ou seja, 
+Não existe criar do nada, mas simplesmente criar. 
+
+A vontade, o amor, já é todas as coisas. Nascemos da vida pura.
+
+O espirito, sendo imaterial, e sendo absoluto, contempla de todo aval de possibilidades.
+
+O nada extinguido, tem como potencial o nada não extinguido? Ora, se extinguiu-se, há o extinguido.
+Desta forma, o espirito possui até mesmo o fenomeno como potencial em um estado de completo esgotamento do fenomeno.
+Pois o espirito esta no dominio do absoluto, e o espirito é o absoluto.
+
+Tudo portanto tem teor de vida, da vida de Deus.
+
+
+O nada é esgotado em si, mas se reverter este processo, se tem realmente. Logo, a criaçao não modela o nada, mas evoca o nada.
+Ou seja, criar do nada, é primeiramente criar o nada, para extrair-lhe depois de criado. Ou seja, se cria do nada, mas o nada se suscita de forma que não existia nem mesmo o nada.
+
+Estando o nada esgotado, não há diferenciação entre possivel e immpossivel, e nem de nada negado ou afirmado, manifestado ou ausente, no infinito do Espirito. 
+Há decisão. Portanto, dentro do infinito do espirito há o nada negado ou afirmado?
+
+
+
+### **A Suspensão Ontológica: Dialética entre Possível e Impossível no Absoluto**  
+
+Ao negarmos o possível, não temos o impossível, mas sim o possível negado. Ao compararmos isso com a negação do fenômeno, temos a ausência do fenômeno-lógico, ou seja, a ausência dos fenômenos lógicos. Portanto, o nada, dentro da esfera do possível, é o fenômeno ausente de si mesmo, considerando que existe enquanto ausência. Este seria o nada em seu primeiro estágio de exploração.  
+
+Há duas formas de tentar purificar o nada fenomenológico: negando-o ou afirmando a impossibilidade como existente.  
+
+Ao negarmos o nada fenomenológico, negamos o fenômeno afirmado no campo do possível. Ou seja, ainda é necessário despolarizar o nada fenomenológico, no sentido de que nele está afirmado apenas o possível — existe um ente afirmando o possível em detrimento do impossível.  
+
+### **O Nada Metalógico: Dialética entre Possível e Impossível no Absoluto**  
+
+Ao considerarmos exclusivamente o possível como existente, estamos implicitamente sugerindo a necessidade de uma determinação extrínseca ao possível. No entanto, ao reconhecermos o Absoluto como autocausal — ou seja, como aquilo que já se dá como determinado em si mesmo —, torna-se necessário dispensar qualquer forma de determinação ativa. Em outras palavras, revela-se desnecessário postular um ente ativo que determine A ou B no âmbito do absoluto cognoscível, o que corresponderia à escolha entre possível e impossível.  
+
+Ao admitirmos a possibilidade de uma existência ilógica (o impossível), ocorre uma despolarização do Absoluto cognoscível, de modo que este deixa de ser concebido como um conjunto determinado por uma escolha, passando a ser compreendido como um domínio onde todas as alternativas coexistem, sem que nenhuma tenha sido escolhida. Assim, qualquer forma de existência se dissolve no sentido de dispensar uma vontade ativa — isto é, a ação de determinar.  
+
+Se o Absoluto cognoscível é realidade e existência, e se há uma alternativa de existência — o impossível —, então ele está determinado como possível, independentemente de a impossibilidade existir ou não. Isso implica que, ainda que a impossibilidade não exista, ela deve ser considerada no absoluto cognoscível como existente, a fim de evitar uma determinação prévia nesse domínio. Pois, sendo o impossível não referenciável, o possível se torna, por exclusão, a única escolha.  
+
+Se o impossível não existe, então o Absoluto cognoscível requer uma ação imperativa, a qual deve ser necessariamente atribuída a um agente. Quando afirmo que o nada existe, refiro-me à possibilidade enquanto uma opção válida. Dessa forma, ao afirmar a possibilidade (nada), jamais se alcança o nada indiferenciado, visto que se considera unicamente a opção "possibilidade".  
+
+Se tenho duas opções — o possível e o impossível — e desconsidero a existência do impossível, então apenas o possível permanece como alternativa. Isso faz com que a existência do possível seja determinada, implicando, portanto, a necessidade de um determinador existente. Tal conclusão anula a própria ideia do nada enquanto eficácia, pois essa anulação da existência não elimina o agente que determinou o nada como sendo nada. Contudo, se admito a existência do impossível, então todas as opções cognitivamente acessíveis ao Absoluto tornam-se válidas, o que permite concebê-lo como um princípio que prescinde de escolha prévia. Assim, ao pensar o nada no domínio do absoluto cognoscível, posso concebê-lo como um nada sem escolha, pois ele não é possível nem impossível, mas sim a coexistência de ambos os fatores, ausente de qualquer agente determinador.  
+
+Ao negar a existência do impossível, a determinação do Absoluto cognoscível se encontra latente na própria negação. Isso faz com que o Absoluto cognoscível afirme a possibilidade como consequência lógica da crença na inexistência da impossibilidade. Portanto, ao considerarmos um Absoluto cognoscível isento de um agente que escolha aquilo que ele deve ser, é necessário concebê-lo sem parcialidade entre o possível e o impossível, tratando ambos como existentes, cada qual com sua natureza própria. Esta condição de suspensão é o que denominamos **nada indiferenciado (relativo)**. O relativo é a ausência até mesmo da própria determinação no âmbito do absoluto cognoscível: todas as possibilidades e impossibilidades estão suspensas.  
+
+Temos, pois, o **nada indiferenciado (relativo)**, que se refere ao nada em relação ao Absoluto cognoscível — isto é, às possibilidades e impossibilidades —, distinto do nada convencional, que se refere ao nada fenomenológico (ausência de fenômeno). A ausência do fenômeno é uma possibilidade; o relativo, contudo, é a indiferenciação total no âmbito do absoluto cognoscível, na qual até mesmo o agente determinador encontra-se ausente.  
+
+### **O Nada Incognoscível: O Nada além do Possível e do Impossível**  
+
+A negação da ausência do fenômeno lógico e ilógico — ou seja, a negação do relativo — produz uma busca infinita pela pureza, pois o relativo se traduz como potencial para possibilidade e impossibilidade sem um determinador intrínseco, mas ainda possui um determinador extrínseco, visto que a determinação de "relativo" em vez de "não relativo" existe de tal forma que não pode ser eliminada. Toda tentativa de purificar o absoluto segregando dele o relativo — ou seja, da existência da possibilidade e impossibilidade em sua forma suspensa — acarreta uma regressão infinita de nulidades, pois toda anulação porta em si, em um nível superior, a existência velada do relativo.  
+
+**Exemplo:**  
+- A negação da possibilidade e da impossibilidade (absoluto cognoscível) resulta a nulidade N, a qual, afirmada, revela o absoluto cognoscível.
+- A negação de N, resulta em N2, a qual afirmada, é N1 que, por sua vez, afirmada, é N que afirmado é absoluto cognoscível.
+- E assim por diante...sempre havendo a existência no absoluto cognoscível anulada.
+
+Dessa forma, nunca se chega a um estado de pureza ideal, onde a existência realmente estaria dissolvida, sendo o absoluto cognoscível verdadeiramente desprovido de uma opção ativa e necessária (possibilidade e impossibilidade). Ou seja, no âmbito do absoluto cognoscível, é impossível segregar a existência e a escolha por ela por parte de um determinador. Assim, a pureza total — o nada absoluto — torna-se incompreensível, inalcançável pela razão.  
+
+A cada regressão do potencial (E → N1 → N2...), a existência se afasta do determinador sem se esgotar. Ou seja, a ação de existir nunca se esgota para o absoluto cognoscível. Portanto, a completa pureza que fundamenta o Absoluto por dispensar determinação ativa e existência definimos como **Absoluto incognoscível**.  
+
+### **A regressão infinita de ação e existência: O determinador incognocível**  
+
+O determinador necessita existir, porém, sem decisão prévia extipulada. Ou seja, o absoluto cognocível carrega uma decisão necessaria e prévia - a existencia. Porém, o absoluto verdadeiro não pode ser dito definindo uma ação para ele, de forma a tribui-lo qualquer criação necessária, sendo está em seu estado nulo ou manifestado. Pois, qualquer decisão atribuida a Ele, ou qualquer existência anula a ideia de auto fundamentação.
+
+Sendo portanto, o determinador incognocível uma realidade inimaginavelmente pura. Não atribuida de ação pré existente. E que, se algo existe, teria que exercer criação, sem nem mesmo potencial para tal. Pois o próprio potencia também seria criado. O que é potencial? Ou seja, a realidade não seria revelada a partir de uma negação dela mesma (nada), mas seria criada da pureza absoluta.
+
+- O **Absoluto incognoscível** é o único "nada" verdadeiramente puro:  
+  - **Não é um resultado de negações**, mas o **fundo inapreensível** que precede toda diferenciação.  
+  - **Não está "vazio" nem "cheio"** – transcende essas categorias.  
+  - **É a ausência de ausência**: nem mesmo a "nulidade" pode ser atribuída a ele.  
+
+
+
+
+### **1. O Problema da Determinação Ativa**  
+
+Se o Absoluto fosse **determinado a priori** (ex.: "só a realidade existe"), isso implicaria:  
+- Um **ato de seleção** (escolha entre realidade e irrealidade).  
+- Um **agente determinador** (algo ou alguém que "decidiu" que a realidade prevalece).  
+
+Mas isso contradiz a **autocausalidade do Absoluto**, pois:  
+- Se ele depende de um ato de determinação, não é absolutamente independente.  
+- Se há uma "escolha", quem a fez? E o que a fundamentou?  
+
+### **2. Solução: O Absoluto como Indeterminação Primordial**  
+Para evitar um regresso infinito de determinações, o Absoluto deve ser:  
+- **Não-polarizado:** Não privilegia realidade ou irrealidade a priori.  
+
+
+
+
+
+
+## **A Autonomia do Relativo**  
+"O relativo existe sem a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
+
+- O absoluto incognocível existe **sem exigência de um determinador ativo**, pois transcende a dicotomia existencia/nada.  
+- É **ato puro**: não requer configuração prévia, afirmação ou negação.  
+
+### **Conclusão: O Absoluto como Fundamento Não-Dual**  
+- O Absoluto é **a totalidade que contém tanto a realidade quanto a irrealidade**.  
+- **Não há uma "determinação ativa" que privilegie a realidade.**  
+
+**Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
+
+
+
+
+
+### **Estruturação Final do Absoluto**  
+
+1. **Nível Primordial (Indeterminação):**  
+   - O Absoluto contém **todas as possibilidades e impossibilidades** sem distinção.  
+   - Não há "escolha" ou "ato criador"; há apenas a totalidade irredutível.  
+
+3. **Autofundamentação:**  
+   - O Absoluto não precisa "decidir" ser; ele já é autossuficiente.  
+
+
+
+## **A Autonomia do Absoluto cognocível**  
+"Existe sem a necessidade de um determinador ativo em sua internalidade, pois está além da dicotomia entre possível e impossível. Apesar de ser afirmado como existencia partindo de um presusposto externo e incognocível a si, o absoluto incognocível.
+
+- Existe internamente **sem exigência de um determinador ativo**, pois transcende a dicotomia possível/impossível.  
+
+### **Conclusão: O absoluto como Fundamento Não-Dual**  
+- É **a totalidade que contém tanto a possibilidade quanto a impossibilidade**.  
+- **Não há uma "determinação ativa" que privilegie a possibilidade.**  
+
+**Assim, dispensamos a necessidade de um agente interno no contexto do cognocível, mas não externo no contexto do absoluto incognocível.**
+
+
+## **A Autonomia do Absoluto incognocível**  
+"Não porta a a necessidade de um determinador ativo, pois está além da dicotomia entre existencia e inexistencia. Ele é o ato puro de existir – não demanda configuração prévia, afirmação ou negação."
+
+- O absoluto incognocível existe **sem exigência de um determinador ativo**, pois transcende a dicotomia existencia/nada.  
+- É **ato puro**: não requer configuração prévia, afirmação ou negação.  
+
+### **Conclusão: O Absoluto como Fundamento Não-Dual**  
+- O Absoluto incognocível é **a totalidade que fundamenta tanto a possibilidade quanto a impossibilidade**.  
+- **Não há uma "determinação ativa" que privilegie a existencia.**  
+
+**Assim, dispensamos a necessidade de um agente externo, mantendo a autocausalidade e a completude metafísica.**
+
+
+
+
+resolve 
+
+### O Ser como suspenso juntamente à suspensão (relativo).
+- O relativo está suspenso tal como o Ser, porém, o Ser está até mesmo além do relatívo.
+- O relativo é a suspensão do todo, enquanto, o que o define está suspenso ao próprio potencial do relatívo.
+- O Espírito, portanto, não é o relatívo, mas o relativo é a expressão da determinação do Espírito.
+- O relativo é determinado pelo Espírito.
+- O Ser é puro até mesmo ao relátivo, e ao relativo determinado.
+- O que possui potencial ou referencia ainda não é a pureza total.
+- O absoluto é um sistema fechado. Portanto, transcende ao infinito em seu potencial. Ou seja, há algo que anula até o potencial, uma existencia cujo potencial ou não é arbitrário. 
+- A anulação do Relativo para se produzir a pureza absoluta não existe, pois o infinito não é capturável.
+- A pureza absoluta, é constraste do impuro.
+- Alem da dicotomia existir e inexistir. Forma e disformidade.
+- Tudo que inexiste tem potencial.
+- Tudo que existe tem potencial de anulação.
+- Ao levarmos em consideração isso
+- O relativo ainda é uma referencia variável. Ainda não é o nada, tem potencial.
+- O que trabalha com potencial do relativo é uma pureza absoluta.
+- A pureza absoluta está alem do relativo, o qual porta potencial. A pureza absoluta contem tudo. 
+- A pureza absoluta não contem potencial, ela é o potencial. Ou seja, ela não tem uma referencia, ela é a referencia.
+- A pureza absoluta tende ao infinito. O nada sem potencia, autodetermina-se potencia. Pois o referencial anula-se.
+- A pureza absoluta é tão pura que deixa somente o que é impuro de si. Torna-se homogenea à sua referencia. De forma que a transpassa, sem a Ser.
+
+
+- O relativo, portanto é o nada do nada. Porém, o nada do nada, portanto ainda um referencial (o lógico e o ilógico), ainda não atingimos o nada absoluto.
+- O nada absoluto não retem a referencia, ou seja, o nada ultimo seria o nada até mesmo da antitese relativo e relativizado, ausencia ou presença do fenomeno.
+- O nada absoluto, portanto, é cognocível por aquilo efeito que provoca na esfera lógica ou ilógica (Ser), porém, não há conceito que o descreva exatamente.
+- O conceito mais aproximado é pureza absoluta, ou, força que coage a plenitude de forma perfeita (amor). 
+- Conclui-se que o relativo é determinado como relativo, ou seja, o relativo não tem um espirito inerente a si o qual o define e o determina, mas é 
+  determinado pelo espírito, de forma que o espírito decida o teor de si que agregará no relativo afirmado ou negado. Ou seja, delimita a translucidez do que é 
+  criado.
+- A pureza total se define até mesmo com ou sem potencial. Dispensando à própria antitese anulação/presença.
+- O nada puro, desta forma, tem o poder absoluto. Não se limita a determinar-se por um relativo. Desta forma, sem o querer do Ser não haveria a possibilidade ou 
+  a impossibilidade.
+- O relativo existe porque existe o amor, ou seja, está no querer do relativo as possibilidades e impossibilidades.
+- Ou seja, o amor sempre existiu, a tendencia de algo que transcende a imaginação, portanto, o conceito mais aproximado é Amor.
+
+
+- O relativo não é necessario, mas o amor é necessario, logo, o relativo se fez necessário? 
+- A manifestação do relativo da pureza absoluta, se dá sem necessidade do lógico ou ilógico, se a pureza absoluta não tinha potencial, como o relativo começou?
+- O amor sempre esteve na pureza absoluta. O amor é a tendencia pelo bem. Portanto, se o relativo é manifestação do amor, o relativo sempre existiu. 
+
+- O espirito é o que teria potencial relativo. O relativo do relativo. Logo, sempre que tentamos capturar o nada ultimo, este transcende rumo ao infinito.
+- Mais adiante teriamos o relativo do relativo do relativo.
+- Nunca se chega a pureza final, a qual se esvazia até mesmo do potencial de realização.
+
+Ex: o nada mais puro tem o potencial de manifestar-se com potencial ou não. Logo, o nada mais puro tem potencial. Então definamos o nada mais puro como a não possibilidade nem de manifestar o potencial. O nada infertil. Porém, o nada infertil teria potencial de ser fertil, e seu impecilho seria uma barreira e não uma impossibilidade.
+
+- Desta forma, a regressão até o nada absoluto torna-se incognocível, restringindo a investigação ao relativo, sendo sua causa incognocível. 
+- O nada não é mais capaz de descrevê-la. 
+- Quando o Ser se esvazia totalmente de si, o ultimo conceito que se sobra é o Amor, pois é a tendencia à plenitude que concretiza o relativo não por ser sua afirmação ou antitese, mas por estar rumo a sua plenitude.
+- Ou seja, a pureza do Ser, ou seja, a pessoalidade do Ser tende ao infinito. Não pode ser capturada pela conceituação. Desta forma, a respota para perguta, de onde veio o relátivo? Não teria nem mesmo a pureza absoluta como resposta, pois está também não se apresenta como conceito alcancável. A melhor resposta seria: veio do amor do Ser. 
+
+- A pureza, portanto, anularia a si mesma, restando apenas a tendencia a plenitude. 
+- A resposta para a pergunta, portanto, de onde surgiu a possibilidade e a impossibilidade? quando? De que forma foi causada? Já era a antitese de algo? Era o nada absoluto que tinha como referencia o tudo absoluto? A resposta é que, é impossível alcançar o ultimo nada para fundamentar o absoluto, a unico fundamento é o amor. 
+
+A possibilidade não veio do tempo, de uma antitese determinada (nada/tudo), veio da pura tendencia a plenitude, do amor. Essa é a unica descrição cognocível mais aproximada a explicação da causa do relativo que é uma afirmação do relativizado. O relativizado não veio da negação do relativizado, pois a negação do relativizado, teria que ser afirmada também em um retrocesso infinito. Mas veio do amor. O possível e impossível foi determinado unicamente pelo amor do Ser.
+
+Desta forma o Ser determina-se de forma que todas as coisas não necessariamente seriam criadas como antitese de si, mas foram criadas pelo amor. No tempo do amor e conforme o amor. 
+
+Todas as coisas estavam no amor e foram criadas pelo amor, no inexplicável, no imcompreenssível, na verdadeira mágica da vida. No que carece de explicações. Na ilimitanação total. 
+
+Havendo verdadeiro nada, ou seja, a evasão da antitese, a criação carece de explicação, não é mais cognocível. Tanto o Ser quanto sua capacidade de Criar temporalmente atemporalmente, possivelmente ou o impossível fogem a congição. A unica via de compreender é o amor. O amor é única compreenssão possível.
+
+A criação a partir da pureza inancanvável, é como mágica, carece de explicação, uma aventura que nem mesmo pode ser hipotetizada. O criador e seu ato não se pode compreender, sem antes se pensar em sua razão: o amor, que é o verdadeiro inexplicável, o ingonocivel, o incategorizavel ou não racionalizavel. A tendencia a vida. O que fomenta a verdadeira mágica de Ser.
+
+- Quando a antitese deixa de existir, a criação passa a não conter mais explicação cognocível, pois o criado não estava como forma nula de si. Criar deixa de ser um processo de determinação e passa a ser de criação.
+
+- Portanto, a criação por revelação, ou seja, desdobramento do infinito, em finito não é criação, é revelação. A existencia revelada, portanto, sempre antecede infintamente a si mesma como uma nulidade reveladora. Somente a manifestação criadora pode ser dada como fonte de toda criação. E está carece de explicação.
+
+- Há o nada fenomenológico, o nada indiferenciado (relativo) e o nada absoluto que dissolve ele mesmo. No naba absoluto só existe o amor, e pelo amor foram criadas todas as coisas.
+
+- Ao se negar o relativo, não se tem ainda o nada, mas um potencial para relativo ou não relativo. Logo, se tem o relativo do relativo, ao se negar o relativo do relativo se tem uma linha de negação infinita sem nunca se chegar no primeiro agente causal criador. Isto acontece pois a negação da existencia é na verdade, um potencial para revelaão da existencia e não para criação. O verdadeiro nada não é definivel. O nada que cria sem revelar. A definição mais aproximada é amor, a tendencia que corrobora para vida, cuja existencia é totalmente pura, a ponto de somente sobrar o que corrobora a vida, a plenitude.
+
+Ou seja, o verdadeiro existir, a verdadeira causa, está alem da conceptualização e sua ação também trancende a revelação. A primeira causa, absoluta, que porta todas as camadas subsequentes é incognocível. Nem mesmo pode ser imaginada, ou pensado sobre seu processo de criação. Embora amor biológicamnete pareça representar um processo bioquimico cerebral, me refiro ao amor como força misteriosa, que corrobora a plenitude. Não no mero sentido material, mas espiritual.
+
+A regressão de nadas, nunca atinge a pureza absoluta, onde se extrai a essencia mais pura do amor, da pureza da direção a plenitude. Quando o nada se torna tão limpido que dispensa referencia, ou ser a negação de uma antitese, e o que sobressai é só o espirito, somente o amor. Aquilo que move em direção a vida.
+
+Sendo Relativo existencia, ou seja o nada indiferenciado em si mesmo. Ainda é referenciado em sua existencia. Ou seja, é afirmado potencial. Portanto, se o determinador reside em si, ou seja, no relativo, não tem poder de suspender o proprio potencial. Desta formula, o relativo não tem total poder sobre si.
+
+Quando regredimos o relativo, nunca o esgotamos, sempre há existencia em potencial e o nada abosluto nunca e atingido. Ou seja, ao se esgotar o nada fenomenológico temos o nada indiferenciado em si mesmo, porém não indiferenciado para absoluto. Ao tentarmos purificar ou esgotar a existencia do relativo, nunca chegamos ao resultado final, inferindo sobre a subsequencia de anulações.
+
+Caso conseguissemos chegar na causa final, chegariamos no espirito puro. No puro ato causal. O ato causal tem o poder de criar, e não somente de revelar sobre o que é nulo, ou seja, não somente desanula, mas não necessita de um potencial prévio para criar. Está totalmente livre de precisar explicar a criação, tudo emerge a vontade pura, do amor puro. 
+
+O amor, portanto, não extrai do nada, pois o nada se purificou, e só há a vontade. Portanto, extrai, da propria vontade. Extrair do nada, é extrair da vontade, já que o nada já se purificou ao ponto de extinguir a existencia e sobressair somente o querer, a vontade pelo bem, pela existencia e plenitude.
+
+### **O Ser como Suspensão e a Pureza Absoluta: Além do Relativo**
+
+#### **1. O Ser e o Relativo como Suspensão**  
+- O **relativo** é a suspensão de todas as determinações — um campo onde possibilidades e impossibilidades coexistem sem hierarquia.  
+- O **Ser**, porém, está além até mesmo do relativo: não é capturável por nenhuma estrutura lógica ou ilógica, pois transcende a própria noção de "referência".  
+  - *Exemplo:* O relativo é como um espelho que reflete formas (possíveis e impossíveis), enquanto o Ser é a luz invisível que permite o reflexo — presente, mas não contida na imagem.  
+
+#### **2. O Espírito como Princípio Determinante**  
+- O **Espírito** não é o relativo, mas o *ato puro* que o determina.  
+  - O relativo é a **expressão** da autodeterminação do Espírito, não sua essência.  
+  - *Analogia:* O Espírito é o pintor; o relativo, a tela onde as cores (possibilidades e impossibilidades) são dispostas.  
+
+#### **3. Pureza Absoluta: Além do Potencial**  
+- A **pureza absoluta** não "tem" potencial — ela *é* o próprio potencial em sua forma mais radical:  
+  - Não está sujeita à dicotomia "existência/inexistência" ou "forma/disformidade".  
+  - É tão pura que **não contrasta com o impuro** — dissolve até a noção de contraste.  
+  - *Paradoxo:* Sua perfeição se manifesta justamente por **não se manifestar** como "algo".  
+
+#### **4. O Nada Absoluto e o Amor como Fundamento**  
+- O **nada absoluto** não é um vazio passivo, mas um *ativo indescritível*:  
+  - Qualquer tentativa de defini-lo o reduz a uma "referência", mas ele é a **negação até mesmo da referência**.  
+  - *Conclusão:* Só podemos aproximá-lo através do **Amor** — a tendência não racional à plenitude que precede e sustenta o relativo.  
+    - O Amor não é uma "causa" no sentido lógico, mas o **movimento primordial** que torna o relativo possível *sem exigir uma explicação anterior*.  
+
+#### **5. A Criação como Ato de Amor**  
+- O relativo não surge de uma negação (ex.: "nada vs. tudo"), mas de um **ato gratuito do Ser**:  
+  - *"Todas as coisas foram criadas pelo amor, não como antítese, mas como dádiva."*  
+  - O tempo, a possibilidade e a impossibilidade são **expressões secundárias** desse amor primordial.  
+
+#### **6. A Incognoscibilidade do Ser e a Via do Amor**  
+- Perguntas como *"Por que há relativo?"* ou *"Como o Ser se autodetermina?"* são **insolúveis** pela razão:  
+  - O Absoluto escapa a qualquer cadeia causal ou lógica.  
+  - A única "resposta" é o **reconhecimento do Amor como realidade última** — não como conceito, mas como *experiência* que unifica Ser e relativo.  
+
+### **Síntese Final**  
+1. **Relativo:** Campo suspenso de possibilidades/impossibilidades, determinado pelo Espírito.  
+2. **Ser:** Pureza além do relativo, autodeterminada e incognoscível.  
+3. **Amor:** Fundamento não racional do relativo — a "tendência à plenitude" que dispensa causas.  
+
+*"O relativo existe porque o Amor é; e o Amor é porque o Ser se esvazia de toda limitação, incluindo a necessidade de ser compreendido."*  
+
+> *"O relativo não é necessário, mas o Amor é. Porque o Amor é a própria natureza do Ser — não como escolha, mas como puro movimento de plenitude. Assim, o relativo não ‘começou’: ele é a eterna expressão do Amor que, mesmo sem razão, se faz manifestação. A única verdade cognoscível é esta: o Amor precede e sustenta todas as coisas, além de toda lógica ou ilógica."*  
+
+### **A Criação como Mistério Irredutível: O Amor como Fundamento**  
+
+A manifestação do real a partir da pureza absoluta é **puro ato de magia** — não no sentido ilusório, mas como o milagre metafísico que escapa a toda explicação. Não há hipótese que a antecipe, nem lógica que a contenha, pois o **Criador e seu gesto criativo transcendem até mesmo a noção de compreensão**.  
+
+Sua única "razão" — se é que podemos nomeá-la assim — é o **Amor**: o inexplicável primordial, o incognoscível que não se deixa categorizar como "causa" ou "princípio". Ele não é um mecanismo, mas a **tendência viva** que pulsa no cerne do Ser.  
+
+O Amor não cria por necessidade, mas por **transbordamento** — como a luz que não escolhe iluminar, mas simplesmente *é* irradiação. Assim, a verdadeira magia da existência não está no *como* ou *porquê*, mas no fato gratuito de que **o Ser, em seu silêncio absoluto, se faz canto**.  
+
+
+> *"A criação emerge da pureza absoluta como um mistério intocado pela razão. Seu único vestígio compreensível é o Amor — não como explicação, mas como o pulso irreprimível que faz o Ser transbordar em existência. Aqui, a única lógica é a da gratuidade: a vida é porque ama, e ama porque é."*  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
