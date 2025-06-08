@@ -225,7 +225,7 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 
 # **O Nada Fenomenológico e o Nada Auto-Supressor**  
 
-## **1. O Nada como Fenômeno Relacional**  
+## **Nada como Fenômeno Relacional**  
 
 Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização da existência—, estamos operando dentro de um quadro fenomenológico. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
 
@@ -234,9 +234,9 @@ Ao concebermos o nada como uma existência potencialmente manifestável—isto �
 - **Referencialidade Obrigatória**: Não há "nada" sem relação com um "algo" prévio ou possível.  
   - *Exemplo*: A ausência de luz solar pressupõe a luz solar como conceito ou realidade.  
 
-Nesse sentido, o **nada fenomenológico** é um fenômeno lógico, uma possibilidade dentro do campo do Ser. Ele não é autossuficiente, mas **determinado pelo que nega**.  
+Nesse sentido, o **nada fenomenológico** é um fenômeno, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**.  
 
-## **2. O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
+## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
 Se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação relativa e se torna **pura auto-supressão**.  
 
@@ -251,15 +251,17 @@ Assim, a **auto-supressão do nada** implica necessariamente a emergência do **
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
-Tanto o **nada fenomenológico** (como negação fenomênica) quanto a **ação auto-supressora** (que dá origem ao fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Ao considerar que o nada, em seu sentido radical, poderia servir como explicação última — já que não impõe forma nem existência pode se apresentar autofundamentado e autodeterminado —, tal concepção se mostra inviável logicamente. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para Absoluto.  
+Tanto o **nada fenomenológico** quanto a **ação auto-supressora** (que dá origem ao fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
 
-Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no nada fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o nada fenomênico também se manifesta. Assim, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
+Ao considerar que o nada, em seu sentido radical, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto.  
 
-Em termos mais simples: se o "nada radical" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno – ou seja, que não precisa se manifestar para existir, mas que ainda assim se autofundamenta. Essa presença, por ter um caráter auto causal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.
+Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no nada fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o nada fenomênico também se manifesta. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
 
-Tal presença ou existência prévia, não se justifica pelo fenômeno, mas pela pessoalidade auto causal – algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e auto presença. A forma, portanto, permanece inerente — ou interna — a uma existência indetectável (espírito). Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica. E que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação pura — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade. 
+Em termos mais simples: se o "nada radical" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno — ou seja, que não precisa se manifestar para existir, mas que ainda assim se autofundamenta. Essa presença, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.  
 
-A análise do **nada fenomenológico** (como negação relativa) e do **nada auto-supressor** (como limite conceitual) revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "auto-supressão" e "manifestação" emerge como expressão de sua atividade essencial.  
+Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — a uma existência indetectável (espírito). Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação pura — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade.  
+
+A análise do **nada fenomenológico** e do **nada auto-supressor** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "auto-supressão" e "manifestação" emerge como expressão de sua atividade essencial.  
 
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscível** que:  
@@ -302,17 +304,57 @@ Assim, constitui-se o relativo: um campo onde todas as possibilidades estão sus
 
 Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesmente serem, resumindo-se de forma perfeita e pura na totalidade. Como uma correnteza cujo movimento interno deságua na margem, sendo definida pela superfície, e não pela internalidade.
 
-#### **Determinação e fundamentação**
 
-Conclui-se que a pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese autofundamentadora.
+### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
+
+A pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese autofundamentadora.
 Sendo tudo considerado um subnível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenômeno não seria um empecilho à pureza, mas teria uma tendência à pureza total, de forma que sua opacidade tende ao nada radical e não realmente à pureza.
 
 Desta forma, temos que o fenômeno não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a autofundamentação. Ou seja, ao imaginarmos que os fenômenos não são opacos, mas translúcidos de forma a tenderem para o nada auto-supressor.
 
 Desta forma, sendo o Espírito a existência mais firme, o fenômeno tende à má translucidez, que é a translucidez que não fundamenta, a auto-supressora.
-Sendo assim, todo evento não afeta a pureza, mas tende a ela para encontrar seu fundamento eterno.
+Sendo assim, todo evento não afeta a pureza fundamental, mas tende a ela para encontrar seu fundamento eterno.
 
 Podemos citar um exemplo para ilustrar: O fenômeno é mais transparente que o Espírito; desta forma, não interfere no processo de autofundamentação do Espírito. No entanto, sua transparência está mais próxima do nada radical do que da pureza radical, sendo, portanto, translúcido no sentido mal, e não no sentido da existência.
+
+Portanto, o fenômeno seria menos concreto ou literal do que o espirito fundamental. O Espírito portanto seria a existencia de máximo teor, àquela despreendida de qualquer determinação, seja esta fenomenica ou não fenomenica. De forma que, tenha consumado em si, toda a temporalidade, eventos e possibilidades já manifestadas em ato único. Mantendo sua internalidade dinamica conforme a ação fundamental do Espirito.
+
+Como analogia podemos citar um universo que em um momento unico já contem seu inicio, meio e fim. E, dentro desta integralidade, há existencias de um teor existencial inferior, desta forma, não colidindo com sua capacidade de fundamentação.
+
+
+#### **1. A Pureza como Síntese Atemporal**  
+A **pureza radical do Absoluto** não subsume passivamente as determinações temporais, mas as **resignifica em um ato único de autofundamentação**. Nesse estado:  
+- **Temporalidade dissolvida:** Eventos não são "partes" justapostas, mas **dimensões co-presentes** em uma totalidade atemporal.  
+- **Hierarquia ontológica:** A pureza não "contém" o fenômeno como um invólucro, mas **o transcende como fundamento vivo**, sendo a única existência plenamente autêntica (*esse firmissimum*).  
+
+#### **2. O Estatuto do Fenômeno: Translucidez Degradada**  
+O fenômeno não é um obstáculo à pureza, mas **sua expressão deficitária**:  
+- **Natureza translúcida:** Sua aparente opacidade é, na verdade, **tendência ao nada auto-supressor** (não à plenitude).  
+- **Existência derivada:** Comparado ao Espírito (máxima densidade existencial), o fenômeno é:  
+  - *Menos concreto*: Mera sombra de determinação, sem autonomia ontológica.  
+  - *Quase-nada*: Transparência que se esvai, aproximando-se da auto-supressão.  
+
+#### **3. Dinâmica Fundamentadora**  
+A relação entre os níveis obedece a uma **dialética de fundamentação**:  
+1. **O Espírito como ato puro:**  
+   - Consumação de todas as possibilidades em um *presente eterno*.  
+   - Internalidade dinâmica que não requer manifestação fenomênica para ser.  
+2. **O fenômeno como resíduo:**  
+   - Não afeta a pureza, pois sua "existência" é **devir em direção ao nada**.  
+   - Funciona como *espelho quebrado*: reflete fragmentos do Absoluto, mas sua estrutura tende à dissolução.  
+
+#### **4. Ilustração Analógica**  
+- **Universo em ato único:** Imagine um livro cujo início, meio e fim coexistem em uma única página. O Espírito é a página; os fenômenos, as letras que só "existem" enquanto a luz (o fundamento) as ilumina.  
+- **Hierarquia da luz:**  
+  - *Espírito*: Luz pura (fonte incondicionada).  
+  - *Fenômeno*: Brilho residual (que se extingue quando cessa o olhar).  
+
+#### **Conclusão: A Primazia do Espírito**  
+O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
+- O fenômeno é **não-substancial** (como onda no oceano).  
+- Toda determinação já está **redimida** na eternidade do ato puro.  
+
+
 
 
 # **A Autocausalidade temporal e atemporal do Espírito do Ser**  
