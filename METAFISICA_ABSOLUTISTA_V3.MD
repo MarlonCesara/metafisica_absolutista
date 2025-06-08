@@ -249,15 +249,9 @@ Se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência d
 
 Assim, a **auto-supressão do nada** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
 
-
-
-
-
 ### **3. O Campo Relativo: O Absoluto Indiferenciado**  
 
-Tanto o **nada fenomenológico** (como negação fenomênica) quanto a **ação auto-supressora** (que dá origem ao fenômeno) são determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas (A ou B), mas abriga em si uma dinâmica de possibilidades determinantes.  
-
-No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
+Tanto o **nada fenomenológico** (como negação fenomênica) quanto a **ação auto-supressora** (que dá origem ao fenômeno) são determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas (A ou B), mas abriga em si uma dinâmica de possibilidades determinadas. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
 
 Ao considerar que o nada, em seu sentido radical, poderia servir como explicação última — já que não impõe forma nem existência pode se apresentar autofundamentado e autodeterminado —, tal concepção se mostra inviável logicamente. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar a existência.  
 
@@ -269,13 +263,25 @@ A forma, portanto, permanece inerente — ou interna — a uma existência indet
 
 E que é exterior a toda determinação interna. Ou seja, se existe uma ação pura — uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade.  
 
+Em termos mais simples: se o "nada radical" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno – ou seja, que não precisa se manifestar para existir, mas que ainda assim se autofundamenta. Essa presença, por ter um caráter auto causal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.
+
+Essa presença não se justifica pelo fenômeno, mas pela pessoalidade auto causal – algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e auto presença.
+
 
 #### **A Pureza do Relativo**  
-O **campo relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+
+Ao considerar que, a pessoalidade espiritual não carrega determinação (nada fenomenológico ou nada auto-supressor), mas se entrega como pureza absoluta. É possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o espirito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que ja esteja consumada e dissolvida no espírito.
+
+Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação.
+
+Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A causalidade é imanente** — não há "externalidade", apenas a totalidade autodeterminando-se.  
 
 É como uma **correnteza cuja essência é o próprio fluir**, não as águas que a compõem. O movimento não é imposto de fora, mas é a **próxima natureza da quietude**.  
+
+
 
 
 #### **Conclusão: O Relativo como Autoexpressão do Absoluto**  
@@ -3154,3 +3160,9 @@ Se a alma transcende toda existencia e inexistencia. Nao tendo amor, é equivale
 
 **Formulação final:**  
 > *"O Absoluto é tanto o fundamento de toda razão quanto o abismo que a dissolve. Cognoscível em suas manifestações, incognoscível em sua essência."*  
+
+
+
+
+
+- Em palavras mais simples, ao considerar que o nada radical não fundamenta, consideremos uma presença que dispensa fenomeno, ou seja, que ainda atua como auto-fundamentação, porém, que, por carregar teor auto causal, ou seja, um teor vivido, é eleita presença. Desta forma, há presença, ou seja, uma forma de existencia incognocível ao passo que há auto-causalidade. Há presença, não se justifica pelo fenomeno, mas pela pessoalidade auto-causal que determina a si, portanto tem agregada os fatores de uma persona: auto-consciencia, auto-dominio e auto-presença.
