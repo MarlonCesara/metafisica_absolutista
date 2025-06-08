@@ -427,7 +427,6 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 - **Temporalidade** → O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
 - A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
 
-
 ### **O Espirito como Causa de Si no Tempo e na Eternidade**  
 - **Fundamento** → O Espírito é **causa imediata** de sua existência (não precisa de "outro").  
 - **Autocontinuidade** → O Espírito é **causa contínua** de sua manifestação (gera tempo e espaço).  
@@ -435,6 +434,17 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 Isso unifica:  
 - **Eternidade** (Espírito em ato)  
 - **Temporalidade** (Espírito em processo)  
+
+Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognocível. 
+Na atemporalidade, todas as ações estão consumadas, de forma que a pureza atue como fundamento ainda que concomitantemente à determinações temporais.
+
+Conclui-se que, a pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma sintese auto-fundamentadora. 
+Sendo tudo considerado uma sub nível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenomeno não seria um impecilho à pureza, mas teria uma tendencia a pureza total de forma que sua opacidade tende ao nada radical e não realmente a pureza.
+
+Desta forma, temos que, o fenomeno, não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a autofundamentação. Ou seja, ao imaginarmos que os fenomenos não são opacos, mas translucidos de forma a tenderem para o nada auto-supressor.
+
+Desta forma, sendo o Espírito a existencia mais firme, o fenomeno tende a má translucidez, que é a translucidez que não fundamenta, a auto-supressora.
+Sendo assim, todo evento não afeta a pureza, mas tende a ela para encontrar seu fundamento eterno.
 
 
 
