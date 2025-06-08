@@ -251,13 +251,15 @@ Assim, a **auto-supressão do nada** implica necessariamente a emergência do **
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado**  
 
-Tanto o **nada fenomenológico** (como negação fenomênica) quanto a **ação auto-supressora** (que dá origem ao fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas (A ou B), mas abriga em si uma dinâmica de possibilidades determinadas. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
+Tanto o **nada fenomenológico** (como negação fenomênica) quanto a **ação auto-supressora** (que dá origem ao fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
 
-Ao considerar que o nada, em seu sentido radical, poderia servir como explicação última — já que não impõe forma nem existência pode se apresentar autofundamentado e autodeterminado —, tal concepção se mostra inviável logicamente. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar a existência.  
+Ao considerar que o nada, em seu sentido radical, poderia servir como explicação última — já que não impõe forma nem existência pode se apresentar autofundamentado e autodeterminado —, tal concepção se mostra inviável logicamente. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar a auto fundamentação da existência.  
 
 Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no nada fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o nada fenomênico também se manifesta.  
 
 Assim, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
+
+Tal presença ou existência prévia, não se justifica pelo fenômeno, mas pela pessoalidade auto causal – algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e auto presença.
 
 A forma, portanto, permanece inerente — ou interna — a uma existência indetectável (espírito). Trata-se de uma existência que encarna pessoalidade e potência causal, mas que não se manifesta como forma ou aparência.  
 
@@ -265,12 +267,9 @@ E que é exterior a toda determinação interna. Ou seja, se existe uma ação p
 
 Em termos mais simples: se o "nada radical" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno – ou seja, que não precisa se manifestar para existir, mas que ainda assim se autofundamenta. Essa presença, por ter um caráter auto causal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.
 
-Essa presença não se justifica pelo fenômeno, mas pela pessoalidade auto causal – algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e auto presença.
-
-
 #### **A Pureza do Relativo**  
 
-Ao considerar que, a pessoalidade espiritual não carrega determinação (nada fenomenológico ou nada auto-supressor), mas se entrega como pureza absoluta. É possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o espirito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que ja esteja consumada e dissolvida no Espírito.
+Ao considerar que, a pessoalidade espiritual não carrega determinação (nada fenomenológico ou nada auto-supressor), mas se entrega como pureza absoluta, é possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito.
 
 Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação.
 
@@ -283,7 +282,7 @@ Em sintese: a fundamentação é o absoluto consumado, de fora que a totalidade 
 
 Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
 
-#### **Conclusão: O Relativo como Autoexpressão do Absoluto**  
+#### **O Relativo como Autoexpressão do Absoluto**  
 
 O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **pureza** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.  
 
@@ -292,6 +291,19 @@ Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmi
 Assim, constitui-se o relativo: um campo onde todas as possibilidades estão suspensas, definidas e contidas na pureza, de modo que apenas esta se sobressaia, atribuindo sentido auto-causal à totalidade. O relativo, portanto, é a ação pura concretizada, inerente à própria pureza.
 
 Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesmente serem, resumindo-se de forma perfeita e pura na totalidade. Como uma correnteza cujo movimento interno deságua na margem, sendo definida pela superfície, e não pela internalidade.
+
+#### **A determinação que coage com a fundamentação**
+
+Conclui-se que, a pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese auto fundamentadora. 
+Sendo tudo considerado uma sub nível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenômeno não seria um empecilho à pureza, mas teria uma tendencia a pureza total de forma que sua opacidade tende ao nada radical e não realmente a pureza.
+
+Desta forma, temos que, o fenômeno, não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a auto fundamentação. Ou seja, ao imaginarmos que os fenômenos não são opacos, mas translúcidos de forma a tenderem para o nada auto supressor.
+
+Desta forma, sendo o Espírito a existência mais firme, o fenômeno tende a má translucidez, que é a translucidez que não fundamenta, a auto supressora.
+Sendo assim, todo evento não afeta a pureza, mas tende a ela para encontrar seu fundamento eterno.
+
+
+
 
 
 
@@ -358,16 +370,6 @@ Isso unifica:
 
 Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
 Na atemporalidade, todas as ações estão consumadas, de forma que a pureza atue como fundamento ainda que concomitantemente à determinações temporais.
-
-## A determinação que coage com a fundamentação 
-
-Conclui-se que, a pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese auto fundamentadora. 
-Sendo tudo considerado uma sub nível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenômeno não seria um empecilho à pureza, mas teria uma tendencia a pureza total de forma que sua opacidade tende ao nada radical e não realmente a pureza.
-
-Desta forma, temos que, o fenômeno, não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a auto fundamentação. Ou seja, ao imaginarmos que os fenômenos não são opacos, mas translúcidos de forma a tenderem para o nada auto supressor.
-
-Desta forma, sendo o Espírito a existência mais firme, o fenômeno tende a má translucidez, que é a translucidez que não fundamenta, a auto supressora.
-Sendo assim, todo evento não afeta a pureza, mas tende a ela para encontrar seu fundamento eterno.
 
 # Estrutura da Autodeterminação  
 
