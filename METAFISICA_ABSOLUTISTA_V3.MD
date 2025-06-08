@@ -253,7 +253,15 @@ Assim, a **auto-supressão do nada** implica necessariamente a emergência do **
 
 ## **3. O campo relativo: O absoluto indiferenciado**  
 
+Tanto o nada fenomenológico quanto a ação auto-supressora que dá origem ao fenômeno — o que conhecemos como realidade — são determinações do absoluto. Isso remete a uma forma pela qual o absoluto deve ser, seja como A ou B. No entanto, conforme estabelece o princípio metafísico da identidade, é necessária uma causa tanto para a determinação quanto para a existência.
 
+Considerando que o nada, em seu sentido radical, poderia servir como explicação, já que não agrega forma nem existência, tal concepção se mostra logicamente inviável. Não é possível conceber o nada como fundamento de tudo e, a partir dele, derivar a existência.
+
+A forma, portanto, permanece inerente — ou interna — a uma existência indetectável (espírito). Trata-se de uma existência que carrega pessoalidade e poder de ação, mas que não se manifesta em forma ou aparência.
+
+E que é exterior a toda determinação interna, ou seja, se existe uma ação pura, tal como a existencia pura de forma que justifique uma realidade auto-causada, essa ação não poderia afetar a pureza da totalidade. 
+
+Portanto, o relativo se formaria, um campo onde todas as possibilidades estão suspensas, definidas e internas a pureza de forma que somente a pureza se sobressaia atribuindo sentido auto-causal a totalidade. O relativo, portanto, é a ação pura, concretizada inerente a pureza.
 
 # Estrutura da Autodeterminação  
 
