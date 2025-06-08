@@ -277,11 +277,11 @@ Desta forma, o Espírito, sendo a consumação do processo deterministico, é po
 Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
 
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
-- **A causalidade é imanente** — não há "externalidade", apenas a totalidade autodeterminando-se.  
+- **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
 
-É como uma **correnteza cuja essência é o próprio fluir**, não as águas que a compõem. O movimento não é imposto de fora, mas é a **próxima natureza da quietude**.  
+Em sintese: a fundamentação é o absoluto consumado, de fora que a totalidade da soma dos eventos temporais, resultasse num momento único atemporal. Desta forma, a soma de todas as deterinações possíveis, impossíveis e incognocíveis, resulta na pureza em ato único.
 
-
+Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
 
 
 #### **Conclusão: O Relativo como Autoexpressão do Absoluto**  
