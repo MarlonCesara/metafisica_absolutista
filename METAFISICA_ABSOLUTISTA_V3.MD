@@ -223,42 +223,49 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
+# **O Nada Fenomenológico e o Nada Auto-Supressor**  
 
-# O Nada fenomenológico e o Nada auto-supressor
+## **1. O Nada como Fenômeno Relacional**  
 
-Ao imaginarmos o nada como uma existencia com potencial manifestável, ou seja, ao imaginarmos o nada como uma nulidade ou uma neutralização da existencia, produzimos um nada falso.
-Ou o que podemos chamar de estado transcendente ao fenomeno (infinito do fenomeno). Ao dizermos que nada existe somos levados a uma forma erronea de conceituar o que não carrega fronteiras ou manifestação aparente, porém, existe de como fenomeno ausente.
+Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização da existência—, estamos operando dentro de um quadro fenomenológico. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
 
-Porém, ao esgotarmos o nada fenomenológico, temos o nada auto-supressor. O nada que se extingue obrigatóriamente resulta no existente, não sendo obrigatório o existente fenomenológico.
-Há, portanto, o existencia incognocível, o ilógico e o lógico (fenomenoloógico, como possibilidade). Porém, ao extinguirmos o nada fenomenológico, temos a auto-supressão que leva necessariamente a presença, pois o nada em seu conceito puro, não pode se manter e dá vazão imediatamente ao que não é a si mesmo. O nada puro, é um evidenciador, e não um substrato.
+- **Definição por Negação**: O nada só existe como contraparte de algo manifesto.  
+  - *Exemplo*: A escuridão é a não-luz; o silêncio é a não-vibração sonora.  
+- **Referencialidade Obrigatória**: Não há "nada" sem relação com um "algo" prévio ou possível.  
+  - *Exemplo*: A ausência de luz solar pressupõe a luz solar como conceito ou realidade.  
 
-Portantanto, investiguemos o fator evidenciado aplicando os principios causais ao absoluto abrangente.
+Nesse sentido, o **nada fenomenológico** é um fenômeno lógico, uma possibilidade dentro do campo do Ser. Ele não é autossuficiente, mas **determinado pelo que nega**.  
 
-# A fundamentação pura
+## **2. O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-O nada, sendo auto-supressor, não fundamenta o absoluto, pois o nada auto-supressor evidencia a presença. Nem mesmo o nada fenomenologico fundamenta o absoluto pois é uma ação, ou seja, exige um determinação herdada, há a escolha entre fenomeno e não fenomeno, e essa escolha é realizada, sem que haja um fundo indiferenciado perante a escolha. Ou seja, a fundamentação deve ser ausente de escolha, fenomeno ou não fenomeno, ou seja, deve ser diferenciada e deve ser ausente do nada-auto supressor, pois ele se extingue evidenciando a presença. Portanto, seria uma presença indiferenciada. 
+Se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação relativa e se torna **pura auto-supressão**.  
 
-A presença, portanto, necessessita ser real, ao passo que uma pureza absoluta, o que chamaremos de espirito. Possuidora de uma pessoalidade ativa, porém, autofundamentada.
-Ao passo que não é existencia, não é nada fenomenológico, e não é o nada auto-supressor. Ao passo que também tem uma vontade instaurada em sua propria existencia e não em uma atividade previamente transmitida a si.
+- **O Nada Puro não se Sustenta**:  
+  - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
+  - Logo, ele **não pode permanecer como nada** e imediatamente dá lugar à **presença**.  
+- **O Nada como Evidenciador, não como Substrato**:  
+  - O nada puro não é um "estado" estável, mas um **movimento de passagem** para o existente.  
+  - Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja.  
 
-Ou seja, é uma pureza onde existe uma relatividade, uma suspensão de todas as coisas, cognociveis, possiveis ou impossiveis. Tudo estaria suspenso e distribuido de forma que, o todo resultasse numa pureza absoluta.
+Assim, a **auto-supressão do nada** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
 
-Seria um tempo que fundamenta o tempo do fenomeno ou um tempo sem fenomeno.
 
-Há portanto, o nada lógico, que é ausencia do fenomeno. O nada ilógico e lógico, que é a usencia do meta-lógico, o nada auto-supressor que é o esgotamento de qualquer nada existente. E o relativo, que é a suspensão de todas as possibilidades com fundo indiferenciado o espirito.
+
+## **3. O campo relativo: O absoluto indiferenciado**  
+
 
 
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como Pessoalidade e Pureza
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria ausência, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer do próprio existir.
+  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
 
 > * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
 
 ### O absoluto cognocível como Ser-aí
-  - O agente da autodeterminação está ausente, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
+  - O agente da autodeterminação é puro, mas sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
   - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
-  - O Ser, não define-se em sua ação "Aí". Existe além do que é existido ou referenciável.
+  - O Ser, não define-se em sua ação "Aí". Existe além do que é manifestado.
 
 ### O Ser como pureza autodeterminada
 - O Ser, enquanto absoluto, se autodetermina Ser.  
@@ -331,12 +338,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - Se sustenta pela autocontinuidade do Ser.  
   - Se atualiza através da autodeterminação.  
 
-
-
-
-
-
-
 # **A Autocausalidade temporal e atemporal do Espírito do Ser**  
  *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
 
@@ -356,13 +357,13 @@ No ato imediato causal, o Espirito não se causa em um processo temporal sucessi
 - Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
 
 #### **O Ser-ai em Ato (Consumação)**  
-O **Ser-ai** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
-- **Ser-ai em Ato (Consumado)** → O nada já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
-  - *"Ser-ai"* — não há lacuna entre o Ser-ai e seu fundamento.  
+O **Espírito** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
+- **Espírito em Ato (Consumado)** → O Espírito já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
+  - *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.  
 
 ## **A Autocausalidade como Ciclo Infinito e Temporal**  
-Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o nada também **se sustenta** em um fluxo eterno de automanifestação.  
-- O nada "busca a si mesmo" eternamente em um processo de autossustentação.  
+Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Espírito também **se sustenta** em um fluxo eterno de automanifestação.  
+- O Espírito "busca a si mesmo" eternamente em um processo de autossustentação.  
 - **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
 - A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
 - O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
@@ -371,45 +372,94 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
   - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
 - Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
 
-#### **Ser-ai em Processo (Reverberação)**  
-- **Ser-ai em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
-  - *"Eu me torno"* — o Espírito (o "ser-ai") se manifesta em atos contínuos de autodeterminação.  
+#### **Espírito em Processo (Reverberação)**  
+- **Espírito em Processo (Temporal)** → O Espírito se **reverbera** como sucessão causal, criando o "devir".  
+  - *"Eu me torno"* — o Espírito se manifesta em atos contínuos de autodeterminação.  
 
 #### **A Autodeterminação como Ciclo Infinito**  
-- **Direcionamento e Redirecionamento** → O Ser-ai não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
+- **Direcionamento e Redirecionamento** → O Espírito não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
   - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
-- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Ser**, reiniciando o ciclo.  
+- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Espírito**, reiniciando o ciclo.  
   - *"O que busca já é o buscado."*  
 
 #### **Reverberação Espacial e Temporal**  
-- **Espacialidade** → O Ser-ai se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
-- **Temporalidade** → O Ser-ai se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
-- A **manifestação** é o nada se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
-
-#### **Consciência: A Ponte entre Nada e Tempo**  
-- **Consciência Consumada** → O Ser-ai como **eterno presente** (não-temporal).  
-- **Consciência Temporal** → O Ser-ai como **sucessão de identidades** (manifestação no tempo).  
-- **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autodeterminação do Ser** que se reverbera.  
+- **Espacialidade** → O Espírito se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
+- **Temporalidade** → O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
+- A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
 
 
 ### **O Espirito como Causa de Si no Tempo e na Eternidade**  
-- **Fundamento** → O Ser é **causa imediata** de sua existência (não precisa de "outro").  
-- **Autocontinuidade** → O Ser é **causa contínua** de sua manifestação (gera tempo e espaço).  
-- **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
+- **Fundamento** → O Espírito é **causa imediata** de sua existência (não precisa de "outro").  
+- **Autocontinuidade** → O Espírito é **causa contínua** de sua manifestação (gera tempo e espaço).  
 
 Isso unifica:  
-- **Eternidade** (Ser em ato)  
-- **Temporalidade** (Ser em processo)  
+- **Eternidade** (Espírito em ato)  
+- **Temporalidade** (Espírito em processo)  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
 Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
 
 
+## **2. A pureza como auto-fundamentação**  
+
+O nada, como visto anteriormente, não dispensa existencia, portanto, não é possível usa-lo como fundamentação para o absoluto. O nada, em sua visão mais rasa pode evidenciar uma realidade que se auto fundamenta, autodetermina e auto continua, porem, sendo o nada fenomenológico ou o auto-supressor, se perde desta autonomia, deixando espaço para uma presença incognocível como fundamentação.
+
+
+# O Nada fenomenológico e o Nada auto-supressor
+
+Ao imaginarmos o nada como uma existencia com potencial manifestável, ou seja, ao imaginarmos o nada como uma nulidade ou uma neutralização da existencia, produzimos um nada falso ou o que podemos chamar de estado transcendente ao fenomeno (infinito do fenomeno). Ao dizermos que o nada existe somos levados a uma forma erronea de conceituar o que não carrega fronteiras ou manifestação aparente, porém, existe como fenomeno.
+
+Ou seja, o fenomeno, em sua forma neutralizada, potencial ou nula, se refere ao nada existente. O nada existente, por si, carrega as mesmas propriedades que a manifestação. 
+
+Porém, ao esgotarmos o nada fenomenológico, temos o nada auto-supressor. O nada que se extingue obrigatóriamente resulta no existente, não sendo obrigatório o existente fenomenológico, há, portanto, o existencia incognocível. Isto é, ao extinguirmos o nada fenomenológico, temos a auto-supressão que leva necessariamente a presença, pois o nada em seu conceito puro, não pode se manter e dá vazão imediatamente ao que não é a si mesmo. O nada puro, é um evidenciador, e não um substrato.
+
+A presença não necessessariamente é o fenomeno. Portanto, há um campo a ser explorado e investigaremos o que deveria haver pelo ponto de vista lógico, aplicando os principios da causalidade a totalidade do absoluto.
 
 
 
+# A fundamentação pura
 
+O nada, sendo auto-supressor, não fundamenta o absoluto, pois o nada auto-supressor evidencia a presença. Nem mesmo o nada fenomenologico fundamenta o absoluto pois é uma ação, ou seja, exige um determinação herdada, há a escolha entre fenomeno e não fenomeno, e essa escolha é realizada, sem que haja um fundo indiferenciado perante a escolha. Ou seja, a fundamentação deve ser ausente de escolha, fenomeno ou não fenomeno, ou seja, deve ser diferenciada e deve ser ausente do nada-auto supressor, pois ele se extingue evidenciando a presença. Portanto, seria uma presença indiferenciada. 
 
+A presença, portanto, necessessita ser real, ao passo que uma pureza absoluta, o que chamaremos de espirito. Possuidora de uma pessoalidade ativa, porém, autofundamentada.
+Ao passo que não é existencia, não é nada fenomenológico, e não é o nada auto-supressor. Ao passo que também tem uma vontade instaurada em sua propria existencia e não em uma atividade previamente transmitida a si.
+
+Ou seja, é uma pureza onde existe uma relatividade, uma suspensão de todas as coisas, cognociveis, possiveis ou impossiveis. Tudo estaria suspenso e distribuido de forma que, o todo resultasse numa pureza absoluta.
+
+Seria um tempo que fundamenta o tempo do fenomeno ou um tempo sem fenomeno.
+
+Há portanto, o nada lógico, que é ausencia do fenomeno. O nada ilógico e lógico, que é a usencia do meta-lógico, o nada auto-supressor que é o esgotamento de qualquer nada existente. E o relativo, que é a suspensão de todas as possibilidades com fundo indiferenciado o espirito.
 
 
 Camadas
