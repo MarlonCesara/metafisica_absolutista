@@ -1112,7 +1112,7 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
 
-> Conhecer o homem é conhecer Deus em sua multiplicidade, livre até mesmo de sua fundamentação necessaria rumo ao existir.
+> - "Conhecer o homem é conhecer Deus em sua multiplicidade, livre até mesmo de sua fundamentação necessaria rumo ao existir."
 
 Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica a respeito de Ser no Ser ou ser em si. Ou seja, existir em plenitude ou de forma não plena.
 
@@ -1138,10 +1138,6 @@ O Ser abrange:
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:  
 - Atos temporais.  
 - Presença (existência situada em um contexto temporal).  
-
-
-
-
 
 ## **A Transcendência do "Quem": O Ser além do Número, do Tempo e do Espaço**  
 
@@ -1212,7 +1208,6 @@ O Ser não pode ser reduzido a uma unidade contável:
      - Uma multiplicidade (individualizações de si mesmo).  
 
 *"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações de si mesmo)."*  
-
 
 # Dualidade Estrutural: Determinadores e Realidades  
 
@@ -1705,16 +1700,9 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 
 
-
-
-
-
-
-
-
-
-
-
+---
+---
+---
 
 
 
