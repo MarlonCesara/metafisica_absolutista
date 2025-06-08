@@ -1087,15 +1087,15 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 1. **Possui liberdade**.  
 2. **Pode autodeterminar-se ainda sendo aquilo que é determinado em um momento anterior**.  
 3. **Faz parte da natureza do Ser, porém como determinação de sua plenitude**.  
-4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
+4. **Pode determinar um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
 
 
 ## **A Distinção entre Ser e Sou**  
-O **Ser** representa o determinador ausente, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
+O **Ser** representa o determinador puro, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
 
 | **Termo** | **Natureza**                  | **Função**                                 | **Exemplo**                          |  
 |--|-|--|--|  
-| **Ser**   | Determinador ausente          | Ato puro de existir (fundamento impessoal) | "A água flui" – ação sem agente      |  
+| **Ser**   | Determinador puro             | Ato puro de existir (fundamento impessoal) | "A água flui" – ação sem agente      |  
 | **Sou**   | Determinador presente         | Ato personalizado (identidade afirmada)    | "Eu decido fluir" – ação com agente  |  
 
 - **Ser**:  
@@ -1106,11 +1106,13 @@ O **Ser** representa o determinador ausente, o fundamento impessoal da existênc
 
 *"O **Sou** é o determinador presente, a afirmação personalizada e numerável. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."* É possível haver inúmeros "sous" porém o Ser não é um ou muitos, simplesmente é.
 
-*"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."*  
+*"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."* Ou seja, o Ser é impessoal no sentido de ter um direcionamento puro à plenitude, sua pessoalidade é a própria tendencia ao perfeito e pleno. Desta forma, esta pessoalidade participa e compoe tudo o que corrobora para o existir.
 
 ## **A manifestação do(s) Sou(s)**  
 
-Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é o nada até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plentude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
+Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
+
+> Conhecer o homem é conhecer Deus em sua multiplicidade, livre até mesmo de sua fundamentação necessaria rumo ao existir.
 
 Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica a respeito de Ser no Ser ou ser em si. Ou seja, existir em plenitude ou de forma não plena.
 
