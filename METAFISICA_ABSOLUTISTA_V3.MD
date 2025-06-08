@@ -175,7 +175,7 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
   - **Não é um "ente" entre outros**, mas o fundamento último de toda diferenciação ontológica.  
   - **Não está confinado ao cognoscível**, pois inclui o inexprimível e o inapreensível pela razão discursiva.  
 
-### **A Causalidade no Âmbito do Absoluto**  
+# **A Causalidade no Âmbito do Absoluto**  
 Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.  
 
 - **Causalidade Absoluta:** O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.  
