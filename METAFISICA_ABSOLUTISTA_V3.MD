@@ -244,7 +244,7 @@ Como não há possibilidade de o fenomênico – ou seja, o dimensionável – m
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-Se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação relativa e se torna **pura auto-supressão**.  
+Se esgotarmos o campo fenomenológico—isto é, se removermos seu referencial como determinação para Absoluto—, ele deixa de ser uma afirmação e se torna **pura auto-supressão** e desta forma, o fenômeno não se sustenta.
 
 - **O Nada Puro não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
@@ -253,7 +253,7 @@ Se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência d
   - O nada puro não é um "estado" estável, mas um **movimento de passagem** para o existente.  
   - Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja.  
 
-Assim, a **auto-supressão do nada** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
+Assim, a **auto-supressão do existente** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
