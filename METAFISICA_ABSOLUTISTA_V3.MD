@@ -324,6 +324,10 @@ Portanto, o fenômeno seria menos concreto ou literal do que o espirito fundamen
 
 Como analogia podemos citar um universo que em um momento único já contem seu inicio, meio e fim. E, dentro desta integralidade, há existências de um teor existencial inferior, desta forma, não colidindo com sua capacidade de fundamentação.
 
+Concluimos que o conceito comum de "fantasmagorico" atribuido ao mundo espiritual, naturalmente deveria ser atribuido a materia, que seria realmente o elemeneto com menos densidade existencial. Ou seja, a materia seria uma transparencia, uma existencia fragmentada, destituida de plenitude. Em outras palavras, o mundo Espíritual é a base da exitencia enquanto o mundo fenomenico é um elemento fantasmagorico manifestado na temporalidade espiritual. Não se constitui, como vida e fundamento.
+
+O mundo fenomenico é uma projeção de existencia emergida do relativo, é a auto-supressão afirmada. De forma que, o Espirito contem todos os estados suspensos.
+
 #### **1. A Pureza como Síntese Atemporal**  
 
 A **pureza radical do Absoluto** não subsume passivamente as determinações temporais, mas as **resignifica em um ato único de autofundamentação**. Nesse estado:  
