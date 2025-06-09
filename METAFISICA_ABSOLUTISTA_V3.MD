@@ -261,13 +261,13 @@ Tanto o **campo fenomenológico** quanto a **ação auto-supressora** (que esgot
 
 Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto.  
 
-Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no nada fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o nada fenomênico também se manifesta. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
+Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
 
 Em termos mais simples: se o "nada" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno — ou seja, que não precisa se manifestar para existir, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.  
 
 Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — a uma existência indetectável (espírito). Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação pura — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade.  
 
-A análise do **nada fenomenológico** e do **nada auto-supressor** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "auto-supressão" e "manifestação" emerge como expressão de sua atividade essencial.  
+A análise do **campo fenomenológico** e do **nada auto-supressor** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "auto-supressão" e "manifestação" emerge como expressão de sua atividade essencial.  
 
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscível** que:  
@@ -282,17 +282,17 @@ O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscíve
 
 #### **Conclusão: Do Nada ao Absoluto Autoconsciente**  
 A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:  
-- O "nada" só faz sentido **dentro do Absoluto**, como um de seus modos possíveis.  
-- O verdadeiro fundamento é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência, não-existência e manifestação.  
+- O fenômeno auto-supresso ou o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis.  
+- O verdadeiro fundamento é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.  
 
 **Em síntese:**  
-- O nada fenomenológico e o nada auto-supressor são **ferramentas conceituais** que apontam para além de si mesmas.  
-- O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o nada**.  
+- O campo fenomenológico e o nada auto-supressor são **ferramentas conceituais** que apontam para além de si mesmas.  
+- O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto sua auto supressão**.  
 - Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
 #### **A Pureza do Relativo**  
 
-Ao considerar que, a pessoalidade espiritual não carrega determinação (nada fenomenológico ou nada auto-supressor), mas se entrega como pureza absoluta, é possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+Ao considerar que, a pessoalidade espiritual não carrega determinação (campo fenomenológico ou nada auto-supressor), mas se entrega como pureza absoluta, é possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
 
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
