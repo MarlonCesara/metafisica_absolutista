@@ -443,7 +443,22 @@ A alma apática é incapaz de encontrar estabilidade na indiferença. Para evita
 ### **Conclusão**  
 Enquanto as **almas do purgatório** vivem em um estado de esperança mínima, ainda que descontentes, as **almas apáticas** estão em constante fuga, usando mecanismos destrutivos para evitar encarar sua condição finita. Ambas representam estágios distintos de sofrimento espiritual, mas a apatia é marcada por uma desesperança mais profunda e ações autodestrutivas.
 
+### O mundo idealizado de Jesus
 
+- Jesus como humano e falho no sentido biológico, e com o seu ambito afetivo perfeito. Transcendeu sua sanidade em busca da cura da apatia. No sentido bom, em que, seu ambito afetivo nao suportou se definir como o homem apatico, pois de si deriva toda a vida e todo Sou. 
+
+Desta forma, Jesus, amando a nós como a si mesmo, manifestou uma doutrina contra a apatia que corrompe até mesmo o sentido lógico na tentativa de resgatar o apatico, através do ludico e do impossível.
+
+O fato de afirmar que sermos como anjos, meio deuses, é a ansia para que todo homem desperte da apatia e que nao haja mais esse mal no mundo. Jesus tinha uma respulsão a apatia que transgredia suas palavras diante da estrutura do Ser.
+
+A doutrina que fundamentou é formalizada com o intuito da aniquilação da apatia de forma definitiva.
+
+
+
+
+
+
+# Exitencialismo absolutista
 
 # **Visões do Inferno: O Resíduo**  
 
