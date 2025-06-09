@@ -244,7 +244,7 @@ Como não há possibilidade de o fenomênico – ou seja, o dimensionável – m
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-Se esgotarmos o campo fenomenológico—isto é, se removermos seu referencial como determinação para Absoluto—, ele deixa de ser uma afirmação e se torna **pura auto-supressão** e desta forma, o fenômeno não se sustenta.
+Se esgotarmos o campo fenomenológico—isto é, se removermos seu referencial como determinação para Absoluto—, ele deixa de ser uma afirmação e se torna **pura auto-supressão**.
 
 - **O Nada Puro não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
@@ -257,7 +257,7 @@ Assim, a **auto-supressão do existente** implica necessariamente a emergência 
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
-Tanto o **nada fenomenológico** quanto a **ação auto-supressora** (que dá origem ao fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
+Tanto o **campo fenomenológico** quanto a **ação auto-supressora** (que esgota o fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
 
 Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto.  
 
