@@ -236,9 +236,11 @@ Ao concebermos o nada como um campo fenomênico potencialmente manifestável—i
 
 Nesse sentido, o **nada fenomenológico** é um fenômeno, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. 
 
-Sendo a manifestação não consumada em si mesma, ou seja, havendo dimensionamento na mesma, torna-se impossível manifestar uma totalidade de si. Desta forma, a infinitude da manifestação, que seria o conceito mais aproximado de nada, nunca é atingido pela dimensão. 
+A manifestação, por sua própria natureza dimensionada, é incapaz de consumar-se como totalidade fenomenológica absoluta. Seu caráter necessariamente delimitado – seja por forma, medida, ou estrutura – impede a realização plena de uma manifestação infinita, que, em sua ausência de fronteiras, aproximar-se-ia do conceito de nada fenomênico.
 
-Tudo que é levado em nível infinito, dispensa medida, barreiras ou espaço, conceito equivalente ao nada fenomênico. Não havendo possibilidade para o fenomenológico, ou seja, o dimensionável, manifestar uma dimensão sem medidas, ou seja infinita (nada fenomênico), consideremos o conceito de nada como ausência existente do fenômeno infundado, como investigaremos melhor em outro capitulo.
+Se a manifestação em si não é consumada – isto é, se há dimensionamento nela –, torna-se impossível manifestar a totalidade de um fenômeno. Desse modo, a infinitude da manifestação, que corresponderia ao conceito mais próximo do "nada", jamais é alcançada pela dimensão. Tudo o que é elevado a um nível infinito prescinde de medida, barreiras ou espaço, equivalendo-se ao "nada fenomênico".
+
+Como não há possibilidade de o fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado, como exploraremos melhor adiante.
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
