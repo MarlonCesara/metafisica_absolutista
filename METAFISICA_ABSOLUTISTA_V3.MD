@@ -707,8 +707,8 @@ O espirito puro não é inerente à manifestação, sua ação de delimitar cria
 
 O relativo é o produto dinâmico de três elementos irredutíveis:  
 
-1. O **O nada absoluto (Ser puro)** como fundamento.  
-2. O **Espirito** como princípio performático.  
+1. O **O Ser puro** como fundamento.  
+2. A vontade do **Espirito** como princípio performático.  
 3. A **Manifestação do possível e impossível** como efeito relacional.  
 
 ## O Nada como Estado Relacional  
