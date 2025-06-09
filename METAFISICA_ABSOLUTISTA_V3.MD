@@ -740,8 +740,11 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 3. **Faz parte da natureza do Ser, porém em sua escassez, não em sua abundância**.  
 4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
 
-
 # Estruturando o Nada determinado pelo Ser (ausência do fenômeno)
+
+## Nada fenomênico: o falso infinito
+
+O nada é um falso infinito, ou mal infinito, pois nunca atinge sua totalidade fenomenica para alcançar sua consumação. Ou seja, ao equipararmos o nada com o Espírito, temos que, o espírito alcança sua plenitude pois dispensa dimensões. Ao passo que, o fenomeno aborda dimensões que, ao serem percorridas, não encontram sua plenitude para atingir sua auto anulação. Desta forma, o nada fenomenico é ilógico. Nenhuma anulação do nada é possível, tal como não é possível ao fenomeno se retro-alimentar de forma a encontrar sua totalidade. O infinito do fenomeno é uma manifestação alto crescente que nunca é atingida, portanto um começo e um final no campo de eventos do Espírito.
 
 ## Presença do determinador no determinado
 
@@ -1022,8 +1025,6 @@ Assim, toda manifestação é, ao mesmo tempo:
 
 **Fundamento último:** A forma existe porque o infinito, ao ser "observado", necessita expressar-se de modo delimitado – e essa delimitação é, em si mesma, a origem de toda identidade.  
 
-
-
 # A Convergência entre Nada e Manifestação  
 
 ## O Espírito como Princípio de Manifestação do fenômeno
@@ -1228,6 +1229,15 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - *Exemplo:* Determinador A e Determinador B podem interagir quando:  
     - Um se manifesta fenomenicamente ao outro (criando uma verdade relativa).  
     - Ou permanecem distintos em suas realidades absolutas.  
+- O "nada" é o limite compartilhado:  
+  - O infinito de um determinador é o "nada" do outro, mas ambos são modos do Ser único.  
+
+## Paralelismo espiritual  
+
+- Infinitos determinadores coexistem sem negação mútua:  
+  - *Exemplo:* Determinador A e Determinador B podem interagir quando:  
+    - Um se manifesta puramente ao outro (criando uma verdade relativa).  
+    - Ou permanecem distintos em suas realidades absolutas. Sendo um a má pureza, ou seja, a pureza rumo a auto-supressão do outro.
 - O "nada" é o limite compartilhado:  
   - O infinito de um determinador é o "nada" do outro, mas ambos são modos do Ser único.  
 
