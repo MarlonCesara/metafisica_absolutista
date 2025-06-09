@@ -240,7 +240,7 @@ A manifestação, por sua própria natureza dimensionada, é incapaz de consumar
 
 Se a manifestação em si não é consumada – isto é, se há dimensionamento nela –, torna-se impossível manifestar a totalidade de um fenômeno. Desse modo, a infinitude da manifestação, que corresponderia ao conceito mais próximo do "nada", jamais é alcançada pela dimensão. Tudo o que é elevado a um nível infinito prescinde de medida, barreiras ou espaço, equivalendo-se ao "nada fenomênico".
 
-Como não há possibilidade de o fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado, como exploraremos melhor adiante.
+Como não há possibilidade de o fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado.
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
