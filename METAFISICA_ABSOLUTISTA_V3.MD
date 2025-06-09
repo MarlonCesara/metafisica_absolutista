@@ -234,7 +234,11 @@ Ao concebermos o nada como um campo fenomênico potencialmente manifestável—i
 - **Referencialidade Obrigatória**: Não há "nada" sem relação com um "algo" prévio ou possível.  
   - *Exemplo*: A ausência de luz solar pressupõe a luz solar como conceito ou realidade.  
 
-Nesse sentido, o **nada fenomenológico** é um fenômeno, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**.  
+Nesse sentido, o **nada fenomenológico** é um fenômeno, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. 
+
+Sendo a manifestação não consumada em si mesma, ou seja, havendo dimensionamento na mesma, torna-se impossível manifestar uma totalidade de si. Desta forma, a infinitude da manifestação, que seria o conceito mais aproximado de nada, nunca é atingido pela dimensão. 
+
+Tudo que é levado em nível infinito, dispensa medida, barreiras ou espaço, conceito equivalente ao nada fenomênico. Não havendo possibilidade para o fenomenológico, ou seja, o dimensionável, manifestar uma dimensão sem medidas, ou seja infinita (nada fenomênico), consideremos o conceito de nada como ausência existente do fenômeno infundado, como investigaremos melhor em outro capitulo.
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
