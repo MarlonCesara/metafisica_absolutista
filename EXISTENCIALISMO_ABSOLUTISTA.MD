@@ -427,7 +427,7 @@ O apático é uma força destrutiva que projeta sua dor nos outros, buscando uma
 ## **Introdução**  
 O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a **existência precede a essência**. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu **"em si"** (o **apático**) e o que vive em seu **"para si"** (o **desperto**). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.  
 
----  
+  
 
 # **1. O Indivíduo Apático**  
 O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não se domina, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.  
@@ -449,7 +449,7 @@ O apático acredita ser livre porque faz o que deseja, guiado por seus instintos
 
 **Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.  
 
----  
+  
 
 # **2. O Despertar Existencial**  
 O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de **alegria profunda e segurança**. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.  
@@ -471,7 +471,7 @@ O despertar não é apenas o início do movimento, mas o **despertar do ser**. I
 
 **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o **"ser-para-si"** como a autêntica realização do *Dasein*, que assume sua finitude e liberdade.  
 
----  
+  
 
 # **3. A Busca Frenética por Sentido**  
 O apático vive em um estado de **angústia existencial**, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:  
@@ -489,7 +489,7 @@ O indivíduo rico, embora tenha recursos materiais, sofre de uma **miséria inte
 
 O mal do ponto de vista biológico talvez nao corrobore para a sustentação da sociedade, o mal, a extrema crueldade é uma perversão de sentido, que incita o humano a fazer qualquer coisa em prol do desespero de encontrar o que atribua razão e continuidade a sua existencia, considera portanto sua causa, ter maior teor de urgencia que qualquer outra e não lança mão de manifestar essa urgencia através de excessiva crueldade e hostildidade, pois considera sua busca ser temporal, ou seja, ter prazo e ser de extrema importancia para si.
 
----  
+
 
 # **3. A constante interpretação de personagens opressores**  
 O apático tem sua vida como um teatro continuo de uma figura que espera incorporar seu eu ou ao menos obte-lo de alguma forma.
@@ -503,8 +503,6 @@ Quando questionado de seu personagem, se poe num pranto triste. Relatam não hav
 Querem oprimir manifestações naturais de alegria. 
 Quando pessoas alegres e calmas estão presentes, tentam imita-las com uma risada sombria ou dizem se sentir incomodadas.
 
----  
-
 
 # **4. Conclusão**  
 O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz **alívio, serenidade e uma sensação de plenitude**, enquanto a apatia gera **angústia, obsessão e desespero**.  
@@ -512,43 +510,6 @@ O apático e o desperto representam dois polos da condição humana. Enquanto o 
 **Referência Final:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o *Übermensch* (super-homem), que cria seu próprio sentido e vive autenticamente.  
 
 Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a **busca humana por sentido** e a importância da **autodeterminação** na realização da existência autêntica.  
-
----  
-
-*(Continua nos próximos tópicos...)*  
-
-*(Nota: O texto completo foi reorganizado e reescrito para melhor clareza e estrutura. Os próximos tópicos seguirão o mesmo padrão de organização.)*  
-
----  
-
-**Próximas seções a serem desenvolvidas:**  
-- **A Visão do Amor como Ação Unida ao Sentido**  
-- **A Riqueza como Busca de Valor**  
-- **A Doença Espiritual do Apático**  
-- **A Analogia do Poder e da Droga**  
-- **A Obsessão e a Secura Interior**  
-- **A Sensação de Não Ser Ninguém**  
-- **A Linguagem do Apático**  
-- **A Liberdade e o Suicídio**  
-- **O Hedonismo e a Ação do Espírito**  
-- **A Imperação da Vontade**  
-
-*(Cada seção será aprofundada seguindo a mesma estrutura lógica e clareza.)*  
-
----  
-
-**Referências Gerais:**  
-- Sartre, J. P. (1943). *O Ser e o Nada*.  
-- Frankl, V. (1946). *O Homem em Busca de um Sentido*.  
-- Heidegger, M. (1927). *Ser e Tempo*.  
-- Kierkegaard, S. (1844). *O Conceito de Angústia*.  
-- Nietzsche, F. (1883). *Assim Falou Zaratustra*.  
-- Jung, C. (1964). *O Homem e Seus Símbolos*.  
-- Fromm, E. (1956). *A Arte de Amar*.  
-- Camus, A. (1942). *O Mito de Sísifo*.  
-- Schopenhauer, A. (1818). *O Mundo como Vontade e Representação*.  
-
-*(O texto completo será finalizado com todas as seções organizadas e referenciadas de forma coesa.)*
 
 ## A inteligencia emocional no apático
 
@@ -580,11 +541,20 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - O apatico tem obsessão por mostrar seu problema, quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
 
 
-# A ilusão do eu do mundo fenomenológico
+**A Ilusão do Eu Fenomenológico**  
 
-O mundo fenomenológico tende a pensar pelo individuo, e leva-lo em uma vida com um eu figurado em memorias e percepções, a construção de um eu ficticio que resolve os conflitos existenciais do individuo.
-O individuo, portanto, se identifica como vivo considerando que fala, anda e se movimenta, mas não aceita a informação que não é ele quem esta movendo, mas o movimento vem de sua natureza fenomenica, o que há é a experssão de sua internaliade através da obrigatoriedade fenomenica na qual se encerra e a qual se diluiu temporalmente em sua alma.
-Ou seja, o fenomeno apenas evidencia de forma dinamica a natureza não vivida do do seu espirito, a alma não vivificada pelo espirito perfeito. O fenomeno, portanto, produz um eu falso que tende a traduzir do ponto de vista de processos biológicos uma não necessidade do despertar, pois simula ao individuo o movimento.
+O mundo fenomenológico tende a pensar pelo indivíduo, levando-o a viver sob a concepção de um *eu* figurado em memórias e percepções – uma construção fictícia que resolve seus conflitos existenciais.  
+
+Assim, o indivíduo identifica-se como vivo porque fala, anda e se movimenta, mas não aceita a verdade: não é ele quem se move, mas sim o movimento que emana de sua natureza fenomenica. O que existe é a expressão de sua interioridade através da obrigatoriedade fenomenológica na qual está encerrado e à qual se dissolve temporalmente em sua alma.  
+
+Ou seja, o fenômeno apenas evidencia, de forma dinâmica, a natureza não vivida de seu espírito – uma alma não vivificada pelo Espírito. Desse modo, o fenômeno produz um *eu* ilusório que, traduzindo-se em processos biológicos, simula ao indivíduo a sensação de movimento, dispensando, assim, a necessidade de despertar.  
+
+O *corpo fenomenológico*, por assim dizer, seria uma manifestação involuntária do estado da alma. Seria como um corpo fantasmagórico que revela, através de gestos e ações, os dizeres da alma. Algo semelhante a uma vida artificial que expõe seu modo de ser e seus pensamentos sobre si mesma, sem que haja um verdadeiro despertar.  
+
+Em comparação com a alma, o corpo seria uma *eletrocussão* da alma – uma manifestação dela como *alma vivente*, porém de maneira fictícia. Dessa forma, cria-se um corpo sem autocomando, que expressa a personalidade e o vazio existencial de uma alma desprovida de espírito.  
+
+
+
 
 
 
