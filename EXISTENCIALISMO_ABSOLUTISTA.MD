@@ -555,6 +555,8 @@ Em comparação com a alma, o corpo seria uma *eletrocussão* da alma – uma ma
 
 O corpo, sem auto comando, expressa o vazio da alma, seja em sua busca por um sentido ou em sua aceitação pelo não sentido. Isto pode evidenciar um estado purgatorial ou infernal da alma. Ou seja, se há busca por sentido, há uma alma em estado de transição para a vivificação.
 
+Em outras palavras, o corpo é uma manifestação dinamica da alma apatica, tal como seu estado natural de estaticidade seria uma manifestação igualmente expressiva de si mesma e de seu estado existencial. A completa imobilidade se expressa tal como o fenomeno inerente a esta mobilidade no dinamismo de sua natureza. Ambas seriam formas de expressão. O dinamismo do fenomeno agrega o teor de vazio existencial do apatico tal como sua completa imobilidade como alma desfenomenizada.
+
 
 
 
