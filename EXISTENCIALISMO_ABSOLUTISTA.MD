@@ -553,7 +553,7 @@ O *corpo fenomenológico*, por assim dizer, seria uma manifestação involuntár
 
 Em comparação com a alma, o corpo seria uma *eletrocussão* da alma – uma manifestação dela como *alma vivente*, porém de maneira fictícia. Dessa forma, cria-se um corpo sem autocomando, que expressa a personalidade e o vazio existencial de uma alma desprovida de espírito.  
 
-
+O corpo, sem auto comando, expressa o vazio da alma, seja em sua busca por um sentido ou em sua aceitação pelo não sentido. Isto pode evidenciar um estado purgatorial ou infernal da alma. Ou seja, se há busca por sentido, há uma alma em estado de transição para a vivificação.
 
 
 
