@@ -273,6 +273,11 @@ Em uma analogia, o fenômeno é uma névoa numa campina da existência, que se e
 
 - Ao extrair o nada do que é presente, pois o presente é no qual nada se esgota. Ou seja, o mal infinito se esgota. De forma que, ao dar vazão ao mal infinito se retira a consistencia do presente.
 
+- O nada é o ato do presente. O presente porta o nada sucumbido. Ao fazer o processo contrário, sucumbir a presença para criar o nada, se limita o infinito.
+
+- Portanto, se cria o fenomeno retirando consistencia da existencia.
+
+- Criou o homem do nada, mas o a alma criou do espirito. O homem se refere ao fenomeno.
 
 - Na condição metafisica que até o apático se presencia completamente em Deus, há o fogo.
 
