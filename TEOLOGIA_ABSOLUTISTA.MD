@@ -412,5 +412,10 @@ Analogia: o vidro tranpassa a luz e retem menos calor que o o aço, que retem o 
 - Mantém uma certa serenidade, ainda que desprovida de grande esperança.  
 
 
+# ** A glorificação""
+
+- Jesus, talvez, enxergasse o eu humano como uma limitação. Em que se assume uma consciencia perante infinitas consciencias possíveis de se assumir. A vida gloriosa seria ter todas as possibilidades, ser como Deus ao passo que se pode ser como a si. Transcender o próprio em em direção a todas as possibilidades. E escolher o próprio eu por auto amor e não por auto obrigatoriedade.
+
+
 
 
