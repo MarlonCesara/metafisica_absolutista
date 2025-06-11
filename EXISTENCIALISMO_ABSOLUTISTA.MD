@@ -541,7 +541,7 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 - O apatico tem obsessão por mostrar seu problema, quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
 
 
-**A Ilusão do Eu Fenomenológico**  
+## **A Ilusão do Eu Fenomenológico**  
 
 O mundo fenomenológico tende a pensar pelo indivíduo, levando-o a viver sob a concepção de um *eu* figurado em memórias e percepções – uma construção fictícia que resolve seus conflitos existenciais.  
 
@@ -557,7 +557,10 @@ O corpo, sem auto comando, expressa o vazio da alma, seja em sua busca por um se
 
 Em outras palavras, o corpo é uma manifestação dinamica da alma apatica, tal como seu estado natural de estaticidade seria uma manifestação igualmente expressiva de si mesma e de seu estado existencial. A completa imobilidade se expressa tal como o fenomeno inerente a esta mobilidade no dinamismo de sua natureza. Ambas seriam formas de expressão. O dinamismo do fenomeno agrega o teor de vazio existencial do apatico tal como sua completa imobilidade como alma desfenomenizada.
 
+## ** O Eu mal resolvido
 
+- O apático, como imposto ao existir, e não auto determinado, ou revivido de si. É um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem, é o impor ao corpo a alma, e está é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas. 
 
+O apático, não é uma alma livre, e nem mesmo presa, pois toda intuição da realidade exige um eu que a interpreta. O apático é simplesmente uma alma criada em mal estar existencial. É o resultado que se define realizado pela vontade divina e unicamente obediente a esta, sendo em sua existencia, mas não coagente e nem não coagente com essa vontade, simplesmente imovel ao todo.
 
 
