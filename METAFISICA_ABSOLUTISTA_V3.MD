@@ -3251,7 +3251,12 @@ O Amor não cria por necessidade, mas por **transbordamento** — como a luz que
 
 - O espirito é o movimento da alma, o amor da alma. 
 
+- O problema da determinação não é a dificuldade de procura pela vida, é seu próprio estado que, estagnado não se soluciona em si. É o mal estar. Considerando que foi o uso da liberdade não deveria ser problemático. O apatico é descrito como quem nao tem o que deseja e nem, despossui o que não deseja, pois não é vivo. 
+É determinado, mas não auto-determinado. 
 
+- Quando Deus se redetermia homem, não necessariamente direcionado à própria plenitude, esse novo ser rede ter liberdade, ou seja, o que é realmente vivo pode escolher...o verdadeira vida é daquilo que escolhe a si mesmo como vivente.
+
+- O espirito é a ação da alma em direção ao existir, a plenitude. Eh não ser um ser determinado. Mas auto determinado. Não ser uma criação somente, mas um auto criador. Direcionar a própria vida ao existir. Não somente por vontade do determinador. Mas por vontade própria.
 
 
 
