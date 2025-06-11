@@ -563,4 +563,6 @@ Em outras palavras, o corpo é uma manifestação dinamica da alma apatica, tal 
 
 O apático, não é uma alma livre, e nem mesmo presa, pois toda intuição da realidade exige um eu que a interpreta. O apático é simplesmente uma alma criada em mal estar existencial. É o resultado que se define realizado pela vontade divina e unicamente obediente a esta, sendo em sua existencia, mas não coagente e nem não coagente com essa vontade, simplesmente imovel ao todo.
 
+Toda alma é livre como ação criadora livre de Deus, é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não signfica que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
+
 
