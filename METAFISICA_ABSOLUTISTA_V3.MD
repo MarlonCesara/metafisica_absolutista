@@ -3245,6 +3245,12 @@ O Amor não cria por necessidade, mas por **transbordamento** — como a luz que
 
 
 
+- Não há motivo pelo qual o a alma apatica seria estatica. A alma apática não é necessariamente estatica ou movimentada, é uma expressão de sua inoperancia, seja essa expressão uma busca pelo eu ou uma completa estaticidade.
+
+
+
+- O espirito é o movimento da alma, o amor da alma. 
+
 
 
 
