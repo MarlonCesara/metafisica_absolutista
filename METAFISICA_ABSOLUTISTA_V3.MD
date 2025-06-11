@@ -265,6 +265,21 @@ O fenômeno, portanto, é uma semi-existência, no sentido de que, sem determina
 
 Em uma analogia, o fenômeno é uma névoa numa campina da existência, que se esvai quando o sol aparece, sem deixar vestígios.
 
+### ** Conceituando o nada
+
+- O nada, é o sinonimo do presente. O nada nem mesmo existe, de forma a referenciar o presente. 
+
+- O infinito do fenomeno é imperfeito de tal forma que se sintetiza em nada, uma evanescente existencia que não pode ser levada ao infinto sem aniquilar-se completamente. É uma dimensão que não extravasa. 
+
+- Ao extrair o nada do que é presente, pois o presente é no qual nada se esgota. Ou seja, o mal infinito se esgota. De forma que, ao dar vazão ao mal infinito se retira a consistencia do presente.
+
+
+- Na condição metafisica que até o apático se presencia completamente em Deus, há o fogo.
+
+- No mundo fenomenológico não há a consistencia? No mal infinito.
+
+
+
 #### **Mecanismo da Auto-Supressão**  
 1. **Colapso por Autorreferência**  
    - Todo nada fenomenológico pressupõe um "algo" como referente negado.  
@@ -3266,4 +3281,6 @@ O Amor não cria por necessidade, mas por **transbordamento** — como a luz que
 
 
 
+## A transcendencia do Eu almático
 
+O Eu amático, em uma super posição de si, daria visão do Eu do todo, com as possibilidades do todo. Desta forma, a unicidade do Eu encontraria sua transcendencia de forma que, existisse como Eu, e este eu estivessem em super-potencia com todo. Quando o homem se coloca nesse estado de Ser Deus, qualquer vestigio de inconformidade queima seu Eu. Tal como é o completo queimar das almas apáticas. A transcendencia do Eu, ainda envolvendo o Eu que se move para o todo estando numa super-posição de si, envolve o completo direcionamento à plenitude. Sendo a alma, propria do Eu, e não resumidamente o Eu.
