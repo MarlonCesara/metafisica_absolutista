@@ -582,3 +582,5 @@ Toda alma é livre como ação criadora livre de Deus, é Deus livremente se rec
 - Tende ao isolamento ao perceber que as pessoas se sentem desconfortáveis com sua reação. 
 
 - Sente grande apavoro quando ve situações em que o outro esta com tranquilidade, descanso e paz. Pois compara a seu estado e enxerga a anormalidade em si, tem sensações perturbadoras.
+
+- A descrição de seu conflito é: "saudade de alguém que eu gosto muito e nunca encontro", "fome interior", "sede interior".
