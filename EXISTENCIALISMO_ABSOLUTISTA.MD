@@ -565,4 +565,14 @@ O apático, não é uma alma livre, e nem mesmo presa, pois toda intuição da r
 
 Toda alma é livre como ação criadora livre de Deus, é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não signfica que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
 
+- agressividade querendo mostrar q ele simula liberdade. Gosta de mandar pq se sente mandado. Determinado preso. Seguidor de regras. Não consegue conversar de eu pra eu. Precisa assumir uma personalidade. Precisa fingir um eu. Linguagem processual, de funcionamento ou incorporando personagem.
 
+- Não consegue interagir sem expressar seu desconforto. Não tolera pessoas alegres, se sentindo bem perto de si.
+
+- Sente que estão lhe fazendo passar vontade. Tenta aprisionar o outro de alguma forma, e exibir-se livre, pois sente que o outro esta exibindo sua alegria e liberdade.
+
+- Tenta coibir a alegria geral.
+
+- Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimetos, opiniões, o apatico necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou. 
+
+- O apático tende a crueldade e tem dificudlade em controle da raiva. Pois, se sente numa situação de aprisonamento interior.
