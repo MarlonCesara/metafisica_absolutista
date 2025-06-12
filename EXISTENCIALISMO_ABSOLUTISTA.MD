@@ -576,3 +576,5 @@ Toda alma é livre como ação criadora livre de Deus, é Deus livremente se rec
 - Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimetos, opiniões, o apatico necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou. 
 
 - O apático tende a crueldade e tem dificudlade em controle da raiva. Pois, se sente numa situação de aprisonamento interior.
+
+- Caso o apático seja forçado a se enquadrar numa situação sofre o achamado "assombro", como a sensação de ser anquilado pela morte, ou começa a se sentir extremamente irritado como uma sensação de estar enclausurado.
