@@ -580,3 +580,5 @@ Toda alma é livre como ação criadora livre de Deus, é Deus livremente se rec
 - Caso o apático seja forçado a se enquadrar numa situação sofre o achamado "assombro", como a sensação de ser anquilado pela morte, ou começa a se sentir extremamente irritado como uma sensação de estar enclausurado.
 
 - Tende ao isolamento ao perceber que as pessoas se sentem desconfortáveis com sua reação. 
+
+- Sente grande apavoro quando ve situações em que o outro esta com tranquilidade, descanso e paz. Pois compara a seu estado e enxerga a anormalidade em si, tem sensações perturbadoras.
