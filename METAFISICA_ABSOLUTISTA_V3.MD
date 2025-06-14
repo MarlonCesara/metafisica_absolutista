@@ -3289,3 +3289,18 @@ O Amor não cria por necessidade, mas por **transbordamento** — como a luz que
 ## A transcendencia do Eu almático
 
 O Eu amático, em uma super posição de si, daria visão do Eu do todo, com as possibilidades do todo. Desta forma, a unicidade do Eu encontraria sua transcendencia de forma que, existisse como Eu, e este eu estivessem em super-potencia com todo. Quando o homem se coloca nesse estado de Ser Deus, qualquer vestigio de inconformidade queima seu Eu. Tal como é o completo queimar das almas apáticas. A transcendencia do Eu, ainda envolvendo o Eu que se move para o todo estando numa super-posição de si, envolve o completo direcionamento à plenitude. Sendo a alma, propria do Eu, e não resumidamente o Eu.
+
+
+
+
+
+-A ausência da ausência é a Presenca.
+-A manifestação da ausência é o fenômeno
+-A presença suprime o nada, e o nada não se sustenta
+-A presença desfeita resulta numa ilusao
+-Na própria presença
+-Pois o fenômeno só se sustenta na própria presença
+-Logo, criar do nada é alterar o teor da presença de forma ilusoria
+-O nada não pode ser desfeito pois nao se sustenta como infinito
+-A manifestação do nada é uma alteração no teor da presença?
+-É uma semi transparência da presença
