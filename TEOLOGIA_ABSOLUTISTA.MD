@@ -417,5 +417,11 @@ Analogia: o vidro tranpassa a luz e retem menos calor que o o aço, que retem o 
 - Jesus, talvez, enxergasse o eu humano como uma limitação. Em que se assume uma consciencia perante infinitas consciencias possíveis de se assumir. A vida gloriosa seria ter todas as possibilidades, ser como Deus ao passo que se pode ser como a si. Transcender o próprio em em direção a todas as possibilidades. E escolher o próprio eu por auto amor e não por auto obrigatoriedade.
 
 
+# **A visão de Jesus**
+
+A visão de Deus do homem era a mais otimista, para Ele não haveria apatia. Quando Jesus veio ao mundo, e entendeu o que realmente significa a apatia, quis ate mesmo burlar a estrutura lógica produzindo uma ultra-realidade, na qual os principios lógicos se desfazem. O homem, nessa realidade, é obrigatoriamente tomado por Deus, no sentido do fogo ser Deus na personalidade do homem. Ainda que o homem não esteja elevado o suficiente.
+
+Ou seja, há uma não aceitação a condição do homem como instinto paternal de Deus, o que o levou a produzir uma realidade onde todos são invadidos pela realidade em seu ultima perfeição.
+
 
 
