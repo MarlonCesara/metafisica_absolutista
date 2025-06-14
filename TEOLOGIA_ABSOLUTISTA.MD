@@ -423,5 +423,4 @@ A visão de Deus do homem era a mais otimista, para Ele não haveria apatia. Qua
 
 Ou seja, há uma não aceitação a condição do homem como instinto paternal de Deus, o que o levou a produzir uma realidade onde todos são invadidos pela realidade em seu ultima perfeição.
 
-A cruz representou a consciencia, os espinhos a visão da realidade, os pregos, o apatico preso na consciencia, as chicotadas o apatico escravo da determinação de Deus. A crucificação foi também a expressao de Jesus de forma que se fez sentir a dor do apático da forma mais viva e pura. É também um reflexo de sua não aceitação ao status quo do homem apático.
 
