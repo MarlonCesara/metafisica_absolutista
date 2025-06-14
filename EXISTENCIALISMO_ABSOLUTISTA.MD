@@ -589,3 +589,8 @@ Toda alma é livre como ação criadora livre de Deus, é Deus livremente se rec
 
 
 - O individuo apático tenta constantemnte se provar como livre, como uma tentativa ser livre perante a visão do outro. E o faz por meio de impor ao outro uma rotina escravista, ou impor ao outro qualquer forma de incomodo que o permita comparar-se sem o incomodo. Tenta provocar uma diferencia de potencial fisica de liberdade, como restrição financiera ao outro restrição de tempo, etc. Como tentativa de demonstrar o que sente. E pensar-se num patamar ideal. Pois uma o outro como comparação de seu estado de espirito.
+
+
+- A convivencia social do apatico é de dificl desenvolvimento, pois o memso se sente sobrecarregado ou assombrado com a informação da ausencia do seu eu, ao comparar o comportamento do outro como discrepante ao seu. 
+- O individuo apatico manifesta constante crises de histeria, pois a privação do eu em suas tarefas diarias lhe irrita profundamente lhe afastando de tudo que mais agrada e sendo um impecilho para o seu desenvolvimento social.
+- O apatico tende muitas vezes a crueldade, maldade, vingança e descarga de raiva sem proposito e sentido aparente.
