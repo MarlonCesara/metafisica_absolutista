@@ -481,9 +481,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 
 
-
-
-# **O Nada Fenomenológico e o Nada Auto-Supressor**  
+# **O criacionismo no nível Absoluto
 
 ## **Nada como Fenômeno Relacional**  
 
