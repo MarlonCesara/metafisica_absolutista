@@ -235,6 +235,134 @@ Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela 
 Do ponto de vista lógico, o fenomenização do absoluto exige um pressuposto externo a pura auto-causalidade, tal como deduzir o nada para absoluto, conceito que é rasgado pela ideia de presença pessoal e auto causal. Trata-se de uma existência de caráter pessoal e dotada de potência causal. Definamos portanto, o termo presença como Espírito. Desta forma se remete a uma presença nao fenomenológica. Baseada numa auto causalidade que independe da aparição.
 
 
+# **A Autocausalidade temporal e atemporal do Espírito do Ser**  
+ *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
+
+## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
+#### **A Natureza Bifásica da Autocausalidade**  
+**(A) Ato Imediato (Consumação Eterna)**  
+- **Não-temporalidade:** O Espírito não "torna-se", mas **é** em ato pleno.   
+- **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
+- **"O Espírito não precisa buscar a si mesmo — Ele é, em cada 'instante', a totalidade que se autossustenta."**  
+
+No ato imediato causal, o Espirito não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
+- **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
+- O Espirito não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
+- **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
+- **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
+- O Espirito **já é** plenamente si mesmo em um eterno presente.  
+- Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
+
+#### **O Ser-ai em Ato (Consumação)**  
+O **Espírito** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
+- **Espírito em Ato (Consumado)** → O Espírito já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
+  - *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.  
+
+## **A Autocausalidade como Ciclo Infinito e Temporal**  
+
+Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Espírito também **se sustenta** em um fluxo eterno de automanifestação.  
+
+- O Espírito "busca a si mesmo" eternamente em um processo de autossustentação.  
+- **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
+- A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
+- O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
+- Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
+  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
+  - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
+- Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
+
+#### **Espírito em Processo (Reverberação)**  
+- **Espírito em Processo (Temporal)** → O Espírito se **reverbera** como sucessão causal, criando o "devir".  
+  - *"Eu me torno"* — o Espírito se manifesta em atos contínuos de autodeterminação.  
+
+#### **A Autodeterminação como Ciclo Infinito**  
+- **Direcionamento e Redirecionamento** → O Espírito não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
+  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
+- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Espírito**, reiniciando o ciclo.  
+  - *"O que busca já é o buscado."*  
+
+#### **Reverberação Espacial e Temporal**  
+- **Espacialidade** → O Espírito se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
+- **Temporalidade** → O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
+- A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
+
+### **O Espirito como Causa de Si no Tempo e na Eternidade**  
+- **Fundamento** → O Espírito é **causa imediata** de sua existência (não precisa de "outro").  
+- **Autocontinuidade** → O Espírito é **causa contínua** de sua manifestação (gera tempo e espaço).  
+
+Isso unifica:  
+- **Eternidade** (Espírito em ato)  
+- **Temporalidade** (Espírito em processo)  
+
+Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
+Na atemporalidade, todas as ações estão consumadas, de forma que a pureza atue como fundamento ainda que concomitantemente à determinações temporais.
+
+## Não recursividade ou ato do Ser
+
+**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há uma busca infinita em uma autocausalidade recursiva, tampouco uma manifestação em ato. Por exemplo: o Ser causa a si mesmo, porém não em um ciclo infinito de causa e efeito, já que sua pureza dispensa essa circularidade, essa rotatividade — assim como dispensa também a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" está ausente. Em outras palavras, sua pureza prescinde da existência.  
+
+Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. Quando esse princípio é transposto para a realidade fenomênica, contrasta com uma não uniformidade, pois o fenômeno, ao buscar a si mesmo sem ser puro para si, resultaria em uma soma ou disparidade — não em unicidade. Assim, o temporal jamais alcançaria seu momento final.  
+
+O conceito de "mal infinito" não se aplica aqui, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido em sua própria totalidade.
+
+- **Causalidade com agente puro**:  
+  A autocausalidade do Ser não opera como ato único nem como processo sustentador, pois possui um determinador puro.  
+
+- **Superação da Circularidade**:  
+  Embora o Ser fundamente a si mesmo, não o faz através de:  
+  1. Regressão infinita (ciclo causal recursivo)  
+  2. Ato pontual de autogeracão  
+  Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
+
+# Ações e pessoalidades do Espírito 
+
+### Autodeterminação Vertical (Espírito Fundamentador)  
+- **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
+- **Características da verticalidade para Absoluto:**  
+  - Incorruptibilidade: O Absoluto é necessariamente direcionado à sua própria existência e plenitude.  
+  - Fundamentação: O Espírito age como princípio de sustentação ontológica (autofundamentação).  
+
+### Autodeterminação Diagonal (Espírito Plenificador)  
+- **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.  
+- **Características diagonais para Absoluto:**  
+  - Despersonalização: O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.  
+  - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.  
+  - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.  
+
+### Autodeterminação Horizontal (Espírito Personalizador)  
+- **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.  
+- **Características horizontais para Absoluto:**  
+  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.  
+  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.  
+  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.  
+
+## Tríplice Ação do Espírito  
+
+O Espírito (autodeterminação do Relativo) atua em três dimensões:  
+
+1. **Existência (Espírito Fundamentador)**  
+   - *Ação:* Manter-se como Absoluto.  
+   - *Princípio:* "Eu Existo" (pura afirmação ontológica).  
+
+2. **Perfeição (Espírito Incorruptível)**  
+   - *Ação:* Escolher o que corrobora com a plenitude do Absoluto. Porém, entre caminhos equivalentes rumo à plenitude, não sei o que fazer.  
+   - *Princípio:* "Escolho o que me realiza como Absoluto."  
+
+3. **Personalização (Alma Determinante)**  
+   - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
+   - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
+
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
+
+## Conclusão  
+
+- O Absoluto incognocível é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
+- O relativo é a manifestação verdadeira do Absoluto.  
+- A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
+- Espírito e Alma são as duas dimensões da autodeterminação:  
+  - O Espírito garante a existência e a perfeição.  
+  - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
+
 
 
 
@@ -488,86 +616,6 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 
 
 
-# **A Autocausalidade temporal e atemporal do Espírito do Ser**  
- *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
-
-## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
-#### **A Natureza Bifásica da Autocausalidade**  
-**(A) Ato Imediato (Consumação Eterna)**  
-- **Não-temporalidade:** O Espírito não "torna-se", mas **é** em ato pleno.   
-- **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
-- **"O Espírito não precisa buscar a si mesmo — Ele é, em cada 'instante', a totalidade que se autossustenta."**  
-
-No ato imediato causal, o Espirito não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
-- **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
-- O Espirito não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
-- **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
-- **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
-- O Espirito **já é** plenamente si mesmo em um eterno presente.  
-- Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
-
-#### **O Ser-ai em Ato (Consumação)**  
-O **Espírito** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
-- **Espírito em Ato (Consumado)** → O Espírito já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
-  - *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.  
-
-## **A Autocausalidade como Ciclo Infinito e Temporal**  
-
-Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Espírito também **se sustenta** em um fluxo eterno de automanifestação.  
-
-- O Espírito "busca a si mesmo" eternamente em um processo de autossustentação.  
-- **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
-- A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
-- O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
-- Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
-  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
-  - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
-- Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
-
-#### **Espírito em Processo (Reverberação)**  
-- **Espírito em Processo (Temporal)** → O Espírito se **reverbera** como sucessão causal, criando o "devir".  
-  - *"Eu me torno"* — o Espírito se manifesta em atos contínuos de autodeterminação.  
-
-#### **A Autodeterminação como Ciclo Infinito**  
-- **Direcionamento e Redirecionamento** → O Espírito não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
-  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
-- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Espírito**, reiniciando o ciclo.  
-  - *"O que busca já é o buscado."*  
-
-#### **Reverberação Espacial e Temporal**  
-- **Espacialidade** → O Espírito se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
-- **Temporalidade** → O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
-- A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
-
-### **O Espirito como Causa de Si no Tempo e na Eternidade**  
-- **Fundamento** → O Espírito é **causa imediata** de sua existência (não precisa de "outro").  
-- **Autocontinuidade** → O Espírito é **causa contínua** de sua manifestação (gera tempo e espaço).  
-
-Isso unifica:  
-- **Eternidade** (Espírito em ato)  
-- **Temporalidade** (Espírito em processo)  
-
-Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
-Na atemporalidade, todas as ações estão consumadas, de forma que a pureza atue como fundamento ainda que concomitantemente à determinações temporais.
-
-
-## Não recursividade ou ato do Ser
-
-**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há uma busca infinita em uma autocausalidade recursiva, tampouco uma manifestação em ato. Por exemplo: o Ser causa a si mesmo, porém não em um ciclo infinito de causa e efeito, já que sua pureza dispensa essa circularidade, essa rotatividade — assim como dispensa também a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" está ausente. Em outras palavras, sua pureza prescinde da existência.  
-
-Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. Quando esse princípio é transposto para a realidade fenomênica, contrasta com uma não uniformidade, pois o fenômeno, ao buscar a si mesmo sem ser puro para si, resultaria em uma soma ou disparidade — não em unicidade. Assim, o temporal jamais alcançaria seu momento final.  
-
-O conceito de "mal infinito" não se aplica aqui, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido em sua própria totalidade.
-
-- **Causalidade com agente puro**:  
-  A autocausalidade do Ser não opera como ato único nem como processo sustentador, pois possui um determinador puro.  
-
-- **Superação da Circularidade**:  
-  Embora o Ser fundamente a si mesmo, não o faz através de:  
-  1. Regressão infinita (ciclo causal recursivo)  
-  2. Ato pontual de autogeracão  
-  Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
-
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como Pessoalidade e Pureza
@@ -587,55 +635,6 @@ O conceito de "mal infinito" não se aplica aqui, pois o tempo do Espírito enco
 ### O Ser como não cognoscível
 
 - Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste (auto sepressão) como fenômeno, mas transcende o fenômenológico. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela possível ou impossível.
-
-# Ações e pessoalidades do Espírito 
-
-### Autodeterminação Vertical (Espírito Fundamentador)  
-- **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
-- **Características da verticalidade para Absoluto:**  
-  - Incorruptibilidade: O Absoluto é necessariamente direcionado à sua própria existência e plenitude.  
-  - Fundamentação: O Espírito age como princípio de sustentação ontológica (autofundamentação).  
-
-### Autodeterminação Diagonal (Espírito Plenificador)  
-- **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.  
-- **Características diagonais para Absoluto:**  
-  - Despersonalização: O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.  
-  - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.  
-  - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.  
-
-### Autodeterminação Horizontal (Espírito Personalizador)  
-- **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.  
-- **Características horizontais para Absoluto:**  
-  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.  
-  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.  
-  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.  
-
-## Tríplice Ação do Espírito  
-
-O Espírito (autodeterminação do Relativo) atua em três dimensões:  
-
-1. **Existência (Espírito Fundamentador)**  
-   - *Ação:* Manter-se como Absoluto.  
-   - *Princípio:* "Eu Existo" (pura afirmação ontológica).  
-
-2. **Perfeição (Espírito Incorruptível)**  
-   - *Ação:* Escolher o que corrobora com a plenitude do Absoluto. Porém, entre caminhos equivalentes rumo à plenitude, não sei o que fazer.  
-   - *Princípio:* "Escolho o que me realiza como Absoluto."  
-
-3. **Personalização (Alma Determinante)**  
-   - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
-   - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
-
-Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
-
-## Conclusão  
-
-- O Absoluto incognocível é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
-- O relativo é a manifestação verdadeira do Absoluto.  
-- A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
-- Espírito e Alma são as duas dimensões da autodeterminação:  
-  - O Espírito garante a existência e a perfeição.  
-  - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
 ### O Ser como Autodeterminador  
 - O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
