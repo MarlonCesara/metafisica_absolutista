@@ -481,7 +481,7 @@ Como não há possibilidade de o fenomênico – ou seja, o dimensionável – m
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-Ao considerarmos o nada fenomenológico possível, ele seria um elemento auto-extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação relativa e se torna **pura auto-supressão**. 
+Ao considerarmos o nada fenomenológico possível, ele seria um elemento auto-extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito), pois é determinado.
 
 - **O Nada fenomenológico não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
