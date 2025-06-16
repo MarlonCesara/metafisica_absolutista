@@ -565,6 +565,20 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 
 Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. A ausência do fenômeno não existe, de forma que deveria existir o fenômeno como interno a está ausência (nada fenomênico).
 
+## ** A criação a ex-nihillo
+
+A criação do universo, desta forma, não pode ser a partir do nada, mas a partir de uma mudança no teor do Espírito, de forma que se projete não a si mesmo, mas uma idealização de si. O universo é uma visão metafísica que cresce horizontalmente, mas não rescinde em si mesma, não é viva, mas emana do Vivo. É causada e não auto-causal.
+
+- Não há como se retirar daquilo que não existe.
+- Há a vontade causadora e o Espírito auto causado.
+- Criou a partir de sua vontade, há o elemento da vontade, que somado ao relativo, se dá como uma visão.
+- O nada seria o relativo. 
+- Não há forma determinada, há o relativo.
+- A visão do espirito e seu querer sobre o relativo trouxe a existencia fenomenologica.
+- O universo se fez no tempo do espirito. O tempo do espirito tem tempo, e este tempo pode ser transcendido num momento unico.
+- Isto equivale a fazer um momento ser eterno.
+- O tempo e o eterno estão únidos. Num eterno presente.
+
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
 Tanto o **campo fenomenológico** quanto a **ação auto-supressora** (que esgota o fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
