@@ -502,7 +502,9 @@ Dessa forma, num tempo X, há a manifestação, sem que esta tenha referência a
 
 O fenômeno, portanto, é uma semi-existência, no sentido de que, sem determinação, é suprimido—não tem fundamento eterno, mas é uma fugaz arquitetura feita de nada (em seu sentido de não existência). É possível dizer que o fenômeno é uma ilusão material, no sentido de que tem a fugacidade de um sonho, tanto que pode ser transpassado pela verdadeira existência.
 
-Em uma analogia, o fenômeno é uma névoa numa campina da existência, que se esvai quando o sol aparece, sem deixar vestígios.
+- Ex: O fenômeno é uma névoa numa campina da existência, que se esvai quando o sol aparece, sem deixar vestígios.
+- Ex: O fenômeno é um pó efêmero nas janelas cristalinas do Espírito.
+- Ex: O fenômeno é o Espírito em uma forma ilusória.
 
 ### ** Conceituando o nada
 
