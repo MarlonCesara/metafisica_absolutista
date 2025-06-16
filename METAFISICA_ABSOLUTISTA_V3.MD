@@ -223,6 +223,40 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
+
+### Pessoalização do Absoluto  
+
+Sendo o absoluto auto causal, antes de pensarmos em atribuir-lhe aspectos conceituais como o "nada" ou o "fenomeno" ou "aparição", partimos do pressuposto mais básico que é inferido diretamente do contexto auto causal que se deduz a presença.
+
+Em termos mais simples: se dispensarmos o termo "nada" ou o termo "fenomeno" como auto fundamento, podemos pensar em uma "presença" que independe do fenômeno ou da complexa inexistencia para se auto justicar — ou seja, que não precisa se manifestar fenomenicamente para existir e nem agir em si de forma a se extinguir com o intuito de ser auto-causal, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade uma pessoalidade. 
+
+Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. 
+
+Do ponto de vista lógico, o fenomenização do absoluto exige um pressuposto externo a pura auto-causalidade, tal como deduzir o nada para absoluto, conceito que é rasgado pela ideia de presença pessoal e auto causal. Trata-se de uma existência de caráter pessoal e dotada de potência causal. Definamos portanto, o termo presença como Espírito. Desta forma se remete a uma presença nao fenomenológica. Baseada numa auto causalidade que independe da aparição.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # **O Nada Fenomenológico e o Nada Auto-Supressor**  
 
 ## **Nada como Fenômeno Relacional**  
@@ -433,6 +467,27 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 - Toda determinação já está **redimida** na eternidade do ato puro.  
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # **A Autocausalidade temporal e atemporal do Espírito do Ser**  
  *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
 
@@ -535,20 +590,20 @@ O conceito de "mal infinito" não se aplica aqui, pois o tempo do Espírito enco
 
 # Ações e pessoalidades do Espírito 
 
-### Autodeterminação Vertical (Espírito)  
+### Autodeterminação Vertical (Espírito Fundamentador)  
 - **Definição:** Qualidade do ente de agir corruptivelmente, isto é, em prol ou contra sua existência ou da existência do sistema que o sustenta ou integra.  
 - **Características da verticalidade para Absoluto:**  
   - Incorruptibilidade: O Absoluto é necessariamente direcionado à sua própria existência e plenitude.  
   - Fundamentação: O Espírito age como princípio de sustentação ontológica (autofundamentação).  
 
-### Autodeterminação Diagonal (Espírito Incorruptível)  
+### Autodeterminação Diagonal (Espírito Plenificador)  
 - **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.  
 - **Características diagonais para Absoluto:**  
   - Despersonalização: O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. Assim, a personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.  
   - Autodeterminação: O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.  
   - *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.  
 
-### Autodeterminação Horizontal (Alma)  
+### Autodeterminação Horizontal (Espírito Personalizador)  
 - **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.  
 - **Características horizontais para Absoluto:**  
   - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.  
