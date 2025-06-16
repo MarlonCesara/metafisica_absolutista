@@ -462,26 +462,7 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# **O criacionismo no nível Absoluto
+# **O criacionismo no nível Absoluto**
 
 ## **Nada como Fenômeno Relacional**  
 
