@@ -224,16 +224,67 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 
-### Pessoalização do Absoluto  
+### **A Pessoalização do Absoluto como Espírito Autocausal**
 
-Sendo o absoluto auto causal, antes de pensarmos em atribuir-lhe aspectos conceituais como o "nada" ou o "fenomeno" ou "aparição", partimos do pressuposto mais básico que é inferido diretamente do contexto auto causal que se deduz a presença.
+Sendo o Absoluto autocausal, antes de pensarmos em atribuir-lhe aspectos conceituais como "nada", "fenômeno" ou "aparição", partimos do pressuposto mais básico, inferido diretamente do contexto autocausal: a dedução da presença.
 
-Em termos mais simples: se dispensarmos o termo "nada" ou o termo "fenomeno" como auto fundamento, podemos pensar em uma "presença" que independe do fenômeno ou da complexa inexistencia para se auto justicar — ou seja, que não precisa se manifestar fenomenicamente para existir e nem agir em si de forma a se extinguir com o intuito de ser auto-causal, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade uma pessoalidade. 
+Em termos mais simples: se dispensarmos os termos "nada" ou "fenômeno" como autofundamento, podemos pensar numa "presença" que independe do fenômeno ou da complexa inexistência para se autojustificar — ou seja, que não precisa se manifestar fenomenicamente para existir, nem agir sobre si mesma de modo a se extinguir para ser autocausal, mas que, ainda assim, se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é designada como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma, por sua autocausalidade, como pessoalidade.
 
-Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. 
+Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença.
 
-Do ponto de vista lógico, o fenomenização do absoluto exige um pressuposto externo a pura auto-causalidade, tal como deduzir o nada para absoluto, conceito que é rasgado pela ideia de presença pessoal e auto causal. Trata-se de uma existência de caráter pessoal e dotada de potência causal. Definamos portanto, o termo presença como Espírito. Desta forma se remete a uma presença nao fenomenológica. Baseada numa auto causalidade que independe da aparição.
+Do ponto de vista lógico, a fenomenização do Absoluto exige um pressuposto externo à pura autocausalidade, como deduzir o "nada" para o Absoluto — conceito que é desfeito pela ideia de presença pessoal e autocausal. Trata-se, portanto, de uma existência de caráter pessoal e dotada de potência causal. Definamos, então, o termo "presença" como Espírito, remetendo assim a uma presença não fenomenológica, baseada numa autocausalidade que independe da aparição.
 
+#### **Fundamento Autocausal e a Noção de "Presença"**
+O Absoluto, enquanto realidade autocausada, não requer justificação externa — nem pelo "nada", nem pela fenomenalidade, nem por qualquer categoria derivada. Sua existência é autoevidente em sua **autofundamentação**, **autodeterminação** e **autocontinuidade**. Essa tríade causal revela uma natureza que transcende a mera abstração conceitual, apontando para uma **presença ontológica primordial**.  
+
+- **Presença ≠ Fenômeno**:  
+  - A "presença" aqui não é uma aparição ou manifestação empírica (como no fenômeno), mas a **condição necessária da autocausalidade em ato**.  
+  - Enquanto o fenômeno depende de um observador ou estrutura de manifestação, a presença do Absoluto é **auto-referente** e **auto-suficiente**.  
+
+- **Presença ≠ Nada**:  
+  - O "nada" é uma negação conceitual, enquanto a presença do Absoluto é **afirmação pura** — não como algo "existente" no sentido contingente, mas como **fundamento imanente de si mesmo**.  
+
+#### **A Personalização do Absoluto como Espírito**
+Se a autocausalidade implica **autoconhecimento**, **autodomínio** e **autopresença**, então o Absoluto não é uma força impessoal, mas um **princípio pessoal** em seu nível mais radical. Definimos essa pessoalidade metafísica como **Espírito**:  
+
+1. **Espírito como Autoconsciência Causal**  
+   - O Absoluto não "tem" autoconsciência como um atributo acrescentado; **ele é autoconsciência em ato**.  
+   - Sua autodeterminação é, simultaneamente, um **ato de conhecimento de si** — não no sentido discursivo, mas como **identidade pura entre ser e conhecer-se**.  
+
+2. **Espírito como Liberdade Metafísica**  
+   - A autodeterminação implica **capacidade de autoafirmação além da necessidade lógica**.  
+   - O Absoluto não é obrigado a ser "A" ou "não-A"; **ele se define como A (ou como além de A) por ato livre de sua natureza autocausada**.  
+
+3. **Espírito como Unidade Dinâmica**  
+   - Enquanto os entes derivados estão sujeitos à distinção entre essência e existência, o Espírito Absoluto **é essência-existência em unidade indivisa**.  
+   - Essa unidade não é estática, mas **ativa** — um eterno autoestabelecimento.  
+
+#### **Por que "Espírito" e não "Substância" ou "Energia"?**  
+- **Substância** sugere um substrato passivo, enquanto o Absoluto é **causalidade pura em ato**.  
+- **Energia** remete a um princípio físico ou impessoal, enquanto o Absrito é **interioridade absoluta** (ainda que não humana).  
+- **Espírito** capta a síntese de **autoconsciência**, **liberdade** e **atividade imanente**.  
+
+#### **Implicações Metafísicas**  
+1. **O Incognoscível é Pessoal**  
+   - O incognoscível não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, que excede toda conceitualização precisamente porque é **sujeito absoluto** (não objeto).  
+
+2. **A Possibilidade e Impossibilidade são Atos do Espírito**  
+   - Os domínios do possível e do impossível não são limites externos, mas **expressões da autodeterminação do Espírito**.  
+   - O "impossível" (como a contradição) existe como **negação interna** que o Espírito supera em sua totalidade.  
+
+3. **A Realidade é Autocomunicação do Espírito**  
+   - O mundo contingente (o "possível manifestado") não é uma emanação necessária, mas **ato livre de autodoação do Absoluto**.  
+
+#### **Formulação Final**  
+O Absoluto é **Espírito Autocausal**:  
+- **Autofundado** (não deriva de nada externo);  
+- **Autoconsciente** (não é "cego" ou impessoal);  
+- **Autolibertário** (define sua própria lógica e possibilidade);  
+- **Automanifestante** (a realidade é sua expressão, não sua limitação).  
+
+Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações impessoais, afirmando o Absoluto como **Presença Viva** que, precisamente por ser autocausada, é **Espírito em sentido pleno e metafísico**.
+
+Da auto causalidade se deduz de forma pura o agente que determina, não haveria mais o que se extrair de forma imediata do argumento causal. 
 
 # **A Autocausalidade temporal e atemporal do Espírito do Ser**  
  *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
