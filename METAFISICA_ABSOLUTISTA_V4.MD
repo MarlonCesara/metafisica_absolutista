@@ -442,7 +442,7 @@ O Espírito (autodeterminação do Relativo) atua em três dimensões:
    - *Ação:* Manter-se como Absoluto.  
    - *Princípio:* "Eu Existo" (pura afirmação ontológica).  
 
-2. **Perfeição (Espírito Incorruptível)**  
+2. **Perfeição (Espírito Plenificador)**  
    - *Ação:* Escolher o que corrobora com a plenitude do Absoluto. Porém, entre caminhos equivalentes rumo à plenitude, não sei o que fazer.  
    - *Princípio:* "Escolho o que me realiza como Absoluto."  
 
