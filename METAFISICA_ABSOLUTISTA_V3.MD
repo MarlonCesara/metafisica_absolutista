@@ -213,14 +213,14 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
      - O Absoluto deve conhecer totalmente a sua estrutura para que haja ação autocausada.  
 - **Implicações:**  
   - Explica como o Absoluto mantém identidade (não é caótico ou aleatório).  
-  - Mostra que ele não é apenas um "ser estático", mas um ser ativo que se autogoverna.  
-  - Fundamenta a liberdade metafísica (possibilidade de escolha no nível relativo).  
+  - Mostra que o Absoluto não é apenas um "Ser estático", mas um Ser ativo que se autogoverna.  
+  - Fundamenta a liberdade metafísica (possibilidade de escolha no nível Absoluto).  
 
 ### Autocontinuidade  
 - **Definição:** Refere-se à capacidade do Absoluto de se sustentar em seu fundamento e determinação.  
 - **Características:**  
   - Persistência ativa (não apenas existência passiva).  
-  - Garante que o Absoluto não se dissolva na inexistência e que a realidade ou irrealidade não desapareçam.  
+  - Garante que o Absoluto não se dissolva na inexistência.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 # **O Nada Fenomenológico e o Nada Auto-Supressor**  
