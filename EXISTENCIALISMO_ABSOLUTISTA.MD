@@ -594,3 +594,16 @@ Toda alma é livre como ação criadora livre de Deus, é Deus livremente se rec
 - A convivencia social do apatico é de dificl desenvolvimento, pois o memso se sente sobrecarregado ou assombrado com a informação da ausencia do seu eu, ao comparar o comportamento do outro como discrepante ao seu. 
 - O individuo apatico manifesta constante crises de histeria, pois a privação do eu em suas tarefas diarias lhe irrita profundamente lhe afastando de tudo que mais agrada e sendo um impecilho para o seu desenvolvimento social.
 - O apatico tende muitas vezes a crueldade, maldade, vingança e descarga de raiva sem proposito e sentido aparente.
+
+
+
+
+**Os sintomas dos apáticos são:**  
+
+1. **Criam personalidades falsas**, como personagens de um "Eu" que não reconhecem em si mesmos. E usam este Eu para socializar. 
+2. **Rejeitam emoções intensas ou alegria**, pois, como não enxergam sua própria alma, não compreendem a eternidade que carregam. A negação da alegria os deixa mais confortáveis com a ideia da morte física.  
+3. **Possuem obsessão por infligir aos outros** o que sentem: aprisionamento, escassez, miséria, fome interior, tédio e vazio.  
+
+*(Ajustes para maior clareza e coesão, mantendo o tom original e aprofundando a expressão das ideias.)*  
+
+Se quiser, posso continuar refinando ou expandir algum ponto específico.
