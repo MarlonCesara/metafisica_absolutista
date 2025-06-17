@@ -627,10 +627,34 @@ O verdadeiro mal não se manifesta como uma obsessão ativa, mas como uma apatia
 
 Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpetuadores de catástrofes — talvez pudéssemos evitar guerras e sofrimentos desnecessários.  
 
+### **Caracteristicas das almas sem esperança (estado infernal) Pecados graves
 
+- Crueldade 
+- Ausencia de percepção do vazio interior
+- Tendencia a ações que externalizem a completa não esperança: Destruição das belezas naturais, Escravização de pessoas, etc.
+- Querem a destruição, não almejam resposta
+- Total ausencia de compaixão em algumas atitudes
+- Desumanização
 
+### **Caracteristicas das almas com esperança (estado purgatorial) Pecados veniais
 
+- Percepção do afastamento de si mesmas.
+- Visão do vazio interior
+- Crueldade amena, no sentido de frustração
+- Almas querem a resposta
+- Sutil humanização
 
+### **Caracteristicas das almas sem sabedoria (falta sabedoria) 
 
+- Tendencias a obsessoes, desespero, etc.
+- Tendencia a odiar, guardar rancor, etc.
+- Pecados veniais em geral.
+- Brilho pessoal baixo
 
+### **Caracteristicas das almas com sabedoria (sasbedoria plena) 
+
+- Grande equilibiro
+- Brilho alto
+- Tendencia perdoar, alta compaixão
+- Tendencia bondade
 
