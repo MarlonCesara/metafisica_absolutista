@@ -473,11 +473,11 @@ O Espírito (autodeterminação do Relativo) atua em três dimensões:
 
 ### **3. A Liberdade Personalizante (Alma Criadora)**  
 - **Atributos:**  
-  - **Criatividade Irrestrita:** Inventa nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por deleite*.  
+  - **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.  
   - **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.  
-  - **Vontade Lúdica:** Transforma a plenitude em *jogo sagrado*, onde até o "acaso" é um movimento calculado da liberdade.  
+  - **Vontade Lúdica:** Transforma a plenitude em *criatividade sagrada*, onde até a assimetria da paixão pessoal é um movimento da liberdade e do sagrado.  
 
-- **Símbolo:** O Teatro Cósmico (onde o Absoluto interpreta a si mesmo em infinitos papéis).  
+- **Símbolo:** A criatividade do Ser (onde o Absoluto expande a si mesmo não somente em sua perfeição mas em suas tendencias criativas).  
 - **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*  
 
 ### **Unidade na Trindade**  
