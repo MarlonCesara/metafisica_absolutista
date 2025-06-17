@@ -638,6 +638,8 @@ Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpe
 
 O individuo em estado infernal usa da destruição de tudo aquilo que confere sentimento e sentido a vida, como expressão da completa falta de esperança e escuridão, até mesmo da própria falta de espera em si. É o completo não sentido que extravasa do individuo como mal, como desapego até de si mesmo como existente em prol da destruição. 
 
+O individuo nao se expressa na intenção que o ajude e o entenda, mas como pura expressão impessoal da destruição interior, do caos interior, da ausencia interior. Ou seja, não é uma expressao fundamentada em uma espera e na solução, na visão do eu sofrente, mas na visão completa da ausencia que quer equiparar a tudo como ausencia do seu sentido. Ou seja, não visa a expressão em si, mas a externalização, que é uma expressão sem proposito de se expressar, mas equiparar a realidade exterior com a interior de forma a destruir tudo, não somente se fazer entender para se libertar.
+
 ### **Caracteristicas das almas com esperança (estado purgatorial) Pecados veniais
 
 - Percepção do afastamento de si mesmas.
