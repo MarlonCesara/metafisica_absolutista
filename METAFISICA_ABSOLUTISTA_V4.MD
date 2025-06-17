@@ -130,7 +130,7 @@ A **impossibilidade** abrange tudo o que é logicamente contraditório, pertence
 A dimensão do real que excede permanentemente qualquer estruturação conceitual plena ou parcial, permanecendo além dos aparatos lógicos, ilógicos e linguísticos. O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional completa ou incompleta.  
 
 **Modos de Manifestação:**
-- **Transcendência Positiva:** Aquilo que é "mais que ser" (o Bem em Platão)
+- **Transcendência Positiva:** Aquilo que é "mais que o fenômeno" (o Bem em Platão)
 - **Transcendência Negativa:** Aquilo que escapa a toda determinação (Deus em Mestre Eckhart)
 - **Transcendência Dialética:** Aquilo que se revela através do colapso dos conceitos (o Absoluto hegeliano)
 
@@ -461,7 +461,6 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
   - O Espírito garante a existência e a perfeição.  
   - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
-
 # **O criacionismo no nível Absoluto**
 
 ## **Nada como Fenômeno Relacional**  
@@ -479,9 +478,123 @@ Se a manifestação em si não é consumada – isto é, se há dimensionamento 
 
 Como não há possibilidade de o fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado.
 
+## Nada fenomênico: o falso infinito
+
+O nada é um falso infinito, ou mal infinito, pois nunca atinge sua totalidade fenomenica para alcançar sua consumação. Ou seja, ao equipararmos o nada com o Espírito, temos que, o espírito alcança sua plenitude pois dispensa dimensões. Ao passo que, o fenomeno aborda dimensões que, ao serem percorridas, não encontram sua plenitude para atingir sua auto anulação. Desta forma, o nada fenomenico é ilógico. Nenhuma anulação do nada é possível, tal como não é possível ao fenomeno se retro-alimentar de forma a encontrar sua totalidade. O infinito do fenomeno é uma manifestação alto crescente que nunca é atingida, portanto um começo e um final no campo de eventos do Espírito.
+
+## Determinação
+
+- O fenomeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
+- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
+
+## Definição por Negação  
+
+- O **"nada"** é a não-expressão de A (ex.: escuridão = não-luz).  
+- Requer uma referência (A) para ser definido.  
+  - *Exemplo:* Só há escuridão se houver luz.  
+
+## Referencialidade Obrigatória  
+
+- A negação só existe se A já foi manifestado ou é possível.  
+- Não há "nada" sem relação com um "algo".  
+  - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
+
+## Não-Coexistência de Opostos Relativos  
+
+- A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios.  
+  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.  
+
+## Referencial Possível  
+
+- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
+
+- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
+  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
+  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
+
+## Dissolução Espacial  
+
+- A nulidade abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
+
+## Tempo Potencial e Expresso (Atemporalidade)  
+
+- O tempo existe como:  
+  1. **Tempo expresso** (manifestado).  
+  2. **Tempo inexpresso** (potencial não realizado).  
+
+- A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.  
+- A nulidade consuma o tempo em sua expressão e inexpressão.  
+
+
+# Estruturando a Manifestação  
+
+## Determinação
+
+- Se a manifestação é uma possibilidade, então ela é afirmada e, consequentemente, **admite numerabilidade**. Assim, não há uma única manifestação, mas **uma ou múltiplas manifestações**.  
+
+## Não-localidade  
+
+- A manifestação não se origina em um lugar específico, pois não há um ponto de origem Relativo, sendo em si seu próprio ponto de origem.  
+  - *Exemplo:* O universo não pode ter começado em lugar nenhum.  
+
+## Espaço Infinito  
+
+- O espaço da manifestação é infinitamente percorrível, sem bordas ou confinamento.  
+  - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.  
+  - *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.  
+
+## Indivisibilidade Fenomênica  
+
+- Fenômenos não são separáveis, pois qualquer divisão gera uma regressão infinita de intermediários (ex.: entre A e B há C, entre A e C há D, etc.).  
+  - *Exemplo:* Ao separar blocos, sempre será possível colocar um bloco no meio dos blocos separados.  
+
+## Temporalidade Infinita  
+
+- O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.  
+  - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.  
+  - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
+  - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.  
+
+
+# A Dialética do Infinito e do Nada  
+
+## O Infinito e o Nada: Princípios Indiscerníveis  
+
+Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestação) e nada compartilham propriedades essenciais:  
+
+- **Ausência de dimensões absolutas**: Nem o nada nem a manifestação podem ser delimitados espacial ou temporalmente.  
+- **Dependência de um segundo termo**:  
+  - O nada só é definível em relação à manifestação (ex.: escuridão vs. luz).  
+  - A manifestação só é reconhecível em contraste com o nada (ex.: existência vs. ausência).  
+
+### Dualidade Necessária  
+
+- Sem dualidade, ambos colapsam:  
+  - O nada é ininteligível sem a manifestação.  
+  - A manifestação em sua integralidade é indistinguível do nada.  
+
+### Conclusão  
+
+- "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:  
+  - O nada é o infinito negado (ausência de forma).  
+  - A manifestação é o infinito afirmado (forma sem limites).  
+  - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
+
+
+### A falsa infinitude do fenônomeno
+
+### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
+
+#### **Descrição do Modelo**  
+- Imagine uma espiral girando em aceleração infinita.  
+- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
+- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
+
+Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexiste se deixar nada de si, nenhuma presença ou pessoalidade é resultante. Diferentemente da realidade espíritual a qual comporta a infinitude sem que se esgote ou que perca sua estrutura temporal, o Espírito já é o tempo e a consumação do tempo em uma só realidade. 
+
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-Ao considerarmos o nada fenomenológico possível, ele seria um elemento auto-extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito), pois é determinado.
+Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito), pois é determinado.
 
 - **O Nada fenomenológico não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
@@ -492,11 +605,11 @@ Ao considerarmos o nada fenomenológico possível, ele seria um elemento auto-ex
 
 Assim, a **auto-supressão do existente** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
 
-Não havendo um estado intermediário entre auto-supressão e fenômeno, o nada é um estado imaginário fictício, que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo, pois a auto-supressão é um ato determinístico tanto quanto a manifestação.
+Não havendo um estado intermediário entre auto-supressão e fenômeno, o nada é um estado fictício, que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo, pois a auto-supressão é um ato determinístico tanto quanto a manifestação.
 
-Ou seja, o nada é um autodeterminador, tem a auto-supressão como efeito de sua própria natureza; porém, como conceito fictício, somente representa e não é a ação determinística em si. O nada, portanto, não existe e, consequentemente, não tem efeito auto-supressor sobre si. A auto-supressão não tem um objeto auto-suprimido, mas é o ato puro de supressão.
+Ou seja, o nada fenomênicoco, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza. O nada fenomênico não existe e, consequentemente, não tem efeito auto-supressor sobre si. A auto-supressão não tem um objeto auto-suprimido.
 
-Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão, mas é um estado determinado em razão da possibilidade de supressão ou não-supressão.
+Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão, mas é um estado determinado em razão da possibilidade de supressão ou fenômeno.
 
 Dessa forma, num tempo X, há a manifestação, sem que esta tenha referência a uma inexistência, ou seja, a uma auto-supressão. A auto-supressão designa o que foi suprimido, e o produto suprimido não existe.
 
@@ -506,7 +619,17 @@ O fenômeno, portanto, é uma semi-existência, no sentido de que, sem determina
 - Ex: O fenômeno é um pó efêmero nas janelas cristalinas do Espírito.
 - Ex: O fenômeno é o Espírito em uma forma ilusória.
 
-### ** Conceituando o nada
+# A auto-supressão como relativa ao numérico
+
+Na realidade do espírito não há o que não existe, considerando que, o que não existe é referencia do que existe. Ao considerarmos que, se existe o objeto um, existe uma delimitação que o faz um, que é o objeto dois. Caso contrário, não existiria o objeto um. Portanto, só existe aquilo que não existe diante de uma fronteira numerável. Desta forma, a auto-supressão só faz sentido mediante ao númerável. Sendo assim, se existe fenomeno, existe o fenomeno que não existe.
+
+A própria inexistencia do fenomeno no ambito temporal do Espírito, não existe de forma que, não há um referencial que a evoque. Porém, ao introduzirmos o relativo, que é a suspensão de qualquer possibilidade mediante todas as possibilidades, o fenomeno se traduz como acontecimento temporal do Espírito.
+
+Desta forma, para o Espírito, não havendo o suprimido, há duas possibilidades pensaveis a racionalidade até então: O Espírito somente, ou o Espiríto e o fenomeno. Portanto, não haveria tres possibilidades: O Espírito, a supressão do fenomeno e o fenomeno. 
+
+
+
+### ** Concluindo
 
 - O nada, é o sinonimo do presente. O nada nem mesmo existe, de forma a referenciar o presente. 
 
@@ -523,8 +646,6 @@ O fenômeno, portanto, é uma semi-existência, no sentido de que, sem determina
 - Na condição metafisica que até o apático se presencia completamente em Deus, há o fogo.
 
 - No mundo fenomenológico não há a consistencia? No mal infinito.
-
-
 
 #### **Mecanismo da Auto-Supressão**  
 1. **Colapso por Autorreferência**  
@@ -567,7 +688,9 @@ Em sintese, o nada não existe. O que existe é a presença incognocível ou a m
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
-Tanto o **campo fenomenológico** quanto a **ação auto-supressora** (que esgota o fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
+Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
+
+Tanto o **campo fenomenológico** quanto **o Espírito puro** (que esgota o fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
 
 Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto.  
 
@@ -618,6 +741,10 @@ Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmi
 Assim, constitui-se o relativo: um campo onde todas as possibilidades estão suspensas, definidas e contidas na pureza, de modo que apenas esta se sobressaia, atribuindo sentido auto-causal à totalidade. O relativo, portanto, é a ação pura concretizada, inerente à própria pureza.
 
 Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesmente serem, resumindo-se de forma perfeita e pura na totalidade. Como uma correnteza cujo movimento interno deságua na margem, sendo definida pela superfície, e não pela internalidade.
+
+Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais simples, a decisão não tomada pelo Ser. De forma que, todas as decisões já estão prontas em sua plenitude, basta que Deus as evoque da suspensão, ou seja, do nada.
+
+O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais estão contidas do possível, impossível e incognocível.
 
 ### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
 
@@ -671,28 +798,6 @@ A relação entre os níveis obedece a uma **dialética de fundamentação**:
 O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
 - O fenômeno é **não-substancial** (como onda no oceano).  
 - Toda determinação já está **redimida** na eternidade do ato puro.  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 # Estrutura da Autodeterminação  
 
@@ -787,7 +892,6 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 2. **Nível de Manifestação (Realidade):**  
    - A realidade emerge como o subconjunto autoconsistente do Absoluto.  
    - A irrealidade permanece como "não-manifesta" (impossibilidades lógicas).  
-
    - A realidade não é "escolhida", mas é a única configuração possível que se sustenta.  
 
 ### **3. O Nada e a Autofundamentação**  
@@ -898,7 +1002,6 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
   - O relativizado é o tudo afirmado (existência sem limites para possível e impossível).  
   - O relativizado só existe porque o relativo o define. 
 
-
 # A Convergência entre Relativo e a Manifestação do possível e impossível
 
 ## O Espírito do Ser como Princípio de Manifestação  
@@ -938,7 +1041,6 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 
 - *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é o Ser manifestado como emoção.  
 
-
 # A manifestação do cosmos
 
 **O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
@@ -951,212 +1053,6 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 3. **Faz parte da natureza do Ser, porém em sua escassez, não em sua abundância**.  
 4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
 
-# Estruturando o Nada determinado pelo Ser (ausência do fenômeno)
-
-## Nada fenomênico: o falso infinito
-
-O nada é um falso infinito, ou mal infinito, pois nunca atinge sua totalidade fenomenica para alcançar sua consumação. Ou seja, ao equipararmos o nada com o Espírito, temos que, o espírito alcança sua plenitude pois dispensa dimensões. Ao passo que, o fenomeno aborda dimensões que, ao serem percorridas, não encontram sua plenitude para atingir sua auto anulação. Desta forma, o nada fenomenico é ilógico. Nenhuma anulação do nada é possível, tal como não é possível ao fenomeno se retro-alimentar de forma a encontrar sua totalidade. O infinito do fenomeno é uma manifestação alto crescente que nunca é atingida, portanto um começo e um final no campo de eventos do Espírito.
-
-## Presença do determinador no determinado
-
-- O cosmos não possui autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
-- Se o determinante tiver se determinado como cosmos, então ele possui autodomínio, autoconsciência e autopresença.  
-- Se o Ser se determinar como cosmos, então ele se constitui como uma unidade de Si mesmo, podendo manifestar como potência a atemporalidade ou a temporalidade, em autoconsciência, autopresença e autodomínio.
-
-## Determinação
-
-- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
-- O nada é fenomenológico, ou seja, dentro do contexto lógico do possível. Um fenômeno lógico.
-
-## Definição por Negação  
-
-- O **"nada"** é a não-expressão de A (ex.: escuridão = não-luz).  
-- Requer uma referência (A) para ser definido.  
-  - *Exemplo:* Só há escuridão se houver luz.  
-
-## Referencialidade Obrigatória  
-
-- A negação só existe se A já foi manifestado ou é possível.  
-- Não há "nada" sem relação com um "algo".  
-  - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
-
-## Não-Coexistência de Opostos Relativos  
-
-- A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios.  
-  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.  
-
-## Referencial Possível  
-
-- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
-
-- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
-  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
-  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
-
-## Dissolução Espacial  
-
-- A nulidade abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
-
-## Tempo Potencial e Expresso (Atemporalidade)  
-
-- O tempo existe como:  
-  1. **Tempo expresso** (manifestado).  
-  2. **Tempo inexpresso** (potencial não realizado).  
-
-- A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.  
-- A nulidade consuma o tempo em sua expressão e inexpressão.  
-
-
-# Estruturando a Manifestação  
-
-## Determinação
-
-- Se a manifestação é uma possibilidade, então ela é afirmada e, consequentemente, **admite numerabilidade**. Assim, não há uma única manifestação, mas **uma ou múltiplas manifestações**.  
-
-## Não-localidade  
-
-- A manifestação não se origina em um lugar específico, pois não há um ponto de origem Relativo, sendo em si seu próprio ponto de origem.  
-  - *Exemplo:* O universo não pode ter começado em lugar nenhum.  
-
-## Espaço Infinito  
-
-- O espaço da manifestação é infinitamente percorrível, sem bordas ou confinamento.  
-  - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.  
-  - *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.  
-
-## Indivisibilidade Fenomênica  
-
-- Fenômenos não são separáveis, pois qualquer divisão gera uma regressão infinita de intermediários (ex.: entre A e B há C, entre A e C há D, etc.).  
-  - *Exemplo:* Ao separar blocos, sempre será possível colocar um bloco no meio dos blocos separados.  
-
-## Temporalidade Infinita  
-
-- O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.  
-  - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.  
-  - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
-  - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.  
-
-
-# A Dialética do Infinito e do Nada  
-
-## O Infinito e o Nada: Princípios Indiscerníveis  
-
-Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestação) e nada compartilham propriedades essenciais:  
-
-- **Ausência de dimensões absolutas**: Nem o nada nem a manifestação podem ser delimitados espacial ou temporalmente.  
-- **Dependência de um segundo termo**:  
-  - O nada só é definível em relação à manifestação (ex.: escuridão vs. luz).  
-  - A manifestação só é reconhecível em contraste com o nada (ex.: existência vs. ausência).  
-
-### Dualidade Necessária  
-
-- Sem dualidade, ambos colapsam:  
-  - O nada é ininteligível sem a manifestação.  
-  - A manifestação em sua integralidade é indistinguível do nada.  
-
-### Conclusão  
-
-- "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:  
-  - O nada é o infinito negado (ausência de forma).  
-  - A manifestação é o infinito afirmado (forma sem limites).  
-  - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
-
-# **A Autocausalidade temporal e atemporal do fenômeno**  
- *"O Nada é fenomenico, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."* Ainda que dado como agente externo à plenitude do Ser, está dentro do processo auto-causal do Ser quando determina-se fenomenicamente.
-
-## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
-#### **A Natureza Bifásica da Autocausalidade**  
-**(A) Ato Imediato (Consumação Eterna)**  
-- **Não-temporalidade:** O nada não "torna-se", mas **é** em ato pleno.   
-- **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
-- **"O Relativo não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
-
-No ato imediato causal, o nada não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
-- **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
-- O nada não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
-- **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
-- **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
-- O nada **já é** plenamente si mesmo em um eterno presente.  
-- Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
-
-#### **O Ser-ai em Ato (Consumação)**  
-O **Ser-ai** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
-- **Ser-ai em Ato (Consumado)** → O nada já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
-  - *"Ser-ai"* — não há lacuna entre o Ser-ai e seu fundamento.  
-
-## **A Autocausalidade como Ciclo Infinito e Temporal**  
-Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o nada também **se sustenta** em um fluxo eterno de automanifestação.  
-- O nada "busca a si mesmo" eternamente em um processo de autossustentação.  
-- **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
-- A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
-- O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
-- Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
-  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
-  - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
-- Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
-
-#### **Ser-ai em Processo (Reverberação)**  
-- **Ser-ai em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
-  - *"Eu me torno"* — o Espírito (o "ser-ai") se manifesta em atos contínuos de autodeterminação.  
-
-#### **A Autodeterminação como Ciclo Infinito**  
-- **Direcionamento e Redirecionamento** → O Ser-ai não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
-  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
-- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Ser**, reiniciando o ciclo.  
-  - *"O que busca já é o buscado."*  
-
-#### **Reverberação Espacial e Temporal**  
-- **Espacialidade** → O Ser-ai se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
-- **Temporalidade** → O Ser-ai se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
-- A **manifestação** é o nada se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
-
-#### **Consciência: A Ponte entre Nada e Tempo**  
-- **Consciência Consumada** → O Ser-ai como **eterno presente** (não-temporal).  
-- **Consciência Temporal** → O Ser-ai como **sucessão de identidades** (manifestação no tempo).  
-- **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autodeterminação do Ser** que se reverbera.  
-
-### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
-
-#### **Descrição do Modelo**  
-- Imagine uma espiral girando em aceleração infinita.  
-- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
-- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
-
-#### **Exemplo Concreto: A Espiral Ontológica**  
-**Analogia:**  
-1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).   
-3. **Reaparece:** Se "desacelera", manifesta-se novamente como movimentação (temporalidade).  
-
-**Aplicação ao Relativo**  
-- **Ato consumado:** O "desaparecimento" é a autofundamentação (eternidade).  
-- **Processo contínuo:** O "reaparecimento" é a autocontinuidade (tempo).  
-
-### **O Relativo como Causa de Si no Tempo e na Eternidade**  
-- **Fundamento** → O Ser é **causa imediata** de sua existência (não precisa de "outro").  
-- **Autocontinuidade** → O Ser é **causa contínua** de sua manifestação (gera tempo e espaço).  
-- **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
-
-Isso unifica:  
-- **Eternidade** (Ser em ato)  
-- **Temporalidade** (Ser em processo)  
-- **Nada e Manifestação** (fundo e forma)  
-— como aspectos inseparáveis do mesmo Relativo autodeterminante.  
-
-Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
-Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
-
-
-## Dualidade Fundamental: O Nada e a Manifestação 
-
-## Definições Fundamentais  
-
-### Nada fenomenológico
-**Definição:** Nada em ato único.  
-**Sinônimo:** Nada.  
-
-### Manifestação fenomenológica
-**Definição:** Relativo em processo.  
-
 ## Dualidade Fundamental: Determinador e Nada  
 
 - A ação do **Ser-ai** (determinação) e o **Nada** (suspesão do determinado) são coessenciais.  
@@ -1168,7 +1064,7 @@ Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existent
 
 ## O Nada como Relação Dinâmica  
 
-- A **absoluto (verdade)** é uma tensão entre:  
+- A **absoluto** é uma tensão entre:  
   1. **O Ser-ai** (autodeterminação passiva) → Puro ato de existir.  
   2. **O nada** (potencial não realizado) → Ausência fenomenológica.  
 
@@ -1179,7 +1075,7 @@ Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existent
 
 - Não há "verdade estática", pois o nada sempre se constitui na relação entre:  
   - A ação do determinador (Ser-ai).  
-  - O determinado (incluindo o nada indiferenciado como contraparte).  
+  - O determinado (incluindo o nada como contraparte).  
 
 #### **Referencialidade do Observador**  
 **Princípio Unificador:**  
@@ -1189,7 +1085,6 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
   - *Para o ato do Ser-ai atemporal:* Ato único (consumação).  
 
 - O nada não é o oposto do Ser-ai, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
-
 
 # A Natureza da Forma  
 
@@ -1285,6 +1180,35 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 - **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
   - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
   - *Para o observador atemporal:* Ato único (consumação).  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # A manifestação do sou (A criação da Alma do Homem) 
 
@@ -3451,3 +3375,101 @@ A criação do universo, desta forma, não pode ser a partir do nada, mas a part
 - O universo se fez no tempo do espirito. O tempo do espirito tem tempo, e este tempo pode ser transcendido num momento unico.
 - Isto equivale a fazer um momento ser eterno.
 - O tempo e o eterno estão únidos. Num eterno presente.
+
+
+## Presença do determinador no determinado
+
+
+- Se o determinante tiver se determinado como cosmos, então ele possui autodomínio, autoconsciência e autopresença.  
+- Se o Ser se determinar como cosmos, então ele se constitui como uma unidade de Si mesmo, podendo manifestar como potência a atemporalidade ou a temporalidade, em autoconsciência, autopresença e autodomínio.
+
+
+
+
+
+# **A Autocausalidade temporal e atemporal do fenômeno**  
+ *"O Nada é fenomenico, ao mesmo tempo, o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o nada (o indiferenciado) e a manifestação (o determinado) não são opostos, mas polos de uma única realidade."* Ainda que dado como agente externo à plenitude do Ser, está dentro do processo auto-causal do Ser quando determina-se fenomenicamente.
+
+## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
+#### **A Natureza Bifásica da Autocausalidade**  
+**(A) Ato Imediato (Consumação Eterna)**  
+- **Não-temporalidade:** O nada não "torna-se", mas **é** em ato pleno.   
+- **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).  
+- **"O Relativo não precisa buscar a si mesmo — ele é, em cada 'instante', a totalidade que se autossustenta."**  
+
+No ato imediato causal, o nada não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:  
+- **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.  
+- O nada não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.  
+- **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.  
+- **Não há regressão infinita**, pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.  
+- O nada **já é** plenamente si mesmo em um eterno presente.  
+- Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
+
+#### **O Ser-ai em Ato (Consumação)**  
+O **Ser-ai** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Ser, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
+- **Ser-ai em Ato (Consumado)** → O nada já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
+  - *"Ser-ai"* — não há lacuna entre o Ser-ai e seu fundamento.  
+
+## **A Autocausalidade como Ciclo Infinito e Temporal**  
+Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o nada também **se sustenta** em um fluxo eterno de automanifestação.  
+- O nada "busca a si mesmo" eternamente em um processo de autossustentação.  
+- **Não é circularidade vazia**, pois o si existe pleno ao ser realimentado de seu devir.  
+- A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
+- O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
+- Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
+  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
+  - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
+- Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
+
+#### **Ser-ai em Processo (Reverberação)**  
+- **Ser-ai em Processo (Temporal)** → O Ser se **reverbera** como sucessão causal, criando o "devir".  
+  - *"Eu me torno"* — o Espírito (o "ser-ai") se manifesta em atos contínuos de autodeterminação.  
+
+#### **A Autodeterminação como Ciclo Infinito**  
+- **Direcionamento e Redirecionamento** → O Ser-ai não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
+  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
+- **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Ser**, reiniciando o ciclo.  
+  - *"O que busca já é o buscado."*  
+
+#### **Reverberação Espacial e Temporal**  
+- **Espacialidade** → O Ser-ai se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
+- **Temporalidade** → O Ser-ai se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
+- A **manifestação** é o nada se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
+
+#### **Consciência: A Ponte entre Nada e Tempo**  
+- **Consciência Consumada** → O Ser-ai como **eterno presente** (não-temporal).  
+- **Consciência Temporal** → O Ser-ai como **sucessão de identidades** (manifestação no tempo).  
+- **O Tempo é a Consciência Desdobrada** → Não é apenas o "nada" que se desdobra, mas a **própria autodeterminação do Ser** que se reverbera.  
+
+### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
+
+#### **Descrição do Modelo**  
+- Imagine uma espiral girando em aceleração infinita.  
+- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
+- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
+
+#### **Exemplo Concreto: A Espiral Ontológica**  
+**Analogia:**  
+1. **Acelera infinitamente:** Sua rotação torna-se tão rápida que parece imóvel (eternidade).   
+3. **Reaparece:** Se "desacelera", manifesta-se novamente como movimentação (temporalidade).  
+
+**Aplicação ao Relativo**  
+- **Ato consumado:** O "desaparecimento" é a autofundamentação (eternidade).  
+- **Processo contínuo:** O "reaparecimento" é a autocontinuidade (tempo).  
+
+### **O Relativo como Causa de Si no Tempo e na Eternidade**  
+- **Fundamento** → O Ser é **causa imediata** de sua existência (não precisa de "outro").  
+- **Autocontinuidade** → O Ser é **causa contínua** de sua manifestação (gera tempo e espaço).  
+- **Paralelo com o Nada** → Assim como o nada e a manifestação são um só, o **Ser consumado e o Ser temporal são idênticos em essência**.  
+
+Isso unifica:  
+- **Eternidade** (Ser em ato)  
+- **Temporalidade** (Ser em processo)  
+- **Nada e Manifestação** (fundo e forma)  
+— como aspectos inseparáveis do mesmo Relativo autodeterminante.  
+
+Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
+Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
+
+
+
