@@ -565,20 +565,6 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 
 Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. A ausência do fenômeno não existe, de forma que deveria existir o fenômeno como interno a está ausência (nada fenomênico).
 
-## ** A criação a ex-nihillo
-
-A criação do universo, desta forma, não pode ser a partir do nada, mas a partir de uma mudança no teor do Espírito, de forma que se projete não a si mesmo, mas uma idealização de si. O universo é uma visão metafísica que cresce horizontalmente, mas não rescinde em si mesma, não é viva, mas emana do Vivo. É causada e não auto-causal.
-
-- Não há como se retirar daquilo que não existe.
-- Há a vontade causadora e o Espírito auto causado.
-- Criou a partir de sua vontade, há o elemento da vontade, que somado ao relativo, se dá como uma visão.
-- O nada seria o relativo. 
-- Não há forma determinada, há o relativo.
-- A visão do espirito e seu querer sobre o relativo trouxe a existencia fenomenologica.
-- O universo se fez no tempo do espirito. O tempo do espirito tem tempo, e este tempo pode ser transcendido num momento unico.
-- Isto equivale a fazer um momento ser eterno.
-- O tempo e o eterno estão únidos. Num eterno presente.
-
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
 Tanto o **campo fenomenológico** quanto a **ação auto-supressora** (que esgota o fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
@@ -632,7 +618,6 @@ Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmi
 Assim, constitui-se o relativo: um campo onde todas as possibilidades estão suspensas, definidas e contidas na pureza, de modo que apenas esta se sobressaia, atribuindo sentido auto-causal à totalidade. O relativo, portanto, é a ação pura concretizada, inerente à própria pureza.
 
 Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesmente serem, resumindo-se de forma perfeita e pura na totalidade. Como uma correnteza cujo movimento interno deságua na margem, sendo definida pela superfície, e não pela internalidade.
-
 
 ### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
 
@@ -936,10 +921,10 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 ## O Nada como Estado Relacional  
 
 - Sua existência só faz sentido mediante a ação do espirito, não em si mesmo.  
-- *Exemplo:* Um horizonte ilimitado é "nada absoluto" até que o espirito defina um ângulo de existência, convertendo-o em paisagem.  
+- *Exemplo:* Um horizonte ilimitado é "nada" até que o espirito defina um ângulo de existência, convertendo-o em paisagem.  
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
 
-## Criação a partir do Nada absoluto 
+## Criação a partir do Nada  
 
 Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de forma a tornar existente possibilidades prévias:  
 
@@ -3451,3 +3436,18 @@ O Eu amático, em uma super posição de si, daria visão do Eu do todo, com as 
 -O nada não pode ser desfeito pois nao se sustenta como infinito
 -A manifestação do nada é uma alteração no teor da presença?
 -É uma semi transparência da presença
+
+
+## ** A criação a ex-nihillo
+
+A criação do universo, desta forma, não pode ser a partir do nada, mas a partir de uma mudança no teor do Espírito, de forma que se projete não a si mesmo, mas uma idealização de si. O universo é uma visão metafísica que cresce horizontalmente, mas não rescinde em si mesma, não é viva, mas emana do Vivo. É causada e não auto-causal.
+
+- Não há como se retirar daquilo que não existe.
+- Há a vontade causadora e o Espírito auto causado.
+- Criou a partir de sua vontade, há o elemento da vontade, que somado ao relativo, se dá como uma visão.
+- O nada seria o relativo. 
+- Não há forma determinada, há o relativo.
+- A visão do espirito e seu querer sobre o relativo trouxe a existencia fenomenologica.
+- O universo se fez no tempo do espirito. O tempo do espirito tem tempo, e este tempo pode ser transcendido num momento unico.
+- Isto equivale a fazer um momento ser eterno.
+- O tempo e o eterno estão únidos. Num eterno presente.
