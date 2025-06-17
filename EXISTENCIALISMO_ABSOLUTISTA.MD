@@ -636,6 +636,8 @@ Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpe
 - Total ausencia de compaixão em algumas atitudes
 - Desumanização
 
+O individuo em estado infernal usa da destruição de tudo aquilo que confere sentimento e sentido a vida, como expressão da completa falta de esperança e escuridão, até mesmo da própria falta de espera em si. É o completo não sentido que extravasa do individuo como mal, como desapego até de si mesmo como existente em prol da destruição. 
+
 ### **Caracteristicas das almas com esperança (estado purgatorial) Pecados veniais
 
 - Percepção do afastamento de si mesmas.
@@ -643,6 +645,8 @@ Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpe
 - Crueldade amena, no sentido de frustração
 - Almas querem a resposta
 - Sutil humanização
+
+O individuo manifesta uma certa tendencia a degradação e não exatamente a destruição. 
 
 ### **Caracteristicas das almas sem sabedoria (falta sabedoria) 
 
