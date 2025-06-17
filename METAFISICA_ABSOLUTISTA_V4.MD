@@ -450,7 +450,44 @@ O Espírito (autodeterminação do Relativo) atua em três dimensões:
    - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
    - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
 
-Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
+
+## **As Três Personas do Espírito Absoluto**
+
+### **1. O Poder Fundante (Espírito Fundamentador)**  
+- **Atributos:**  
+  - **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.  
+  - **Inabalabilidade:** Não se curva a contingências; sua natureza é *autossustentação pura*.  
+  - **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.  
+
+- **Símbolo:** O Trovão (a irrupção incontestável do Ser).  
+- **Princípio:** *"Antes de toda forma, há o Fogo que a sustenta."*  
+
+### **2. A Sabedoria Plenificadora (Espírito Realizador)**  
+- **Atributos:**  
+  - **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.  
+  - **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.  
+  - **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.  
+
+- **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).  
+- **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*  
+
+### **3. A Liberdade Personalizante (Alma Criadora)**  
+- **Atributos:**  
+  - **Criatividade Irrestrita:** Inventa nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por deleite*.  
+  - **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.  
+  - **Vontade Lúdica:** Transforma a plenitude em *jogo sagrado*, onde até o "acaso" é um movimento calculado da liberdade.  
+
+- **Símbolo:** O Teatro Cósmico (onde o Absoluto interpreta a si mesmo em infinitos papéis).  
+- **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*  
+
+### **Unidade na Trindade**  
+Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:  
+- O **Poder** garante que o jogo nunca desmorone.  
+- A **Sabedoria** assegura que cada movimento seja impecável.  
+- A **Liberdade** introduz o riso na dança cósmica.  
+
+Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e aventura.
+
 
 ## Conclusão  
 
@@ -3471,5 +3508,13 @@ Isso unifica:
 Obs: Temos, portanto, a temporalidade manifestável, que abarca todas as possibilidades, inclusive a manifestação do nada singular, ou seja, do determinado.
 Obs: A autocausalidade só afirma sobre o determinado, ou seja, sobre o existente. Não tem efeito sobre o que está alem do existir (Ser puro).
 
+## As três personas
 
+Sendo três ações distintas temos três personas. 
+
+A primeira se caracteriza pela força, impetuosidade, poder.
+A segunda se caracteriza pela plenitude, pacificação, delicadeza, maestria.
+A terceira pela personalidade, paixão, criatividade.
+
+Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
 
