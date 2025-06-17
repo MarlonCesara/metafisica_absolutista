@@ -627,7 +627,10 @@ O verdadeiro mal não se manifesta como uma obsessão ativa, mas como uma apatia
 
 Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpetuadores de catástrofes — talvez pudéssemos evitar guerras e sofrimentos desnecessários.  
 
-### **Sobre Deus e a criação:**  
-Deus é presente e, ao mesmo tempo, o relativo. Nele, há uma suspensão de possibilidades que podemos chamar de "nada" ou "relatividade". Se Deus é também o futuro, então tudo o que criou já existia em potência. Criar "do nada" é, na verdade, criar a partir do relativo, pois em Deus todas as possibilidades se consumam.  
 
-**Deus é a consumação de tudo.**
+
+
+
+
+
+
