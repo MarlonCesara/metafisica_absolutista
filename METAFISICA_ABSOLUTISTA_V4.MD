@@ -3518,3 +3518,5 @@ A terceira pela personalidade, paixão, criatividade.
 
 Estas são as três dinâmicas de ação possíveis para a autodeterminação do Absoluto. Sendo que as três podem ter eficácia no relatívo de forma a fundamentá-lo, plenificá-lo e construí-lo.  
 
+### **Sobre Deus e a criação:**  
+Deus é presente e, ao mesmo tempo, o relativo. Nele, há uma suspensão de possibilidades que podemos chamar de "nada" ou "relatividade". Se Deus é também o futuro, então tudo o que criou já existia em potência. Criar "do nada" é, na verdade, criar a partir do relativo, pois em Deus todas as possibilidades se consumam.  
