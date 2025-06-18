@@ -3520,3 +3520,9 @@ Estas são as três dinâmicas de ação possíveis para a autodeterminação do
 
 ### **Sobre Deus e a criação:**  
 Deus é presente e, ao mesmo tempo, o relativo. Nele, há uma suspensão de possibilidades que podemos chamar de "nada" ou "relatividade". Se Deus é também o futuro, então tudo o que criou já existia em potência. Criar "do nada" é, na verdade, criar a partir do relativo, pois em Deus todas as possibilidades se consumam.  
+
+
+## O espírito perfeito e o homem
+
+- O espírito é o que move rumo a plenitude e desagua na personalidade
+- Portanto, o que é no homem é o espírito da plenitude.
