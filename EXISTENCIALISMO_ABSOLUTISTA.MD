@@ -789,3 +789,10 @@ Sua condição não é um acidente, mas **a materialização de uma possibilidad
 - O apatico, em sociedade, deve ser tratato com cuidado, seus cargos devem não envolver grandes responsabilidades, pois a necessidade da expressão envolve sem trabalho, sem que o apatico possa reagir ou se reanimar para um novo comportamento ainda portanto a apatia. Portanto, a expressão do apatico faz mais sentido perante o seu afazer ou a sua tarefa na soceidade, de modo que distorça sua função afim de avisar os outros seu conflito interior.
 
 - O apatico não tem um defeito psicologico que o segregue do funcionamento social e do exercicio da cidadania, porém, seu estado existencial tem primazia em suas ações, e isso supoe uma explicação para comportamentos que contrariam o humano como causar guerras, genocideos, destruições em massa, escravidão, tortura, etc.  O que nenhum ser humano se sujeitaria a fazer, se justifica, muitas vezes pela incosciencia de si, pelo confinamento do eu, pelo desespero existencial. Ou até mesmo pela manipulação que apaticos causam em não apaticos.
+
+- O apatico, pelo seu estado de desespero irremediavel, deve ser segregado de cargos que envolvam cuidar do bem estar efetivo de grupos, como lideranças, chefias, tarefas administrativas que envolvam pessoas, ainda que capacitado e são, seu estado existencial o impoe forte pressão por soluçao, e esta força se esvai de si em direção a todos a sua volta como tentativa de libertação do mal que se encontra padecendo. O humano, em apatia, interpreta, que, seu estado tem primazia de resolução, e não abre mão de qualquer força ou forma de expressão que possa usar para sinalizar seu estado interior, pois interpreta que isto envolve urgencia considerando que se trata de uma condição desconhecida para si e desesperadora.
+
+
+
+
+
