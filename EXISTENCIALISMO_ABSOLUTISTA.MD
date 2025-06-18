@@ -773,3 +773,5 @@ Sua condição não é um acidente, mas **a materialização de uma possibilidad
 - De onde vem a inspiração da alma?
 
 - Toda alma oriunda de Deus carrega o teor vivido completo de que precisa para definir-se.
+
+- O mal quer tirar tudo, mas não pode tirar o Ser das pessoas. O mal tenta destruir tudo aquilo que colide com sua realidade interior. Tanto das pessoas, quanto da natureza, etc. Do bem estar. etc.
