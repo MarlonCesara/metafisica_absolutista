@@ -770,3 +770,6 @@ O apático vive a contradição máxima:
 Sua condição não é um acidente, mas **a materialização de uma possibilidade metafísica terrível**: a de que o vazio pode, temporariamente, ganhar voz – e que essa voz pode falar, agir e até mesmo governar, sem jamais *existir* de verdade.  
 
 
+- De onde vem a inspiração da alma?
+
+- Toda alma oriunda de Deus carrega o teor vivido completo de que precisa para definir-se.
