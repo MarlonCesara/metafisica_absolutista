@@ -775,3 +775,7 @@ Sua condição não é um acidente, mas **a materialização de uma possibilidad
 - Toda alma oriunda de Deus carrega o teor vivido completo de que precisa para definir-se.
 
 - O mal quer tirar tudo, mas não pode tirar o Ser das pessoas. O mal tenta destruir tudo aquilo que colide com sua realidade interior. Tanto das pessoas, quanto da natureza, etc. Do bem estar. etc.
+
+
+
+- Toda alma é viva, no sentido de que, pode agir em prol de si, sob o impeto do espírito a qualquer momento, porém, essa vida não é em abundancia, não tem um sentido em si. E essa suencia do sentido representa o nada, no sentido de que, é viva, mas não é abundante de vida em si. É feita para a vida, mas não se faz para viver. É opaca a si mesma como vida. Não transluz para si. E, se essa não translucidez for eterna, logo, há vida, mas que não germinou.
