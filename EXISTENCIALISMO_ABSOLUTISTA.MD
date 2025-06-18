@@ -748,6 +748,7 @@ O apático não experimenta o infinito (Deus, o Todo, o eterno), mas está confi
 
 - Ou seja, o relativo tem referencial de afirmação de uma possibilidade. O modo de ser do apático, dispensa até mesmo a afirmação, é um relativo vazio, a personificação do nada. Um lugar onde nem mesmo Deus pode alcançar, pois não existe.
 
+- O relativo supoe a presença. Mas a ausencia do sentido no apatico, deduz a ausencia personificada. 
 ---  
 
 #### **4. A Transparência Suicida**  
