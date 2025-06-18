@@ -779,3 +779,13 @@ Sua condição não é um acidente, mas **a materialização de uma possibilidad
 
 
 - Toda alma é viva, no sentido de que, pode agir em prol de si, sob o impeto do espírito a qualquer momento, porém, essa vida não é em abundancia, não tem um sentido em si. E essa suencia do sentido representa o nada, no sentido de que, é viva, mas não é abundante de vida em si. É feita para a vida, mas não se faz para viver. É opaca a si mesma como vida. Não transluz para si. E, se essa não translucidez for eterna, logo, há vida, mas que não germinou.
+
+
+
+- O apatico, como um bebe que ainda não nasceu, nao deve ser visto com rancor, mas com um individuo que cria um mini mundo de expressão, no qual tenta destruir, desiludir, instigar o caos como reflexo de seu interior, como tentativa do salvamento de si mesmo. Sua expressão esconde literalmente a descrição biblica exata: choro e ranger de dentes. Uma saudade inequivoca de si. Uma cegueira desesperadora. O mundo do apatico, resume-se em uma expressão que envolve segregar a amplitude da vida e suas infinitas possibildiades, em prol de uma obsessão local e com possibilidades limitadas.
+
+- O apatico não projeta sua plenitude, mas sem foco incide em pequenas ocasioes em que pode expressar seu instinto interior em direção a sua autenticidade que não é realizado outrora por si mesmo. 
+
+- O apatico, em sociedade, deve ser tratato com cuidado, seus cargos devem não envolver grandes responsabilidades, pois a necessidade da expressão envolve sem trabalho, sem que o apatico possa reagir ou se reanimar para um novo comportamento ainda portanto a apatia. Portanto, a expressão do apatico faz mais sentido perante o seu afazer ou a sua tarefa na soceidade, de modo que distorça sua função afim de avisar os outros seu conflito interior.
+
+- O apatico não tem um defeito psicologico que o segregue do funcionamento social e do exercicio da cidadania, porém, seu estado existencial tem primazia em suas ações, e isso supoe uma explicação para comportamentos que contrariam o humano como causar guerras, genocideos, destruições em massa, escravidão, tortura, etc.  O que nenhum ser humano se sujeitaria a fazer, se justifica, muitas vezes pela incosciencia de si, pelo confinamento do eu, pelo desespero existencial. Ou até mesmo pela manipulação que apaticos causam em não apaticos.
