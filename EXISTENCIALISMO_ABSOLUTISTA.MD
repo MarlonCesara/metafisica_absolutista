@@ -792,7 +792,9 @@ Sua condição não é um acidente, mas **a materialização de uma possibilidad
 
 - O apatico, pelo seu estado de desespero irremediavel, deve ser segregado de cargos que envolvam cuidar do bem estar efetivo de grupos, como lideranças, chefias, tarefas administrativas que envolvam pessoas, ainda que capacitado e são, seu estado existencial o impoe forte pressão por soluçao, e esta força se esvai de si em direção a todos a sua volta como tentativa de libertação do mal que se encontra padecendo. O humano, em apatia, interpreta, que, seu estado tem primazia de resolução, e não abre mão de qualquer força ou forma de expressão que possa usar para sinalizar seu estado interior, pois interpreta que isto envolve urgencia considerando que se trata de uma condição desconhecida para si e desesperadora.
 
+## Apocalipse
 
+A verdade veio a tona, todas as pessoas estão cientes. Agora, conseguem enxergar a apatia. Mas a visão da compaixão é a primordial, pois todos somos irmãos.Quando os poderosos foram destituidos do poder economico, e os humildes exaltados, uma grande alegria se instaurou, tudo na terra passou a cantar de alegria, a ser bonito, harmonico. Os apaticos, então, entraram num pranto inconsolavel. O eu que procuravam, tentando pressionar as pessoas, tirar-lhes a resposta, não resultou em se não prova do proprio vazio que carregam. A humanidade se tornou a prova viva do espírito vivo do existir agindo, fazendo nova todas as coisas. Os sorrisos felizes. A nautureza vibrante. Tudo evidencia mais ainda o poder do existir, a vida se deleitando profundamenta em cada olhar. O apatico, diante desta realidade, entra em desespero. Não há onde ir que não há vida e alegria. Então, há choro e ranger de dentes.
 
 
 
