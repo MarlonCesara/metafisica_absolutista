@@ -804,3 +804,4 @@ A apatia é um grio silencioso, o individuo grita e não sabe mensurar seu vazio
 
 A expressão do apático se faz entender quando a soceidade entende os mecanismos de expressão e perde o receio do mal causado, de forma que a sociedade entende que, não há um plano diabolico por trás dos problemas do mundo, mas um sofrimento inexpresso. Um sintoma que transparece uma forma maligna inteligente, mas que é puro desespero e aleatoriedade.
 
+O apatico necessita entender que o problema dele é espiritual e não politico, social ou psicológico. Desta forma causar sofrimento, não sana o seu estado.
