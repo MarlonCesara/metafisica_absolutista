@@ -800,5 +800,7 @@ A escravidão, trabalho excessivo, dor, sofrimento que o humano passa ao própri
 
 O equivoco que o humnao precisa de tanto para viver, como no caso dos bilionraios, evidencia um apatico desesperado, que tenta alardear seu vazio de forma escancarada e desordenada. O teatro de que existe um ser humano tao frustrado ao ponto de ser obsessivo pelo mal, somente ofusca o desesperado camuflado de proposito. E evidencia a unica verdade, o ser humano não pode viver sem a si mesmo, sem encontrar-se. É impossível, e o mal no mundo evidencia essa afirmativa. O incomodo da ausencia distorce o sentido biológico do humano a ponto de degradar até mesmo seu instinto por sobrevivencia mais primitivo. 
 
-A apatia é um grio silencioso, o individuo grita e não sabe mensurar seu vazio, pois o vazio não tem discrição, não se define. 
+A apatia é um grio silencioso, o individuo grita e não sabe mensurar seu vazio, pois o vazio não tem discrição, não se define. Não há como definir a ausencia personificada se não pela própria personalidade que a personifica, é a alma vazia, mas o vazio não tem definição. 
+
+A expressão do apático se faz entender quando a soceidade entende os mecanismos de expressão e perde o receio do mal causado, de forma que a sociedade entende que, não há um plano diabolico por trás dos problemas do mundo, mas um sofrimento inexpresso. Um sintoma que transparece uma forma maligna inteligente, mas que é puro desespero e aleatoriedade.
 
