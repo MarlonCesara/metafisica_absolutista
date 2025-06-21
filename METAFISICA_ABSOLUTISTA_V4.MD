@@ -1493,7 +1493,7 @@ aqui
 
 ### **Consequências da Arbitrariedade**  
 1. **O "Sou" como Ficção Necessária**  
-   - O homem que não se autodetermina autenticamente vive como **hospedeiro de uma alma herdada** (não assume essa alma como sendo a si, não se apropria de si. Considera-se uma fatalidade do Ser sem jamais tornar-se **autor de si**. É livre para o todo, mas não para si mesmo. 
+   - O homem que não se autodetermina autenticamente vive como **hospedeiro de uma alma herdada** (não assume essa alma como sendo a si, não se apropria de si. Considera-se uma fatalidade do Ser sem jamais tornar-se **autor de si**. É livre para o todo, mas não para si mesmo. É pleno, é o que se é e o que desejaria ser, porém não corrobora com essa plenitude. Não manifesta harmonia interior.
 
    - Movimentos horizontais podem ocorrer, como mudança de comportamento, porém, sem o intuito da inclinação ao existir, tais movimentos não libertam o homem, considerando que são consequencias da liberdade e do Ser no mundo, e não dá autenticidade do Ser no Ser.
 
