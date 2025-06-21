@@ -1481,7 +1481,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
   - Autêntica (determinada pelo Ser e redeterminada por si mesmo, ou seja, a escolha de confirmar a própria liberdade perante a si).  
 - Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição.  
 
-aqui 
+
 ### Autodeterminação como Ato Espiritual  
 
 - Toda escolha horizontal pressupõe um direcionamento vertical (espiritual) inoperante ou operante, pois optar é, em essência, afirmar-se ou não como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
@@ -1496,7 +1496,6 @@ aqui
    - O homem que não se autodetermina autenticamente vive como **hospedeiro de uma alma herdada** (não assume essa alma como sendo a si, não se apropria de si. Considera-se uma fatalidade do Ser sem jamais tornar-se **autor de si**. É livre para o todo, mas não para si mesmo. É pleno, é o que se é e o que desejaria ser, porém não corrobora com essa plenitude. Não manifesta harmonia interior.
 
    - Movimentos horizontais podem ocorrer, como mudança de comportamento, porém, sem o intuito da inclinação ao existir, tais movimentos não libertam o homem, considerando que são consequencias da liberdade e do Ser no mundo, e não dá autenticidade do Ser no Ser.
-
 
 2. **A Corrupção como Retorno ao Nada**  
    - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Relativo permanece, ainda que o *"sou"* humano se dissolva.  
