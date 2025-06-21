@@ -805,3 +805,9 @@ A apatia é um grio silencioso, o individuo grita e não sabe mensurar seu vazio
 A expressão do apático se faz entender quando a soceidade entende os mecanismos de expressão e perde o receio do mal causado, de forma que a sociedade entende que, não há um plano diabolico por trás dos problemas do mundo, mas um sofrimento inexpresso. Um sintoma que transparece uma forma maligna inteligente, mas que é puro desespero e aleatoriedade.
 
 O apatico necessita entender que o problema dele é espiritual e não politico, social ou psicológico. Desta forma causar sofrimento, não sana o seu estado.
+
+
+- A apatia da alma enlouquece o individuo, que, fugindo da realidade, projeta uma realidade onde é espiritualmente harmonico, e isso envolve a aquição de riquezas a todo custo.
+- O apatico, empresário, forma uma hierarquia de treinamento do mal, onde leva pessoas a fazerem o mal por si. Na tentativa de continuar a ilusão. É um estado de desrealização onde o individuo reuni riquezas materiais na tentativa de se adequar a harmonia, aceitação, inclinação a si mesmo, adequação do ente no existir.
+
+
