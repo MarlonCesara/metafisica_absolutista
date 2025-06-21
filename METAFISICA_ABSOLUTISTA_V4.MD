@@ -1484,34 +1484,30 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 aqui 
 ### Autodeterminação como Ato Espiritual  
 
-- Toda escolha horizontal (existencial) pressupõe um direcionamento vertical (espiritual), pois optar é, em essência, afirmar-se como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
-- Ao autodeterminar-se, o "sou" torna-se autor de sua continuidade e essência, alcançando:  
-  - Autopresença (estar em si mesmo).  
-  - Autonomia (poder sobre si).  
-  - Autoconhecimento (consciência de si).  
+- Toda escolha horizontal pressupõe um direcionamento vertical (espiritual) inoperante ou operante, pois optar é, em essência, afirmar-se ou não como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
+- Ao autodeterminar-se, o "sou" torna-se aautenticamente autor de sua continuidade e essência, alcançando:  
+  - Autopresença autentica (estar em si mesmo).  
+  - Autonomia autentica (poder sobre si).  
+  - Autoconhecimento autentico (consciência de si).  
 - Isso não é apenas uma mudança essencial, mas transforma concretamente sua existência e ações, de forma a permitir que o "sou" revele sua personalidade autêntica.  
 
 ### **Consequências da Arbitrariedade**  
 1. **O "Sou" como Ficção Necessária**  
-   - O homem que não se autodetermina vive como **personagem de uma alma herdada** (crenças, instintos, condicionamentos), sem jamais tornar-se **autor de si**.  
-   - *Exemplo no Matrix*: Os humanos presos ao sistema são "almas adormecidas", enquanto Neo acorda para a liberdade ao afirmar *"Eu sei quem sou"*.  
+   - O homem que não se autodetermina autenticamente vive como **personagem de uma alma herdada** (crenças, instintos, condicionamentos), sem jamais tornar-se **autor de si**.  
 
 2. **A Corrupção como Retorno ao Nada**  
    - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Relativo permanece, ainda que o *"sou"* humano se dissolva.  
-   - A autonegação radical involuntária (negação da própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade de autonomia e liberdade.  
-   - *Analogia*: Como um programa que se autoexclui do Matrix — o sistema continua, mas sua existência individual cessa.  
+   - A autonegação da autenticidade (não inclinação à própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade e autencidade de autonomia e liberdade.  
 
 3. **A Liberdade como Risco Relativo**  
-   - Escolher existir é assumir o **fardo da autocriação contínua**, sem garantias externas.  
+   - Escolher existir é assumir a ** autocriação contínua**, sem garantias externas.  
    - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**.  
 
 ### A Arbitrariedade na Integralidade  
 
-- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência - pode ser sustentado pelo Ser em seu estado integral (nada individual). Pois, como fenômeno (fragmento) que existe, também existe enquanto integralidade.  
+- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência autenticas- é sustentado por si, porém, como uma imposição e não por escolha autentica. 
 
-- O "sou" sem autoconsciência, autopresença e autonomia, em sua forma integral, experimenta subjetivamente a sensação de aniquilação de si mesmo. Isso ocorre porque, em sua perspectiva, sua subsistência está fundamentada apenas em suas percepções sensoriais.  
-
-- Exemplo: O "sou" sem autonomia tem a impressão de que pode ser desligado da Matrix a qualquer momento, com sua existência sendo extinta para sempre.  
+- O "sou" sem autoconsciência, autopresença e autonomia autenticas, em sua forma integral, experimenta subjetivamente a sensação de desconexão de si mesmo.
 
 # **Liberdade e Neutralidade**  
 
@@ -1548,17 +1544,23 @@ Nossa experiência do "agora":
 
 ### O Espírito Humano como Ponte  
 
-- O espírito do homem pode direcioná-lo à sua própria autoconsciência, autonomia e autopresença, conectando-o ao Ser não apenas como projeção mental, mas como participante ativo de forma a ser a si no Ser.  
+- O espírito do homem pode direcioná-lo à sua própria autoconsciência, autonomia e autopresença autenticas conectando-o ao Ser não apenas como consequencia da determinação do Ser, mas como participante ativo de forma a ser a si no Ser de forma autentica.
+- Temos, portanto, o estar determinado, e o estar autentico, que é quando o sou corrobora, coagem, se inclina a sua propria ação de existir e ser livre.
 
 ### Plenitude na União  
 
-- O "sou" alcança sua realização máxima quando, como individualidade, integra-se à integralidade do Ser.  
+- O "sou" alcança sua realização máxima quando, como individualidade, integra-se à integralidade do Ser de forma a coagir com sua existencia. 
 - O "sou" é real para si no Ser, e o Ser é a verdade na qual o "sou" se afirma como existente e verdadeiro.  
+
+
+- Ao corroborar com o Ser, o sou não muda sua substancia em si (alma), mas muda seu estado de existencia, a autenticidade envolve o movimento da alma em direção ao existir (Ser).
+- Sendo o movimento de existir o próprio Ser, que é o movimento puro em direção ao existir, o individuo pode ser definico como no Ser ou fora do Ser, ainda que existente, pois é possível que o existente se reafirme existente.
+- Estar no Ser, significa Ser em conexão, ou seja, Ser no Ser. E não somente Ser em si. Desta forma, se tem o Ser autentico, quando o individuo não se contradiz em seu ato de Ser de forma a não estar em concordancia ou inclinação ao seu próprio ato de liberdade.
+- Se ser fora do Ser ainda é Ser, podemos definir que, o teor da Alma fora do Ser não carrega teor de plenitude, permanece como possibilidade para o Ser, mas não como autentica possibilidade para si.
 
 ## Dons Naturais e Sobrenaturais  
 
-### Dons Naturais (Autodomínio Relativo)  
-- Todo "sou" é existente, mas apenas o autodeterminado é consciente, presente e autônomo de si.  
+### Dons Naturais (Autodomínio Relativo)   
 - O autodomínio do "sou" se estende a tudo que pertence ao Ser, mas é limitado pelo autodomínio do Ser e pela interação com outros determinadores.  
   - *Exemplo:* Só vejo o ente A se A se determinar como visível para mim. Ou seja, se A me der o domínio de sua visão e a dominar de forma que possa me exibi-la.  
   - *Exemplo:* Só posso dominar A completamente se estiver fundido em A, de forma que a visão é o próprio A em meus olhos.  
@@ -1567,8 +1569,10 @@ Nossa experiência do "agora":
 ### Dons Sobrenaturais (Transcendência)  
 
 - O homem, como alma determinada do Ser, pode autodeterminar-se sobre o próprio Ser que o fundamenta.  
-- Quanto mais profunda sua conexão com o Ser, maior sua capacidade de influenciar a natureza do Ser.  
+- Quanto mais profunda sua conexão com o Ser, maior sua capacidade de influenciar a natureza do Ser. 
 - *Exemplo:* Assim como uma onda, quanto mais me realizo como indivíduo, mais me integro ao oceano do Ser.  
+- O ponto absoluto de auto doniminio sobre a natureza do Ser é a total aceitação da vontade do Ser.
+
 
 ### Dons Sobrenaturais na Natureza do Ser  
 
