@@ -811,5 +811,6 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 - O apatico, empresário, forma uma hierarquia de treinamento do mal, onde leva pessoas a fazerem o mal por si. Na tentativa de continuar a ilusão. É um estado de desrealização onde o individuo reuni riquezas materiais na tentativa de se adequar a harmonia, aceitação, inclinação a si mesmo, adequação do ente no existir.
 - O mal no mundo é ocasionado por empresários, que, por terem tendencia de serem empresários, arquitetar negocios de forma eficaz, usaram isto para o mal, e conseguiram causar grande impacto antes que a tencologia politica fosse completamente desenvolvida.
 - O individuo evita momentos felizes por querer adequar a realidade quimica biológica a sua relaidade interior de estagnação e ausencia do sentido.
-
+- O fanatismo por dinheiro nao advem de uma grande sabedoria, mas de um conflito interior imenso, que muitos apropriam, tomam para si como objetivo de vida, é o contrário, o fanatismo, a loucura é o simbolo de um desproposito, de uma ausencia de valor tamanha, de uma compelta ausencia do sentimento de paz e liberdade.
+- O apatico propaga a maldade como valor, tarbalho exessivo, riqueza como inteligencia, mas há um desporposito em si que nao o permite desfrutar da vida, e faz os outros nao desfrutarem trabalhando muito como se trabalho em excesso fosse valor de vida.
 
