@@ -1456,8 +1456,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ### **Liberdade do "Sou" (Arbitrariedade Existencial)**  
 A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**. Sua existência é arbitrária, pois:  
-- **Não é fundamento do Relativo**: O *"sou"* humano não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.  
-- **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua sustentação determinada pelo "Ser".  
+- **Não é fundamento do Relativo**: O *"sou"* não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.  
 
 ## Liberdade e Autodeterminação no Relativo  
 
@@ -1467,21 +1466,22 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ### Autodeterminação e Evolução Espiritual  
 
-- A capacidade de autodeterminação está ligada ao desenvolvimento espiritual, permitindo ao ente governar-se pelo espírito.  
-- Sem a atuação do espírito, o autodomínio fica restrito à essência herdada pela alma do Ser, tornando a existência do "sou" uma verdade para o Ser, mas não uma verdade plena para o próprio "sou" (autoconsciência, autopresença e autonomia).  
+- Mover-se veticalmente e não somente horizontalmente, permite ao individuo, não somente ser um expectador de sua existencia, ou contemplar uma existencia na qual foi fadado, mas o permite estar por liberdade, e não por uma consequencia da escolha de Deus.
+- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. Não basta auto-determinar-se, é preciso escolher a própria escolha.
 
 ### O Amor como Princípio Fundante  
-*"O amor não é um sentimento. É uma palavra. O que importa é a conexão que ela representa."* - Oráculo  
-- A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da autodeterminação do "sou", sendo o único caminho para alcançar autopresença, autonomia e autoconhecimento.  
-- Sem direcionamento vertical (espiritual), não há sustentação para o horizontal (existencial), pois o espírito é a base da alma, isto é, o existir autenticamente é a base da ação, pois só age quem existe.  
+
+- A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da evolução espíritual. 
+- Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, isto é, o existir autenticamente é o sentido da escolha.
 
 ### Realidade e Irrealidade do Ente  
 
 - O "sou", enquanto existente e definido pelo Ser em sua sustentação e fundamentação, não define sua existência ou inexistência (pois já é), mas sim a qualidade de sua determinação:  
   - Herdada (determinada pelo Ser).  
-  - Autêntica (determinada por si mesmo).  
+  - Autêntica (determinada pelo Ser e redeterminada por si mesmo, ou seja, a escolha de confirmar a própria liberdade perante a si).  
 - Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição.  
 
+aqui 
 ### Autodeterminação como Ato Espiritual  
 
 - Toda escolha horizontal (existencial) pressupõe um direcionamento vertical (espiritual), pois optar é, em essência, afirmar-se como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
@@ -3526,3 +3526,6 @@ Deus é presente e, ao mesmo tempo, o relativo. Nele, há uma suspensão de poss
 
 - O espírito é o que move rumo a plenitude e desagua na personalidade
 - Portanto, o que é no homem é o espírito da plenitude.
+
+
+- **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua sustentação determinada pelo "Ser".  
