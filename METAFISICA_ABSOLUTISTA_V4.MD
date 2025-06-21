@@ -1499,6 +1499,10 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 - A potencialidade da alma de não coagir com a propria existencia e permanecer num estado de isolamento de si mesma. De desproposito. De, oscilação entre sua existencia e inexistencia, como não afirmação, como suspensão da vontade existencial (Espírito).
 
+- A alma apatica ao Ser é definida como dissonante, ou não harmonica consigo. É plena em si mas não para si. Seu estatuto de existente corrobora para sua manutenção, mas seu estatudo de viva e livre não corrobora para seu status quo de existente.
+
+- Sendo impossível escolher não escolher, é fadada a escolha, e se não escolhe pelo Ser, escolhe escolhe pelo não ser, e a escolha em si é vazia. Pois não obtou realmente por não Ser, negou a própria opção, não teve o próposito pela desarminia, mas teve uma desproposito que resultou na recusa de si.
+
 
 # Autodeterminação e Ascensão Ontológica  
 
