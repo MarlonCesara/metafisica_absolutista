@@ -1503,6 +1503,8 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 - Sendo impossível escolher não escolher, é fadada a escolha, e se não escolhe pelo Ser, escolhe escolhe pelo não ser, e a escolha em si é vazia. Pois não obtou realmente por não Ser, negou a própria opção, não teve o próposito pela desarminia, mas teve uma desproposito que resultou na recusa de si.
 
+- O individuo não rejeita a existencia, simplesmente permanece apatico, pois até uma escolha contrária é uma escolha em prol da existencia, visto que o contrário não é objeto de desejo, e o nada resulta em presença. A alma simplesmente se direciona, não por es...???
+
 
 # Autodeterminação e Ascensão Ontológica  
 
