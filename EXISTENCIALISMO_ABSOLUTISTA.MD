@@ -809,5 +809,7 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 
 - A apatia da alma enlouquece o individuo, que, fugindo da realidade, projeta uma realidade onde é espiritualmente harmonico, e isso envolve a aquição de riquezas a todo custo.
 - O apatico, empresário, forma uma hierarquia de treinamento do mal, onde leva pessoas a fazerem o mal por si. Na tentativa de continuar a ilusão. É um estado de desrealização onde o individuo reuni riquezas materiais na tentativa de se adequar a harmonia, aceitação, inclinação a si mesmo, adequação do ente no existir.
+- O mal no mundo é ocasionado por empresários, que, por terem tendencia de serem empresários, arquitetar negocios de forma eficaz, usaram isto para o mal, e conseguiram causar grande impacto antes que a tencologia politica fosse completamente desenvolvida.
 
 
+- O individuo evita momentos felizes por querer adequar a realidade quimica biológica a sua relaidade interior de estagnação e ausencia do sentido.
