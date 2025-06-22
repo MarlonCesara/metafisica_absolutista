@@ -814,3 +814,6 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 - O fanatismo por dinheiro nao advem de uma grande sabedoria, mas de um conflito interior imenso, que muitos apropriam, tomam para si como objetivo de vida, é o contrário, o fanatismo, a loucura é o simbolo de um desproposito, de uma ausencia de valor tamanha, de uma compelta ausencia do sentimento de paz e liberdade.
 - O apatico propaga a maldade como valor, tarbalho exessivo, riqueza como inteligencia, mas há um desporposito em si que nao o permite desfrutar da vida, e faz os outros nao desfrutarem trabalhando muito como se trabalho em excesso fosse valor de vida.
 
+
+- O apatico tem aversão a sua posição perante a vida, a propria sensação de repugnancia com sua posição interior é degradante e faz com que sua mente sofra um processo de desrealização, no qual se projeta como uma pessoa apreciadora da vida, que sabe de verdade apreciar o valor das coisas, que necessita desesperadamente de diheiro para simular o valor que nao guarda dentro de si. Pois, a visão sobre si mesmo é até mesmo mais dolorosa do que seu proprio estado de dissonancia.
+
