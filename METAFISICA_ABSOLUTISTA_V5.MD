@@ -322,7 +322,7 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 - A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.  
 - O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.  
 - Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:  
-  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Relativo sempre já se fundamentou.  
+  - **Regressão infinita** → Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Espírito sempre já se fundamentou.  
   - **Progressão infinita** → Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.  
 - Esse movimento não é uma **dependência causal**, mas a **expressão dinâmica** de sua autossuficiência.  
 
@@ -332,12 +332,12 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 
 #### **A Autodeterminação como Ciclo Infinito**  
 - **Direcionamento e Redirecionamento** → O Espírito não apenas **se determina**, mas **redetermina a si mesmo** infinitamente.  
-  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Ser) permanece o mesmo.  
+  - *Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Espírito) permanece o mesmo.  
 - **Fim e Começo Identificados** → O "resultado" da autodeterminação é **sempre o próprio Espírito**, reiniciando o ciclo.  
   - *"O que busca já é o buscado."*  
 
 #### **Reverberação Espacial e Temporal**  
-- **Espacialidade** → O Espírito se encontra **em contexto** (um "onde" que é sempre ele mesmo).  
+- **Espacialidade** → O Espírito se encontra **em contexto** (um "onde" que é sempre Ele mesmo).  
 - **Temporalidade** → O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço).  
 - A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".  
 
@@ -350,15 +350,15 @@ Isso unifica:
 - **Temporalidade** (Espírito em processo)  
 
 Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
-Na atemporalidade, todas as ações estão consumadas, de forma que a pureza atue como fundamento ainda que concomitantemente à determinações temporais.
+Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente à determinações temporais.
 
-## Não recursividade ou ato do Ser
+## Não polaridade entre recursividade ou ato do Ser
 
-**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há uma busca infinita em uma autocausalidade recursiva, tampouco uma manifestação em ato. Por exemplo: o Ser causa a si mesmo, porém não em um ciclo infinito de causa e efeito, já que sua pureza dispensa essa circularidade, essa rotatividade — assim como dispensa também a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" está ausente. Em outras palavras, sua pureza prescinde da existência.  
+**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há disparidade entre uma autocausalidade recursiva e uma manifestação em ato. Por exemplo: o Ser causa a si mesmo, porém não em um ciclo infinito de causa e efeito, já que sua pureza dispensa essa circularidade, essa rotatividade — assim como dispensa também a não rotatividade, pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translucido, ou seja, é puro ou Espíritual para si mesmo. Em outras palavras, sua pureza prescinde da verdadeira existência. Sua transparencia rompe a dualidade entre infinito (ato consumado) e recursividade (ato extendido).
 
-Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. Quando esse princípio é transposto para a realidade fenomênica, contrasta com uma não uniformidade, pois o fenômeno, ao buscar a si mesmo sem ser puro para si, resultaria em uma soma ou disparidade — não em unicidade. Assim, o temporal jamais alcançaria seu momento final.  
+Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. Quando esse princípio é transposto para a realidade fenomênica, contrasta com uma não uniformidade, pois o fenômeno, ao buscar a si mesmo sem ser puro para si, resulta em uma soma ou disparidade (fenomeno ou nada) — não em unicidade (Espirito temporal e atemporal). O fenomeno jamais alcançaria seu momento final, tal como o Espírito converge seu momento final em sua própria tragetória de progressão.
 
-O conceito de "mal infinito" não se aplica aqui, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido em sua própria totalidade.
+O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua consimação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido ou se resvalar em sua própria totalidade.
 
 - **Causalidade com agente puro**:  
   A autocausalidade do Ser não opera como ato único nem como processo sustentador, pois possui um determinador puro.  
