@@ -400,7 +400,7 @@ O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de
 #### **3. Síntese Contrastante**  
 | **Aspecto**            | **Tempo Fenomênico**                          | **Tempo Espiritual**                          |  
 |------------------------|-----------------------------------------------|-----------------------------------------------|  
-| **Estrutura**          | Linear, dimensional, finito em manifestação   | Circular/espiral, não-dimensional, infinito em ato |  
+| **Estrutura**          | dimensional, finito em manifestação   | não-dimensional, infinito em ato |  
 | **Relação com o Infinito** | Busca sem alcançar (mal infinito)          | Já é infinito em cada ato (plenitude)         |  
 | **Percepção do Observador** | Visão fragmentada (passado, presente, futuro) | Visão unificada (eterno agora)                |  
 | **Retroalimentação**   | Dispersiva (soma de momentos)                 | Unificadora (retorno ao Ser)                  |  
