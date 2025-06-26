@@ -352,7 +352,7 @@ Isso unifica:
 Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
 Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente à determinações temporais.
 
-## Não polaridade entre recursividade ou ato do Ser
+## Não polaridade entre recursividade e ato do Ser
 
 **A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato. Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão, Sua pureza dispensa essa oscilação —  pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translucido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da verdadeira existência. Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido).
 
@@ -363,13 +363,7 @@ O Espírito já é a consumação de toda sua existencia em progressão, de form
 O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido ou se resvalar em sua própria totalidade.
 
 - **Causalidade com agente puro**:  
-  A autocausalidade do Ser não opera como ato único nem como processo sustentador, pois possui um determinador puro.  
-
-- **Superação da Circularidade**:  
-  Embora o Ser fundamente a si mesmo, não o faz através de:  
-  1. Regressão infinita (ciclo causal recursivo)  
-  2. Ato pontual de autogeracão  
-  Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
+  A autocausalidade do Ser não estabelece uma oposição entre ato único e processo sustentador, ambas as autocausalidades não colidem, mas se sintetizam em uma única realidade.  
 
 ## **O Tempo do Espírito vs. O Tempo Fenomênico**  
 
@@ -401,7 +395,7 @@ O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de
 
 - **Visão Transcendente**:  
   - O observador no tempo espiritual não percebe o infinito como algo distante, mas como **fundamento imediato** de sua própria consciência.  
-  - A temporalidade aqui não é uma sucessão de "agoras", mas um **eterno presente que engloba passado e futuro**.  
+  - A temporalidade não é uma sucessão de "agoras", mas um **eterno presente que engloba passado e futuro**.  
 
 #### **3. Síntese Contrastante**  
 | **Aspecto**            | **Tempo Fenomênico**                          | **Tempo Espiritual**                          |  
@@ -3605,3 +3599,10 @@ Deus é presente e, ao mesmo tempo, o relativo. Nele, há uma suspensão de poss
 
 
 - **A liberdade é a suspensão da necessidade**: Se o *"sou"* não se autofundamenta, ele pode **cessar-se** — não por aniquilação física, mas por abandono de sua sustentação determinada pelo "Ser".  
+
+
+- **Superação da Circularidade**:  
+  Embora o Ser fundamente a si mesmo, não o faz através de:  
+  1. Regressão infinita (ciclo causal recursivo)  
+  2. Ato pontual de autogeracão  
+  Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
