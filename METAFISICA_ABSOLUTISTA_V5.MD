@@ -265,7 +265,7 @@ Se a autocausalidade implica **autoconhecimento**, **autodomínio** e **autopres
 
 #### **Por que "Espírito" e não "Substância" ou "Energia"?**  
 - **Substância** sugere um substrato passivo, enquanto o Absoluto é **causalidade pura em ato**.  
-- **Energia** remete a um princípio físico ou impessoal, enquanto o Absrito é **interioridade absoluta** (ainda que não humana).  
+- **Energia** remete a um princípio físico ou impessoal, enquanto o Absoluto é **interioridade absoluta** (ainda que não humana).  
 - **Espírito** capta a síntese de **autoconsciência**, **liberdade** e **atividade imanente**.  
 
 #### **Implicações Metafísicas**  
