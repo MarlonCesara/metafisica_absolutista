@@ -290,7 +290,7 @@ Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações im
 
 Da auto causalidade se deduz de forma pura o agente que determina, não haveria mais o que se extrair de forma imediata do argumento causal. 
 
-# **A Autocausalidade temporal e atemporal do Espírito do Ser**  
+# **A Autocausalidade temporal e atemporal do Espírito**  
  *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
 
 ## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
