@@ -430,9 +430,9 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 ### Autodeterminação Horizontal (Espírito Personalizador)  
 - **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura.  
 - **Características horizontais para Absoluto:**  
-  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade.  
-  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou não em determinada circunstância e sob a visão de seus aspectos individuais.  
-  - *Exemplo:* Não está no momento de ser engraçado ou teatralizar, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.  
+  - Personalidade: Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).  
+  - Liberdade Direcionada: A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.  
+  - *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.  
 
 ## Tríplice Ação do Espírito  
 
