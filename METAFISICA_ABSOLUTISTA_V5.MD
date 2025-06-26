@@ -498,7 +498,11 @@ Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau
   - O Espírito garante a existência e a perfeição.  
   - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
-# **O criacionismo no nível Absoluto**
+## Analogia 
+
+Na eternidade cada momento encontra sua eternidade, o tempo espera, a felicidade encontra um ponto único no tempo que pode ser vivido e revivido em um tempo eterno. Ou seja, a percepção de tempo se torna bidimensional, obtém a consumação total ao passo que a experiência temporal. O indivíduo pode contemplar seu infinito num eterno presente. Isso num ponto de vista subjetivo pressupõe a ausência de ansiedade do tempo, a visão do todo. Uma completo silêncio, sem o ruído do tempo. A visão só reflexo da eternidade. O momento sem sua incerteza do devir, o momento é seu reflexo eterno no mesmo instante. A total ausência da ansiedade do tempo, que busca sem cessar e sem final. O agora é cristalino ao todo. De forma que o agora seja o deleite e não a espera do todo. Não há mais, portanto a sensação da espera, apesar de ainda haver eventos. Cada ato se conecta com a eternidade, de forma a não ser vazio em si ou incessantemente desejante de seu futuro, o evento encontra seu fundamento eterno em seu instante. Não há mais o desassossego de um tempo que busca sem cessar e sem fim. O agora é límpido, transparente ao todo.
+
+# **Criacionismo no nível do Absoluto**
 
 ## **Nada como Fenômeno Relacional**  
 
@@ -511,17 +515,23 @@ Ao concebermos o nada como um campo fenomênico potencialmente manifestável—i
 
 Nesse sentido, o **nada fenomenológico** poderia ser interpretado como um fenômeno, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. No entanto, a manifestação, por sua própria natureza dimensionada, é incapaz de consumar-se como totalidade fenomenológica absoluta. Seu caráter necessariamente delimitado – seja por forma, medida, ou estrutura – impede a realização plena de uma manifestação infinita, que, em sua ausência de fronteiras, aproximar-se-ia do conceito de nada fenomênico.
 
-Se a manifestação em si não é consumada – isto é, se há dimensionamento nela –, torna-se impossível manifestar a totalidade de um fenômeno. Desse modo, a infinitude da manifestação, que corresponderia ao conceito mais próximo do "nada", jamais é alcançada pela dimensão. Tudo o que é elevado a um nível infinito prescinde de medida, barreiras ou espaço, equivalendo-se ao "nada fenomênico".
+Se a manifestação em si não é consumada – isto é, se há dimensionamento nela –, torna-se impossível manifestar a totalidade de um fenômeno. Desse modo, a infinitude da manifestação, que corresponderia ao conceito mais próximo do "nada" existente, jamais é alcançada pela dimensão. Tudo o que é elevado a um nível infinito prescinde de medida, barreiras ou espaço, equivalendo-se ao "nada fenomênico".
 
-Como não há possibilidade de o fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado.
+Como não há possibilidade do fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado.
 
 ## Nada fenomênico: o falso infinito
 
-O nada é um falso infinito, ou mal infinito, pois nunca atinge sua totalidade fenomenica para alcançar sua consumação. Ou seja, ao equipararmos o nada com o Espírito, temos que, o espírito alcança sua plenitude pois dispensa dimensões. Ao passo que, o fenomeno aborda dimensões que, ao serem percorridas, não encontram sua plenitude para atingir sua auto anulação. Desta forma, o nada fenomenico é ilógico. Nenhuma anulação do nada é possível, tal como não é possível ao fenomeno se retro-alimentar de forma a encontrar sua totalidade. O infinito do fenomeno é uma manifestação alto crescente que nunca é atingida, portanto um começo e um final no campo de eventos do Espírito.
+aquii 
+
+O nada é um falso infinito, ou mal infinito, pois nunca atinge sua totalidade fenomênica para alcançar sua consumação. Ou seja, ao equipararmos o nada com o Espírito, temos que, o Espírito alcança sua plenitude pois dispensa dimensões. Ao passo que, o fenômeno aborda dimensões que, ao serem percorridas, não encontram sua plenitude para atingir sua pureza. Desta forma, o nada fenomênico é ilógico. 
+
+Nenhuma anulação, que permanece existente, do fenômeno é possível, tal como não é possível ao fenômeno se retroalimentar de forma a encontrar sua totalidade. O infinito do fenômeno é uma manifestação alto crescente que nunca é atingida, portanto um começo e um final no campo de eventos do Espírito. Caso fosse possível atingir o infinito do fenomeno, isto resultaria em uma auto-anulação do fenõmeno, como veremos adiante, pois o nada sem que designe um infinito fenomenico, designa um objeto auto-supressor, ou seja, que se extingue.
+
+O infinito do fenômeno, não pode ser a pureza, tal como é no infinito do Espirito. O fenômeno não tem infinito, sendo seu infinito um conceito falso que nos remete a sua própria auto supressão (nada). Ou seja, o nada imediatamente se elimina enquanto não existente. E, se existente como nada fenomenico se resulta num conceito infundado como vimos anteriormente. Teríamos portanto, o nada existente, que seria o nada fenomenico, um conceito infundado. E o nada inexistente, que seria o nada auto supressor, aquele que se extingue dando lugar ao que não seria a si mesmo. O nada inexistente seria, portanto, o nada que se anula. E o nada existente, o nada fenomenico. 
 
 ## Determinação
 
-- O fenomeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
+- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
 - Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
 
 ## Definição por Negação  
