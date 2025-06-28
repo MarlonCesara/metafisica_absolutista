@@ -397,14 +397,6 @@ O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de
   - O observador no tempo espiritual não percebe o infinito como algo distante, mas como **fundamento imediato** de sua própria consciência.  
   - A temporalidade não é uma sucessão de "agoras", mas um **eterno presente que engloba passado e futuro**.  
 
-#### **3. Síntese Contrastante**  
-| **Aspecto**            | **Tempo Fenomênico**                          | **Tempo Espiritual**                          |  
-|------------------------|-----------------------------------------------|-----------------------------------------------|  
-| **Estrutura**          | dimensional, finito em manifestação   | não-dimensional, infinito em ato |  
-| **Relação com o Infinito** | Busca sem alcançar (mal infinito)          | Já é infinito em cada ato (plenitude)         |  
-| **Percepção do Observador** | Visão fragmentada (passado, presente, futuro) | Visão unificada (eterno agora)                |  
-| **Retroalimentação**   | Dispersiva (soma de momentos)                 | Unificadora (retorno ao Ser)                  |  
-
 #### **Conclusão**  
 O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas uma **modalidade ontológica radicalmente distinta**:  
 - **No fenômeno**, o tempo é **procura sem fim**.  
