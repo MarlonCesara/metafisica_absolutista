@@ -744,6 +744,8 @@ Em sintese, o nada não existe. O que existe é a presença incognocível ou a m
 - O relativo está no nível do espirito, não fora do espirito, pois não há exteernalidade ao absoluto. O relativo do espírito, na base imutável das possibilidades. Há o relativo desde que haja o base das possibilidades suspensas, que é uma presença pura a todas possibilidades internas a afirmação de sua presença. Desta forma é o relativo do Espirito, e não somente o relativo, o que seria infundado pois o relativo sempre teria ele mesmo não relativo. Ou seja, para o proprio relativo nao haveria sim ou não. Portanto, o relativo é interno ao espirito e nao o proprio Espirito.
 - Só há relativo de algo e não há só o relativo, pois só o relativo não é o relativo, deveria ser uma afirmação com teor de relativo a si.
 - O relativo da existencia firme, é qualquer tipo de existencia.
+- A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
+
 
 Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
 
