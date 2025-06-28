@@ -513,18 +513,21 @@ Como não há possibilidade do fenomênico – ou seja, o dimensionável – man
 
 ## Nada fenomênico: o falso infinito
 
-aquii 
+**O Nada como Falso Infinito: Fenômeno e Espírito**  
 
-O nada é um falso infinito, ou mal infinito, pois nunca atinge sua totalidade fenomênica para alcançar sua consumação. Ou seja, ao equipararmos o nada com o Espírito, temos que, o Espírito alcança sua plenitude pois dispensa dimensões. Ao passo que, o fenômeno aborda dimensões que, ao serem percorridas, não encontram sua plenitude para atingir sua pureza. Desta forma, o nada fenomênico é ilógico. 
+O nada é um falso infinito, pois nunca atinge sua totalidade fenomênica para alcançar consumação. Quando equiparamos o nada ao Espírito, observamos que o Espírito atinge sua plenitude e transcende dimensões. Já o fenômeno, ao operar em dimensões, mesmo que infinitamente crescentes, nunca alcança sua completude, pois sua extensão permanece finita. Dimensões, por mais que se expandam, são limitadas em sua própria natureza — um crescimento infinito não equivale a uma extensão verdadeiramente infinita, já que o crescimento em si pressupõe dimensionalidade.  
 
-Nenhuma anulação, que permanece existente, do fenômeno é possível, tal como não é possível ao fenômeno se retroalimentar de forma a encontrar sua totalidade. O infinito do fenômeno é uma manifestação alto crescente que nunca é atingida, portanto um começo e um final no campo de eventos do Espírito. Caso fosse possível atingir o infinito do fenomeno, isto resultaria em uma auto-anulação do fenõmeno, como veremos adiante, pois o nada sem que designe um infinito fenomenico, designa um objeto auto-supressor, ou seja, que se extingue.
+Ao considerarmos o "infinito" do fenômeno, somos levados à sua autossupressão, ou seja, o fenômeno deixa de existir, produzindo um *nada inexistente*. Não há transição do fenômeno para um "nada existente", pois esse nada não se sustenta em si mesmo e imediatamente se aniquila.  
 
-O infinito do fenômeno, não pode ser a pureza, tal como é no infinito do Espirito. O fenômeno não tem infinito, sendo seu infinito um conceito falso que nos remete a sua própria auto supressão (nada). Ou seja, o nada imediatamente se elimina enquanto não existente. E, se existente como nada fenomenico se resulta num conceito infundado como vimos anteriormente. Teríamos portanto, o nada existente, que seria o nada fenomenico, um conceito infundado. E o nada inexistente, que seria o nada auto supressor, aquele que se extingue dando lugar ao que não seria a si mesmo. O nada inexistente seria, portanto, o nada que se anula. E o nada existente, o nada fenomenico. 
+Nenhuma anulação do fenômeno que permaneça existente é possível, assim como é impossível ao fenômeno retroalimentar-se para atingir sua totalidade. O "infinito" fenomênico é uma manifestação sempre crescente, jamais realizada — um mero começo e fim no campo de eventos do Espírito. Se, por absurdo, o infinito do fenômeno fosse atingido, resultaria na autonegação do próprio fenômeno, pois o nada, quando não designa um infinito fenomênico, designa um objeto autossupressor, que se extingue.  
 
-## Determinação
+Em contraste, o infinito do Espírito atinge sua plenitude não como nulidade, mas como *pureza* — uma realidade que se transcende, não estagnada, imóvel ou opaca, mas translúcida e dinâmica. O infinito do fenômeno não pode ser essa pureza, como ocorre no Espírito. O fenômeno não possui um infinito real; seu suposto infinito é um conceito ilusório que remete à sua autossupressão (o nada).  
 
-- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
-- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**.  
+Assim, o nada se elimina imediatamente enquanto *inexistente*. E, se "existente" como nada fenomênico, torna-se um conceito infundado, como já demonstrado. Temos, portanto:  
+1. **O nada existente** (nada fenomênico) — um conceito inconsistente.  
+2. **O nada inexistente** (nada autossupressor) — aquele que se anula, dando lugar ao que não é si mesmo.  
+
+O nada inexistente é o que se extingue; o nada existente, uma contradição fenomênica.  
 
 ## Definição por Negação  
 
@@ -726,6 +729,11 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. A ausência do fenômeno não existe, de forma que deveria existir o fenômeno como interno a está ausência (nada fenomênico).
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
+
+## Determinação
+
+- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
+- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**. 
 
 Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
 
