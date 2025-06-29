@@ -916,24 +916,24 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
    - Ela **exerce efeitos sobre o real**, assim como o real **modifica a impossibilidade**, realizando o impossível.  
    - O **impossível**, portanto, não constitui uma nova realidade, mas a **dissolução da distinção** entre possibilidade e impossibilidade.  
 
-aquii
+## **A Força Ontológica da Impossibilidade**  
 
-## **A Força Ontológica da Irrealidade**  
-
-### **Hipótese da Existência da Irrealidade**  
+### **Hipótese da Existência da Impossibilidade**  
 
 #### **1. Paradoxo Ontológico Fundamental**  
-- **Tese:** Se a irrealidade possui existência ontológica, sua própria essência exige **autossupressão**.  
-  - *Mecanismo:* A irrealidade, ao se atualizar, **nega sua condição de impossibilidade**, tornando-se real e, portanto, deixando de ser irreal.  
-  - *Efeito colateral:* Essa autonegação **se dissolve simultaneamente na própria realidade**, pois a realidade depende da irrealidade como contraste definidor. 
+- **Tese:** Se a impossibilidade possui existência ontológica, sua própria essência exige **autossupressão**.  
+  - *Mecanismo:* A impossibilidade, ao se atualizar, **nega sua condição de impossibilidade**, tornando-se existente e, portanto, deixando de ser impossível.  
+  - *Efeito colateral:* Essa autonegação **se dissolve simultaneamente na própria possibilidade**, pois a realidade depende da impossibilidade como contraste definidor. 
 
 #### **2. Estado de Suspensão Ontológica**  
 - **Resultado:** Emerge um **estado liminar** onde:  
-  - Não há **realidade afirmada** (pois seu fundamento contrastivo desapareceu).  
-  - Não há **irrealidade realizada** (pois sua manifestação a dissolveu no real).  
+  - Há **realidade afirmada** (pois seu fundamento contrastivo desapareceu).  
+  - Não há **impossibilidade realizada** (pois sua manifestação a dissolveu no real).  
   - Vigora uma **indiferenciação radical**:  
     - *Possibilidade* e *impossibilidade* perdem seus estatutos.  
     - O Absoluto existe em **indiferenciação pura**, sem atualização determinada.  
+
+aquii
 
 #### **3. Dinâmica do Processo**  
 1. **Fase 1 (Ativação):**  
