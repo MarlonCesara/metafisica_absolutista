@@ -1436,18 +1436,18 @@ Nossa experiência do "agora":
 - A translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.  
 
 # **Definindo a Alma**  
-aquii
+
 ### 1. **A alma como identidade**  
 - A alma não é um "recipiente", mas **o próprio Absoluto em perspectiva singular** que adere a um infinito particular de si.  
-- Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Relativo.  
-- Sua finitude fenomênica não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
+- Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Espírito fundamental.  
+- Sua infinitude particular não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
 ### 2. **A Substância Pura da Alma**  
 - A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
-- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Relativo**. 
-- A alma, apesar de ser uma unicidade, não carrega teor fenomenológico, ou seja, não é um fenomeno. 
+- Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Espírito fundamental**. 
+- A alma, apesar de ser uma unicidade, não carrega teor fenomenológico, ou seja, não é um fenômeno. 
 - A alma é o Ser singularizado que dispoe de autonomia.
-- O material do qual a alma é feito pode ser definindo como Espirito, ou seja, é uma identidade e não um material. Dispensa dimensões. É uma singularidade no Ser.
+- O material do qual a alma é feito pode ser definindo como espirito, ou seja, é uma identidade e não um material. Dispensa dimensões. É uma singularidade no Ser.
 
 ### 4. **Pluralidade de Almas como Diversidade Ontológica**  
 - Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
@@ -1455,21 +1455,13 @@ aquii
 
 ## **A Necessidade do Efêmero**  
 
-### 1. **A Percepção da Alma**  
-- A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. A autodeterminação a confere este conhecimento, pois possui autonomia, autodomínio e autoconhecimento sobre sua verdade.  
-- Tem o conhecimento do risco que é usar sua identidade essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
-- Tem o conhecimento da necessidade de uma situação efêmera quando não dispõe dos requisitos morais necessários para se assumir de forma autêntica na existência.  
-
-### 2. **A Efemeridade como Fuga**  
-A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
-
-### 3. **A Efemeridade do Apático**  
-A alma apática de forma alguma transcende a efemeridade, pois não tem ação por si só.  
+### **A Percepção da Alma**  
+- A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. A autodeterminação a confere este conhecimento, pois possui autonomia, autodomínio e autoconhecimento sobre sua verdade e seu infinito temporal e atemporal.  
 
 ## **O Status Quo da Alma do Homem**  
 
 ### 1. **A Alma do Homem neste Mundo**  
-Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu nada individual fundido à natureza do Ser. Dessa forma, existe visão, vivência e domínio sem fusão. Assim, o homem conhece apenas as ações do arbítrio do outro, mas não sua verdadeira essência.  
+Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu infinito individual fundido à natureza efemera criada pelo Ser. Dessa forma, existe visão, vivência e domínio sem uma conexão efetiva e espíritual entre as almas. Assim, o homem conhece apenas as ações do arbítrio do outro, mas ainda protege sua verdadeira vida essêncial.  
 
 ### 2. **A Determinação das Leis Físicas e Conceituais na Natureza do Ser**  
 
@@ -1499,7 +1491,8 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 - Transcender é transcender uma infinitude, no sentido de romper o potencial inexpressivo.  
 - As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si.  
 - A possibilidade de transcendência do Ser é transcender para si.  
-- Transcender é criar sobre o potencial.  
+- Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
+aquii
 
 # **Almogênese: A Ontologia da Transcendência e da União entre Almas**  
 
@@ -3597,3 +3590,14 @@ Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando comple
 - Estar no Ser, significa Ser em conexão, ou seja, Ser no Ser. E não somente Ser em si. Desta forma, se tem o Ser autentico, quando o individuo não se contradiz em seu ato de Ser de forma a não estar em concordancia ou inclinação ao seu próprio ato de liberdade.
 - Se ser fora do Ser ainda é Ser, podemos definir que, o teor da Alma fora do Ser não carrega teor de plenitude, permanece como possibilidade para o Ser, mas não como autentica possibilidade para si.
 
+
+### 1. **A Percepção da Alma**  
+- A alma, ao estar em seu estado integral, tem a **consciência imediata** da eternidade ou efemeridade de suas ações. A autodeterminação a confere este conhecimento, pois possui autonomia, autodomínio e autoconhecimento sobre sua verdade e seu infinito temporal e atemporal.  
+- Tem o conhecimento do risco que é usar sua identidade essencial de forma **incoerente** com sua plenitude de **autocontinuidade**, pois cada ato traz consigo **consequências eternas**.  
+- Tem o conhecimento da necessidade de uma vivencia efêmera quando não dispõe dos requisitos morais necessários para se assumir de forma autêntica na existência.  
+
+### 2. **A Efemeridade como Fuga**  
+A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial, por **incapacidade** do ente de agir em prol da própria plenitude e eternidade, ou uma vivência de aprendizado e entretenimento. Ambos os sentidos levam a alma ao estado **do imediato**, o que **a permite não se responsabilizar** por suas próprias ações enquanto alma **corruptível**.  
+
+### 3. **A Efemeridade do Apático**  
+A alma apática de forma alguma transcende a efemeridade, pois não tem ação por si só.  
