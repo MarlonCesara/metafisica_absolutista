@@ -1365,93 +1365,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da evolução espíritual. 
 - Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, ou seja, é a escolha pela existência.
 
-
-### Realidade e Irrealidade do Ente  
-
-- O "sou", enquanto existente e definido pelo Ser em sua sustentação e fundamentação, não define sua existência ou inexistência (pois já é), mas sim a qualidade de sua determinação:  
-  - Herdada (determinada pelo Ser porém não adequada pelo sou).  
-  - Autêntica (determinada pelo Ser e redeterminada pelo sou, ou seja, a escolha de confirmar a própria liberdade perante a si).  
-- Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição. Isto é, não necessarimente corrobora para sua eternidade.
-
-### Autodeterminação como Ato Espiritual  
-
-- Toda escolha horizontal pressupõe um direcionamento vertical (espiritual) inoperante ou operante, pois optar é, em essência, afirmar-se ou não como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
-- Ao autodeterminar-se, o "sou" torna-se autenticamente autor de sua continuidade e essência, alcançando:  
-  - Autopresença autentica (estar em si mesmo).  
-  - Autonomia autentica (poder sobre si).  
-  - Autoconhecimento autentico (consciência de si).  
-- Isso não é apenas uma mudança essencial, mas transforma concretamente sua existência e ações, de forma a permitir que o "sou" revele sua personalidade autêntica.  
-
 aquii
-
-### **Consequências da Arbitrariedade**  
-1. **O "Sou" como Ficção Necessária**  
-   - O homem que não se autodetermina autenticamente vive como **hospedeiro de uma alma herdada** (não assume essa alma como sendo a si, não se apropria de si. Considera-se uma fatalidade do Ser sem jamais tornar-se **autor de si**. É livre para o todo, mas não para si mesmo. É pleno, é o que se é e o que desejaria ser, porém não corrobora com essa plenitude. Não manifesta harmonia interior.
-
-   - Movimentos horizontais podem ocorrer, como mudança de comportamento, porém, sem o intuito da inclinação ao existir, tais movimentos não libertam o homem, considerando que são consequencias da liberdade e do Ser no mundo, e não dá autenticidade do Ser no Ser.
-
-- A potencialidade da alma de não coagir com a propria existencia e permanecer num estado de isolamento de si mesma. De desproposito. De, oscilação entre sua existencia e inexistencia, como não afirmação, como suspensão da vontade existencial (Espírito).
-
-- A alma apatica ao Ser é definida como dissonante, ou não harmonica consigo. É plena em si mas não para si. Seu estatuto de existente corrobora para sua manutenção, mas seu estatudo de viva e livre não corrobora para seu status quo de existente.
-
-- Sendo impossível escolher não escolher, é fadada a escolha, e se não escolhe pelo Ser, escolhe escolhe pelo não ser, e a escolha em si é vazia. Pois não obtou realmente por não Ser, negou a própria opção, não teve o próposito pela desarmonia, mas teve uma desproposito que resultou na recusa de si.
-
-- O individuo não rejeita a existencia, simplesmente permanece apatico, pois até uma escolha contrária é uma escolha em prol da existencia, visto que o contrário não é objeto de desejo, e o nada resulta em presença. A alma simplesmente se direciona, não por es...???
-
-
-# Autodeterminação e Ascensão Ontológica  
-
-- A capacidade de movimento vertical (transcendente) confere ao indivíduo não apenas a condição de espectador passivo de sua existência predeterminada, mas outorga-lhe a liberdade metafísica de co-criar sua essência. Esta liberdade ultrapassa a mera consequência da vontade divina, constituindo-se como participação ativa no ato criador.
-
-### O Amor como Princípio Dinâmico da Existência  
-
-- A jornada espiritual (manifestada como amor, propósito existencial, epifanias e encontro com o Eu profundo) constitui o cerne da evolução ontológica. 
-- A ausência de direcionamento vertical (transcendente) gera dissonância na dimensão horizontal (existencial), pois o espírito opera como fundamento da alma - a autêntica existência emerge quando as escolhas se alinham ao sentido primordial do Ser.
-
-### Ontologia da Autenticidade  
-
-- O "sou", enquanto manifestação existencial sustentada pelo Ser, não debate sua existência factual (pois esta é dada), mas define a qualidade ontológica de sua manifestação através de:
-  - **Existência herdada** (determinação passiva pelo Ser)
-  - **Existência autêntica** (co-determinação ativa onde o ente ratifica conscientemente sua liberdade ontológica)
-
-- Cabe ao ente orientar-se espiritualmente, pois diferentemente do Ser absoluto, o espírito individual não possui perfeição inata, mas alcança-a através do processo de autodeterminação consciente.
-
-### A Autodeterminação como Atividade Espiritual  
-
-- Toda escolha no plano horizontal revela uma prévia orientação vertical (espiritual), pois eleger é, em última análise, afirmar ou negar sua natureza como ser autodeterminado. Cada ato existencial reverbera no próprio fundamento do ser.
-- Ao autodeterminar-se autenticamente, o "sou" transforma-se em arquiteto de sua própria essência, realizando:
-  - **Presença ontológica plena** (habitação consciente no ser)
-  - **Soberania existencial** (governo sobre sua natureza)
-  - **Iluminação interior** (compreensão integral de si)
-- Esta transformação não é meramente qualitativa, mas recria concretamente o modo de existir, permitindo ao "sou" manifestar sua verdadeira identidade ontológica.
-
-### Paradoxos da Liberdade Ontológica  
-
-1. **A Armadilha da Alma Emprestada**  
-   - O homem que recusa sua autodeterminação vive como **inquilino de uma alma alheia** - habita uma existência que nunca fez propriamente sua. Permanece como objeto do Ser sem tornar-se **sujeito de si mesmo**. Possui liberdade potencial, mas não atualizada. É completo em essência, mas não em manifestação. Carece de síntese interior.
-
-   - As mudanças horizontais (comportamentais) sem correspondência vertical são ilusórias - manifestações da liberdade como possibilidade, não como realização. Não libertam verdadeiramente, pois carecem de raiz ontológica.
-
-2. **O Risco Existencial**  
-   - A alma enfrenta o perigo metafísico da auto-alienação - estado de suspensão existencial onde se alterna entre:
-     * Presença não realizada
-     * Ausência não consumada
-     * Vontade espiritual em eclipse
-   - Esta condição representa a não-ratificação do ser, a hesitação perante o próprio existir.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 2. **A Corrupção como Retorno ao Nada**  
@@ -3610,3 +3524,83 @@ Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando comple
    - O Ser não possui uma unidade ou multiplicidade definida. Ele é relativo em número, podendo ser:  
      - Nenhum número (indiferenciação absoluta).  
      - Uma multiplicidade (individualizações de si mesmo).  
+
+
+
+
+### Realidade e Irrealidade do Ente  
+
+- O "sou", enquanto existente e definido pelo Ser em sua sustentação e fundamentação, não define sua existência ou inexistência (pois já é), mas sim a qualidade de sua determinação:  
+  - Herdada (determinada pelo Ser porém não adequada pelo sou).  
+  - Autêntica (determinada pelo Ser e redeterminada pelo sou, ou seja, a escolha de confirmar a própria liberdade perante a si).  
+- Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição. Isto é, não necessarimente corrobora para sua eternidade.
+
+### Autodeterminação como Ato Espiritual  
+
+- Toda escolha horizontal pressupõe um direcionamento vertical (espiritual) inoperante ou operante, pois optar é, em essência, afirmar-se ou não como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
+- Ao autodeterminar-se, o "sou" torna-se autenticamente autor de sua continuidade e essência, alcançando:  
+  - Autopresença autentica (estar em si mesmo).  
+  - Autonomia autentica (poder sobre si).  
+  - Autoconhecimento autentico (consciência de si).  
+- Isso não é apenas uma mudança essencial, mas transforma concretamente sua existência e ações, de forma a permitir que o "sou" revele sua personalidade autêntica.  
+
+
+### **Consequências da Arbitrariedade**  
+1. **O "Sou" como Ficção Necessária**  
+   - O homem que não se autodetermina autenticamente vive como **hospedeiro de uma alma herdada** (não assume essa alma como sendo a si, não se apropria de si. Considera-se uma fatalidade do Ser sem jamais tornar-se **autor de si**. É livre para o todo, mas não para si mesmo. É pleno, é o que se é e o que desejaria ser, porém não corrobora com essa plenitude. Não manifesta harmonia interior.
+
+   - Movimentos horizontais podem ocorrer, como mudança de comportamento, porém, sem o intuito da inclinação ao existir, tais movimentos não libertam o homem, considerando que são consequencias da liberdade e do Ser no mundo, e não dá autenticidade do Ser no Ser.
+
+- A potencialidade da alma de não coagir com a propria existencia e permanecer num estado de isolamento de si mesma. De desproposito. De, oscilação entre sua existencia e inexistencia, como não afirmação, como suspensão da vontade existencial (Espírito).
+
+- A alma apatica ao Ser é definida como dissonante, ou não harmonica consigo. É plena em si mas não para si. Seu estatuto de existente corrobora para sua manutenção, mas seu estatudo de viva e livre não corrobora para seu status quo de existente.
+
+- Sendo impossível escolher não escolher, é fadada a escolha, e se não escolhe pelo Ser, escolhe escolhe pelo não ser, e a escolha em si é vazia. Pois não obtou realmente por não Ser, negou a própria opção, não teve o próposito pela desarmonia, mas teve uma desproposito que resultou na recusa de si.
+
+- O individuo não rejeita a existencia, simplesmente permanece apatico, pois até uma escolha contrária é uma escolha em prol da existencia, visto que o contrário não é objeto de desejo, e o nada resulta em presença. A alma simplesmente se direciona, não por es...???
+
+
+# Autodeterminação e Ascensão Ontológica  
+
+- A capacidade de movimento vertical (transcendente) confere ao indivíduo não apenas a condição de espectador passivo de sua existência predeterminada, mas outorga-lhe a liberdade metafísica de co-criar sua essência. Esta liberdade ultrapassa a mera consequência da vontade divina, constituindo-se como participação ativa no ato criador.
+
+### O Amor como Princípio Dinâmico da Existência  
+
+- A jornada espiritual (manifestada como amor, propósito existencial, epifanias e encontro com o Eu profundo) constitui o cerne da evolução ontológica. 
+- A ausência de direcionamento vertical (transcendente) gera dissonância na dimensão horizontal (existencial), pois o espírito opera como fundamento da alma - a autêntica existência emerge quando as escolhas se alinham ao sentido primordial do Ser.
+
+### Ontologia da Autenticidade  
+
+- O "sou", enquanto manifestação existencial sustentada pelo Ser, não debate sua existência factual (pois esta é dada), mas define a qualidade ontológica de sua manifestação através de:
+  - **Existência herdada** (determinação passiva pelo Ser)
+  - **Existência autêntica** (co-determinação ativa onde o ente ratifica conscientemente sua liberdade ontológica)
+
+- Cabe ao ente orientar-se espiritualmente, pois diferentemente do Ser absoluto, o espírito individual não possui perfeição inata, mas alcança-a através do processo de autodeterminação consciente.
+
+### A Autodeterminação como Atividade Espiritual  
+
+- Toda escolha no plano horizontal revela uma prévia orientação vertical (espiritual), pois eleger é, em última análise, afirmar ou negar sua natureza como ser autodeterminado. Cada ato existencial reverbera no próprio fundamento do ser.
+- Ao autodeterminar-se autenticamente, o "sou" transforma-se em arquiteto de sua própria essência, realizando:
+  - **Presença ontológica plena** (habitação consciente no ser)
+  - **Soberania existencial** (governo sobre sua natureza)
+  - **Iluminação interior** (compreensão integral de si)
+- Esta transformação não é meramente qualitativa, mas recria concretamente o modo de existir, permitindo ao "sou" manifestar sua verdadeira identidade ontológica.
+
+### Paradoxos da Liberdade Ontológica  
+
+1. **A Armadilha da Alma Emprestada**  
+   - O homem que recusa sua autodeterminação vive como **inquilino de uma alma alheia** - habita uma existência que nunca fez propriamente sua. Permanece como objeto do Ser sem tornar-se **sujeito de si mesmo**. Possui liberdade potencial, mas não atualizada. É completo em essência, mas não em manifestação. Carece de síntese interior.
+
+   - As mudanças horizontais (comportamentais) sem correspondência vertical são ilusórias - manifestações da liberdade como possibilidade, não como realização. Não libertam verdadeiramente, pois carecem de raiz ontológica.
+
+2. **O Risco Existencial**  
+   - A alma enfrenta o perigo metafísico da auto-alienação - estado de suspensão existencial onde se alterna entre:
+     * Presença não realizada
+     * Ausência não consumada
+     * Vontade espiritual em eclipse
+   - Esta condição representa a não-ratificação do ser, a hesitação perante o próprio existir.
+
+
+
+
+
