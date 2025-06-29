@@ -714,8 +714,6 @@ Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela 
 
 Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial.  
 
-aquii
-
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscível** que:  
 - **Autoexiste**: Não deriva de nada externo; sua existência é autofundada.  
@@ -729,25 +727,15 @@ O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscíve
 
 #### **Conclusão: Do Nada ao Absoluto Autoconsciente**  
 A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:  
-- O fenômeno auto-supresso ou o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis.  
+- O não fenômeno ou o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis.  
 - O verdadeiro fundamento é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.  
 
 **Em síntese:**  
-- O campo fenomenológico e o nada auto-supressor são **ferramentas conceituais** que apontam para além de si mesmas.  
-- O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto sua auto supressão**.  
+- O campo fenomenológico e o não fenômeno são **ferramentas conceituais** que apontam para além de si mesmas.  
+- O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o não fenômeno**.  
 - Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
-
-## Determinação
-- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
-- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**. 
-- Se o relativo é uma suspensão porque o espirito nao é suspenso? Porque é puro. A pureza nao anula a pessoalidade, e nem o relativo, que é o campo de determinação, pois a pureza não é determinada pureza, tal como fenomeno é determinado fenomeno.
-- O relativo está no nível do espirito, não fora do espirito, pois não há exteernalidade ao absoluto. O relativo do espírito, na base imutável das possibilidades. Há o relativo desde que haja o base das possibilidades suspensas, que é uma presença pura a todas possibilidades internas a afirmação de sua presença. Desta forma é o relativo do Espirito, e não somente o relativo, o que seria infundado pois o relativo sempre teria ele mesmo não relativo. Ou seja, para o proprio relativo nao haveria sim ou não. Portanto, o relativo é interno ao espirito e nao o proprio Espirito.
-- Só há relativo de algo e não há só o relativo, pois só o relativo não é o relativo, deveria ser uma afirmação com teor de relativo a si.
-- O relativo da existencia firme, é qualquer tipo de existencia.
-- A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
-- Tudo ja estava consumado e criado, entao, o relativo já estava 
-Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
+aquii 
 
 #### **A Pureza do Relativo**  
 
@@ -3634,3 +3622,15 @@ Desta forma, para o Espírito, não havendo o suprimido, há duas possibilidades
 
 - A auto-supressão é um ato determinístico tanto quanto a manifestação.
 
+
+
+## Determinação
+- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
+- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**. 
+- Se o relativo é uma suspensão porque o espirito nao é suspenso? Porque é puro. A pureza nao anula a pessoalidade, e nem o relativo, que é o campo de determinação, pois a pureza não é determinada pureza, tal como fenomeno é determinado fenomeno.
+- O relativo está no nível do espirito, não fora do espirito, pois não há exteernalidade ao absoluto. O relativo do espírito, na base imutável das possibilidades. Há o relativo desde que haja o base das possibilidades suspensas, que é uma presença pura a todas possibilidades internas a afirmação de sua presença. Desta forma é o relativo do Espirito, e não somente o relativo, o que seria infundado pois o relativo sempre teria ele mesmo não relativo. Ou seja, para o proprio relativo nao haveria sim ou não. Portanto, o relativo é interno ao espirito e nao o proprio Espirito.
+- Só há relativo de algo e não há só o relativo, pois só o relativo não é o relativo, deveria ser uma afirmação com teor de relativo a si.
+- O relativo da existencia firme, é qualquer tipo de existencia.
+- A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
+- Tudo ja estava consumado e criado, entao, o relativo já estava 
+Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
