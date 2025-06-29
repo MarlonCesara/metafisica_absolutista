@@ -1614,24 +1614,34 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 - Essa indefinição não consome completamente cada unidade, considerando que cada manifestação é finita no tempo.  
 - A indefinição, segundo a tendência da determinação ainda ativa da dualidade, se define — e, ao se definir, é, em si, uma nova alma dotada do potencial de autodeterminação. Mas não tem, em si, um propósito (evolução espiritual) originalmente; necessita encontrar um propósito para existir.  
 
-aquii
-
-
 **O Ser como Indiferenciação da Alma**  
 
 O Ser é o produto puro da indefinição da dualidade, porém governado pelo espírito perfeito, e não determinado pela dualidade. Assim, o Ser deve ser uma indefinição, uma mistura de todos os "sous" possíveis. Essa indefinição — ou seja, o "sou" ausente — abarca todos os "sous" possíveis para o Ser.  
 
-A indefinição do Ser já é uma união entre dois infinitos inseparáveis, uma miscigenação completa de "sous". O Ser é um estado indiferenciado da alma, um estágio relativo dela. São infinitas almas indiferenciadas, assim como a dualidade produz uma indiferenciação em relação a si mesma.  
+A indefinição do Ser já é uma união entre dois infinitos inseparáveis, uma miscigenação completa de "sous". O relativo do Ser comporta um estado indiferenciado de almas, um estágio relativo até mesmo do próprio fracionamento do Ser. São infinitas almas indiferenciadas, assim como a dualidade produz uma indiferenciação em relação a si mesma.  
 
-O Ser não é a ausência da alma, mas a indiferenciação de todas as almas possíveis. Da mesma forma, a união entre duas almas gera esse mesmo estado. É nesse estado de alma indiferenciada que o Ser se manifesta.  
-
-Portanto, o Ser não é a ausência do "sou", mas a indiferenciação dele. A ausência e a presença do "sou" são fenomênicas e efêmeras — mas o Ser poderia realizar isso em si mesmo? A indiferenciação é, em si, a ausência.  
+O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas as almas possíveis. Da mesma forma, a união entre duas almas gera esse mesmo estado. É nesse estado de alma indiferenciada que o Ser se manifesta criando almas.Portanto, o Ser não é a ausência do "sou", mas a indiferenciação dele. 
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
+
+
+---
+---
+---
+
+
+# Rascunhos
+
+
+aquii
+
+
+A ausência e a presença do "sou" são fenomênicas e efêmeras — mas o Ser poderia realizar isso em si mesmo? A indiferenciação é, em si, a ausência.  
+
 O relativo é uma indiferenciação, tal como o Ser. Porém, o relativo tem a dualidade, entre nada e manifestação. Já a indiferenciação do Ser também carrega essa dualidade. O Ser ausente (Ser) e o manifesto (Sous).
 
-A manifestação do Ser em Sous, não segue a mesma linha lógica da manifestação do Nada em Manifestação. Pois, a manifestação do nada é o Ser se reverberando em si mesmo, e a manifestação do Ser em Sous é o Ser se reverberando extrinseco a sua própria determinação. Ou seja, é o Ser reverberando sua totalidade e não somente sua internalidade (Relativo).
+A manifestação do Ser em Sous, não segue a mesma linha lógica da manifestação do relativo em fenomeno. Pois, a manifestação do fenomeno é o Ser se reverberando em si mesmo, e a manifestação do Ser em Sous é o Ser se reverberando extrinseco a sua própria determinação. Ou seja, é o Ser reverberando sua totalidade e não somente sua internalidade (Relativo).
 
 O relativo tem dois estados, nada e manifestação. Porém a Alma tem dois estados: singularidade ou indiferenciação. O Ser transita do indiferenciado para a singularidade enquanto a alma "sou", transita da singularidade para o indiferenciado na dualidade. O Ser em ato único não pode se singularizar, pois seria um evento. A dualidade em ato único não pode também se diferenciar e em consequencia, se singularizar no "sou-ai", pois ambos os atos são eventos.
 
@@ -1658,79 +1668,6 @@ A indefinição é definida e se define em si mesma.
 O Ser age sobre o ai, do Ser-ai de forma que, o Ai, é indiferenciado, pois não assume uma definição relativa ao Ser, pois o ser, é Ser-Ai. Ou seja, o Ser está ausente do se Ai. E o Ai é a alma indiferenciada. Quando o Ser é Ai, não transmite a definição de si no que é. Ou seja, se doa com uma definição ausente.
 
 Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si definido, a definição parte do próprio Ser. Ou seja, há um ai a ser definido e que é vinculado ao Ser. O Ser, já é, para fora de si. A indefinição parte da necessidade do ai, que não é o próprio Ser.
-
-
-
----
----
----
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# Rascunhos
 
 ---
 #### **14. O Desencontro e os Movimentos da Dualidade Transcendida**  
