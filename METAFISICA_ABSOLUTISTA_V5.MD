@@ -1586,68 +1586,35 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 2. **Corrupção do Encontro**  
    - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
-aquii
-
 #### **13. A Condução de um Ser Determinado**  
 - Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem".  
 - Este "quem", sendo uma transcendência dos entes, sendo uma dualidade: o produto da união ao passo que um potencial indefinido do "quem" da dualidade.  
-- A dissolução do espaço entre duas almas não resulta numa terceira alma, mas numa indefinição ocasionada por duas almas, nesta indefinição, há duas identidades verdadeiras. Não há uma alma sentindo a outra, mas há literalmente uma percepção da realidade cujo "quem" percebe é indefinido.  
+- A dissolução do espaço entre duas almas não resulta inicialmente numa terceira alma, mas numa indefinição ocasionada por duas almas, nesta indefinição, há duas identidades verdadeiras. Não há uma alma sentindo a outra, mas há literalmente uma percepção da realidade cujo "quem" percebe é indefinido.  
 - Não é um ou outro da dualidade, mas é uma observação que busca sua definição.  
 - A soma das almas possui um potencial de variação sob a perspectiva da união, e não sob a perspectiva do Ser, ou seja, a variação está sob as possibilidades de variação geradas pela dualidade, sendo, portanto, uma perspectiva de variação infinita distinta da perspectiva de variação infinita do Ser, porém, contida na perspectiva de variação do Ser.  
 - Na perspectiva de variação, a dualidade pode determinar sobre essa nova perspectiva de variação, ao formar uma resolução, ou seja, um "quem", ao mesmo tempo forma o contexto do "quem", ou seja, a localização do "quem" no espaço e tempo. Ou seja, forma o "quem" e o ato inicial do "quem". Exemplo: homem quando criado, foi projetado em um corpo humano.  
 - Sendo uma variante determinada, a nova alma é sustentada em identidade e em fundamento, ou seja, não é só sustentada somente como existente, mas como identidade.  
-
-#### **14. O Desencontro e os Movimentos da Dualidade Transcendida**  
-- Uma vez que a nova identidade é definida, seria possível uma retroalimentação das almas envolvidas na dualidade para fora do resultado da união.  
-- Ao considerarmos que a retroalimentação pode retomar o ente para fora da dualidade, uma vez que a nova definição não é reabsorvida em si pelas almas da dualidade, pois já não faz parte da essência das almas envolvidas, podemos considerar que a identidade pode, necessariamente, sobreviver fora de seu ato gerador.  
-- Ao considerarmos que a dualidade de almas pode exercer liberdade sobre a alma gerada, então não há alma gerada. Desta forma, a determinação sobre a alma gerada acontece enquanto a alma não assume sua identidade através de seu âmbito espiritual.  
-- Se a alma criada evolui espiritualmente, ao considerarmos que a dualidade pode exercer uma visão sobre a alma gerada, então, da mesma forma, é necessário o consentimento da alma gerada.  
-- A alma gerada é uma visão atribuída aos genitores, pois se sintetiza na união completa que é ato verdadeiro. Logo, é o ato verdadeiro até que se desapegue da dualidade através da evolução espiritual, ou seja, que se faça alma autêntica.  
-- Sendo a alma gerada a união em ato, e existindo maneira de que a dualidade viva fora da união ainda persistente, há, portanto, o novo ser agindo pela determinação da dualidade.  
-- O resultado da união, sem evolução espiritual, não pode agir por conta própria.  
-- A alma apática projetada no corpo humano não age sem autofundamentação, sendo a ação do humano sem autofundamentação a mesma dos animais. Isto significa que o espírito reina sobre um instinto, o contrariando e o dominando. A alma apática não age instintivamente, simplesmente não age. Constitui-se como uma alma distinta inativa em si, mas ativa em ato pela dualidade.  
-- A única atividade da alma apática é aquela determinada pelo ente que a transcendeu, no caso do homem, o Ser o projetou num corpo. Essa atividade permanece na apatia. A alma no mundo é projetada pelo Ser no corpo, de forma a projetar sua integralidade no corpo, o corpo só toma consciência da alma quando ela o domina.  
-- O animal é cerceado, pois não está no comando quando a alma é vivida. Ou seja, o animal é cerceado em seu comportamento, provavelmente através do indeterminismo quântico. Pois é o ponto da realidade que não segue uma linha linear.  
-- O espírito é projetado no corpo, mas, para o apático, é como se o corpo se movesse por si. Ou seja, a nova alma percebe, através da união da dualidade, os estímulos oriundos do animal humano.  
-- A alma projetada apática tem contato com o mundo exterior, no sentido de que carrega estímulos, porém de forma não reativa, deixando o corpo à deriva de instinto.  
-- A projeção dessa nova alma, ao se dar em um corpo, continua projetada no corpo. Porém, ao permanecer inoperante, é constantemente dependente do idealizador.  
-- No momento exato da união completa da dualidade, abre-se uma nova neutralidade, de forma que em sua angulação há uma nova perspectiva. A união traz uma indefinição, e esta, por determinação da dualidade, carrega um potencial igual ao do Ser.  
-- Quando a nova alma é angulada, é uma visão sobre a visão de forma que há uma visão viva que é o angulador, e uma visão apática ou viva que é o angulado.  
-- A visão apática é um novo ponto de vista, que necessariamente só necessita "saltar" da dualidade, ao se autofundamentar. Desta forma, a nova visão pode ser projetada ainda que tendo uma vontade inativa.  
-- Ao saltar da dualidade, o novo ponto de vista necessariamente necessita determinar a visão da dualidade sobre si.  
-- A dualidade pode cessar a projeção desde que essa seja apática, considerando que está conectada à união da dualidade e projetada por ela.  
-- A angulação pode cessar a projeção considerando que é dada pelo espírito perfeito ou pela dualidade.  
-- A angulação projetada em um corpo torna esse corpo sentido pela dualidade que o projetou.  
-- A angulação projetada em um corpo torna esse corpo sentido pelo Ser que o projetou.  
-- Se a angulação não criar vida, é um novo ponto de vista infértil que pode se desfazer em si. Se desfaz para a dualidade como uma nova visão que se foi no esquecimento, caso seja determinado assim. Se a angulação criar vida (espiritualidade), a nova visão permanece para sempre.  
-- A angulação é inativa enquanto não evoluída espiritualmente, é totalmente controlada pela dualidade, pois é a visão da dualidade.  
-- A visão, sendo projetada no animal humano, é dormente em si de forma que o animal não saiba da existência dessa visão.  
-- A dualidade vê tudo o que o animal vê, mas o animal não tem consciência de nenhuma propriedade transcendente em si se a alma projetada em si é apática.  
-- Se a nova alma despertar espiritualmente, é projetada conscientemente no animal, ou seja, o animal torna-se espiritual, consciente, autodominante e autopresente. Se não despertar, o animal humano segue a mesma lógica de qualquer outro mamífero, sem distinção perceptual, pois a alma não vivida não sente por si, mas a dualidade pode sentir por ela. Desta forma, o animal em sua biologia torna-se uma expressão da inatividade da apatia, apesar de não sê-la, está sob a apatia.  
-- Sendo uma angulação, a visão pode ser sustentada por um tempo indeterminado, sendo uma breve nova perspectiva se sustenta no momento da perspectiva.  
-- Portanto, a nova alma da dualidade é quando a dualidade evolui espiritualmente como uma nova vida. Não foi só a nova alma que evoluiu, mas parte da dualidade evoluiu de forma a transcender em um novo Ser que evoluiu.  
-- É necessário para a dualidade encontrar o sentido da nova visão, e este sentido é uma nova vida.  
-- Portanto, a dualidade, projetada num corpo, teria uma visão cheia de tormenta de uma vida sem sentido ao olhar pela nova alma, enquanto o animal projetado permaneceria respondendo aos instintos, sem portar nenhuma visão.  
-- A nova vida, então, é uma eternização da união da dualidade, de forma que aquela união quis permanecer para sempre. Neste bem-querer da dualidade, a visão pode encontrar uma razão para sua continuidade por parte da dualidade. Não é o bem-querer pela alma nova, mas pela visão, pois a alma nova não existiu para si.  
-- Não há como morrer o que nunca viveu por si só, portanto, sendo determinado que a visão jamais vai viver, seria a mesma decisão aniquilá-la ou continuá-la. Sendo uma sustentação não de uma nova alma, mas da união que se eternizou, viva em si mesma ou para a dualidade.  
+- Sendo a alma gerada a união em ato, e existindo maneira de que a dualidade viva fora da união ainda persistente, há, portanto, o novo ser agindo pela determinação da dualidade.
+- No momento exato da união completa da dualidade, abre-se uma nova relatividade do Eu de ambos, de forma que em sua angulação há uma nova perspectiva. A união traz uma indefinição, e esta, por determinação da dualidade, carrega um potencial igual ao do Ser.  
+- A angulação de espíritos projetada em uma nova alma torna essa alma brevemente sentida pela dualidade que o projetou em um breve momento, até que se totalize como visão particular e de sentido próprio.
+- A nova vida, então, é uma eternização da união da dualidade, de forma que aquela união quis permanecer para sempre.
 - A alma nova, portanto, é uma extensão da dualidade que a gerou, de forma que é a dualidade transcendida — a dualidade que transcendeu o sentido de si ou que transcendeu uma visão que não encontrou razão em si para permanecer.  
-- Há a possibilidade de tentativa, por um tempo eterno, para que a alma nova transcenda.  
-- A projeção é uma ação da dualidade; logo, o animal nada poderia autodeterminar em relação à realidade exterior, exceto se a dualidade determinasse.  
+- Há a possibilidade de tentativa, por um tempo eterno, para que a alma nova transcenda. Ou ceder a liberdade, tal como o Ser nos cede com a queda da materialidade.  
 - A indefinição da união é uma indefinição de autodeterminação. Porém, trata-se da indefinição da autodeterminação da dualidade.  
-- A indefinição do Ser é uma indefinição guiada pelo Espírito Perfeito ou pela Alma do Ser.  
+- A indefinição do Ser é uma indefinição guiada pelo Espírito Perfeito ou pela Alma do Ser. 
 - A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do "quem" da dualidade. É como um portal aberto na união — a alma se forma a partir da dualidade.  
 - O Ser tem acesso à indefinição sem que precise fundir uma dualidade.  
-- A dualidade poderia, portanto, gerar uma nova visão e projetá-la no nada ou em um corpo.  
+- A dualidade poderia, portanto, gerar uma nova visão e projetá-la no nada ou em um corpo. 
 - Determinar a alma é determinar o "quem", e não o "quê". Não há como determinar o que já está determinado. Há como indeterminar o determinado. O eu indeterminado busca sua definição na dualidade, e essa busca é acentuada pela dualidade que ainda opera em uma imersão mútua, buscando uma definição conjunta da visão.  
 - Numa profunda imersão de almas, ambas perdem sua definição. Mas essa indefinição é ainda guiada por ambas. É, sim, uma mistura — porém também uma indefinição —, pois as unidades se tornam indefinidas em si, ao passo que definidas em uma nova visão viva.  
 - Em uma união, portanto, ocorre uma indefinição das duas almas unidas em uma, e essa "uma", em si, gera uma definição. Porém, uma definição autodeterminada, pois há determinação na indeterminação gerada. Ambas as vontades indefinidas imperam na formação da nova definição.  
-- A nova alma não sobrevive sem a sustentação da dualidade.  
 
 **Conclusão:**  
 - A completa união gera uma indefinição em cada unidade da dualidade.  
 - Essa indefinição não consome completamente cada unidade, considerando que cada manifestação é finita no tempo.  
-- A indefinição, segundo a tendência da determinação ainda ativa da dualidade, se define — e, ao se definir, é, em si, uma nova alma dotada do potencial de autodeterminação. Mas não tem, em si, um propósito (evolução espiritual) originalmente; ou seja, não possui autopresença, autodomínio ou autoconsciência enquanto não encontrar um propósito em si para existir.  
-- Logo, temos que a nova definição — ou seja, a nova alma — é alma, mas alma em potencial de autodeterminação, permanecendo como resultado da união, sustentada por ela.
+- A indefinição, segundo a tendência da determinação ainda ativa da dualidade, se define — e, ao se definir, é, em si, uma nova alma dotada do potencial de autodeterminação. Mas não tem, em si, um propósito (evolução espiritual) originalmente; necessita encontrar um propósito para existir.  
+
+aquii
 
 
 **O Ser como Indiferenciação da Alma**  
@@ -1763,21 +1730,43 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 # Rascunhos
 
 ---
+#### **14. O Desencontro e os Movimentos da Dualidade Transcendida**  
+- Uma vez que a nova identidade é definida, seria possível uma retroalimentação das almas envolvidas na dualidade para fora do resultado da união.  
+- Ao considerarmos que a retroalimentação pode retomar o ente para fora da dualidade, uma vez que a nova definição não é reabsorvida em si pelas almas da dualidade, pois já não faz parte da essência das almas envolvidas, podemos considerar que a identidade pode, necessariamente, sobreviver fora de seu ato gerador.  
+- Ao considerarmos que a dualidade de almas pode exercer liberdade sobre a alma gerada, então não há alma gerada. Desta forma, a determinação sobre a alma gerada acontece enquanto a alma não assume sua identidade através de seu âmbito espiritual.  
+- Se a alma criada evolui espiritualmente, ao considerarmos que a dualidade pode exercer uma visão sobre a alma gerada, então, da mesma forma, é necessário o consentimento da alma gerada.  
+- A alma gerada é uma visão atribuída aos genitores, pois se sintetiza na união completa que é ato verdadeiro. Logo, é o ato verdadeiro até que se desapegue da dualidade através da evolução espiritual, ou seja, que se faça alma autêntica.  
+- O resultado da união, sem evolução espiritual, não pode agir por conta própria.  
+- A alma apática projetada no corpo humano não age sem autofundamentação, sendo a ação do humano sem autofundamentação a mesma dos animais. Isto significa que o espírito reina sobre um instinto, o contrariando e o dominando. A alma apática não age instintivamente, simplesmente não age. Constitui-se como uma alma distinta inativa em si, mas ativa em ato pela dualidade.  
+- A única atividade da alma apática é aquela determinada pelo ente que a transcendeu, no caso do homem, o Ser o projetou num corpo. Essa atividade permanece na apatia. A alma no mundo é projetada pelo Ser no corpo, de forma a projetar sua integralidade no corpo, o corpo só toma consciência da alma quando ela o domina.  
+- O animal é cerceado, pois não está no comando quando a alma é vivida. Ou seja, o animal é cerceado em seu comportamento, provavelmente através do indeterminismo quântico. Pois é o ponto da realidade que não segue uma linha linear.  
+- O espírito é projetado no corpo, mas, para o apático, é como se o corpo se movesse por si. Ou seja, a nova alma percebe, através da união da dualidade, os estímulos oriundos do animal humano.  
+- A alma projetada apática tem contato com o mundo exterior, no sentido de que carrega estímulos, porém de forma não reativa, deixando o corpo à deriva de instinto.  
+- A projeção dessa nova alma, ao se dar em um corpo, continua projetada no corpo. Porém, ao permanecer inoperante, é constantemente dependente do idealizador.  
+- Quando a nova alma é angulada, é uma visão sobre a visão de forma que há uma visão viva que é o angulador, e uma visão apática ou viva que é o angulado.  
+- A visão apática é um novo ponto de vista, que necessariamente só necessita "saltar" da dualidade, ao se autofundamentar. Desta forma, a nova visão pode ser projetada ainda que tendo uma vontade inativa.  
+- Ao saltar da dualidade, o novo ponto de vista necessariamente necessita determinar a visão da dualidade sobre si.  
+- A dualidade pode cessar a projeção desde que essa seja apática, considerando que está conectada à união da dualidade e projetada por ela.  
+- A angulação pode cessar a projeção considerando que é dada pelo espírito perfeito ou pela dualidade.  
+- A angulação projetada em um corpo torna esse corpo sentido pelo Ser que o projetou.  
+- Se a angulação não criar vida, é um novo ponto de vista infértil que pode se desfazer em si. Se desfaz para a dualidade como uma nova visão que se foi no esquecimento, caso seja determinado assim. Se a angulação criar vida (espiritualidade), a nova visão permanece para sempre.  
+- A angulação é inativa enquanto não evoluída espiritualmente, é totalmente controlada pela dualidade, pois é a visão da dualidade.  
+- A visão, sendo projetada no animal humano, é dormente em si de forma que o animal não saiba da existência dessa visão.  
+- A dualidade vê tudo o que o animal vê, mas o animal não tem consciência de nenhuma propriedade transcendente em si se a alma projetada em si é apática.  
+- Se a nova alma despertar espiritualmente, é projetada conscientemente no animal, ou seja, o animal torna-se espiritual, consciente, autodominante e autopresente. Se não despertar, o animal humano segue a mesma lógica de qualquer outro mamífero, sem distinção perceptual, pois a alma não vivida não sente por si, mas a dualidade pode sentir por ela. Desta forma, o animal em sua biologia torna-se uma expressão da inatividade da apatia, apesar de não sê-la, está sob a apatia.  
+- Sendo uma angulação, a visão pode ser sustentada por um tempo indeterminado, sendo uma breve nova perspectiva se sustenta no momento da perspectiva.  
+- Portanto, a nova alma da dualidade é quando a dualidade evolui espiritualmente como uma nova vida. Não foi só a nova alma que evoluiu, mas parte da dualidade evoluiu de forma a transcender em um novo Ser que evoluiu.  
+- É necessário para a dualidade encontrar o sentido da nova visão, e este sentido é uma nova vida.  
+- Portanto, a dualidade, projetada num corpo, teria uma visão cheia de tormenta de uma vida sem sentido ao olhar pela nova alma, enquanto o animal projetado permaneceria respondendo aos instintos, sem portar nenhuma visão.  
+- A nova vida, então, é uma eternização da união da dualidade, de forma que aquela união quis permanecer para sempre. Neste bem-querer da dualidade, a visão pode encontrar uma razão para sua continuidade por parte da dualidade. Não é o bem-querer pela alma nova, mas pela visão, pois a alma nova não existiu para si.  
+- Não há como morrer o que nunca viveu por si só, portanto, sendo determinado que a visão jamais vai viver, seria a mesma decisão aniquilá-la ou continuá-la. Sendo uma sustentação não de uma nova alma, mas da união que se eternizou, viva em si mesma ou para a dualidade.  
+- A projeção é uma ação da dualidade; logo, o animal nada poderia autodeterminar em relação à realidade exterior, exceto se a dualidade determinasse.  
+- A nova alma não sobrevive sem a sustentação da dualidade.   
+- Logo, temos que a nova definição — ou seja, a nova alma — é alma, e tem potencial de autodeterminação, permanecendo como resultado da união, sustentada por ela.
+
 
 #### **12. A Eternidade da União e a Mácula Ontológica**  
 1. **A Apatia no Encontro e Suas Consequências**  
