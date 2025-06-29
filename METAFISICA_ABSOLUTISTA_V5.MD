@@ -1520,8 +1520,6 @@ A transcendência do "quem" aborda duas possibilidades:
 1. **Por morte**: Aniquilação total do "sou", de forma a restaurar a capacidade de transcendência original como Ser. Porém, esta não é uma transcendência, mas retrocesso, pois a transcendência significa sair de si havendo um si que permanece de forma que seja o agente da transcendência.  
 2. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas.  
 
-aquii
-
 #### **3. Exploração da Hipótese da Alma Completa**  
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.  
 
@@ -1533,9 +1531,9 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 2. Se a alma e o espírito são imateriais por natureza, enquanto a matéria obedece à exclusão espacial, o espírito poderia compartilhar o mesmo "espaço ontológico" de modo não-excludente. Pois o paralelismo permite a determinação de uma distância nula, ou seja, é possível uma distância infinita e uma distância nula, sendo a distância perceptual.  
 3. Sendo as realidades paralelas uma complexidade numérica devido à realidade ser perceptual, e não estreitamente material, existe, portanto, uma distância nula e uma distância infinita intrínseca ao todo. O Ser, portanto, é não numérico e numérico ao mesmo tempo. Já é homogêneo em si.  
 4. Ou seja, o encontro torna-se tão vivo que, dele, é possível resultar uma identidade vívida. Portanto, não se torna o encontro de duas matérias mortas, mas o encontro de matéria viva, no sentido de que o conceito de vivo é homogêneo, enquanto o conceito estático, material, não permitiria uma fusão.  
-5. No sentido estreitamente material, e não levando em consideração a matéria sendo espírito, não é possível duas dimensões materiais serem paralelas, se unirem ou se separarem. O fenômeno por si só não seria separável do fenômeno, fundível ao próprio fenômeno ou ser paralelo a si mesmo. Sendo fenômeno e alma, a fusão já existe, bastando ser determinada.  
+5. No sentido estreitamente material, e não levando em consideração a matéria sendo espírito, não é possível duas dimensões materiais serem paralelas, se unirem ou se separarem. O fenômeno por si só não seria separável do fenômeno, fundível ao próprio fenômeno ou ser paralelo a si mesmo. Sendo alma o conteudo da fusão, a fusão já existe, bastando ser determinada. 
 6. O ser já é uno ao mesmo tempo que é dual. A separação e união é do ponto de vista perceptual.  
-7. O nada primordial abarca N nadas individuais. Ao considerarmos o conceito de "quem", temos o conceito de "vida", que não engloba multiplicidade, e o conceito de "vivos" que não anula o conceito de vida. Da mesma forma, o conceito de "nada primordial" não anula os nadas individuais, pois o nada, possuindo o "quem", aborda o conceito de "vivo", "vivente". E isto permite que o nada primordial possa se diferir do nada individual.  
+7. O Espírito primordial abarca N espíritos individuais. Ao considerarmos o conceito de "quem", temos o conceito de "vida", que não engloba multiplicidade, e o conceito de "vivos" que não anula o conceito de vida. Da mesma forma, o conceito de "Espírito primordial" não anula os espíritos individuais, pois o espírito, possuindo o "quem", aborda o conceito de "vivo", "vivente". E isto permite que o Espírito primordial possa se diferir do espírito individual.  
 
 #### **5. A Ontologia do Toque Interpessoal**  
 1. **O Toque como Atribuição Recíproca de Sentido**  
@@ -1553,75 +1551,42 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 - Ao cessar a autodeterminação individual em uma manifestação essencial, tendo o infinito de si retroalimentando a alma, se experimenta o não sentir o outro, mas o sentir do outro. No sentido de que a união traz uma nulidade de si em prol de uma definição terceira das almas imersas em uma dualidade. Não há mais como sentir o que o outro sente, estando totalmente imerso no outro, as reflexões que tendem ao infinito cessam, dando espaço para uma visão privilegiada do outro, sem reflexões, a visão "do ponto de vista do outro", não mais a visão do outro pelo próprio ponto de vista.  
 
 #### **7. A Indeterminação Resultante**  
-- A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar às origens. Sua existência é o breve momento do unir de almas.  
+- A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar ao nada. 
 
 #### **8. Morte e Renascimento Ontológico**  
 - A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Relativo.  
 - O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao Relativo, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada indivíduo.  
 
-#### **9. O Dilema da Realidade Emergente**  
-A nova entidade relacional enfrenta uma escolha metafísica:  
-- Dissolver-se de volta nas consciências originárias (como forma que retorna ao informe). Se não se autodeterminar, será reabsorvida pela dinâmica dos "sous" que a gerou.  
-- Ou autodeterminar-se como terceira realidade, transcendendo suas raízes sem negá-las. Se se autodeterminar, torna-se um terceiro Relativo — uma realidade autêntica que transcende suas origens.  
-- Sua existência é o momento do unir de almas, quando a união se desfaz, a nova alma é dissolvida, pois seu eu era construído e efêmero, não havia possuído a si mesmo. Ao possuir a si, se desgarra da união da alma A e alma B como uma nova identidade para Relativo, e em razão disto, torna-se em si um novo infinito, pois dispõe da infinitude indiferenciada sendo uma identidade no Ser.  
-
 #### **10. Tipologia da Autodeterminação**  
 1. **Em si**  
-   - O homem determinado pela natureza herdada.  
-   - Estado de apatia da alma.  
-2. **De si**  
    - O homem que tem consciência de si.  
    - Que está presente em si mesmo.  
-   - E que tem domínio sobre si.  
-3. **Por si**  
-   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência.  
-4. **Para si**  
-   - Duas almas manifestadas que compartilham mutuamente sua autodeterminação.  
+   - E que tem domínio sobre si. 
+2. **Por si**  
+   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência, tal como nos manifestamos        na natureza criada pelo Ser.  
+3. **De si**  
+   - O homem que tem consciência do outro.  
+   - Que está presente em no outro.  
+   - E que tem domínio sobre o outro.  
+     Duas almas manifestadas que compartilham mutuamente sua autodeterminação.  
    - Dominam uma à outra através de mútua concordância (gênero).  
    - Conhecem-se mutuamente.  
    - Estão presentes uma na outra de forma recíproca.  
-5. **Para o outro em si**  
-   - Duas almas manifestadas que, através de um encontro e fusão, originam uma ou mais almas distintas.  
-6. **Para o outro no outro**  
+   - **Tese (Ser em si)**: Uma afirmação ou conceito inicial.  
+   - **Antítese (Ser outro)**: A negação ou contradição da tese.  
+   - **Síntese (Ser de si)**: A superação da contradição, resultando em um novo estágio mais elevado.  
+4. **Para si**  
+  - Duas almas manifestadas que, através de um encontro e fusão, originam uma ou mais almas distintas.  
+5. **Para o outro de si**  
    - Determinação em relação à prole, sendo esta externa e independente em sua liberdade.  
 
-- **Tese (Ser em si)**: Uma afirmação ou conceito inicial.  
-- **Antítese (Ser outro)**: A negação ou contradição da tese.  
-- **Síntese (Ser em si e para si)**: A superação da contradição, resultando em um novo estágio mais elevado.  
-
-#### **11. Tipologia de Apatia**  
-1. **Apatia da Alma**  
-   - Quando a alma permanece em estado de estagnação. Sem procurar sua transcendência em si mesma. Ou seja, sem buscar sua evolução espiritual.  
-2. **Apatia do Encontro**  
+#### **11. Tipologia da corrupção**  
+1. **Corrupção da Alma**  
+   - Quando a alma permanece em estado de retrocesso. Sem procurar sua transcendência no amor rumo a eternidade. Ou seja, sem buscar sua evolução espiritual.  
+2. **Corrupção do Encontro**  
    - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
-3. **Apatia do solidão**  
-   - Quando duas almas não se encontraram com o intuito de ser uma. A solidão da unicidade é um desencontro do si com o todo, de forma que seja um si solitário 
-     a si mesmo como ente auto determinante. A solidão não é um estado de alienação, mas um despropósito de si para com a própria visão singular de si mesmo. A 
-     presença plena de si, inclui a presença do outro como parte de si.
 
-#### **12. A Eternidade da União e a Mácula Ontológica**  
-1. **A Apatia no Encontro e Suas Consequências**  
-   - A apatia no encontro entre duas almas gera efeitos profundos e duradouros.  
-   - Quando esse encontro resulta na geração de uma prole, há um impacto direto na essência dela:  
-     - Ocorre um rompimento da genética paternal.  
-     - Instaura-se uma mácula na eternidade da prole.  
-2. **A Mácula na Eternidade dos Indivíduos**  
-   - Essa mácula não afeta apenas a prole, mas também os próprios indivíduos envolvidos na união.  
-   - O resultado da união é eterno, mesmo que a união em si não tenha se perpetuado ou se continuado.  
-   - Isso cria um paradoxo existencial: algo eterno nasce de algo interrompido.  
-3. **A Confiança como Fundamento Ontológico**  
-   - A continuidade verdadeira da união depende de duas almas que confiem plenamente uma na outra.  
-   - Essa confiança as torna ontologicamente necessárias uma à outra:  
-     - Não apenas por afinidade ou afeto.  
-     - Mas por serem parte integrante da existência uma da outra.  
-   - Em caso de desencontro ou desenlace, instaura-se uma mácula irremediável.  
-4. **A Perfeição da Decisão pela União**  
-   - A decisão de se unir precisa carregar em si um teor de perfeição.  
-   - Esse grau de perfeição transforma o vínculo em algo ontologicamente indispensável.  
-   - Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes, pois ambos os direcionamentos da dualidade necessitam percorrer um mesmo rumo em prol da sustentação de ambos em sua essência no eterno. Isto é, tornam-se por decisão própria um organismo, o qual depende da sustentação de sua dualidade como fundamento de sua continuidade.  
-5. **A Formação de um Ser Novo**  
-   - A escolha consciente pela união gera um ser determinado a partir da dualidade.  
-   - Essa união ontológica torna os dois inseparáveis no nível do ser, não por origem ou natureza, mas pela escolha que os vinculou para a eternidade.  
+aquii
 
 #### **13. A Condução de um Ser Determinado**  
 - Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem".  
@@ -1814,6 +1779,29 @@ Ou seja, se é-ai, então é para fora de si. Não havendo o para fora de si def
 
 ---
 
+#### **12. A Eternidade da União e a Mácula Ontológica**  
+1. **A Apatia no Encontro e Suas Consequências**  
+   - A apatia no encontro entre duas almas gera efeitos profundos e duradouros.  
+   - Quando esse encontro resulta na geração de uma prole, há um impacto direto na essência dela:  
+     - Ocorre um rompimento da genética paternal.  
+     - Instaura-se uma mácula na eternidade da prole.  
+2. **A Mácula na Eternidade dos Indivíduos**  
+   - Essa mácula não afeta apenas a prole, mas também os próprios indivíduos envolvidos na união.  
+   - O resultado da união é eterno, mesmo que a união em si não tenha se perpetuado ou se continuado.  
+   - Isso cria um paradoxo existencial: algo eterno nasce de algo interrompido.  
+3. **A Confiança como Fundamento Ontológico**  
+   - A continuidade verdadeira da união depende de duas almas que confiem plenamente uma na outra.  
+   - Essa confiança as torna ontologicamente necessárias uma à outra:  
+     - Não apenas por afinidade ou afeto.  
+     - Mas por serem parte integrante da existência uma da outra.  
+   - Em caso de desencontro ou desenlace, instaura-se uma mácula irremediável.  
+4. **A Perfeição da Decisão pela União**  
+   - A decisão de se unir precisa carregar em si um teor de perfeição.  
+   - Esse grau de perfeição transforma o vínculo em algo ontologicamente indispensável.  
+   - Não se trata de mera subjetividade, mas de uma escolha que altera a própria ontologia dos entes, pois ambos os direcionamentos da dualidade necessitam percorrer um mesmo rumo em prol da sustentação de ambos em sua essência no eterno. Isto é, tornam-se por decisão própria um organismo, o qual depende da sustentação de sua dualidade como fundamento de sua continuidade.  
+5. **A Formação de um Ser Novo**  
+   - A escolha consciente pela união gera um ser determinado a partir da dualidade.  
+   - Essa união ontológica torna os dois inseparáveis no nível do ser, não por origem ou natureza, mas pela escolha que os vinculou para a eternidade.  
 
 # O Ser e o nada
 
@@ -3606,3 +3594,15 @@ A efemeridade tem dois sentidos: **fuga da vivência** em uma natureza essencial
 
 ### 3. **A Efemeridade do Apático**  
 A alma apática de forma alguma transcende a efemeridade, pois não tem ação por si só.  
+
+
+#### **9. O Dilema da Realidade Emergente**  
+A nova entidade relacional enfrenta uma escolha metafísica:  
+- Dissolver-se de volta nas consciências originárias (como forma que retorna ao informe). Se não se autodeterminar, será reabsorvida pela dinâmica dos "sous" que a gerou.  
+- Ou autodeterminar-se como terceira realidade, transcendendo suas raízes sem negá-las. Se se autodeterminar, torna-se um terceiro Relativo — uma realidade autêntica que transcende suas origens.  
+- Sua existência é o momento do unir de almas, quando a união se desfaz, a nova alma é dissolvida, pois seu eu era construído e efêmero, não havia possuído a si mesmo. Ao possuir a si, se desgarra da união da alma A e alma B como uma nova identidade para Relativo, e em razão disto, torna-se em si um novo infinito, pois dispõe da infinitude indiferenciada sendo uma identidade no Ser.  
+
+3. **Apatia do solidão**  
+   - Quando duas almas não se encontraram com o intuito de ser uma. A solidão da unicidade é um desencontro do si com o todo, de forma que seja um si solitário 
+     a si mesmo como ente auto determinante. A solidão não é um estado de alienação, mas um despropósito de si para com a própria visão singular de si mesmo. A 
+     presença plena de si, inclui a presença do outro como parte de si.
