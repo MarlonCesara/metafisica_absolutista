@@ -1365,22 +1365,13 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da evolução espíritual. 
 - Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, ou seja, é a escolha pela existência.
 
-aquii
-
-
-2. **A Corrupção como Retorno ao Nada**  
+1. **A Corrupção como Retorno ao Nada**  
    - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Relativo permanece, ainda que o *"sou"* humano se dissolva.  
    - A autonegação da autenticidade (não inclinação à própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade e autencidade de autonomia e liberdade.  
 
-3. **A Liberdade como Risco Relativo**  
+2. **A Liberdade como Risco Relativo**  
    - Escolher existir é assumir a ** autocriação contínua**, sem garantias externas.  
    - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**.  
-
-### A Arbitrariedade na Integralidade  
-
-- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência autenticas- é sustentado por si, porém, como uma imposição e não por escolha autentica. 
-
-- O "sou" sem autoconsciência, autopresença e autonomia autenticas, em sua forma integral, experimenta subjetivamente a sensação de desconexão de si mesmo.
 
 # **Liberdade e Neutralidade**  
 
@@ -1415,21 +1406,6 @@ Nossa experiência do "agora":
 ### O Ser como Fundamento  
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.  
 
-### O Espírito Humano como Ponte  
-
-- O espírito do homem pode direcioná-lo à sua própria autoconsciência, autonomia e autopresença autenticas conectando-o ao Ser não apenas como consequencia da determinação do Ser, mas como participante ativo de forma a ser a si no Ser de forma autentica.
-- Temos, portanto, o estar determinado, e o estar autentico, que é quando o sou corrobora, coagem, se inclina a sua propria ação de existir e ser livre.
-
-### Plenitude na União  
-
-- O "sou" alcança sua realização máxima quando, como individualidade, integra-se à integralidade do Ser de forma a coagir com sua existencia. 
-- O "sou" é real para si no Ser, e o Ser é a verdade na qual o "sou" se afirma como existente e verdadeiro.  
-
-
-- Ao corroborar com o Ser, o sou não muda sua substancia em si (alma), mas muda seu estado de existencia, a autenticidade envolve o movimento da alma em direção ao existir (Ser).
-- Sendo o movimento de existir o próprio Ser, que é o movimento puro em direção ao existir, o individuo pode ser definico como no Ser ou fora do Ser, ainda que existente, pois é possível que o existente se reafirme existente.
-- Estar no Ser, significa Ser em conexão, ou seja, Ser no Ser. E não somente Ser em si. Desta forma, se tem o Ser autentico, quando o individuo não se contradiz em seu ato de Ser de forma a não estar em concordancia ou inclinação ao seu próprio ato de liberdade.
-- Se ser fora do Ser ainda é Ser, podemos definir que, o teor da Alma fora do Ser não carrega teor de plenitude, permanece como possibilidade para o Ser, mas não como autentica possibilidade para si.
 
 ## Dons Naturais e Sobrenaturais  
 
@@ -1446,7 +1422,6 @@ Nossa experiência do "agora":
 - *Exemplo:* Assim como uma onda, quanto mais me realizo como indivíduo, mais me integro ao oceano do Ser.  
 - O ponto absoluto de auto doniminio sobre a natureza do Ser é a total aceitação da vontade do Ser.
 
-
 ### Dons Sobrenaturais na Natureza do Ser  
 
 - A natureza manifestada do Ser, sendo uma natureza de identidade relativa ao espírito perfeito ou à alma do Ser, pode se permitir o domínio desde que este esteja alinhado a uma vontade reta em direção a sua própria plenitude.  
@@ -1461,9 +1436,9 @@ Nossa experiência do "agora":
 - A translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.  
 
 # **Definindo a Alma**  
-
+aquii
 ### 1. **A alma como identidade**  
-- A alma não é um "recipiente", mas **o próprio Relativo em perspectiva singular** que adere a um infinito de si.  
+- A alma não é um "recipiente", mas **o próprio Absoluto em perspectiva singular** que adere a um infinito particular de si.  
 - Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Relativo.  
 - Sua finitude fenomênica não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
@@ -3600,7 +3575,25 @@ Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando comple
      * Vontade espiritual em eclipse
    - Esta condição representa a não-ratificação do ser, a hesitação perante o próprio existir.
 
+### A Arbitrariedade na Integralidade  
+
+- O "sou", movido por uma essência herdada - na condição em que não possui autonomia, autopresença e autoconsciência autenticas- é sustentado por si, porém, como uma imposição e não por escolha autentica. 
+
+- O "sou" sem autoconsciência, autopresença e autonomia autenticas, em sua forma integral, experimenta subjetivamente a sensação de desconexão de si mesmo.
 
 
+### O Espírito Humano como Ponte  
 
+- O espírito do homem pode direcioná-lo à sua própria autoconsciência, autonomia e autopresença autenticas conectando-o ao Ser não apenas como consequencia da determinação do Ser, mas como participante ativo de forma a ser a si no Ser de forma autentica.
+- Temos, portanto, o estar determinado, e o estar autentico, que é quando o sou corrobora, coagem, se inclina a sua propria ação de existir e ser livre.
+
+### Plenitude na União  
+
+- O "sou" alcança sua realização máxima quando, como individualidade, integra-se à integralidade do Ser de forma a coagir com sua existencia. 
+- O "sou" é real para si no Ser, e o Ser é a verdade na qual o "sou" se afirma como existente e verdadeiro.  
+
+- Ao corroborar com o Ser, o sou não muda sua substancia em si (alma), mas muda seu estado de existencia, a autenticidade envolve o movimento da alma em direção ao existir (Ser).
+- Sendo o movimento de existir o próprio Ser, que é o movimento puro em direção ao existir, o individuo pode ser definico como no Ser ou fora do Ser, ainda que existente, pois é possível que o existente se reafirme existente.
+- Estar no Ser, significa Ser em conexão, ou seja, Ser no Ser. E não somente Ser em si. Desta forma, se tem o Ser autentico, quando o individuo não se contradiz em seu ato de Ser de forma a não estar em concordancia ou inclinação ao seu próprio ato de liberdade.
+- Se ser fora do Ser ainda é Ser, podemos definir que, o teor da Alma fora do Ser não carrega teor de plenitude, permanece como possibilidade para o Ser, mas não como autentica possibilidade para si.
 
