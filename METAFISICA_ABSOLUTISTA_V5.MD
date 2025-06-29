@@ -860,8 +860,6 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 - **Indiferença Ontológica**:  
   O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
 
-aquii 
-
 # Estruturando o Relativo 
 
 ## Definição por Negação  
@@ -874,7 +872,7 @@ aquii
 
 - O relativo só existe se o relativizado já foi manifestado ou é possível.  
 - Não há "relativo" sem relação com um "suspenso".  
-  - *Exemplo:* Só há ausência do tudo se houver o tudo.  
+  - *Exemplo:* Só há suspensão do tudo se houver o tudo.  
 
 ## Não-Coexistência de Opostos Relativos  
 
@@ -884,39 +882,41 @@ aquii
 ## Referencial Possível  
 
 - A manifestação (A) e o relativo (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
-
+ 
 - Se a manifestação (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço do relativizado (já que potencial implica em manifestação, incompatível com a ausência total).  
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
   - *Potenciais opostos:* Excluem-se, pois o "relativo" não pode conter possibilidades e impossibilidades latentes sem perder sua definição.  
 
 # Estruturando o possível e o impossível  
 
-### **Dissolução entre Realidade e Irrealidade**  
+### **Dissolução entre Possibilidade e Impossibilidade**  
 
-- **Coexistencial:** Realidade e irrealidade são aspectos do Absoluto, não opções mutuamente excludentes.  
+- **Coexistencial:** Possibilidade e Impossibilidade são aspectos do Absoluto, não opções mutuamente excludentes.  
 
 **Consequências:**  
-- **A irrealidade não "existe" no sentido convencional**, mas está contida no Absoluto como impossibilidade lógica.  
-- **A realidade emerge não por uma "escolha"**, mas como manifestação necessária da estrutura autoconsistente do Absoluto.  
+- **A impossibilidade não "existe" no sentido convencional**, mas está contida no Absoluto como impossibilidade lógica.  
+- **A possibilidade emerge não por uma "escolha"**, mas como manifestação necessária da estrutura autoconsistente do Absoluto.  
 
 2. **Nível de Manifestação (Realidade):**  
-   - A realidade emerge como o subconjunto autoconsistente do Absoluto.  
-   - A irrealidade permanece como "não-manifesta" (impossibilidades lógicas).  
-   - A realidade não é "escolhida", mas é a única configuração possível que se sustenta.  
+   - A possibilidade emerge como o subconjunto autoconsistente do Absoluto.  
+   - A impossibilidade permanece como "não-manifesta" (impossibilidades lógicas).  
+   - A possibilidade não é "escolhida", mas é a única configuração possível que se sustenta.  
 
 ### **3. O Nada e a Autofundamentação**  
-- Se o "nada absoluto" fosse possível, exigiria uma **razão para sua prevalência** sobre o ser.  
+- Se o "nada " fosse possível, exigiria uma **razão para sua prevalência** sobre o ser.  
 - Mas o nada **não tem poder causal**, logo, não pode anular o ser.  
 - Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.  
 
-1. **Existência Dual (Real e Irreal):**  
-   - Tanto a **realidade** quanto a **irrealidade** configuram modos de existência.  
+1. **Existência Dual (possível e impossível):**  
+   - Tanto a **possibilidade** quanto a **impossibilidade** configuram modos de existência.  
    - Logo, devem ser **indiscerníveis** em seu fundamento ontológico.  
 
-2. **Interpenetração entre Real e Irreal:**  
-   - A irrealidade **não é uma existência segregada** ou paralela à realidade.  
-   - Ela **exerce efeitos sobre o real**, assim como o real **modifica a irrealidade**, realizando o impossível.  
-   - O **impossível**, portanto, não constitui uma nova realidade, mas a **dissolução da distinção** entre realidade e irrealidade.  
+2. **Interpenetração entre possível e impossível:**  
+   - A impossibilidade **não é uma existência segregada** ou paralela à realidade.  
+   - Ela **exerce efeitos sobre o real**, assim como o real **modifica a impossibilidade**, realizando o impossível.  
+   - O **impossível**, portanto, não constitui uma nova realidade, mas a **dissolução da distinção** entre possibilidade e impossibilidade.  
+
+aquii
 
 ## **A Força Ontológica da Irrealidade**  
 
