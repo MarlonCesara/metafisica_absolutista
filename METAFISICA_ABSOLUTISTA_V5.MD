@@ -1091,7 +1091,7 @@ A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se q
 - O relativo não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
 
 # A Natureza da Forma  
-aquii
+
 Toda manifestação é, por definição, forma – pois forma é a expressão delimitada do infinito.  
 
 ## Características Fundamentais da Forma  
@@ -1110,7 +1110,7 @@ Como o infinito contém todas as possibilidades, as formas manifestadas podem va
 
 Todo infinito, apesar de possuir infinitas formas possíveis, não necessariamente manifestará todas as formas em sua aleatoriedade, sendo assim único.  
 
-- *Exemplo:* Em um universo infinito as estrelas são sempre do mesmo tamanho. Enquanto em outro universo infinito elas variam de tamanho.  
+- *Exemplo:* Em um universo espíritual infinito as estrelas são sempre do mesmo tamanho. Enquanto em outro universo espíritual infinito elas variam de tamanho.  
 
 ## A Identidade Específica da Forma  
 
@@ -1124,18 +1124,19 @@ Toda forma possui uma configuração única que a define em um dado contexto. Es
 
 A identidade da forma não é arbitrária – ela emerge da interação entre:  
 
-1. O **infinito** (fonte de todas as possibilidades).  
+1. O **Espírito** (fonte de todas as possibilidades).  
 2. A **perspectiva observadora** (que "recorta" o infinito em manifestações específicas).  
 3. Os **princípios causais** (que garantem coerência e razão de ser a cada forma).  
 
 Assim, toda manifestação é, ao mesmo tempo:  
 - **Única** (pois tem uma identidade determinada).  
 - **Relacional** (pois depende do observador e do contexto).  
-- **Infinita em potencial** (pois o nada pode gerar infinitas outras formas).  
+- **Infinita em potencial** (pois o Espírito pode gerar infinitas outras formas).  
 
-**Fundamento último:** A forma existe porque o infinito, ao ser "observado", necessita expressar-se de modo delimitado – e essa delimitação é, em si mesma, a origem de toda identidade.  
+**Fundamento último:** A forma existe porque o infinito do Espírito, ao ser "observado", necessita expressar-se de modo determinado – e essa determinação é, em si mesma, a origem de toda identidade.  
 
-# A Convergência entre Nada e Manifestação  
+aquii
+# A Convergência entre relativo e manifestação  
 
 ## O Espírito como Princípio de Manifestação do fenômeno
 
