@@ -1031,7 +1031,6 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 - *Exemplo:* Um horizonte ilimitado é "uma infinitude indiferenciada" até que o Espírito defina um ângulo de existência, convertendo-o em paisagem.  
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
 
-aquii
 ## Criação a partir do Nada  
 
 Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de forma a tornar existente possibilidades prévias:  
@@ -1048,7 +1047,7 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # A manifestação do cosmos
 
-**O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
+**O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante no tempo do Espírito** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
 
 **A vida**, nesse contexto, **é periférica em relação à vida central** – a periferia do Ser –, no sentido de que **agrega vida, mas não a vida em sua totalidade**.  
 
@@ -1060,39 +1059,39 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 
 ## Dualidade Fundamental: Determinador e Nada  
 
-- A ação do **Ser-ai** (determinação) e o **Nada** (suspesão do determinado) são coessenciais.  
+- A ação do **Ser-ai** (determinação) e o **Relativo** (suspesão do determinado) são coessenciais.  
   - Não são opostos absolutos, mas polos de uma mesma estrutura ontológica.  
   - O nada não é aniquilação total, mas o limite interno da autodeterminação.  
     - *Exemplo:* O olho que vê a escuridão.  
     - Se não há luz, a escuridão existe como referência para a visão.  
     - A ausência de luz só tem significado porque o olho (determinador) a percebe.  
 
-## O Nada como Relação Dinâmica  
+## O Relativo como Relação Dinâmica  
 
 - A **absoluto** é uma tensão entre:  
   1. **O Ser-ai** (autodeterminação passiva) → Puro ato de existir.  
-  2. **O nada** (potencial não realizado) → Ausência fenomenológica.  
+  2. **O relativo** (potencial não realizado) → Ausência fenomenológica.  
 
 - Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.  
   - O Ser-ai não "está" no nada – Ele age no nada em sua autodefinição contínua.  
 
-## Conclusão: O nada como Processo  
+## Conclusão: O relativo como Processo  
 
-- Não há "verdade estática", pois o nada sempre se constitui na relação entre:  
+- Não há "verdade estática", pois o relativo sempre se constitui na relação entre:  
   - A ação do determinador (Ser-ai).  
-  - O determinado (incluindo o nada como contraparte).  
+  - O determinado (incluindo o relativo como contraparte).  
 
 #### **Referencialidade do Observador**  
 **Princípio Unificador:**  
-A aparente dualidade (fundamento × manifestação) dissolve-se quando compreendemos que:  
+A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se quando compreendemos que:  
 - **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
-  - *Para o o ato do Ser-ai temporal:* Processo infinito (causalidade reverberante).  
-  - *Para o ato do Ser-ai atemporal:* Ato único (consumação).  
+  - *Para o o ato do Ser temporal:* Processo infinito (causalidade reverberante).  
+  - *Para o ato do Ser atemporal:* Ato único (consumação).  
 
-- O nada não é o oposto do Ser-ai, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
+- O relativo não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
 
 # A Natureza da Forma  
-
+aquii
 Toda manifestação é, por definição, forma – pois forma é a expressão delimitada do infinito.  
 
 ## Características Fundamentais da Forma  
