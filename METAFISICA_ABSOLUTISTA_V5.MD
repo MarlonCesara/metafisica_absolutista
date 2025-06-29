@@ -642,7 +642,7 @@ Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexist
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito), pois é determinado.
+Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
 
 - **O Nada fenomenológico não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
@@ -653,20 +653,15 @@ Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediat
 
 Assim, a **auto-supressão do existente** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
 
-Não havendo um estado intermediário entre auto-supressão e fenômeno, o nada é um estado fictício, que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo, pois a auto-supressão é um ato determinístico tanto quanto a manifestação.
+Não havendo um estado intermediário entre auto-supressão e fenômeno, o nada se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo.
 
-Ou seja, o nada fenomênicoco, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza. O nada fenomênico não existe e, consequentemente, não tem efeito auto-supressor sobre si. A auto-supressão não tem um objeto auto-suprimido.
+O nada fenomênico, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza ficticia. O nada fenomênico não existe e, consequentemente, não tem efeito auto-supressor sobre si de forma literal. A auto-supressão não tem um objeto auto-suprimido.
 
-Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão, mas é um estado determinado em razão da possibilidade de supressão ou fenômeno.
+Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão, mas é um estado determinado no tempo Espíritual em razão da possibilidade do fenomeno. Dessa forma, num tempo X, há a manifestação, sem que esta tenha referência a uma inexistência, ou seja, a uma auto-supressão. A auto-supressão designa o que foi suprimido, e o produto suprimido não existe.
 
-Dessa forma, num tempo X, há a manifestação, sem que esta tenha referência a uma inexistência, ou seja, a uma auto-supressão. A auto-supressão designa o que foi suprimido, e o produto suprimido não existe.
+> "O fenômeno, portanto, constitui uma semi-existência, no sentido de que, sem que seja determinado fenômeno, carece de fundamento eterno; é uma arquitetura fugaz, uma ilusão material, dotada da transitoriedade de um sonho – tão efêmera que pode ser atravessada pela verdadeira existência. O fenômeno é uma névoa na campina da existência, que se desfaz ao primeiro raio de sol, sem deixar vestígios. É pó efêmero depositado nas janelas do Espírito, dissipado pelo sopro do eterno. O fenômeno é o próprio Espírito em forma ilusória, um reflexo que se crê sólido até que a luz da essência o desvenda. É existência sem plenitude, sombra que apenas toca a realidade, transpassando-a como possibilidade no infinito do Espírito – onde tudo retorna ao Ser, e o efêmero se dissolve no eterno."
 
-O fenômeno, portanto, é uma semi-existência, no sentido de que, sem determinação, é suprimido—não tem fundamento eterno, mas é uma fugaz arquitetura feita de nada (em seu sentido de não existência). É possível dizer que o fenômeno é uma ilusão material, no sentido de que tem a fugacidade de um sonho, tanto que pode ser transpassado pela verdadeira existência.
-
-- Ex: O fenômeno é uma névoa numa campina da existência, que se esvai quando o sol aparece, sem deixar vestígios.
-- Ex: O fenômeno é um pó efêmero nas janelas cristalinas do Espírito.
-- Ex: O fenômeno é o Espírito em uma forma ilusória.
-
+aquii
 # A auto-supressão como relativa ao numérico
 
 Na realidade do espírito não há o que não existe, considerando que, o que não existe é referencia do que existe. Ao considerarmos que, se existe o objeto um, existe uma delimitação que o faz um, que é o objeto dois. Caso contrário, não existiria o objeto um. Portanto, só existe aquilo que não existe diante de uma fronteira numerável. Desta forma, a auto-supressão só faz sentido mediante ao númerável. Sendo assim, se existe fenomeno, existe o fenomeno que não existe.
@@ -694,6 +689,8 @@ Desta forma, para o Espírito, não havendo o suprimido, há duas possibilidades
 - Na condição metafisica que até o apático se presencia completamente em Deus, há o fogo.
 
 - No mundo fenomenológico não há a consistencia? No mal infinito.
+
+- A auto-supressão é um ato determinístico tanto quanto a manifestação.
 
 #### **Mecanismo da Auto-Supressão**  
 1. **Colapso por Autorreferência**  
