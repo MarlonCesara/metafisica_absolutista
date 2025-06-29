@@ -1284,7 +1284,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ## Paralelismo sem Separação  
 
 - **Coexistência de infinitos no status quo do mundo**: Dois determinadores (A e B) interagem se um se torna fenômeno para o outro e ambos compartilham a visibilidade de seus atos (ações fenomenicas) e não sua essência espiritual.  
-- **O nada como limite**: O infinito de A é o nada de B, e vice-versa. Ambos são modos do mesmo Ser.  
+- **O nada como limite**: O infinito de A é o relativo de B, e vice-versa. Ambos são modos do mesmo Ser.  
 - *Exemplo:* Dois observadores podem habitar a mesma infinitude sem distância espacial — a "separação" é uma construção individual.  
 
 ## Paralelismo e Infinito  
@@ -1306,19 +1306,19 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - O infinito de um determinador é o "relativo" do outro, mas ambos são modos do Ser único.  
 
 ## Autonomia Ontológica  
-aquii
+
 - Não há separação absoluta, apenas:  
   - **Fusão** (identidades dissolvidas em uma verdade comum).  
   - **Encontro** (interação fenomênica temporária) que se dá sem fusão nem distanciamento, sustentado por uma natureza intermediária entre as interações. Exemplo: Os "sous" podem influenciar a natureza do Ser sem revelar uma essência mútua – apenas o arbítrio de suas ações.  
   - **Paralelismo** (existências simultâneas sem contato direto).  
 - A distância é idealizada: Cada determinador vive em sua própria realidade soberana, onde:  
   - "Em meu mundo, seu mundo só existe se eu o permitir."  
-  - "Meu universo é infinito, portanto, pode estar a uma distância infinita do seu. Ou seja, em seu ponto de vista posso fazê-lo relativo."  
+  - "Meu universo é infinito, portanto, pode estar a uma distância relativa do seu. Ou seja, em seu ponto de vista posso fazê-lo relativo."  
 
 ## **Autonomia na Integralidade e na Manifestação**  
-
+aquii
 1. **Dissolução sem Corrupção**  
-   - Cada autodeterminador possui a capacidade de **cessar sua manifestação específica**, retornando ao seu *nada particular* (a ausência de sua forma fenomenológica), **sem afetar o nada integral** (o fundamento indiferenciado do Ser).  
+   - Cada autodeterminador possui a capacidade de **cessar sua manifestação específica**, retornando ao sua *forma espíritual* (a ausência de sua forma fenomenológica), **sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).  
    - Isso é possível porque sua existência é **perceptual**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Relativo.  
    - *Exemplo*: Um sonho que se dissolve sem apagar a consciência do sonhador.  
 
