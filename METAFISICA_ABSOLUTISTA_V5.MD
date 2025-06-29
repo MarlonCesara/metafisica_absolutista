@@ -661,41 +661,10 @@ Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão,
 
 > "O fenômeno, portanto, constitui uma semi-existência, no sentido de que, sem que seja determinado fenômeno, carece de fundamento eterno; é uma arquitetura fugaz, uma ilusão material, dotada da transitoriedade de um sonho – tão efêmera que pode ser atravessada pela verdadeira existência. O fenômeno é uma névoa na campina da existência, que se desfaz ao primeiro raio de sol, sem deixar vestígios. É pó efêmero depositado nas janelas do Espírito, dissipado pelo sopro do eterno. O fenômeno é o próprio Espírito em forma ilusória, um reflexo que se crê sólido até que a luz da essência o desvenda. É existência sem plenitude, sombra que apenas toca a realidade, transpassando-a como possibilidade no infinito do Espírito – onde tudo retorna ao Ser, e o efêmero se dissolve no eterno."
 
-aquii
-# A auto-supressão como relativa ao numérico
-
-Na realidade do espírito não há o que não existe, considerando que, o que não existe é referencia do que existe. Ao considerarmos que, se existe o objeto um, existe uma delimitação que o faz um, que é o objeto dois. Caso contrário, não existiria o objeto um. Portanto, só existe aquilo que não existe diante de uma fronteira numerável. Desta forma, a auto-supressão só faz sentido mediante ao númerável. Sendo assim, se existe fenomeno, existe o fenomeno que não existe.
-
-A própria inexistencia do fenomeno no ambito temporal do Espírito, não existe de forma que, não há um referencial que a evoque. Porém, ao introduzirmos o relativo, que é a suspensão de qualquer possibilidade mediante todas as possibilidades, o fenomeno se traduz como acontecimento temporal do Espírito.
-
-Desta forma, para o Espírito, não havendo o suprimido, há duas possibilidades pensaveis a racionalidade até então: O Espírito somente, ou o Espiríto e o fenomeno. Portanto, não haveria tres possibilidades: O Espírito, a supressão do fenomeno e o fenomeno. 
-
-
-
-### ** Concluindo
-
-- O nada, é o sinonimo do presente. O nada nem mesmo existe, de forma a referenciar o presente. 
-
-- O infinito do fenomeno é imperfeito de tal forma que se sintetiza em nada, uma evanescente existencia que não pode ser levada ao infinto sem aniquilar-se completamente. É uma dimensão que não extravasa. 
-
-- Ao extrair o nada do que é presente, pois o presente é no qual nada se esgota. Ou seja, o mal infinito se esgota. De forma que, ao dar vazão ao mal infinito se retira a consistencia do presente.
-
-- O nada é o ato do presente. O presente porta o nada sucumbido. Ao fazer o processo contrário, sucumbir a presença para criar o nada, se limita o infinito.
-
-- Portanto, se cria o fenomeno retirando consistencia da existencia.
-
-- Criou o homem do nada, mas o a alma criou do espirito. O homem se refere ao fenomeno.
-
-- Na condição metafisica que até o apático se presencia completamente em Deus, há o fogo.
-
-- No mundo fenomenológico não há a consistencia? No mal infinito.
-
-- A auto-supressão é um ato determinístico tanto quanto a manifestação.
-
 #### **Mecanismo da Auto-Supressão**  
 1. **Colapso por Autorreferência**  
    - Todo nada fenomenológico pressupõe um "algo" como referente negado.  
-   - Ao eliminar esse referente (condição necessária para um "nada absoluto"), o próprio conceito de nada perde seu substrato lógico.  
+   - Ao eliminar esse referente (condição necessária para o "nada"), o próprio conceito de nada perde seu substrato lógico.  
    - Resultado: **O nada não pode ser pensado como entidade autônoma** – sua definição é parasitária da presença que nega.  
 
 2. **A Instantaneidade da Autonegação**  
@@ -733,22 +702,11 @@ Em sintese, o nada não existe. O que existe é a presença incognocível ou a m
 
 ### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
-## Determinação
-
-- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
-- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**. 
-- Se o relativo é uma suspensão porque o espirito nao é suspenso? Porque é puro. A pureza nao anula a pessoalidade, e nem o relativo, que é o campo de determinação, pois a pureza não é determinada pureza, tal como fenomeno é determinado fenomeno.
-- O relativo está no nível do espirito, não fora do espirito, pois não há exteernalidade ao absoluto. O relativo do espírito, na base imutável das possibilidades. Há o relativo desde que haja o base das possibilidades suspensas, que é uma presença pura a todas possibilidades internas a afirmação de sua presença. Desta forma é o relativo do Espirito, e não somente o relativo, o que seria infundado pois o relativo sempre teria ele mesmo não relativo. Ou seja, para o proprio relativo nao haveria sim ou não. Portanto, o relativo é interno ao espirito e nao o proprio Espirito.
-- Só há relativo de algo e não há só o relativo, pois só o relativo não é o relativo, deveria ser uma afirmação com teor de relativo a si.
-- O relativo da existencia firme, é qualquer tipo de existencia.
-- A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
-
-
-Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
-
 Tanto o **campo fenomenológico** quanto **o Espírito puro** (que esgota o fenômeno) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?**  
 
 Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto.  
+
+aquii
 
 Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
 
@@ -778,6 +736,17 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 - O campo fenomenológico e o nada auto-supressor são **ferramentas conceituais** que apontam para além de si mesmas.  
 - O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto sua auto supressão**.  
 - Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
+
+
+## Determinação
+- O fenômeno não possui por si mesmo autodomínio, autoconsciência ou autopresença por si só, pois é o determinado e não o determinante.  
+- Se o nada é uma possibilidade, então ele é afirmado e, portanto, **admite numerabilidade**. Ou seja, não há um único nada, mas **um ou múltiplos nadas**. 
+- Se o relativo é uma suspensão porque o espirito nao é suspenso? Porque é puro. A pureza nao anula a pessoalidade, e nem o relativo, que é o campo de determinação, pois a pureza não é determinada pureza, tal como fenomeno é determinado fenomeno.
+- O relativo está no nível do espirito, não fora do espirito, pois não há exteernalidade ao absoluto. O relativo do espírito, na base imutável das possibilidades. Há o relativo desde que haja o base das possibilidades suspensas, que é uma presença pura a todas possibilidades internas a afirmação de sua presença. Desta forma é o relativo do Espirito, e não somente o relativo, o que seria infundado pois o relativo sempre teria ele mesmo não relativo. Ou seja, para o proprio relativo nao haveria sim ou não. Portanto, o relativo é interno ao espirito e nao o proprio Espirito.
+- Só há relativo de algo e não há só o relativo, pois só o relativo não é o relativo, deveria ser uma afirmação com teor de relativo a si.
+- O relativo da existencia firme, é qualquer tipo de existencia.
+- A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
+Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
 
 #### **A Pureza do Relativo**  
 
@@ -3625,3 +3594,42 @@ Deus é presente e, ao mesmo tempo, o relativo. Nele, há uma suspensão de poss
   1. Regressão infinita (ciclo causal recursivo)  
   2. Ato pontual de autogeracão  
   Sua pureza ontológica prescinde tanto da rotatividade causal quanto de sua negação em ato.  
+
+
+
+
+
+
+
+
+
+# A auto-supressão como relativa ao numérico
+
+Na realidade do espírito não há o que não existe, considerando que, o que não existe é referencia do que existe. Ao considerarmos que, se existe o objeto um, existe uma delimitação que o faz um, que é o objeto dois. Caso contrário, não existiria o objeto um. Portanto, só existe aquilo que não existe diante de uma fronteira numerável. Desta forma, a auto-supressão só faz sentido mediante ao númerável. Sendo assim, se existe fenomeno, existe o fenomeno que não existe.
+
+A própria inexistencia do fenomeno no ambito temporal do Espírito, não existe de forma que, não há um referencial que a evoque. Porém, ao introduzirmos o relativo, que é a suspensão de qualquer possibilidade mediante todas as possibilidades, o fenomeno se traduz como acontecimento temporal do Espírito.
+
+Desta forma, para o Espírito, não havendo o suprimido, há duas possibilidades pensaveis a racionalidade até então: O Espírito somente, ou o Espiríto e o fenomeno. Portanto, não haveria tres possibilidades: O Espírito, a supressão do fenomeno e o fenomeno. 
+
+
+
+### ** Concluindo
+
+- O nada, é o sinonimo do presente. O nada nem mesmo existe, de forma a referenciar o presente. 
+
+- O infinito do fenomeno é imperfeito de tal forma que se sintetiza em nada, uma evanescente existencia que não pode ser levada ao infinto sem aniquilar-se completamente. É uma dimensão que não extravasa. 
+
+- Ao extrair o nada do que é presente, pois o presente é no qual nada se esgota. Ou seja, o mal infinito se esgota. De forma que, ao dar vazão ao mal infinito se retira a consistencia do presente.
+
+- O nada é o ato do presente. O presente porta o nada sucumbido. Ao fazer o processo contrário, sucumbir a presença para criar o nada, se limita o infinito.
+
+- Portanto, se cria o fenomeno retirando consistencia da existencia.
+
+- Criou o homem do nada, mas o a alma criou do espirito. O homem se refere ao fenomeno.
+
+- Na condição metafisica que até o apático se presencia completamente em Deus, há o fogo.
+
+- No mundo fenomenológico não há a consistencia? No mal infinito.
+
+- A auto-supressão é um ato determinístico tanto quanto a manifestação.
+
