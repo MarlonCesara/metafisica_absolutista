@@ -1212,26 +1212,28 @@ Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
 
 O Ser abrange:  
 - Infinitos fenômenos possíveis.  
-- Infinitos determinadores (que se igualam ao Ser exceto em sua plenitude necessária e não multiplicidade (pureza absoluta)).  
+- Infinitos determinadores (que se igualam ao Ser exceto em sua plenitude necessária e não multiplicidade (pureza absoluta).  
 - O incognocível.
 - O possível e o impossível.
 
-aquii
+> Para o Ser, tudo é possível, desde que seja no Ser. É possível infinitas formas, infinitas partições do mesmo Espírito. Cada Espírito contém uma infinitude em si.
+
 ## Determinação Temporal e Projeção do Ser  
 
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:  
 - Atos temporais.  
 - Presença (existência situada em um contexto temporal).  
 
+
 ## **A Transcendência do "Quem": O Ser além do Número, do Tempo e do Espaço**  
 
 #### **1. A Natureza Não-Numérica do Ser**  
 O Ser não pode ser reduzido a uma unidade contável:  
 - **O Ser não é "um" ou "muitos"** – sua essência dissolve a quantificação.  
-- **O Nada fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.  
+- **O Espírito fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.  
 
-#### **2. A Dupla Dimensão do Nada**  
-| **Nada Indiferenciado**          | **Nada Determinado**            |  
+#### **2. A Dupla Dimensão do relativo**  
+| **Relativo Indiferenciado**       | **Relativo Determinado**         |  
 |--|-|  
 | Não-contável (sem quantidade)     | Contável (ex.: "1 nada")         |  
 | Fundamento do Ser                 | Criação do Ser                   |  
@@ -1241,12 +1243,6 @@ O Ser não pode ser reduzido a uma unidade contável:
 - **Para além do espaço:** Não está "em lugar nenhum" porque *é* o próprio lugar.  
 - **Para além do tempo:** Não "dura", pois contém toda duração em si mesmo.  
 - **Para além da identidade:** Não é "um sou", mas o *fundo de todos os "sous"*.  
-
-**Processo de Transcendência:**  
-1. **"Sou" (indivíduo)** → Identidade única (número, tempo, espaço).  
-2. **"Ser" (transcendência)** → Dissolução das determinações:  
-   - *Por morte:* Aniquilação total do "sou".  
-   - *Por fusão:* Integração no Ser sem perder totalmente a individualidade.  
 
 #### **4. A Ontologia dos "Sous"**  
 - Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).  
@@ -1264,32 +1260,14 @@ O Ser não pode ser reduzido a uma unidade contável:
 > Os nadas individuais são vivos, na vida. Ou seja, a transcendência da individualização da vida se resvala numa vida total.  
 > O nada, sem o quem, não implica em subdivisões em si.  
 
-**Glossário:**  
-- **Quem:** Princípio ativo não-numerável (Ser, Consciência Absoluta).  
-- **Nada diferenciado:** "Ausência" percebida (ex.: escuridão, silêncio).  
-- **Nada fundamental:** Indiferenciação pura (inefável).  
-
 ### **A Diferença entre a Alma do Ser e a Alma do "Sou"**  
 
-1. **O Nada Indiferenciado**  
-   - Refere-se ao nada que não se diferencia de outros nadas.  
-   - Não envolve algo (manifestação) nem o "quem" (alma manifestada).  
+1. **O Espírito Indiferenciado**  
+   - Refere-se ao Espírito que não se diferencia de outros Espíritos.  
+   - Não envolve algo (manifestação) nem o "sou" (alma determinada).  
 
-2. **O "Quem" como Alma**  
-   - O "quem" é a alma, o agente ativo da autodeterminação.  
-
-3. **A Realidade tem Alma?**  
-   - A realidade possui alma, porém, essa alma é relativa à sua natureza fundamentadora, não ao próprio Ser.  
-
-4. **A Alma do Ser**  
-   - Não se refere propriamente ao nada do Ser, pois a propriedade desse nada é relativa a qualquer "sou" que se autodetermine sob a perspectiva de uma vontade autofundamentadora.  
-   - A alma do Ser é uma nulidade, no sentido de que a fundamentação do Ser é a integralidade dos fundamentados.  
-
-5. **Transcendência e Relação com o Ser**  
-   - A transcendência dos fundamentos repercute no Ser.  
-   - O Ser não possui uma unidade ou multiplicidade definida. Ele é relativo em número, podendo ser:  
-     - Nenhum número (indiferenciação absoluta).  
-     - Uma multiplicidade (individualizações de si mesmo).  
+2. **O "sou" como Alma diferenciada**  
+   - O "sou" é a alma diferenciada, o agente ativo de uma autodeterminação particular (não necessáriamente simetrica à plenitude).  
 
 *"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações de si mesmo)."*  
 
@@ -1305,9 +1283,9 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 
 ## Paralelismo sem Separação  
 
-- **Coexistência de infinitos**: Dois determinadores (A e B) só interagem se um se torna fenômeno para o outro.  
+- **Coexistência de infinitos no status quo do mundo**: Dois determinadores (A e B) interagem se um se torna fenômeno para o outro e ambos compartilham a visibilidade de seus atos (ações fenomenicas) e não sua essência espiritual.  
 - **O nada como limite**: O infinito de A é o nada de B, e vice-versa. Ambos são modos do mesmo Ser.  
-- *Exemplo:* Dois observadores podem habitar a mesma infinitude sem distância espacial — a "separação" é uma construção perceptual.  
+- *Exemplo:* Dois observadores podem habitar a mesma infinitude sem distância espacial — a "separação" é uma construção individual.  
 
 ## Paralelismo e Infinito  
 
@@ -1325,17 +1303,17 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
     - Um se manifesta puramente ao outro (criando uma verdade relativa).  
     - Ou permanecem distintos em suas realidades absolutas. Sendo um a má pureza, ou seja, a pureza rumo a auto-supressão do outro.
 - O "nada" é o limite compartilhado:  
-  - O infinito de um determinador é o "nada" do outro, mas ambos são modos do Ser único.  
+  - O infinito de um determinador é o "relativo" do outro, mas ambos são modos do Ser único.  
 
 ## Autonomia Ontológica  
-
+aquii
 - Não há separação absoluta, apenas:  
   - **Fusão** (identidades dissolvidas em uma verdade comum).  
   - **Encontro** (interação fenomênica temporária) que se dá sem fusão nem distanciamento, sustentado por uma natureza intermediária entre as interações. Exemplo: Os "sous" podem influenciar a natureza do Ser sem revelar uma essência mútua – apenas o arbítrio de suas ações.  
   - **Paralelismo** (existências simultâneas sem contato direto).  
 - A distância é idealizada: Cada determinador vive em sua própria realidade soberana, onde:  
   - "Em meu mundo, seu mundo só existe se eu o permitir."  
-  - "Meu universo é infinito, portanto, pode estar a uma distância infinita do seu. Ou seja, em seu ponto de vista posso fazê-lo nada."  
+  - "Meu universo é infinito, portanto, pode estar a uma distância infinita do seu. Ou seja, em seu ponto de vista posso fazê-lo relativo."  
 
 ## **Autonomia na Integralidade e na Manifestação**  
 
@@ -3607,3 +3585,27 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 4. **Pode determinar um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
 
 Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando completamente opaco, não se direciona nem mesmo a ação.
+
+**Processo de Transcendência:**  
+1. **"Sou" (indivíduo)** → Identidade única (número, tempo, espaço).  
+2. **"Ser" (transcendência)** → Dissolução das determinações:  
+   - *Por morte:* Aniquilação total do "sou".  
+   - *Por fusão:* continuidade no Ser sem perder totalmente a individualidade.  
+
+**Glossário:**  
+- **Quem:** Princípio ativo não-numerável (Ser, Consciência Absoluta).  
+- **Nada diferenciado:** "Ausência" percebida (ex.: escuridão, silêncio).  
+- **Nada fundamental:** Indiferenciação pura (inefável).  
+
+3. **A alma do Ser **  
+   - A alma do Ser é relativa à sua natureza fundamentadora.  
+
+4. **A Alma do Ser**  
+   - Não se refere propriamente ao relativo do Ser, pois a propriedade do Espírito é relativa a qualquer "sou" que se autodetermine sob a perspectiva de uma vontade autofundamentadora.  
+   - A alma do Ser é uma indiferenciação, no sentido de que a fundamentação do Ser é a integralidade dos fundamentados.  
+
+5. **Transcendência e Relação com o Ser**  
+   - A transcendência dos fundamentos repercute no Ser.  
+   - O Ser não possui uma unidade ou multiplicidade definida. Ele é relativo em número, podendo ser:  
+     - Nenhum número (indiferenciação absoluta).  
+     - Uma multiplicidade (individualizações de si mesmo).  
