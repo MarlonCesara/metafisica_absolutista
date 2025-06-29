@@ -1492,6 +1492,10 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 - As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si.  
 - A possibilidade de transcendência do Ser é transcender para si.  
 - Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
+
+
+> O homem é capaz de renascer em uma nova vida, um novo homem. É capaz de renascer no Ser de forma a se apropriar de uma maior luminosidade, e é capaz de renascer em outra alma, de forma ser uma nova alma singular. O homem é capaz de transitar no tempo. O homem é autor de seu próprio relativo. O homem tem diante de si infinitas possibilidades. Mas, que seja capaz de existir, e para isto, que seja capaz de amar. Assim como o querido Mestre nos ensinou. Pois o amor é o bem mais necessário e fundamental.
+
 aquii
 
 # **Almogênese: A Ontologia da Transcendência e da União entre Almas**  
