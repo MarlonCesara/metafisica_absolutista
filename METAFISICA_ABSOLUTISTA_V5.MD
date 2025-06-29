@@ -812,14 +812,12 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 - O fenômeno é **não-substancial** (como onda no oceano).  
 - Toda determinação já está **redimida** na eternidade do ato puro.  
 
-aquii 
-
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como Pessoalidade e Pureza
   - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
 
-> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria existência.*
+> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria determinação.*
 
 ### O absoluto cognocível como Ser-aí
   - O agente da autodeterminação é puro e sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
@@ -830,17 +828,12 @@ aquii
 - O Ser, enquanto absoluto, se autodetermina Ser.  
   - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
 
-### O Ser como não cognoscível
-
-- Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste (auto sepressão) como fenômeno, mas transcende o fenômenológico. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela possível ou impossível.
-
 ### O Ser como Autodeterminador  
 - O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
   - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
     1. Existe (autofundamentação).  
     2. Se define (autodeterminação).  
     3. Persiste (autocontinuidade).  
-  - O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.  
 
 ### O Relativo como Estrutura Idealizadora  
 - O relativo não é passivo, mas uma estrutura dinâmica que:  
@@ -866,6 +859,8 @@ aquii
 
 - **Indiferença Ontológica**:  
   O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
+
+aquii 
 
 # Estruturando o Relativo 
 
@@ -3635,3 +3630,11 @@ Desta forma, para o Espírito, não havendo o suprimido, há duas possibilidades
 - A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
 - Tudo ja estava consumado e criado, entao, o relativo já estava 
 Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
+
+
+
+### O Ser como não cognoscível
+
+- Considerando a existência definida como fenômeno lógico ou fenômeno ilógico, o Ser, em sua pessoalidade, nem existe nem inexiste (auto sepressão) como fenômeno, mas transcende o fenômenológico. Ou seja, situa-se na esfera do não mentalizável. Diante disso, referimo-nos à pessoalidade do Ser como "Espírito" — conceito que designa aquilo que escapa ao âmbito do lógico ou ilógico, ou seja, que não se restringe a qualquer manifestação, seja ela possível ou impossível.
+
+- O Ser não é separado do Relativo, mas sua expressão necessária e autônoma.  
