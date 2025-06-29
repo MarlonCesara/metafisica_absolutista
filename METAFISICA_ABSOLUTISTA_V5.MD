@@ -1025,14 +1025,13 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 2. A vontade do **Espirito** como princípio performático.  
 3. A **Manifestação do possível e impossível** como efeito relacional.  
 
-aquii
+## A possibilidade/impossibilidade como Estado Relacional  
 
-## O Nada como Estado Relacional  
-
-- Sua existência só faz sentido mediante a ação do espirito, não em si mesmo.  
-- *Exemplo:* Um horizonte ilimitado é "nada" até que o espirito defina um ângulo de existência, convertendo-o em paisagem.  
+- Sua existência só faz sentido mediante a ação do Espirito, não em si mesmo.  
+- *Exemplo:* Um horizonte ilimitado é "uma infinitude indiferenciada" até que o Espírito defina um ângulo de existência, convertendo-o em paisagem.  
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
 
+aquii
 ## Criação a partir do Nada  
 
 Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de forma a tornar existente possibilidades prévias:  
