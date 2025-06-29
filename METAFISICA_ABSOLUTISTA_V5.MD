@@ -1493,12 +1493,10 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 - A possibilidade de transcendência do Ser é transcender para si.  
 - Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
 
-
 > **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer no **Ser**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de Ser** — e Ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.  
 
 # **Almogênese: A Ontologia da Transcendência e da União entre Almas**  
 
-aquii
 ## **A Dialética da Autodeterminação e Transcendência**  
 
 - **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.  
@@ -1510,15 +1508,19 @@ aquii
 2. Contudo, ao fixar-se como ente determinado, o Ser limita-se à sua própria determinação, perdendo assim o acesso à potencialidade pura da indeterminação que fundamenta a verdadeira transcendência.  
 3. Segue-se necessariamente que, como manifestação de um Ser transcendente, o "sou" deve conter em si mesmo esta mesma qualidade transcendente.  
 4. O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente.  
-5. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, com exceção de retornar à indeterminação.  
+5. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, podendo, até mesmo, retornar à indeterminação (corrupção).
 
 #### **2. A Transcendência da Alma**  
 A transcendência da alma gira em torno de duas hipóteses:  
-- A alma já transcende, tal como Ser, tempo e espaço, porém não transcende a própria identidade. Ou seja, o "quem" da unidade não está em integração, de forma que a unidade transcenda sem "quem" tal como o Ser.  
+- A alma já transcende, tal como Ser, o tempo e espaço em seu infinito particular, porém não transcende a própria identidade. Ou seja, o "quem" da unidade não está em uniformidade à capacidade do Ser, de forma que a unidade transcenda seu "quem" tal como o Ser.  
+
+Desta forma, a alma, podendo transcender para o Ser (translucidez) ou para si mesma (renascimento de um apadrinhamento) como no mundo vigente, carece de uma forma de transcender completamente seu Eu.
 
 A transcendência do "quem" aborda duas possibilidades:  
 1. **Por morte**: Aniquilação total do "sou", de forma a restaurar a capacidade de transcendência original como Ser. Porém, esta não é uma transcendência, mas retrocesso, pois a transcendência significa sair de si havendo um si que permanece de forma que seja o agente da transcendência.  
 2. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas.  
+
+aquii
 
 #### **3. Exploração da Hipótese da Alma Completa**  
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.  
