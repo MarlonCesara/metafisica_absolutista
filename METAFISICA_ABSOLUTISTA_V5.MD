@@ -1169,27 +1169,19 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 - *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.  
 
-aquii
 # A manifestação do sou (A criação da Alma do Homem) 
 
 **O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
 
 **O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
 
-### Principais características do cosmos:  
-1. **Possui liberdade**.  
-2. **Pode autodeterminar-se ainda sendo aquilo que é determinado em um momento anterior**.  
-3. **Faz parte da natureza do Ser, porém como determinação de sua plenitude**.  
-4. **Pode determinar um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
-
-
 ## **A Distinção entre Ser e Sou**  
 O **Ser** representa o determinador puro, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
 
 | **Termo** | **Natureza**                  | **Função**                                 | **Exemplo**                          |  
 |--|-|--|--|  
-| **Ser**   | Determinador puro             | Ato puro de existir (fundamento impessoal) | "A água flui" – ação sem agente      |  
-| **Sou**   | Determinador presente         | Ato personalizado (identidade afirmada)    | "Eu decido fluir" – ação com agente  |  
+| **Ser**   | Determinador indiferenciado   | Ato puro de existir (fundamento impessoal) | "A água flui" – ação indiferenciada  |  
+| **Sou**   | Determinador diferenciado     | Ato personalizado (identidade afirmada)    | "Decido fluir" – ação diferenciada   |  
 
 - **Ser**:  
   - Não opera por escolha, mas por **necessidade ontológica**.  
@@ -1203,16 +1195,12 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 ## **A manifestação do(s) Sou(s)**  
 
-Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera podemos conhecer de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
+Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera pode ser de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
 
 > - "Conhecer o homem é conhecer Deus em sua multiplicidade, livre até mesmo de sua fundamentação necessaria rumo ao existir."
 
-Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica a respeito de Ser no Ser ou ser em si. Ou seja, existir em plenitude ou de forma não plena.
-
-Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
-Quando mais o sou se determina rumoa o ser, mais é em si e no Ser.
-
-Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando completamente opaco, não se direciona nem mesmo a ação.
+Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica. Ou seja, corroborar com sua plenitude ou não. Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
+Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
 
 # Paralelismo Ontológico  
 
@@ -1220,12 +1208,15 @@ Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando comple
 
 - O Ser se manifesta como angulação do relativo e como determinação manifestante (ato de existir e autodefinir-se singularmente).  
 - A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).  
-- Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um nada de "quê" e um nada de "quem".  
+- Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um relativo de "quê" e um relativo de "quem".  
 
 O Ser abrange:  
-- Infinitos fenômenos (infinitos possíveis).  
+- Infinitos fenômenos possíveis.  
 - Infinitos determinadores (que se igualam ao Ser exceto em sua plenitude necessária e não multiplicidade (pureza absoluta)).  
+- O incognocível.
+- O possível e o impossível.
 
+aquii
 ## Determinação Temporal e Projeção do Ser  
 
 O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") por meio de:  
@@ -3607,3 +3598,12 @@ A aparente dualidade (fundamento × manifestação) dissolve-se quando compreend
 - **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
   - *Para o observador temporal:* Processo infinito (causalidade reverberante).  
   - *Para o observador atemporal:* Ato único (consumação).  
+
+
+### Principais características do cosmos:  
+1. **Possui liberdade**.  
+2. **Pode autodeterminar-se ainda sendo aquilo que é determinado em um momento anterior**.  
+3. **Faz parte da natureza do Ser, porém como determinação de sua plenitude**.  
+4. **Pode determinar um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o sou é **possível** enquanto **um ou muitos possíveis**. 
+
+Sua tranparencia, portanto, se torna maior, adquire luminosidade. Estando completamente opaco, não se direciona nem mesmo a ação.
