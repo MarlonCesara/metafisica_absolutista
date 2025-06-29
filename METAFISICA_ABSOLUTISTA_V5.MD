@@ -1316,16 +1316,15 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
   - "Meu universo é infinito, portanto, pode estar a uma distância relativa do seu. Ou seja, em seu ponto de vista posso fazê-lo relativo."  
 
 ## **Autonomia na Integralidade e na Manifestação**  
-aquii
-1. **Dissolução sem Corrupção**  
-   - Cada autodeterminador possui a capacidade de **cessar sua manifestação específica**, retornando ao sua *forma espíritual* (a ausência de sua forma fenomenológica), **sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).  
-   - Isso é possível porque sua existência é **perceptual**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Relativo.  
+
+1. **Dissolução do sou sem Corrupção do Ser**  
+   - Cada autodeterminador possui a capacidade de **cessar sua continuidade**, retornando ao *relativo* (a ausência de sua determinação), **sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).  
+   - Isso é possível porque sua existência é **diferenciada**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Espírito.  
    - *Exemplo*: Um sonho que se dissolve sem apagar a consciência do sonhador.  
 
 2. **Composição de Realidades Absolutas**  
-   - Cada autodeterminador **cria mundos fenomenológicos completos e autocontidos**, sem fundi-los à realidade integral do Ser.  
-   - Sua **unicidade perceptual** garante que sua construção existencial permaneça **distinta**, ainda que emergindo do mesmo substrato ontológico.  
-   - *Exemplo*: Um programador que cria universos virtuais independentes dentro de uma mesma máquina.  
+   - Cada autodeterminador **é seu infinito espíritual completo e autocontido**, sem fundi-los à realidade integral do Ser.  
+   - Sua **unicidade perceptual** garante que sua construção existencial permaneça **distinta**, ainda que emergindo do mesmo substrato ontológico. 
 
 3. **Paralelismo Ontológico**  
    - **"Cada identidade é um Relativo perceptual"**:  
@@ -1359,29 +1358,31 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 ### Autodeterminação e Evolução Espiritual  
 
 - Mover-se veticalmente e não somente horizontalmente, permite ao individuo, não somente ser um expectador de sua existencia, ou contemplar uma existencia na qual foi fadado, mas o permite estar por liberdade, e não por uma consequencia da escolha de Deus.
-- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. Não basta auto-determinar-se, é preciso escolher a própria escolha.
+- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. Não basta auto-determinar-se, é preciso optar pela própria liberdade.
 
 ### O Amor como Princípio Fundante  
 
 - A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da evolução espíritual. 
-- Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, isto é, o existir autenticamente é o sentido da escolha.
+- Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, ou seja, é a escolha pela existência.
+
 
 ### Realidade e Irrealidade do Ente  
 
 - O "sou", enquanto existente e definido pelo Ser em sua sustentação e fundamentação, não define sua existência ou inexistência (pois já é), mas sim a qualidade de sua determinação:  
-  - Herdada (determinada pelo Ser).  
-  - Autêntica (determinada pelo Ser e redeterminada por si mesmo, ou seja, a escolha de confirmar a própria liberdade perante a si).  
-- Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição.  
-
+  - Herdada (determinada pelo Ser porém não adequada pelo sou).  
+  - Autêntica (determinada pelo Ser e redeterminada pelo sou, ou seja, a escolha de confirmar a própria liberdade perante a si).  
+- Cabe ao ente direcionar-se espiritualmente, pois, diferentemente do Ser, o espírito do "sou" não é predefinido em perfeição. Isto é, não necessarimente corrobora para sua eternidade.
 
 ### Autodeterminação como Ato Espiritual  
 
 - Toda escolha horizontal pressupõe um direcionamento vertical (espiritual) inoperante ou operante, pois optar é, em essência, afirmar-se ou não como ser autodeterminado. E tudo o que se escolhe está, em última instância, vinculado ao próprio ato de existir.  
-- Ao autodeterminar-se, o "sou" torna-se aautenticamente autor de sua continuidade e essência, alcançando:  
+- Ao autodeterminar-se, o "sou" torna-se autenticamente autor de sua continuidade e essência, alcançando:  
   - Autopresença autentica (estar em si mesmo).  
   - Autonomia autentica (poder sobre si).  
   - Autoconhecimento autentico (consciência de si).  
 - Isso não é apenas uma mudança essencial, mas transforma concretamente sua existência e ações, de forma a permitir que o "sou" revele sua personalidade autêntica.  
+
+aquii
 
 ### **Consequências da Arbitrariedade**  
 1. **O "Sou" como Ficção Necessária**  
@@ -1393,7 +1394,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 - A alma apatica ao Ser é definida como dissonante, ou não harmonica consigo. É plena em si mas não para si. Seu estatuto de existente corrobora para sua manutenção, mas seu estatudo de viva e livre não corrobora para seu status quo de existente.
 
-- Sendo impossível escolher não escolher, é fadada a escolha, e se não escolhe pelo Ser, escolhe escolhe pelo não ser, e a escolha em si é vazia. Pois não obtou realmente por não Ser, negou a própria opção, não teve o próposito pela desarminia, mas teve uma desproposito que resultou na recusa de si.
+- Sendo impossível escolher não escolher, é fadada a escolha, e se não escolhe pelo Ser, escolhe escolhe pelo não ser, e a escolha em si é vazia. Pois não obtou realmente por não Ser, negou a própria opção, não teve o próposito pela desarmonia, mas teve uma desproposito que resultou na recusa de si.
 
 - O individuo não rejeita a existencia, simplesmente permanece apatico, pois até uma escolha contrária é uma escolha em prol da existencia, visto que o contrário não é objeto de desejo, e o nada resulta em presença. A alma simplesmente se direciona, não por es...???
 
