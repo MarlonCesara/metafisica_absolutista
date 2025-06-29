@@ -746,6 +746,7 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 - Só há relativo de algo e não há só o relativo, pois só o relativo não é o relativo, deveria ser uma afirmação com teor de relativo a si.
 - O relativo da existencia firme, é qualquer tipo de existencia.
 - A pureza tem o nivel maximo de indeterminação, determina-se até a si mesma como numerica.
+- Tudo ja estava consumado e criado, entao, o relativo já estava 
 Ao considerar o fenomeno a rasura do Espirito, então não temos necessidade nem mesmo de um fenomeno suprimido, pois teriamos o fenomeno como possibilidade.
 
 #### **A Pureza do Relativo**  
