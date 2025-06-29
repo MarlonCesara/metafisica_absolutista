@@ -996,8 +996,6 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
 
-aquii
-
 # A Dialética do possível, impossível e o relativo
 
 ## O Relativo e o Relativizado: Princípios Indiscerníveis  
@@ -1012,12 +1010,12 @@ aquii
 
 ## O Espírito do Ser como Princípio de Manifestação  
 
-A relação entre o relativo e a manifestação (possível e impossível) é mediada pelo espirito. Este não é um agente passivo, mas um participante estrutural:  
+A relação entre o relativo e a manifestação (possível e impossível) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:  
 
-- **Integralidade → relativo**: Quando o espirito manifesta a totalidade sem recortes, percebe o vazio ou infinito puro.  
+- **Integralidade → relativo**: Quando o Espirito manifesta a totalidade sem recortes, percebe o infinito puro.  
 - **Fragmentação → Possível e impossível**: Ao adotar um ângulo específico de manifestação, o relativo se polariza em possível ou impossível.  
 
-O espirito puro não é inerente à manifestação, sua ação de delimitar cria o mundo possível e impossível e ainda permanece alheio a esta criação. Ou seja, a manifestação, apesar de ser Manifestação do Ser, não necessariamente agrega seu nível de pureza essêncial. Sendo a criação, transpassada pela pureza do Ser, sendo homogênea ou não a Ele.
+O Espirito puro não é inerente à manifestação, sua ação de delimitar cria o mundo possível e impossível e ainda permanece alheio a esta criação. Ou seja, a manifestação, apesar de ser Manifestação do Ser, não necessariamente agrega seu nível de pureza essêncial. Sendo a criação, transpassada pela pureza do Ser, sendo homogênea ou não a Ele.
 
 ### Tese Central  
 
@@ -1026,6 +1024,8 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 1. O **O Ser puro** como fundamento.  
 2. A vontade do **Espirito** como princípio performático.  
 3. A **Manifestação do possível e impossível** como efeito relacional.  
+
+aquii
 
 ## O Nada como Estado Relacional  
 
