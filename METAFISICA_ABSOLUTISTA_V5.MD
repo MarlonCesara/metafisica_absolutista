@@ -735,11 +735,9 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 - O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o não fenômeno**.  
 - Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
-aquii 
-
 #### **A Pureza do Relativo**  
 
-Ao considerar que, a pessoalidade espiritual não carrega determinação (campo fenomenológico ou nada auto-supressor), mas se entrega como pureza absoluta, é possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+Ao considerar que, a pessoalidade espiritual não carrega determinação (campo fenomenológico ou não fenômeno), mas se entrega como pureza absoluta, é possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
 
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
@@ -756,9 +754,11 @@ Assim, constitui-se o relativo: um campo onde todas as possibilidades estão sus
 
 Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesmente serem, resumindo-se de forma perfeita e pura na totalidade. Como uma correnteza cujo movimento interno deságua na margem, sendo definida pela superfície, e não pela internalidade.
 
-Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais simples, a decisão não tomada pelo Ser. De forma que, todas as decisões já estão prontas em sua plenitude, basta que Deus as evoque da suspensão, ou seja, do nada.
+Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais simples, a decisão não tomada pelo Ser. De forma que, todas as decisões já estão prontas em sua plenitude, basta que o Espírito as evoque da suspensão, ou seja, do nada.
 
 O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais estão contidas do possível, impossível e incognocível.
+
+aquii 
 
 ### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
 
