@@ -1494,12 +1494,11 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 - Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
 
 
-> O homem é capaz de renascer em uma nova vida, um novo homem. É capaz de renascer no Ser de forma a se apropriar de uma maior luminosidade, e é capaz de renascer em outra alma, de forma ser uma nova alma singular. O homem é capaz de transitar no tempo. O homem é autor de seu próprio relativo. O homem tem diante de si infinitas possibilidades. Mas, que seja capaz de existir, e para isto, que seja capaz de amar. Assim como o querido Mestre nos ensinou. Pois o amor é o bem mais necessário e fundamental. O mundo além deste mundo é um mundo de infinitas possibilidades. Há muito mais possibilidades do que as possíveis à imaginação. Porém, é necessario que haja a possibilide de Ser, e Ser é decidir, optar definitvamente por Deus que é o próprio existir. Deus em nós significa a vida eterna. 
-
-aquii
+> **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer no **Ser**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de Ser** — e Ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.  
 
 # **Almogênese: A Ontologia da Transcendência e da União entre Almas**  
 
+aquii
 ## **A Dialética da Autodeterminação e Transcendência**  
 
 - **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.  
