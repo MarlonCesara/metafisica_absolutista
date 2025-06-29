@@ -758,8 +758,6 @@ Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais
 
 O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais estão contidas do possível, impossível e incognocível.
 
-aquii 
-
 ### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
 
 A pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese auto fundamentadora.
@@ -772,13 +770,14 @@ Sendo assim, todo evento não afeta a pureza fundamental, mas tende a ela para e
 
 Podemos citar um exemplo para ilustrar: O fenômeno é mais transparente que o Espírito; desta forma, não interfere no processo de auto fundamentação do Espírito. No entanto, sua transparência está mais próxima do nada radical do que da pureza radical, sendo, portanto, translúcido no sentido mal, e não no sentido da existência.
 
-Portanto, o fenômeno seria menos concreto ou literal do que o espirito fundamental. O Espírito portanto seria a existência de máximo teor, àquela desprendida de qualquer determinação, seja está fenomênica ou não fenomênica. De forma que, tenha consumado em si, toda a temporalidade, eventos e possibilidades já manifestadas em ato único. Mantendo sua internalidade dinâmica conforme a ação fundamental do Espirito.
+Portanto, o fenômeno seria menos concreto ou literal do que o Espirito fundamental. O Espírito portanto seria a existência de máximo teor, àquela desprendida de qualquer determinação, seja está fenomênica ou não fenomênica. De forma que, tenha consumado em si, toda a temporalidade, eventos e possibilidades já manifestadas em ato único. Mantendo sua internalidade dinâmica conforme a ação fundamental do Espirito.
 
 Como analogia podemos citar um universo que em um momento único já contem seu inicio, meio e fim. E, dentro desta integralidade, há existências de um teor existencial inferior, desta forma, não colidindo com sua capacidade de fundamentação.
 
 Concluimos que o conceito comum de "fantasmagorico" atribuido ao mundo espiritual, naturalmente deveria ser atribuido a materia, que seria realmente o elemeneto com menos densidade existencial. Ou seja, a materia seria uma transparencia, uma existencia fragmentada, destituida de plenitude. Em outras palavras, o mundo Espíritual é a base da exitencia enquanto o mundo fenomenico é um elemento fantasmagorico manifestado na temporalidade espiritual. Não se constitui, como vida e fundamento.
 
-O mundo fenomenico é uma projeção de existencia emergida do relativo, é a auto-supressão afirmada. De forma que, o Espirito contem todos os estados suspensos.
+> "O mundo fenomenico é uma projeção de existencia emergida do relativo, é uma afirmação no Espírito indiferenciado. O Espirito contem todos os estados suspensos. Basta-lhe um acontecimento temporal no Espírito já ocorrido em sua integralidade."
+
 
 #### **1. A Pureza como Síntese Atemporal**  
 
@@ -812,6 +811,8 @@ A relação entre os níveis obedece a uma **dialética de fundamentação**:
 O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
 - O fenômeno é **não-substancial** (como onda no oceano).  
 - Toda determinação já está **redimida** na eternidade do ato puro.  
+
+aquii 
 
 # Estrutura da Autodeterminação  
 
