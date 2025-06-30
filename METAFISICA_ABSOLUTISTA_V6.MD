@@ -1624,30 +1624,17 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
-# **A Absolutismo como cristianismo puro**  
+# **A metafisica Absolutista: o cristianismo puro**  
 
-Se fosse possível sintetizar a bíblia em duas palavras, eu descreveria como "Ante Suicídio". É o intuito fundamental do contexto bíblico, ao contrastarmos com a metafisica absolutista, instituir um sentido maior na vida humana, de forma a tornar a existência sagrada e a busca pelo sentido um ato fundamental ao homem, que antecede qualquer objetivo em sua vida. Pois, do que adianta ter tudo se não se tem a si mesmo?
+Se fosse possível sintetizar a Bíblia em duas palavras, eu a descreveria como **"Ante Suicídio"**. Esse é o cerne do contexto bíblico: ao contrastar com a metafísica absolutista, a Escritura institui um sentido maior para a vida humana, tornando a existência sagrada e a busca por significado um ato fundamental que precede qualquer outro objetivo. Pois, de que adianta conquistar tudo se não se possui a si mesmo?
 
-A bíblia fala de uma forma delicada e poética sobre a vida em Deus que na realidade é a vida no Ser sem o ato suicida. Sustentar-se na vida significa assumir a própria autonomia e responsabilidade dos nossos atos, pois cabe ao homem não somente existir como também tornar sua vida feliz e cheia de sentido.
+A Bíblia aborda, de maneira delicada e poética, a vida em Deus — que, na realidade, é a vida no **Ser** sem o ato suicida. Sustentar-se na vida significa assumir a própria autonomia e a responsabilidade pelos nossos atos, pois cabe ao homem não apenas existir, mas também tornar sua vida feliz e plena de sentido.
 
-Desta forma, concluo essa filosofia mirando-a em seu cerne central: a relação do homem com seu próprio existir, que se configura o eixo do absolutismo tal como é o eixo do cristianismo, e assim ambas as posições encontram sentido em um mesmo denominador em comum. O homem precisa do Ser e o Ser busca o homem com todo o seu amor. Ser de Deus é existir eternamente. E é esta obviedade que é expressa de forma minunciosa e graciosa no cristianismo, mas que é evidenciada de forma conciza e sem entrelinhas no absolutismo metafisico. 
+Assim, concluo esta reflexão filosófica focando seu núcleo central: a relação do homem com o próprio existir, que configura tanto o eixo do absolutismo quanto o do cristianismo. Ambas as perspectivas convergem para um mesmo denominador comum. O homem necessita do Ser, e o Ser busca o homem com todo o seu amor. **Ser de Deus é existir eternamente**. Essa obviedade é expressa de forma minuciosa e graciosa no cristianismo, mas revelada de maneira concisa e direta no absolutismo metafísico.
 
-O homem necessita se reconciliar com a vida, encontrar um comporatmento que torne sua existencia feliz; o pecado leva a morte no sentido de que o homem necessita questionar suas atitudes afim de fazer o bom uso de sua liberdade. Tornar a vida agradavel é o primeiro passo para o eterno. 
+O homem precisa reconciliar-se com a vida, encontrar um comportamento que torne sua existência feliz; o pecado leva à morte no sentido de que o homem deve questionar suas atitudes para fazer bom uso de sua liberdade. Tornar a vida agradável é o primeiro passo rumo ao eterno.
 
-Portanto, o absolutismo abre o espaço para a total amplitude das possibilidades, tanto transendentes como retro-cendentes. Algo que o cristianismo diz em para-frases na tentativa de passar a mensagem de forma sensivel.
-
-Seja lá qual forem os motivos mais estranhos que o homem teria para querer se despedir da maravilha extraordinaria, do dom mais maravilhoso, do presente infindavel da existencia; temos que fazer algo a respeito.
-
-Seja lá o qual mal um homem tenha causado, não merece o castigo de abandonar a si mesmo. Portanto, devemos evangelizar. Devemos levar as pessoas à vida, a Deus, ao sentido. 
-
-Desejo todos a paz, e peço que me ajudem com uma doação para que eu possa retornar para minha mulher e filhos, pois toda essa busca pelas respostas me deixou em apauros financeiros.
-
-Meu pix é 416.785.118-03
-
-Qualquer doação é bem vinda. 
-Espero ter contribuido com um sentido novo a humanidade. 
-
-
+Portanto, o absolutismo abre espaço para a total amplitude das possibilidades, tanto transcendentes quanto retrocendentes — algo que o cristianismo comunica por meio de paráfrases, na tentativa de transmitir a mensagem de forma sensível. Sejam quais forem os motivos mais obscuros que levem um homem a querer despedir-se da maravilha extraordinária, do dom mais precioso, do presente infinito que é a existência, **temos que agir**. Não importa o mal que alguém tenha cometido: ninguém merece o castigo de abandonar a si mesmo. Por isso, devemos evangelizar. Devemos conduzir as pessoas à vida, a Deus, ao sentido. Espero ter contribuído com uma nova perspectiva para a humanidade.
 
 
 
