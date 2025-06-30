@@ -1628,9 +1628,15 @@ Assim, concluo esta reflexão filosófica focando seu núcleo central: a relaç�
 
 O homem precisa reconciliar-se com a vida, encontrar um comportamento que torne sua existência feliz; o pecado leva à morte no sentido de que o homem deve questionar suas atitudes para fazer bom uso de sua liberdade. Tornar a vida agradável é o primeiro passo rumo ao eterno.
 
-Portanto, o absolutismo abre espaço para a total amplitude das possibilidades, tanto transcendentes quanto retrocendentes — algo que o cristianismo comunica por meio de paráfrases, na tentativa de transmitir a mensagem de forma sensível. Sejam quais forem os motivos mais obscuros que levem um homem a querer despedir-se da maravilha extraordinária, do dom mais precioso, do presente infinito que é a existência, **temos que agir**. Não importa o mal que alguém tenha cometido: ninguém merece o castigo de abandonar a si mesmo. Por isso, devemos evangelizar. Devemos conduzir as pessoas à vida, a Deus, ao sentido. Espero ter contribuído com uma nova perspectiva para a humanidade.
+Portanto, o absolutismo abre espaço para a total amplitude das possibilidades, tanto transcendentes quanto retrocendentes — algo que o cristianismo comunica por meio de paráfrases, na tentativa de transmitir a mensagem de forma sensível. Sejam quais forem os motivos mais obscuros que levem um homem a querer despedir-se da maravilha extraordinária, do dom mais precioso, do presente infinito que é a existência, **temos que agir**. Não importa o mal que alguém tenha cometido: ninguém merece o castigo de abandonar a si mesmo. Por isso, devemos evangelizar. Devemos conduzir as pessoas à vida, a Deus, ao sentido. 
 
+No contexto bíblico, o mau uso da liberdade conduz à morte, no sentido de que o homem precisa encontrar um sentido maior em seus atos — algo que o faça sentir-se digno diante da grandeza da eternidade. Nesse processo, o perdão dos pecados por parte de Deus, ainda que inserido em um contexto religioso e simbólico, auxilia o homem na jornada de ir ao encontro de si mesmo. Trata-se de resgatar-se do desolador sentimento de inadequação, permitindo-lhe enxergar valor em sua própria existência.
 
+O cristianismo busca restaurar o valor da vida humana abordando as raízes da apatia do espírito, com o propósito de reacender no homem a paixão por sua essência. Acredito que Deus, em Sua sabedoria, age com predileção tanto na narrativa bíblica quanto nos eventos ao longo da história, guiando-nos em direção a essa reconciliação.
+
+E eu, um simples programador, deixo meu legado nessa bela história de amor entre Deus e a humanidade. Ofereço uma compreensão concisa, densa e profunda sobre o sentido da vida, sob um rigor lógico que tenta aproximar o paraíso da razão humana. Assim, procuro refletir os anseios da alma como um espelho da eternidade, que já pode ser vislumbrada no presente.
+
+Agradeço a todos que me apoiaram nessa jornada e, sobretudo, a Deus, cuja luz me iluminou em cada momento.
 
 
 
