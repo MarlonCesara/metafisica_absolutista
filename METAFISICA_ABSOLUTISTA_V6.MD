@@ -1624,4 +1624,15 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
+# **A Absolutismo como cristianismo puro**  
+
+Se fosse possível sintetizar a bíblia em duas palavras, eu descreveria como "Ante Suicídio". É o intuito fundamental do contexto bíblico, ao contrastarmos com a metafisica absolutista, instituir um sentido maior na vida humana, de forma a tornar a existência sagrada e a busca pelo sentido um ato fundamental ao homem, que antecede qualquer objetivo em sua vida. Pois, do que adianta ter tudo se não se tem a si mesmo?
+
+A bíblia fala de uma forma delicada e poética sobre a vida em Deus que na realidade é a vida no Ser sem o ato suicida. Sustentar-se na vida significa assumir a própria autonomia e responsabilidade dos nossos atos, pois cabe ao homem não somente existir como também tornar sua vida feliz e cheia de sentido.
+
+Desta forma, concluo essa filosofia mirando-a em seu cerne central: a relação do homem com seu próprio existir, que se configura o eixo do absolutismo tal como é o eixo do cristianismo, e assim ambas as posições encontram sentido em um mesmo denominador em comum. O homem precisa do Ser e o Ser busca o homem com todo o seu amor.
+
+
+
+
 
