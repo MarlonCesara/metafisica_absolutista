@@ -1197,7 +1197,7 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera pode ser de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
 
-> - "Conhecer o homem é conhecer Deus em sua multiplicidade, livre até mesmo de sua fundamentação necessaria rumo ao existir."
+> - "Conhecer o homem é conhecer Deus em sua multiplicidade."
 
 Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica. Ou seja, corroborar com sua plenitude ou não. Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
 Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
