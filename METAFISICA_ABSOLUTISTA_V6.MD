@@ -1487,11 +1487,7 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 
 # **A Dialética Transcendência**  
 
-- A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência.  
-- Transcender é transcender uma infinitude, no sentido de romper o potencial inexpressivo.  
-- As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si.  
-- A possibilidade de transcendência do Ser é transcender para si.  
-- Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
+A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma infinitude, no sentido de romper o potencial inexpressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
 
 > **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer no **Ser**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de Ser** — e Ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.  
 
@@ -1504,13 +1500,11 @@ Leis conceituais estão vinculadas à definição dos termos envolvidos e podem 
 - **Determinação como Limitação**: Ao fixar-se como ente singular, o Ser restringe seu acesso à **indeterminação pura** (fonte da transcendência).  
 - **O "Sou" Incompleto**: Se o indivíduo ("sou") não realiza sua transcendência, permanece fragmentado, incapaz de integrar-se ao Todo.  
 
-1. Quando o Ser se determina como unidade de si mesmo, determina simultaneamente seu potencial transcendente - uma capacidade imanente à sua própria natureza essencial.  
-2. Contudo, ao fixar-se como ente determinado, o Ser limita-se à sua própria determinação, perdendo assim o acesso à potencialidade pura da indeterminação que fundamenta a verdadeira transcendência.  
-3. Segue-se necessariamente que, como manifestação de um Ser transcendente, o "sou" deve conter em si mesmo esta mesma qualidade transcendente.  
-4. O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente.  
-5. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, podendo, até mesmo, retornar à indeterminação (corrupção).
+Quando o Ser se determina como unidade de si mesmo, determina simultaneamente seu potencial transcendente - uma capacidade imanente à sua própria natureza essencial. Contudo, ao fixar-se como ente determinado, o Ser limita-se à sua própria determinação, perdendo assim o acesso à potencialidade pura da indeterminação que fundamenta a verdadeira transcendência. Segue-se necessariamente que, como manifestação de um Ser transcendente, o "sou" deve conter em si mesmo esta mesma qualidade transcendente. 
 
-#### **2. A Transcendência da Alma**  
+O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, podendo, até mesmo, retornar à indeterminação (corrupção).
+
+#### ** A Transcendência da Alma**  
 A transcendência da alma gira em torno de duas hipóteses:  
 - A alma já transcende, tal como Ser, o tempo e espaço em seu infinito particular, porém não transcende a própria identidade. Ou seja, o "quem" da unidade não está em uniformidade à capacidade do Ser, de forma que a unidade transcenda seu "quem" tal como o Ser.  
 
@@ -1520,13 +1514,13 @@ A transcendência do "quem" aborda duas possibilidades:
 1. **Por morte**: Aniquilação total do "sou", de forma a restaurar a capacidade de transcendência original como Ser. Porém, esta não é uma transcendência, mas retrocesso, pois a transcendência significa sair de si havendo um si que permanece de forma que seja o agente da transcendência.  
 2. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas.  
 
-#### **3. Exploração da Hipótese da Alma Completa**  
+#### ** Exploração da Hipótese da Alma Completa**  
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.  
 
-##### **3.1. O Paradoxo da Manifestação**  
+##### ** O Paradoxo da Manifestação**  
 - Nenhuma união esgota o potencial dos "sous" originários. Toda manifestação concreta é finita perante o infinito que a sustenta. A aparente fragmentação é o modo pelo qual o Relativo se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.  
 
-#### **4. Possibilidade de Comunhão entre Almas**  
+#### ** Possibilidade de Comunhão entre Almas**  
 1. Pode uma alma tornar-se homogênea a outra? Não falamos de fusão (que implica dissolução de identidades), mas de encontro integral, onde uma alma opera transformativamente sobre a outra, preservando, porém, sua identidade.  
 2. Se a alma e o espírito são imateriais por natureza, enquanto a matéria obedece à exclusão espacial, o espírito poderia compartilhar o mesmo "espaço ontológico" de modo não-excludente. Pois o paralelismo permite a determinação de uma distância nula, ou seja, é possível uma distância infinita e uma distância nula, sendo a distância perceptual.  
 3. Sendo as realidades paralelas uma complexidade numérica devido à realidade ser perceptual, e não estreitamente material, existe, portanto, uma distância nula e uma distância infinita intrínseca ao todo. O Ser, portanto, é não numérico e numérico ao mesmo tempo. Já é homogêneo em si.  
@@ -1535,7 +1529,7 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 6. O ser já é uno ao mesmo tempo que é dual. A separação e união é do ponto de vista perceptual.  
 7. O Espírito primordial abarca N espíritos individuais. Ao considerarmos o conceito de "quem", temos o conceito de "vida", que não engloba multiplicidade, e o conceito de "vivos" que não anula o conceito de vida. Da mesma forma, o conceito de "Espírito primordial" não anula os espíritos individuais, pois o espírito, possuindo o "quem", aborda o conceito de "vivo", "vivente". E isto permite que o Espírito primordial possa se diferir do espírito individual.  
 
-#### **5. A Ontologia do Toque Interpessoal**  
+#### ** A Ontologia do Toque Interpessoal**  
 1. **O Toque como Atribuição Recíproca de Sentido**  
    - Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.  
 2. **O Toque como Reflexão Infinita**  
@@ -1550,14 +1544,14 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 - No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais percebe B percebendo A. Ambas as almas experimentam o fim da transmissão de sensações. Em vez disso, A encontra em B a sua própria completude. Surge então uma nova perspectiva sintética, que transcende a dualidade original sem anulá-la. Dessa forma, emerge uma visão não intrínseca à dualidade, mas extrínseca, como um novo modo de perceber a realidade. E essa nova visão é viva, pois é resultado da união de duas percepções vivas.  
 - Ao cessar a autodeterminação individual em uma manifestação essencial, tendo o infinito de si retroalimentando a alma, se experimenta o não sentir o outro, mas o sentir do outro. No sentido de que a união traz uma nulidade de si em prol de uma definição terceira das almas imersas em uma dualidade. Não há mais como sentir o que o outro sente, estando totalmente imerso no outro, as reflexões que tendem ao infinito cessam, dando espaço para uma visão privilegiada do outro, sem reflexões, a visão "do ponto de vista do outro", não mais a visão do outro pelo próprio ponto de vista.  
 
-#### **7. A Indeterminação Resultante**  
+#### ** A Indeterminação Resultante**  
 - A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar ao nada. 
 
 #### **8. Morte e Renascimento Ontológico**  
 - A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Relativo.  
 - O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao Relativo, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada indivíduo.  
 
-#### **10. Tipologia da Autodeterminação**  
+#### ** Tipologia da Autodeterminação**  
 1. **Em si**  
    - O homem que tem consciência de si.  
    - Que está presente em si mesmo.  
@@ -1580,13 +1574,13 @@ Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dual
 5. **Para o outro de si**  
    - Determinação em relação à prole, sendo esta externa e independente em sua liberdade.  
 
-#### **11. Tipologia da corrupção**  
+#### ** Tipologia da corrupção**  
 1. **Corrupção da Alma**  
    - Quando a alma permanece em estado de retrocesso. Sem procurar sua transcendência no amor rumo a eternidade. Ou seja, sem buscar sua evolução espiritual.  
 2. **Corrupção do Encontro**  
    - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
-#### **13. A Condução de um Ser Determinado**  
+#### ** A Condução de um Ser Determinado**  
 - Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem".  
 - Este "quem", sendo uma transcendência dos entes, sendo uma dualidade: o produto da união ao passo que um potencial indefinido do "quem" da dualidade.  
 - A dissolução do espaço entre duas almas não resulta inicialmente numa terceira alma, mas numa indefinição ocasionada por duas almas, nesta indefinição, há duas identidades verdadeiras. Não há uma alma sentindo a outra, mas há literalmente uma percepção da realidade cujo "quem" percebe é indefinido.  
