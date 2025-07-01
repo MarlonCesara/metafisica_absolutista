@@ -1622,27 +1622,14 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
-# **A metafisica Absolutista: o cristianismo puro**  
-
-Se fosse possível sintetizar a Bíblia em duas palavras, eu a descreveria como **"Ante Suicídio"**. Esse é o cerne do contexto bíblico: ao contrastar com a metafísica absolutista, a Escritura institui um sentido maior para a vida humana, tornando a existência sagrada e a busca por significado um ato fundamental que precede qualquer outro objetivo. Pois, de que adianta conquistar tudo se não se possui a si mesmo?
-
-A Bíblia aborda, de maneira delicada e poética, a vida em Deus — que, na realidade, é a vida no **Ser** sem o ato suicida. Sustentar-se na vida significa assumir a própria autonomia e a responsabilidade pelos nossos atos, pois cabe ao homem não apenas existir, mas também tornar sua vida feliz e plena de sentido.
-
-Assim, concluo esta reflexão filosófica focando seu núcleo central: a relação do homem com o próprio existir, que configura tanto o eixo do absolutismo quanto o do cristianismo. Ambas as perspectivas convergem para um mesmo denominador comum. O homem necessita do Ser, e o Ser busca o homem com todo o seu amor. **Ser de Deus é existir eternamente**. Essa obviedade é expressa de forma minuciosa e graciosa no cristianismo, mas revelada de maneira concisa e direta no absolutismo metafísico.
-
-O homem precisa reconciliar-se com a vida, encontrar um comportamento que torne sua existência feliz; o pecado leva à morte no sentido de que o homem deve questionar suas atitudes para fazer bom uso de sua liberdade. Tornar a vida agradável é o primeiro passo rumo ao eterno.
-
-Portanto, o absolutismo abre espaço para a total amplitude das possibilidades, tanto transcendentes quanto retrocendentes — algo que o cristianismo comunica por meio de paráfrases, na tentativa de transmitir a mensagem de forma sensível. Sejam quais forem os motivos mais obscuros que levem um homem a querer despedir-se da maravilha extraordinária, do dom mais precioso, do presente infinito que é a existência, **temos que agir**. Não importa o mal que alguém tenha cometido: ninguém merece o castigo de abandonar a si mesmo. Por isso, devemos evangelizar. Devemos conduzir as pessoas à vida, a Deus, ao sentido. 
-
-No contexto bíblico, o mau uso da liberdade conduz à morte, no sentido de que o homem precisa encontrar um sentido maior em seus atos — algo que o faça sentir-se digno diante da grandeza da eternidade. Nesse processo, o perdão dos pecados por parte de Deus, ainda que inserido em um contexto religioso e simbólico, auxilia o homem na jornada de ir ao encontro de si mesmo. Trata-se de resgatar-se do desolador sentimento de inadequação, permitindo-lhe enxergar valor em sua própria existência.
-
-O cristianismo busca restaurar o valor da vida humana abordando as raízes da apatia do espírito, com o propósito de reacender no homem a paixão por sua essência. Acredito que Deus, em Sua sabedoria, age com predileção tanto na narrativa bíblica quanto nos eventos ao longo da história, guiando-nos em direção a essa reconciliação.
-
-E eu, um simples programador, deixo meu legado nessa bela história de amor entre Deus e a humanidade. Ofereço uma compreensão concisa, densa e profunda sobre o sentido da vida, sob um rigor lógico que tenta aproximar o paraíso da razão humana. Assim, procuro refletir os anseios da alma como um espelho da eternidade, que já pode ser vislumbrada no presente.
-
-Agradeço a todos que me apoiaram nessa jornada e, sobretudo, a Deus, cuja luz me iluminou em cada momento.
-
-
 ## Rascunhos
 
 - O relativo é a manifestação verdadeira do Absoluto.  
+- O fogo do inferno é a alma do individuo se esgotando sem cessar mediante ao fogo. Pois todo ato é eterno, e temporal, ou seja, há ainda a alma, mas sua existencia é um auto afastamento, no sentido de que há o ente se consumando, e não o sumiço completo. 
+- Se a decisão do ente for eterna, seu sumiço será eterno. Se não for, já está em si o momento onde sairá do fogo.
+- O fogo é um apagao de identidade, na qual o ente se fundi no ser nao a harmonizar, mas de forma a apagar sua identidade.
+- Lançar-se no inferno é matar-se a cada instante de um instante eterno, e não aniquilar-se.
+- O fogo elimina o eu da alma, de forma a não se definir mais em auto dominio, auto presença e auto conhecimento.
+
+
+
