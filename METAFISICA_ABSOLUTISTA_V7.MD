@@ -1630,6 +1630,7 @@ O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é um
 - O fogo é um apagao de identidade, na qual o ente se fundi no ser nao a harmonizar, mas de forma a apagar sua identidade.
 - Lançar-se no inferno é matar-se a cada instante de um instante eterno, e não aniquilar-se.
 - O fogo elimina o eu da alma, de forma a não se definir mais em auto dominio, auto presença e auto conhecimento.
-
+- A propria inclinação da alma a morte a queima, pois sendo ela existencia, se coloca resistente a si, como possibilidade.
+- Se fosse possível transformar a alma no inferno em fenomeno, seria equivalente a um corpo em eternas chamas.
 
 
