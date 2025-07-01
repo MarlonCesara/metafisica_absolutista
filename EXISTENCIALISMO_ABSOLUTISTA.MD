@@ -822,3 +822,11 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 - Ou seja, a maior vergonha do apatico é a recusa, do seu ponto de vista não é imoral o uso da liberdade, e ter uma posição de oposição quanto ao próprio existir. Porém, seu proprio julagmento de sua posição lhe soa sujo, ridiculo, infame, digno de punição. Seu proprio estado é degradante para si. A punição do proprio estado não é a pior, como um estado do desgostar do estado de vida, mas do desgostar de ser como tal mediante a tudo. Lhe soa repugnante. Ao passo que, o apatico teme a consequencia de sua condição, de forma que sua posição o leve a auto-punição. A querer fadar-se no esquecimento de si. Suas atitudes por vezes corroboram para auto destruição. E disto vem o assombro? O assombro nao seria o medo de existir e da infinitude, mas da propria atitude, de si mesmo em relação ao decidir de si mesmo. De ter a si como metor de si, de forma que sua decisão pode fadar ao fracasso eterno ou a gloria eterna.
 
 - Sendo o mandante de si o homem pode se movimenetar em prol do existir, amor. Ou contrário, em prol da auto destruição? O rico tentando simular na mascara da fortuna, o valor que não enxerga em existir. De forma a projetar um eu que seria aquilo que a alma almeja ser. O rico se apega em posses por temer o abismo no qual pode se fadar, por ter uma posição contrária ao próprio existir. O apatico teme seu destino, já que é autor dele, e está no caminho apatico.
+
+# Existencialismo prático
+
+- O individuo tem mais dificuldade de lidar com a resposta social a sua intenção do que com sua própria intenção ao inferno.
+- O individuo manifesta revolta por sua decisão interferir não em si mesmo, mas nas demais pessoas de forma eternal.
+- O individuo também sente tristeza e remorso por não haver uma serimonia para si, por sua decisão ser alheia e tomada como superfula por outras pessoas, de forma a ser um pensamneto particular e não levado ao grupo para ser debatido.
+- O individuo não concorda com sua decisão e tenta chamar atenção, quer expressar-se.
+- O individuo quer uma maneira que sua decisão seja mantida e que as pessoas o impeçam para ter ambas as coisas, o objeto de sua revolta e o a vida.
