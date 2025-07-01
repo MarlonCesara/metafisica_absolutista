@@ -695,7 +695,7 @@ Em sintese, o nada não existe. O que existe é a presença incognocível ou a m
 
 Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
 
-Isto significa que há uma razão para haver o fenômeno ao invés de o não fenômeno (Espírito puro), tal como há uma razão para haver o Espírito. Sendo o próprio Espírito uma determinação. Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo. A presença não exige uma determinação, pois não é numérica ou material, portanto, dispensa forma e número. A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. Desta forma, temos o indiferenciado, ou seja, o Espírito que dispensa determinação. O absoluto, portanto, é tudo. Abrange, em sua interlidade, ambas as opções primordiais simultaneamente evidenciadas em uma só presença.
+Isto significa que há uma razão para haver o fenômeno ao invés de o não fenômeno (Espírito puro), tal como há uma razão para haver o Espírito. Sendo o próprio Espírito uma determinação. Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo. A presença não exige uma determinação, pois não é numérica ou material, portanto, dispensa forma e número. A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. Desta forma, temos o indiferenciado, ou seja, o Espírito que dispensa determinação. O absoluto, portanto, é tudo. Abrange, em sua interlidade, ambas as opções primordiais simultaneamente evidenciadas em uma só presença sem que seja preciso uma decisão em sua integralidade, ou seja, uma determinação. Tudo já está consumado em sua integralidade.
 
 Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto. Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta uma forma determinada e não diferenciada em si mesmo tal como o Espírito. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
 
@@ -703,7 +703,7 @@ Em termos mais simples: se o "nada" não serve como fundamento, podemos pensar e
 
 Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — a uma existência indetectável empíricamente (Espírito). Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica a qual origina todas as coisas internamente à sua temporalidade.   
 
-Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial.  
+Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial. 
 
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscível** que:  
@@ -734,6 +734,16 @@ Ao considerar que, a pessoalidade espiritual não carrega determinação (campo 
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
 
 Em sintese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais, resultasse num momento único atemporal. Desta forma, a soma de todas as deterinações possíveis, impossíveis e incognocíveis, resulta na pureza em ato único e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
+
+A criação, portanto, só existe como evento e não como integralidade. Tudo já existe, de forma que na internalidade, tudo está sendo criado temporalmente. E tudo é criado a partir da suspensão de possibilidades. 
+
+A suspensão é o relativo, ou seja, o espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenario como um mar calmo, porém sua internalidade esta puxando dessa calmaria para criar sua continuidade interna. O relativo é a superficie, ao passo que é o futuro eventual do presente interno ao Espírito. A definição esta no presente, e não somente comsumada.
+
+Desta forma, se conclui que o relativo é o único nada que faz sentido, sendo o nada lógico a ausencia da decisão perante uma infinitude de possibilidades já consumadas na superficie e suspensas na internalidade eventual do Espírito. 
+
+Desta forma, o tempo do espirito determina o que já esta consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluida no tempo Espíritual. A ausencia da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas.
+
+De forma que, o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada. 
 
 #### **O Relativo como Autoexpressão do Absoluto**  
 
@@ -767,8 +777,7 @@ Como analogia podemos citar um universo que em um momento único já contem seu 
 
 Concluimos que o conceito comum de "fantasmagorico" atribuido ao mundo espiritual, naturalmente deveria ser atribuido a materia, que seria realmente o elemeneto com menos densidade existencial. Ou seja, a materia seria uma transparencia, uma existencia fragmentada, destituida de plenitude. Em outras palavras, o mundo Espíritual é a base da exitencia enquanto o mundo fenomenico é um elemento fantasmagorico manifestado na temporalidade espiritual. Não se constitui, como vida e fundamento.
 
-> "O mundo fenomenico é uma projeção de existencia emergida do relativo, é uma afirmação no Espírito indiferenciado. O Espirito contem todos os estados suspensos. Basta-lhe um acontecimento temporal no Espírito já ocorrido em sua integralidade."
-
+> "O mundo fenomenico é uma projeção de existencia emergida do relativo, é uma afirmação no Espírito indiferenciado. O Espirito contem todos os estados suspensos. Basta-lhe um acontecimento temporal no Espírito já ocorrido em sua integralidade. Enfim, o nada é somente o estado de indecisão de Deus anterior ao todo consumado. Temporalmente o Ser esteve indeciso, apesar de já estar consumado, e essa não decisão do futuro era o nada. No tempo interno há o futuro de forma não revelada, esse não revelar é o nada."
 
 #### **1. A Pureza como Síntese Atemporal**  
 
@@ -1309,9 +1318,13 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ## **Autonomia na Integralidade e na Manifestação**  
 
 1. **Dissolução do sou sem Corrupção do Ser**  
-   - Cada autodeterminador possui a capacidade de **cessar sua continuidade**, retornando ao *relativo* (a ausência de sua determinação), **sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).  
+   - Cada autodeterminador possui a capacidade de **cessar sua continuidade**, retornando ao *relativo* (a ausência de sua determinação), **sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser). 
+
    - Isso é possível porque sua existência é **diferenciada**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Espírito.  
    - *Exemplo*: Um sonho que se dissolve sem apagar a consciência do sonhador.  
+
+1. **A imortalidade do sou**  
+   - Cada autodeterinador não é capaz de esgotar seu infinito, somente definir seu movimento temporal, pois sua verdade eterna já está consumada. Ou seja, o sou      não é capaz de se fadar a aniquilação, mas é capaz de morrer no sentido temporal, e não no sentido eterno.
 
 2. **Composição de Realidades Absolutas**  
    - Cada autodeterminador **é seu infinito espíritual completo e autocontido**, sem fundi-los à realidade integral do Ser.  
@@ -1357,7 +1370,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 - Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, ou seja, é a escolha pela existência.
 
 1. **A Corrupção como Retorno ao Nada**  
-   - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Relativo permanece, ainda que o *"sou"* humano se dissolva.  
+   - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Espírito permanece, ainda que o *"sou"* humano se dissolva temporalmente.  
    - A autonegação da autenticidade (não inclinação à própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade e autencidade de autonomia e liberdade.  
 
 2. **A Liberdade como Risco Relativo**  
