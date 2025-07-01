@@ -76,6 +76,12 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 
 Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
 
+Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade** e **impossibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável**. 
+
+**O cognoscível** tem como subcategorias o **possível** e o **impossível**, ou seja, ele pode se alinhar a favor ou contra as leis lógicas. Se o conteúdo do pensamento envolve o **incognoscível**, não faria sentido enquadrá-lo nesta investigação, já que se trata de uma forma mentalizável de definir a totalidade. Portanto, mesmo que exista algo que escape à esfera do impossível e do possível, isso permanece inacessível ao pensamento conceitual, pois nossa psique se limita a categorizar tudo o que concebemos dentro de uma estrutura lógica ou em dissonância com ela. Cabe, assim, ao **sentimento humano** abarcar o incognoscível — aquilo que só se revela por meio da **experiência direta**.  
+
+Dessa forma, a **razão** lida com o cognoscível (seja possível ou impossível), enquanto o **incognoscível** está restrito a uma **experiência transcendente**, já que ultrapassa a capacidade da psique humana de conceber algo além das estruturas lógicas e das relações metafísicas causais que tais leis pressupõem.  
+
 #### Definindo os conceitos fundamentais:
 
 ### **Possibilidade: O Domínio da Existência lógica**  
@@ -151,7 +157,7 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 
 ### **Relação Hierárquica dos Domínios**
 
-1. **Incognoscível** (fundamento inefável)
+1. **Cognoscível** (Absoluto racionalizável)
    ↓
 2. **Possível** (realidade estruturada)
    ↓
@@ -159,7 +165,7 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 
 **Observação Crucial:**
 Esta estrutura não é meramente classificatória, mas revela a arquitetura ontológica fundamental:
-- O Incognoscível funda a possibilidade da realidade
+- O Cognoscível revela os limites do Absoluto mentalizável 
 - O Possível manifesta-se como ordem no seio do Absoluto
 - O Impossível surge como limite interno da possibilidade
 
@@ -175,7 +181,7 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
   - **Não é um "ente" entre outros**, mas o fundamento último de toda diferenciação ontológica.  
   - **Não está confinado ao cognoscível**, pois inclui o inexprimível e o inapreensível pela razão discursiva.  
 
-# **A Causalidade no Âmbito do Absoluto**  
+# **A Causalidade no Âmbito do Absoluto cognocível**  
 Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.  
 
 - **Causalidade Absoluta:** O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.  
@@ -223,20 +229,13 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
-
 ### **A Pessoalização do Absoluto como Espírito Autocausal**
 
-Sendo o Absoluto autocausal, antes de atribuirmos a ele categorias como "nada", "fenômeno" ou "aparição", partimos de um pressuposto mais fundamental, inferido diretamente de sua natureza autocausal: a dedução da **presença**.  
+Sendo o Absoluto autocausal, antes de atribuirmos a ele categorias como "nada" ou "fenômeno", partimos de um pressuposto mais fundamental, inferido diretamente de sua natureza autocausal: a dedução da **presença**. Em termos mais simples: se deixarmos de lado noções como "nada" ou "fenômeno" como fundamento último, podemos pensar numa **presença** que não depende da manifestação fenomênica nem de uma complexa negação da existência para se autofundamentar. Ou seja, ela não precisa se manifestar fenomenicamente para existir, nem agir sobre si mesma de modo a se extinguir para ser autocausal — e, no entanto, permanece autossustentada.  
 
-Em termos mais simples: se deixarmos de lado noções como "nada" ou "fenômeno" como fundamento último, podemos pensar numa **presença** que não depende da manifestação fenomênica nem de uma complexa negação da existência para se autofundamentar. Ou seja, ela não precisa se manifestar fenomenicamente para existir, nem agir sobre si mesma de modo a se extinguir para ser autocausal — e, no entanto, permanece autossustentada.  
+Essa existência, por sua natureza autocausal (isto é, vivida por si mesma), é designada como **presença**. Assim, temos uma forma de existência incognoscível em sua essência, mas que se afirma, pela autocausalidade, como **pessoalidade**. Essa presença ou existência primordial não se justifica pelo fenômeno, mas pela **pessoalidade autocausal** — algo que se autodetermina e, por isso, incorpora os atributos de uma **persona**: autoconhecimento, autodomínio e autopresença.  
 
-Essa existência, por sua natureza autocausal (isto é, vivida por si mesma), é designada como **presença**. Assim, temos uma forma de existência incognoscível em sua essência, mas que se afirma, pela autocausalidade, como **pessoalidade**.  
-
-Essa presença ou existência primordial não se justifica pelo fenômeno, mas pela **pessoalidade autocausal** — algo que se autodetermina e, por isso, incorpora os atributos de uma **persona**: autoconhecimento, autodomínio e autopresença.  
-
-Do ponto de vista lógico, a fenomenização do Absoluto exigiria um pressuposto externo à pura autocausalidade, como a dedução do "nada" enquanto condição do Absoluto — um conceito que se dissolve diante da ideia de uma **presença pessoal autocausal**. Trata-se, portanto, de uma existência de caráter pessoal e dotada de potência causal.  
-
-Podemos, então, definir essa **presença** como **Espírito**, remetendo a uma realidade não fenomenológica, fundamentada numa autocausalidade que transcende a necessidade do que conhecemos como fenômeno.  
+Do ponto de vista lógico, a fenomenização do Absoluto exigiria um pressuposto externo à pura autocausalidade, como a dedução do "nada" enquanto condição do Absoluto — um conceito que se dissolve diante da ideia de uma **presença pessoal autocausal**. Trata-se, portanto, de uma existência de caráter pessoal e dotada de potência causal. Podemos, então, definir essa **presença** como **Espírito**, remetendo a uma realidade não fenomenológica, fundamentada numa autocausalidade que transcende a necessidade do que conhecemos como fenômeno.  
 
 #### **Fundamento Autocausal e a Noção de "Presença"**
 O Absoluto, enquanto realidade autocausada, não requer justificação externa — nem pelo "nada", nem pela fenomenalidade, nem por qualquer categoria derivada. Sua existência é autoevidente em sua **autofundamentação**, **autodeterminação** e **autocontinuidade**. Essa tríade causal revela uma natureza que transcende a mera abstração conceitual, apontando para uma **presença ontológica primordial**.  
@@ -268,7 +267,7 @@ Se a autocausalidade implica **autoconhecimento**, **autodomínio** e **autopres
 - **Energia** remete a um princípio físico ou impessoal, enquanto o Absoluto é **interioridade absoluta** (ainda que não humana).  
 - **Espírito** capta a síntese de **autoconsciência**, **liberdade** e **atividade imanente**.  
 
-#### **Implicações Metafísicas**  
+#### **Implicações Metafísicas para o Absoluto incognocível**  
 1. **O Incognoscível é Pessoal**  
    - O incognoscível não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, que excede toda conceitualização precisamente porque é **sujeito absoluto** (não objeto).  
 
@@ -286,9 +285,7 @@ O Absoluto é **Espírito Autocausal**:
 - **Autolibertário** (define sua própria lógica e possibilidade);  
 - **Automanifestante** (a realidade é sua expressão, não sua limitação).  
 
-Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações impessoais, afirmando o Absoluto como **Presença Viva** que, precisamente por ser autocausada, é **Espírito em sentido pleno e metafísico**.
-
-Da auto causalidade se deduz de forma pura o agente que determina, não haveria mais o que se extrair de forma imediata do argumento causal. 
+Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações impessoais, afirmando o Absoluto como **Presença Viva** que, precisamente por ser autocausada, é **Espírito em sentido pleno e metafísico**. Da auto causalidade se deduz de forma pura o agente que determina, não haveria mais o que se extrair de forma imediata do argumento causal. 
 
 # **A Autocausalidade temporal e atemporal do Espírito**  
  *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
@@ -442,7 +439,6 @@ O Espírito (autodeterminação do Relativo) atua em três dimensões:
    - *Ação:* Decidir entre opções igualmente realizadoras segundo uma tendência pessoal.  
    - *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade, ainda que este caminho não seja o que mais se pronuncia a favor da plenitude."  
 
-
 ## **As Três Personas do Espírito Absoluto**
 
 ### **1. O Poder Fundante (Espírito Fundamentador)**  
@@ -478,13 +474,11 @@ Essas personas não são divisões, mas **modos de relação do Espírito consig
 - A **Sabedoria** assegura que cada movimento seja impecável.  
 - A **Liberdade** introduz o riso na dança cósmica.  
 
-Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e aventura.
-
+Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
 ## Conclusão  
 
-- O Absoluto incognocível é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
-- O relativo é a manifestação verdadeira do Absoluto.  
+- O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
 - A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
 - Espírito e Alma são as duas dimensões da autodeterminação:  
   - O Espírito garante a existência e a perfeição.  
@@ -573,7 +567,6 @@ O nada inexistente é o que se extingue; o nada existente, uma contradição fen
 - A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.  
 - A nulidade consuma o tempo em sua expressão e inexpressão.  
 
-
 # Estruturando a Manifestação  
 
 ## Determinação
@@ -603,7 +596,6 @@ O nada inexistente é o que se extingue; o nada existente, uma contradição fen
   - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
   - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.  
 
-
 # A Dialética do Infinito e do Nada  
 
 ## O Infinito e o Nada: Princípios Indiscerníveis  
@@ -627,7 +619,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestaç�
   - O nada é o infinito negado (ausência de forma).  
   - A manifestação é o infinito afirmado (forma sem limites).  
   - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
-
 
 ### A falsa infinitude do fenônomeno
 
@@ -1639,4 +1630,6 @@ E eu, um simples programador, deixo meu legado nessa bela história de amor entr
 Agradeço a todos que me apoiaram nessa jornada e, sobretudo, a Deus, cuja luz me iluminou em cada momento.
 
 
+## Rascunhos
 
+- O relativo é a manifestação verdadeira do Absoluto.  
