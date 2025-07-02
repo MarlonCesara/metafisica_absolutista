@@ -1160,6 +1160,7 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
 
 - *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
+- Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
 
 ## A Experiência da Infinitude  
 
