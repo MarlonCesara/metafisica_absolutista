@@ -830,3 +830,6 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 - O individuo também sente tristeza e remorso por não haver uma serimonia para si, por sua decisão ser alheia e tomada como superfula por outras pessoas, de forma a ser um pensamneto particular e não levado ao grupo para ser debatido.
 - O individuo não concorda com sua decisão e tenta chamar atenção, quer expressar-se.
 - O individuo quer uma maneira que sua decisão seja mantida e que as pessoas o impeçam para ter ambas as coisas, o objeto de sua revolta e o a vida.
+- O individuo começa um processo de "adaptação" afastando as pessoas de seu convivio, minando suas relações.
+- O individuo faz uma obstrução emocional no corpo, e como reflexo dessa obstrução começa uma busca por si mesmo. Sente falta de sua personalidade, suas emoções.
+
