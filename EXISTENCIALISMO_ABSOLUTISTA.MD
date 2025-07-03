@@ -832,4 +832,5 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 - O individuo quer uma maneira que sua decisão seja mantida e que as pessoas o impeçam para ter ambas as coisas, o objeto de sua revolta e o a vida.
 - O individuo começa um processo de "adaptação" afastando as pessoas de seu convivio, minando suas relações.
 - O individuo faz uma obstrução emocional no corpo, e como reflexo dessa obstrução começa uma busca por si mesmo. Sente falta de sua personalidade, suas emoções.
+- O individuo cessa sua humanidade, emoções, gostos, personalidade. E inicia uma busca emocional por si mesma. Um preparo, para a decisão final, poupando os individuos de seu findar. Já manifesta traços suicidas.
 
