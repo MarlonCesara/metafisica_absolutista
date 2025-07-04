@@ -1749,6 +1749,13 @@ O inferno existe como:
 - **Testemunho da liberdade**: Prova que até a autodestruição é permitida pelo Ser
 - **Espelho da misericórdia**: A porta permanece aberta - o fogo só persiste porque a alma insiste em alimentá-lo
 
+#### **9. A vivencia bi-fasica do inferno**
+A alma no inferno existe como:
+- **Temporal e atemporal:** Temporalmente se sucede o ato do suicidio do eu, porém, este ato é definindo no ato eterno e não somente temporalmente.
+- **O resquício do eu:** Atemporalmente o eu permanece de forma que não existe mais o eu, mas o consumir do eu perpetuado eternamente. 
+
+O corpo imóvel: O individuo, temporalmente não possui mais autodominio, autopresença e auto consciencia, porém, atemporalmente preserva sua auto-determinação. A morte, portanto, é sempre um ato consentido e não um ato consumido para o individuo. Há, desta forma, a morte, não como ato, mas como manutenção do ato. A morte, portanto, porta o individuo em ato de morte, e não encontra seu fim em seu objetivo. Não há, desta forma, o "sumiço", mas há o "morrer" eterno.
+
 > *"O inferno é a solidão de um coração que, tendo recebido tudo, escolheu nada; sendo feito para o infinito, contentou-se com seu próprio eco."*  
 
 Conclui-se que o Absoluto oferece à alma todas as possibilidades, inclusive a da morte — uma morte que permite o retorno à vida, caso seja a vontade do indivíduo, ou que conduz à morte eterna, se esse for igualmente o seu intuito.
