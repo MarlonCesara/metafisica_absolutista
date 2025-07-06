@@ -423,4 +423,6 @@ A visão de Deus do homem era a mais otimista, para Ele não haveria apatia. Qua
 
 Ou seja, há uma não aceitação a condição do homem como instinto paternal de Deus, o que o levou a produzir uma realidade onde todos são invadidos pela realidade em seu ultima perfeição.
 
+# O perdão dos pecados
 
+A alma apática sente muito pesar por seus grndes erros, e isso agrava seu estado de relutancia, o perdão dos pecados devolve o animo e a vida ao individuo, e reascende seu animo de viver, ao olhar para seu passaro cheio de erros e ve-los todos redmidos se sente uma nova pessoa. Desta forma, o sacrificio de Jesus tem um profundo efeito na alma relutante, pois o olhar sobre si como dignificado de seu caminhar o dá novas forças para reanimar o espirito. O relutante precisa de motivos para viver e não de pessoas o ensinando a se conformar com seu estado, ou a se penar de si mesmo. Ou até a se punir. Pois isto agrava seu raciocinio voltado para o desdenho de si mesmo, e a descrença em si mesmo. Mostrar o quão mal um individuo foi em vida, só faz com que o mesmo desanime mais de si. Portanto, um dos primeiros passos para reanimar a alma é o perdão dos pecados. 
