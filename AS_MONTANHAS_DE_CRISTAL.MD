@@ -22,3 +22,9 @@ O canto não era apenas som — era como uma tradução do próprio ser em notas
 O garotinho fechou os olhos para ouvir melhor aquele assobio sereno. E quando os abriu novamente, sentiu como se um ciclo inteiro de existência tivesse se completado. O momento havia repercutido como uma onda eterna dentro de si. Não sabia mais quanto tempo havia se passado — segundos ou séculos, era impossível dizer. Ele havia vivido uma eternidade em um instante.
 
 Foi então que percebeu: naquele lugar, o tempo era mágico. Fluía de um modo diferente, suave e absoluto. Cada instante era uma pequena eternidade. Cada visão, cada som, cada toque chamava sua atenção para um infinito contido no mínimo. Ali, o tempo e o infinito não se limitavam, não se contradiziam — dançavam juntos, sem imposições, sem pressa.
+
+Era como se cada momento aguardasse uma infinitude inteira para ser plenamente vivido. Como se a própria felicidade, quando encontrada, pudesse escolher permanecer — e um instante feliz, se assim desejasse, duraria para sempre.
+
+Naquele lugar, era possível tocar o tempo com a alma, desacelerá-lo, moldá-lo. Bastava sentir, profundamente, algo verdadeiro.
+
+Cada segundo continha seu próprio infinito, e cada experiência carregava um tempo único — ora intenso como uma chama, ora passageiro como o vento. O tempo ali não corria: ele respirava.
