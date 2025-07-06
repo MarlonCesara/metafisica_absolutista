@@ -8,3 +8,9 @@ Tudo ao redor parece feito de sonho, como se o mundo inteiro fosse uma lembranç
 
 Neste lugar, tudo era translúcido — não apenas em aparência, mas em essência. Cada coisa refletia não apenas a luz, mas algo eterno, como se carregasse em si o eco de sua própria origem. A transparência que preenchia o mundo não era como a da água ou do vidro, mas uma transparência da alma das formas, onde cada objeto se revelava por dentro, como se confessasse silenciosamente sua verdade mais íntima.
 Ao tocar as coisas, o menino percebia que também era tocado por elas. Havia um vínculo recíproco e sutil — como se o mundo inteiro respirasse junto com ele, reconhecendo sua presença com uma ternura antiga.
+
+O garoto, tomado por uma sede súbita e serena, ajoelhou-se à beira do rio cristalino e levou as mãos em concha até a boca. No instante em que o primeiro gole deslizou por sua garganta, algo extraordinário aconteceu — não era ele quem bebia a água, era a água que o habitava.
+
+Um sentimento azul, profundo e silencioso, mais intenso que qualquer frescor, o envolveu por completo. Ele não apenas saboreava a pureza da água — ele via sua pureza, sentia sua pureza, era sua pureza.
+
+Por um breve instante, ele se tornou o rio, fluindo sem esforço, leve e eterno. A água continha um sentimento infinito, único, impossível de nomear — e o garoto, em sua inocência desperta, sentiu exatamente o que a água sentia. Não havia separação. Havia unidade.
