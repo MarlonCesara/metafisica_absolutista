@@ -14,3 +14,11 @@ O garoto, tomado por uma sede súbita e serena, ajoelhou-se à beira do rio cris
 Um sentimento azul, profundo e silencioso, mais intenso que qualquer frescor, o envolveu por completo. Ele não apenas saboreava a pureza da água — ele via sua pureza, sentia sua pureza, era sua pureza.
 
 Por um breve instante, ele se tornou o rio, fluindo sem esforço, leve e eterno. A água continha um sentimento infinito, único, impossível de nomear — e o garoto, em sua inocência desperta, sentiu exatamente o que a água sentia. Não havia separação. Havia unidade.
+
+Após beber da água, um pássaro pousou suavemente ao seu lado para também saciar sua sede no rio cristalino. Havia algo incomum naquela ave — seus olhos pareciam guardar uma inteligência silenciosa, e o seu canto, quando surgiu, tocou a alma do garoto com uma delicadeza profunda, como se a melodia pudesse descrevê-lo melhor do que palavras jamais fariam.
+
+O canto não era apenas som — era como uma tradução do próprio ser em notas invisíveis. Entrava suavemente em sua alma, fazendo vibrar algo íntimo, inominável. O tempo do canto parecia fluir como uma eternidade suspensa.
+
+O garotinho fechou os olhos para ouvir melhor aquele assobio sereno. E quando os abriu novamente, sentiu como se um ciclo inteiro de existência tivesse se completado. O momento havia repercutido como uma onda eterna dentro de si. Não sabia mais quanto tempo havia se passado — segundos ou séculos, era impossível dizer. Ele havia vivido uma eternidade em um instante.
+
+Foi então que percebeu: naquele lugar, o tempo era mágico. Fluía de um modo diferente, suave e absoluto. Cada instante era uma pequena eternidade. Cada visão, cada som, cada toque chamava sua atenção para um infinito contido no mínimo. Ali, o tempo e o infinito não se limitavam, não se contradiziam — dançavam juntos, sem imposições, sem pressa.
