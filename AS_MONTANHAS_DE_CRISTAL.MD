@@ -92,6 +92,25 @@ As figuras pareciam prisioneiras de seus próprios movimentos, repetindo cenas s
 
 O garoto observava em silêncio, com os olhos abertos como espelhos. Ele não julgava, mas sentia: havia ali uma beleza trágica, uma vida encenada, uma busca por sentido onde o sentido se dissolvera no hábito.
 
+Os homens de barro pareciam contemplar apenas sombras — como se olhassem para imagens projetadas por um paraíso que jamais haviam tocado. Estavam ali, naquele espaço que fazia fronteira com a beleza infinita, mas não pareciam estar em contato com a vida em abundância que o cercava. Era como se respirassem o ar do paraíso sem jamais deixá-lo entrar nos pulmões.
+
+Seus olhos, cobertos por uma fina crosta de barro seco, pareciam ter esquecido a luz. Como se tivessem sido feitos para ver, mas deixado de olhar.
+
+Cada gesto que faziam — os passos, os sussurros mudos, os braços erguidos — era uma repetição inconsciente, um ritual gasto. Não havia presença neles, apenas o eco de uma presença antiga. Como se vivessem à sombra de algo que não compreendiam mais.
+
+O menino os observava com compaixão silenciosa. Aproximou-se de um deles, estendendo a mão, mas nenhum o viu, nenhum o ouviu. Eles não podiam percebê-lo. Era como se ele estivesse em outra frequência do ser — real demais para suas percepções entorpecidas.
+
+E então ele entendeu:
+Aqueles homens estavam presos na sombra do paraíso — não no paraíso em si. Viviam num reflexo pálido, numa recordação fragmentada de algo sagrado, mas inalcançável para quem já não sente.
+
+O barro nos olhos não era barro comum — era o esquecimento da essência, o peso das formas sem espírito. Eles haviam se fechado à transparência do mundo, à música do vento, ao canto das coisas vivas.
+
+Eles estavam ali, mas não estavam realmente ali.
+
+E o garoto, mesmo entre eles, caminhava sozinho.
+
+
+
 ## 📜 **Como Aristóteles Formulou os Princípios da Lógica**
 
 #### **Capítulo I – O Silêncio de Platão**
