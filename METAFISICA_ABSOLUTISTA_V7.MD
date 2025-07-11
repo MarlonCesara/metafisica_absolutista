@@ -1,3 +1,11 @@
+
+# O diário secreto de Jesus
+
+E se voce pudesse entender o que realmente o divino mestre queria dizer com suas palavras? E se a lógica professasse as mesmas palavras que a fé? E se Jesus trouxe, não só a verdade, mas a metafisica mais evoluida? E se voce pudesse adentrar profundamenta nos pensamentos de Jesus conhecendo seu mais profundo significado?
+
+
+
+
 # Reformulando os Princípios da lógica clássica
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
