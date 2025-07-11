@@ -1,6 +1,4 @@
 
-
-
 # **Almas Apáticas**  
 
 ### **Características Gerais**  
@@ -849,3 +847,5 @@ O apatico necessita entender que o problema dele é espiritual e não politico, 
 - os humanos ficam loucos quando negam a vida, por isso disse que nao sabiam o que faziam, morri também para mostrar a loucura do mundo. Como pode fazer tal ato com a bonade ifninita? Mostrei a real loucura deles.
 
 - o individuo que segrega relacionamentos, adquire posição de orgulho, na verdade é um esconderijo da postura interior. O encontro com Deus nessa vida emocional, se reflete no encontro do calor humano.
+
+- Mudanças no cenário político: a descoberta da sintomatica do apático, vai priorizar o povo a não confiar em grandes empresários, que dizem ser a base da economia, e sem os quais, tudo não evoluiria. Pois, serão considerados pessoas obsessivas, doentes, e incapazes de conduzir os movimentos sociais, pois sua busca é pautada em obsessões e não no bom convivio e sustentação social. Isso vai eliminar o classe pobre que ainda é de direita.
