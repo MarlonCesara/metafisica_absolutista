@@ -18,11 +18,7 @@ Prepare-se para uma revelação que unirá fé, filosofia e ciência, transforma
 
 *(Um mergulho nos ensinamentos ocultos de Jesus, onde espiritualidade e metafísica se encontram.)*  
 
----  
-**Chamada para ação:**  
 *"Se você está pronto para ir além da interpretação superficial dos Evangelhos e descobrir a sabedoria cósmica de Jesus, este livro é sua chave."*  
-
-(Gostaria de refinamentos específicos em tom, estilo ou enfoque?)
 
 
 
