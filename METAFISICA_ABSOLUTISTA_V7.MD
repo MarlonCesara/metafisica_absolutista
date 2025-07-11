@@ -7,8 +7,11 @@ Neste livro, você será conduzido a uma jornada profunda pelos pensamentos ocul
 
 - **Os Códigos Divinos**: A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.  
 - **A Ciência do Milagre**: Como a fé, a física e a metafísica se unem nos atos sobrenaturais de Jesus.  
-- **A Consciência Crística**: O estado elevado de percepção que permite a união direta com o Divino.  
-- **O Evangelho político**: Como a verdade, plenamente entendida, modificará o cenário político atual.  
+- **O existencialsmo cristão**: Patologias psicologicas descritas por Jesus, ocasionadas pelo estado da alma do homem no mundo moderno.  
+- **As doenças do vazio**: Como Jesus diagnosticou, há 2.000 anos, a ansiedade, a depressão e o niilismo da era contemporânea.
+- **A verdadeira origem das guerras e da miséria**: Como as estruturas de poder exploram a ignorância espiritual das massas.
+- **O Evangelho político**: Como a verdade, plenamente entendida, modificará o cenário político atual, revelando a verdadeira natureza das guerras e miséria no mundo moderno.  
+- **O caminho para uma sociedade crística**: O modelo de justiça, compaixão e soberania ensinado por Jesus – e por que ele ameaça qualquer sistema baseado em opressão.
 
 **Não se trata apenas de ler as palavras de Jesus—mas de penetrar em sua mente, compreender sua visão cósmica e desvendar os mistérios que a humanidade ainda não estava pronta para receber.**  
 
