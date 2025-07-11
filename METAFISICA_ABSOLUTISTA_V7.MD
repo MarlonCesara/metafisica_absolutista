@@ -8,7 +8,7 @@ Neste livro, você será conduzido a uma jornada profunda pelos pensamentos ocul
 - **Os Códigos Divinos**: A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.  
 - **A Ciência do Milagre**: Como a fé, a física e a metafísica se unem nos atos sobrenaturais de Jesus.  
 - **A Consciência Crística**: O estado elevado de percepção que permite a união direta com o Divino.  
-- **O Evangelho Esotérico**: Os segredos que foram velados aos olhos do mundo, mas destinados aos buscadores da verdade.  
+- **O Evangelho político**: Como a verdade, plenamente entendida, modificará o cenário político atual.  
 
 **Não se trata apenas de ler as palavras de Jesus—mas de penetrar em sua mente, compreender sua visão cósmica e desvendar os mistérios que a humanidade ainda não estava pronta para receber.**  
 
