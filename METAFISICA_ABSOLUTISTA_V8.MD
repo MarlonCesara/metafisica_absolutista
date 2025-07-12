@@ -749,7 +749,7 @@ Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibil
 - Não há "nada" sem relação com um "algo".  
   - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
 
-## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
+## **O Nada Auto-Supressor**  
 
 Ao considerarmos o nada possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
 
@@ -804,17 +804,20 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 
 Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. 
 
-aquii
-
 ### **O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
 Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
 
-Isto significa que há uma razão para haver o fenômeno ao invés de o não fenômeno (Espírito puro), tal como há uma razão para haver o Espírito. Sendo o próprio Espírito uma determinação. Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo. A presença não exige uma determinação, pois não é numérica ou material, portanto, dispensa forma e número. A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. Desta forma, temos o indiferenciado, ou seja, o Espírito que dispensa determinação. O absoluto, portanto, é tudo. Abrange, em sua interlidade, ambas as opções primordiais simultaneamente evidenciadas em uma só presença sem que seja preciso uma decisão em sua integralidade, ou seja, uma determinação. Tudo já está consumado em sua integralidade.
+Isto significa que há uma razão para haver o fenômeno ao invés de o não fenômeno (Espírito puro). Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo. 
 
-Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto. Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta uma forma determinada e não diferenciada em si mesmo tal como o Espírito. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
+Portanto, necessitamos de uma realidade auto-determinada, para justificar a presença. E uma realidade auto-determinada é aquela que já existe determinada por si, ou seja, sem ser necessario que execute uma ação temporal para formalizar sua condição absoluta. 
 
-Em termos mais simples: se o "nada" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno — ou seja, que não precisa se fenomenizar para existir, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.  
+- A presença não exige uma determinação, pois não é numérica ou material, portanto, dispensa forma e número. 
+- A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. 
+
+Desta forma, temos o indiferenciado, ou seja, o Espírito que dispensa determinação. Pois se dá como resultado de todas as opções para absoluto sem que haja escolha entre elas. E, toda determinação, já está interna a dissolução final, que é a infinitude do absoluto.
+
+O absoluto, portanto, é tudo. Abrange, em sua interlidade, ambas as opções primordiais simultaneamente evidenciadas em uma só presença sem que seja preciso uma decisão em sua integralidade, ou seja, uma determinação. Tudo já está consumado em sua integralidade. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
 
 Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — a uma existência indetectável empíricamente (Espírito). Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica a qual origina todas as coisas internamente à sua temporalidade.   
 
@@ -873,6 +876,8 @@ Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesme
 Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais simples, a decisão não tomada pelo Ser. De forma que, todas as decisões já estão prontas em sua plenitude, basta que o Espírito as evoque da suspensão, ou seja, do nada.
 
 O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais estão contidas do possível, impossível e incognocível.
+
+aquii
 
 ### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
 
@@ -1992,3 +1997,8 @@ Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexist
 
 
 > "O fenômeno, portanto, constitui uma semi-existência, no sentido de que, sem que seja determinado fenômeno, carece de fundamento eterno; é uma arquitetura fugaz, uma ilusão material, dotada da transitoriedade de um sonho – tão efêmera que pode ser atravessada pela verdadeira existência. O fenômeno é uma névoa na campina da existência, que se desfaz ao primeiro raio de sol, sem deixar vestígios. É pó efêmero depositado nas janelas do Espírito, dissipado pelo sopro do eterno. O fenômeno é o próprio Espírito em forma ilusória, um reflexo que se crê sólido até que a luz da essência o desvenda. É existência sem plenitude, sombra que apenas toca a realidade, transpassando-a como possibilidade no infinito do Espírito – onde tudo retorna ao Ser, e o efêmero se dissolve no eterno."
+
+
+Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto. Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta uma forma determinada e não diferenciada em si mesmo tal como o Espírito. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
+
+Em termos mais simples: se o "nada" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno — ou seja, que não precisa se fenomenizar para existir, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.  
