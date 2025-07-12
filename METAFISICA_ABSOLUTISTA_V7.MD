@@ -121,7 +121,7 @@ Os quatro princípios causais assim formulados - existencial, existencial contin
 - **Tudo que persiste no ser tem uma causa que sustenta sua identidade.**  
   - *Equivalente lógico:* Princípio da Não-Disformidade ("A não pode ser A e B ao mesmo tempo"), onde A se mantém A ou B se mantém B por uma razão contínua.  
 
-### **O Absoluto como Fundamento da Investigação Metafísica**
+## **O Absoluto como Fundamento da Investigação Metafísica**
 
 Iniciamos nossa investigação pelo conceito de **Absoluto** – categoria primordial que representa o limite último da razão e o horizonte final do conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações superficiais, mas também define os próprios parâmetros do que pode ser pensado.
 
