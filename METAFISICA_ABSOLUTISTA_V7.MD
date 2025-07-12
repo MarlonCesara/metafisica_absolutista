@@ -1,5 +1,5 @@
 
-# **Matrix Decode**: As estruturas de poder desmoronarão  
+# **Matrix Decode**: As estruturas de poder caindo sob a luz da verdade
 
 E se você pudesse decifrar o verdadeiro significado por trás das palavras de Jesus? E se a lógica e a razão confirmassem os mesmos mistérios que a fé sempre abraçou? E se, além da verdade espiritual, Cristo trouxesse consigo a mais elevada metafísica, uma compreensão cósmica que transcende o tempo?  
 
