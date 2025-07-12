@@ -1904,6 +1904,65 @@ Conclui-se que o Absoluto oferece à alma todas as possibilidades, inclusive a d
 O indivíduo perde no inferno a auto presença, auto, domínio no temporal, mas no atemporal ainda os mantém. Dessa forma o indivíduo conserva uma existência a qual existe e domina, porém conduzida por um domínio não presente. O que o indivíduo deixa é uma alma sem o seu presente. A alma permanece, como ato infinito de danação, e não como ato consumido. O ato temporal é um ato atemporal. Ou seja, ambas as qualidades convergem no espírito. Ao passo que o espirito é um evento, é também a totalidade do evento. Logo, o indivíduo já existe num tempo infinito, e naonse extingue, mas se dana eternamente num ato eterno de extingiicao. Isso signficia que, se a alma fosse tra situada num corpo, o corpo ainda teria seria visível e existiria, porém de forma a consumir a alimentação eterna do seu eu
 O momento presente exonera o eu alimentado. Havendo a consciência inconsciente de si, uma consciência perdida em seu infinito. Se movimenta segundo o vazio não segundo o eu. Uma vez que sua intenção ao se extinguir fosse temporal. Ela retorna imediatamente.
 
+# Vislumbres do paraíso
+
+Contos que reforçam e ilustram as conclusões metafisicas.
+
+# A psicologia da apatia da alma
+
+O ponto central do qual se olicerça o conhecimento do rico é o seguinte, o rico esta predestinado a morte espirtual, que se equivaleria ao suicidio corporal, porem nao ocasionado por uma depressao. Ou seja, o rico planeja findar-se, e isto é o pecado contra o espírito santo que jesus mensionou. É o mecado contra a plenitude. Atraves de uma firme decisão da alma, o rico vai vivendo e os efeietos dessa dureza de coraçao, dessa decisão firme, ocasionam serios efeitos psicologociso, como desrealização, espelhamento da proria aternidade em riquezas materiais, e todo tipo de loucura que o corpo usa como defesa para não aceitar a verdade da alma.
+
+Abordaremos, apartir de agora, uma esfera psicologia, abandonando um pouco a esfera metafisica para nos focar na vivencia da alma no mundo atual. Neste mundo energético.
+
+Extre a frustração
+Inconformidade
+Tentativa de achar vida eterna na material
+A múmia queria viver sem estar vivo
+O apego a materialidade o que protege a pessoa de si mesma
+Quera algo ilógico viver e não viver
+Queria transmitir as pessoas a sua partida
+Mas sem nunca pronunciar explicitamente pois é i capaz de assumir sua posição mediante a um corpo amante do existir
+O rico é q tentativa de expressão sua intenção i confessavel
+Seu contrariar a maravilhada da vida. Cuja contrariedade é um absurdo, algo que não deve nem ser mencionado
+Uma ofensa infindável
+O pedido prla escravidão dos empresarios é um clã.or pela própria vida deles
+Um clamor inconsciente
+Um sintoma do querer pela eternidade reprimido
+Que se expressa como ilusão de encontrar seu eterno nos bens materiais
+Na glória terrema
+
+Feitos de barro 
+
+# A apatia da alma e seus efeitos na sociedade e na politica
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Rascunhos
 
 O fogo do inferno é a alma do individuo se esgotando sem cessar mediante ao fogo. Pois todo ato é eterno, e temporal, ou seja, há ainda a alma, mas sua existencia é um auto afastamento, no sentido de que há o ente se consumando, e não o sumiço completo. Se a decisão do ente for eterna, seu sumiço será eterno. Se não for, já está em si o momento onde sairá do fogo. O fogo é um apagao de identidade, na qual o ente se fundi no ser nao a harmonizar, mas de forma a apagar sua identidade. Lançar-se no inferno é matar-se a cada instante de um instante eterno, e não aniquilar-se. O fogo elimina o eu da alma, de forma a não se definir mais em auto dominio, auto presença e auto conhecimento. A propria inclinação da alma a morte a queima, pois sendo ela existencia, se coloca resistente a si, como possibilidade. Se fosse possível transformar a alma no inferno em fenomeno, seria equivalente a um corpo em eternas chamas. O inferno não é a alma indo de total encontro a plenitude, porem, o contrário, se fazendo contraria ja estando rumo a plenitude. Pois pernacer vivo é concordar com o existir. A forma pelo qual a alma tenta "matar" seu conteudo espiritual é pelo enfraquecimento de si, pela não exposição ao existir, podemos comparar a uma folha que necessita do sol para se vivifcar e viver, porem, sem o sol, ela morre. Como se a alma pudesse se esconder da luz, do existir.
