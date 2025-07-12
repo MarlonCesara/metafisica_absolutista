@@ -5,14 +5,14 @@ E se você pudesse decifrar o verdadeiro significado por trás das palavras de J
 
 Neste livro, você será conduzido a uma jornada profunda pelos pensamentos ocultos de Jesus, explorando não apenas seus ensinamentos sagrados, mas a estrutura metafísica que os sustenta. Descubra:  
 
+- **O Evangelho político**: Como a verdade, plenamente entendida, modificará o cenário político atual, revelando a verdadeira natureza das guerras e miséria no mundo moderno.  
 - **Os Códigos Divinos**: A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.  
 - **A Ciência do Milagre**: Como a fé, a física e a metafísica se unem nos atos sobrenaturais de Jesus.  
-- **As doenças do vazio**: Como Jesus diagnosticou, há 2.000 anos o niilismo da era contemporânea e a patologia associada a este modelo de pensamento.
+- **O niilismo patológico**: Como Jesus diagnosticou, há 2.000 anos, o niilismo da era contemporânea e as patologias associadas a este modelo de pensamento.
 - **A verdadeira origem das guerras e da miséria**: Como as estruturas de poder exploram a ignorância espiritual das massas.
-- **O Evangelho político**: Como a verdade, plenamente entendida, modificará o cenário político atual, revelando a verdadeira natureza das guerras e miséria no mundo moderno.  
 - **O caminho para uma sociedade crística**: O modelo de justiça, compaixão e soberania ensinado por Jesus – e por que ele ameaça qualquer sistema baseado em opressão.
 
-**Não se trata apenas de ler as palavras de Jesus—mas de penetrar em sua mente, compreender sua visão cósmica e desvendar os mistérios que a humanidade ainda não estava pronta para receber.**  
+**Não se trata apenas de ler as palavras de Jesus, mas de penetrar em sua mente, compreender sua visão cósmica e desvendar os mistérios que a humanidade ainda não estava pronta para receber.**  
 
 Prepare-se para uma revelação que unirá fé, filosofia e ciência, transformando para sempre sua compreensão da vida.  
 
