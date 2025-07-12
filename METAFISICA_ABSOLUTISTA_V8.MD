@@ -18,6 +18,24 @@ Prepare-se para uma revelação que unirá fé, filosofia e ciência, transforma
 
 **"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**  
 
+# **Somos construtores de piramides modernas**
+
+Ao imaginar o que levava uma civilização inteira a dedicar sua existência à construção de pirâmides, surge uma pergunta perturbadora: **seria o medo de que aquelas estruturas fossem, de alguma forma, essenciais para a ordem do cosmos?**  
+
+Da mesma forma, hoje, bilionários e magnatas acumulam riquezas com uma obsessão que parece irracional—**não por sabedoria ou por um projeto social legítimo, mas por um segredo interno, um terror metafísico que os corrói.**  
+
+Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis. **Mas por quê?**  
+
+### **O Segredo Que os Ricos Não Querem Que Você Saiba**  
+
+Não é sobre inteligência, mérito ou "fazer o mundo melhor". **É sobre um vazio—um medo primitivo que Jesus expôs há dois milênios:**  
+
+> *"É mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no reino dos céus."*  
+
+Essas palavras não são apenas uma crítica moral, mas uma **revelação metafísica**. Os ricos, em sua maioria, não acumulam por ambição, mas por **pânico**. Eles sabem, mesmo que inconscientemente, que a riqueza extrema é uma armadilha—**uma ilusão de que o ouro pode comprar a eternidade.**  
+
+Conheça neste livro o mundo espiritual em detalhes e compreenda realmente o que acontece com o psicológico dos ricos e qual será o destino deles.
+
 # **Reformulação dos Princípios da Lógica Clássica**
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
@@ -2002,3 +2020,18 @@ Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexist
 Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto. Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta uma forma determinada e não diferenciada em si mesmo tal como o Espírito. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
 
 Em termos mais simples: se o "nada" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno — ou seja, que não precisa se fenomenizar para existir, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.  
+
+
+Ao imaginar o que motivava uma população inteira se dedicar inteiramente a construção de piramides, seria o medo de que elas fizessem algum sentido para o funcionamento do cosmos? Tal como existe o medo de que os bilionarios trabalhem em prol do funcionamento social.
+
+Há, pessoas pobres que apoiam os empresarios sem conehcer o verdadeiro menicasmo, a verdadeira intenção, o segredo psicologico que o faz acumular riquezas, que é totalmente discrepante a ideia de bom funcionamento social, mas que se baseia num segredo interno que os ricos não querem que voce saiba.
+
+Não é sabedoria ou erudição, mas é algo que foi descrito por Jesus a mais de dois mil anos atrás e a humanidade somente entendera completamente agora. 
+
+As piramides não faziam sentido se não para dar a breve ilusão de que ricos da epoca transcenderiam a vida, por isso colocavam bens e se mumificavam em seus tumulos, em varios momentos os ricos da epoca queriam conservar seus espiritos, tinham um medo aterrador da morte que os levava a fazer o mal, escravizar, etc. 
+
+Jesus revelou que é mais facil um camelo passar no buraco de uma agulha que um rico entrar no reino dos céus. Desejaria realmente conhecer o que isto realmente significa?
+
+Porque os ricos tem tanto medo da morte afinal? Qual misterio metafisico espreita esse interim entre as palavras de Jesus e a psicologia do pavor do rico que o faz se apegar tanto a bens materiais?
+
+Qual mal aterrador espera os ricos? Descubra nos proximos capitulos.
