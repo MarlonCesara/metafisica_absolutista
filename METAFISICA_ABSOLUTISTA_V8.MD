@@ -749,8 +749,6 @@ Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibil
 - Não há "nada" sem relação com um "algo".  
   - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
 
-aquii
-
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
 Ao considerarmos o nada possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
@@ -764,19 +762,18 @@ Ao considerarmos o nada possível, ele seria um elemento imediatamente extinguí
 
 Assim, a **auto-supressão do inexistente** implica necessariamente a emergência do **existente**.
 
-Não havendo o nada existente, não haveria também uma transição do nada para a existencia, e nem mesmo o reverso: transformar o nada existente em nada auto-supressor, isto é, não há um estado intermediário entre auto-supressão e nada existente.
+Não havendo o nada existente, não haveria também uma transição do nada para a existencia, e nem mesmo o reverso: transformar o nada existente em nada auto-supressor, isto é, não haveria um estado intermediário entre auto-supressão e existencia.
 
-Desta forma, o nada, se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo.
+O nada, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza ficticia. O nada não existe e, consequentemente, não tem efeito auto-supressor sobre si de forma concreta. A auto-supressão não tem um objeto auto-suprimido.
 
-O nada fenomênico, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza ficticia. O nada fenomênico não existe e, consequentemente, não tem efeito auto-supressor sobre si de forma literal. A auto-supressão não tem um objeto auto-suprimido.
+Desta forma, o nada, se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo de forma que este produto possa se transformar em existencia.
 
-Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão, mas é um estado determinado no tempo Espíritual em razão da possibilidade do fenomeno. Dessa forma, num tempo X, há a manifestação, sem que esta tenha referência a uma inexistência, ou seja, a uma auto-supressão. A auto-supressão designa o que foi suprimido, e o produto suprimido não existe.
 
-> "O fenômeno, portanto, constitui uma semi-existência, no sentido de que, sem que seja determinado fenômeno, carece de fundamento eterno; é uma arquitetura fugaz, uma ilusão material, dotada da transitoriedade de um sonho – tão efêmera que pode ser atravessada pela verdadeira existência. O fenômeno é uma névoa na campina da existência, que se desfaz ao primeiro raio de sol, sem deixar vestígios. É pó efêmero depositado nas janelas do Espírito, dissipado pelo sopro do eterno. O fenômeno é o próprio Espírito em forma ilusória, um reflexo que se crê sólido até que a luz da essência o desvenda. É existência sem plenitude, sombra que apenas toca a realidade, transpassando-a como possibilidade no infinito do Espírito – onde tudo retorna ao Ser, e o efêmero se dissolve no eterno."
+Ao passo que a existencia criada não é oriunda de um desfazer da auto-supressão, mas é um estado determinado no tempo Espíritual. Dessa forma, num tempo X, há a criação, sem que esta tenha se originado como conversão do nada em algo, ou de um processo de reversão da auto-supressão. A auto-supressão designa o que foi suprimido, e o produto suprimido não existe.
 
 #### **Mecanismo da Auto-Supressão**  
 1. **Colapso por Autorreferência**  
-   - Todo nada fenomenológico pressupõe um "algo" como referente negado.  
+   - Todo nada pressupõe um "algo" como referente negado.  
    - Ao eliminar esse referente (condição necessária para o "nada"), o próprio conceito de nada perde seu substrato lógico.  
    - Resultado: **O nada não pode ser pensado como entidade autônoma** – sua definição é parasitária da presença que nega.  
 
@@ -784,21 +781,15 @@ Ao passo que a manifestação não é oriunda de um desfazer da auto-supressão,
    - O nada puro (sem relação com fenômeno algum) não é um "estado sustentável", mas um **ponto de viragem metafísico**.  
    - No mesmo ato em que se concebe, já se converte em:  
      - **Presença incognoscível** (fundamento não fenomenológico)  
-     - **Ou em manifestação determinada** (fenômeno emergente)  
-
+ 
 3. **A Ilusão do Intervalo Nulificador**  
-   - A suposta "passagem pelo nada" entre fenômenos é uma **projeção epistemológica**.  
+   - A suposta "passagem pelo nada" para existência é uma **projeção epistemológica**.  
    - Na realidade metafísica:  
-     - Não há vácuo ontológico entre auto-supressão e manifestação.  
+     - Não há vácuo ontológico entre auto-supressão e criação.  
 
 #### **Implicações Radicais**  
-- **O nada não é um antecedente causal**, mas **um efeito colateral da percepção da transição fenomenológica**.  
+- **O nada não é um antecedente causal**, mas **um efeito colateral da percepção da transição existencial**.  
 - **A manifestação não surge "do nada"**, mas **da reconfiguração imediata de potências ontológicas**.  
-- **O fenomênico como "quase-existência"**:  
-  - Toda manifestação é **autolimitada** (daí sua fugacidade).  
-  - Seu estatuto ontológico é **intermediário** entre:  
-    - A plenitude incognoscível (Absoluto não manifestado)  
-    - A nulidade autorrefutada (o nada auto-supressor)  
 
 #### **Conclusão: A Armadilha do Nada**  
 A tentativa de conceber o nada como entidade metafísica independente é **um exercício de pensamento que se desfaz em suas próprias mãos**. O que chamamos de "nada" é na verdade:  
@@ -811,9 +802,11 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 - A dissolução de formas  
 - Sem jamais passar por um "estado concreto de não existência"
 
-Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. A ausência do fenômeno não existe, de forma que deveria existir o fenômeno como interno a está ausência (nada fenomênico).
+Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. 
 
-### **3. O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
+aquii
+
+### **O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
 Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. No entanto, conforme o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** 
 
@@ -1995,3 +1988,7 @@ O *agora* eterno é límpido, transparente ao todo. Nele, não há lugar para o 
 - Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
 
 Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexiste se deixar nada de si, nenhuma presença ou pessoalidade é resultante. Diferentemente da realidade espíritual a qual comporta a infinitude sem que se esgote ou que perca sua estrutura temporal, o Espírito já é o tempo e a consumação do tempo em uma só realidade. 
+
+
+
+> "O fenômeno, portanto, constitui uma semi-existência, no sentido de que, sem que seja determinado fenômeno, carece de fundamento eterno; é uma arquitetura fugaz, uma ilusão material, dotada da transitoriedade de um sonho – tão efêmera que pode ser atravessada pela verdadeira existência. O fenômeno é uma névoa na campina da existência, que se desfaz ao primeiro raio de sol, sem deixar vestígios. É pó efêmero depositado nas janelas do Espírito, dissipado pelo sopro do eterno. O fenômeno é o próprio Espírito em forma ilusória, um reflexo que se crê sólido até que a luz da essência o desvenda. É existência sem plenitude, sombra que apenas toca a realidade, transpassando-a como possibilidade no infinito do Espírito – onde tudo retorna ao Ser, e o efêmero se dissolve no eterno."
