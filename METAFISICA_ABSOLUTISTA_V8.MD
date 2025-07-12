@@ -118,6 +118,30 @@ A única maneira de vencer a escravidão moderna é **entendê-la**. Decifrá-la
 
 **A verdadeira libertação começa quando desvendamos a psicopatologia do poder.**  
 
+## Os ricos não são verdadeiros empreendedores
+
+Suas construções de empreendimentos sao frageis, são totalmente basedas no lucro, caso a expliração cesse essas estruturas desmoronam. Não sao bem estrategicas, simplesmente crescem nao por estrategia mas que se beneficiam de um extremo lucro, que possibila de qualquer forma o crescimento.
+
+A sociedaed nao depende de grandes redes construitas pelos ricos, pois qualquer cidadão é capaz de conduzir grandes empreendimentos tendo uma quantia de dinheiro absurda para preencher todas os gap e falhas causados pela má administração.
+
+Se as instutuilções pararem de fomentar grandes dinheiros os mesmos donos de empreendimos desistem e vao procurar outras formas opressoras e expliratorias,ate mesmo na criminalidade, pois seu intuito nao é motivado pelo dom de empreender e de servir a comunicade, mas pela pura obsessão pela riqueza indeendente da forma de lucrar.
+
+Ainda a escravidão, o esgotamento de individuos em seus ambitos sociais e afeteivos dá dinheiro, caso essas estruturas sejam destruidas pela lei, de alguma forma, outras estruturas tentaram se reeguer e conhecendo a mentalidade da riqueza desenfreada será possível antecipar e prever todas as formas de manifestçaão desta obsessão presente e futuras.
+
+Portanto, o resciento empresarial nao vem da genealidade, mas do oportunismo misturado com a maldade. Os que herdam o idnheiro continuam com tecnicas escravistas que mantem as mepresas, naopor innteligente financiera e estrategica, mas pelo puro lucro desmedido que os permite multiplicar empreendimenos e gastar milhoes em propagandas.
+
+Redes como mc donalds, grandes redes de super mercados, todas essas falem se os trabalhadores exigirem remunerçaão justa,pois são submetidas a formas mais inteligentes de empreendimentos que respeitam o humano e tem processos mais ageis e facilitados, as que são fomentadas por verdaediros empreendedore sque pensam em agilidade, facilidade e no bem humano.
+
+
+
+
+
+
+
+
+
+
+
 **Prepare-se para decifrar a Matrix.**  
 
 # **Reformulação dos Princípios da Lógica Clássica**
