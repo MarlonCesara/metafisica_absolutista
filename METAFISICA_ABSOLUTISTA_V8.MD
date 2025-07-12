@@ -724,13 +724,11 @@ Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau
   - O Espírito garante a existência e a perfeição.  
   - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
-aquii
-
 # **Criacionismo no nível do Absoluto**
 
 ## **Nada como existencia Relacional**  
 
-Ao concebermos o nada como uma existencia potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
+Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
 
 - **Definição por Negação**: O nada só existe como contraparte de algo manifesto.  
   - *Exemplo*: A escuridão é a não-luz; o silêncio é a não-vibração sonora.  
@@ -751,21 +749,24 @@ Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibil
 - Não há "nada" sem relação com um "algo".  
   - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
 
+aquii
 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
-Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
+Ao considerarmos o nada possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
 
-- **O Nada fenomenológico não se Sustenta**:  
+- **O Nada referencial não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
   - Logo, ele **não pode permanecer como nada** e imediatamente dá lugar à **presença**.  
 - **O nada como evidenciador, não como Substrato**:  
   - O nada puro não é um "estado" estável, mas um **movimento de passagem** para o existente.  
   - Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja.  
 
-Assim, a **auto-supressão do existente** implica necessariamente a emergência do **existente**—não necessariamente um fenômeno determinado, mas uma **presença incognoscível**, anterior à manifestação fenomenológica. 
+Assim, a **auto-supressão do inexistente** implica necessariamente a emergência do **existente**.
 
-Não havendo um estado intermediário entre auto-supressão e fenômeno, o nada se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo.
+Não havendo o nada existente, não haveria também uma transição do nada para a existencia, e nem mesmo o reverso: transformar o nada existente em nada auto-supressor, isto é, não há um estado intermediário entre auto-supressão e nada existente.
+
+Desta forma, o nada, se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo.
 
 O nada fenomênico, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza ficticia. O nada fenomênico não existe e, consequentemente, não tem efeito auto-supressor sobre si de forma literal. A auto-supressão não tem um objeto auto-suprimido.
 
