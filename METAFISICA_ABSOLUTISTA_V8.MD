@@ -26,7 +26,7 @@ Da mesma forma, hoje, bilionários e magnatas acumulam riquezas com uma obsessã
 
 Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis através da escravidão moderna tal como na antiguidade, parece que até hoje nada mudou, ainda somos escravos olhando para o horizonte e esperando o dia em que desfrutaremos plenamente da vida. **Mas por quê?**  
 
-Porque ainda não entendemos as palavras de Jesus, não entendemos o real intuito do rico, não entedemos o que o rico guarda na alma. Não conseguimos quesitonar as formas exploratórias por que as julgamos necessarias. Não imaginamos o conflito que os donos dos empreedimentos escravistas guardam na alma para medirmos a má intenção de suas ações.
+Porque ainda não entendemos as palavras de Jesus, não entendemos o real intuito do rico, não entedemos o que o rico guarda na alma. Não conseguimos quesitonar as formas exploratórias por que as julgamos necessarias. Não imaginamos o conflito que os donos dos empreedimentos escravistas guardam na alma para medirmos a má intenção de suas ações. Em outras palavras, ainda nos idas de hoje não sabemos como as piramides foram construidas, mas o que mais é necessario descobrir é porque foram construidas. 
 
 ### **O Segredo Que os Ricos Não Querem Que Você Saiba**  
 
