@@ -2287,5 +2287,11 @@ O metodo para ganhar dinheiro rapido é facil de se entender, mas a motivação 
 
 
 
+Quando o individuo s etorna niilista teme a si mesmo perante a morte e não propriamente a morte, passa a ser ser algoz, seu auto-julgador. E a isistencia da posição da alma contraria a existencia causa uma sintomatica conflituosa no corpo, e essa sintomatica ocasiona os sistemas de opressor.
 
+O individuo passa a tentar eliminar a alegria a sua volta e tudo que contraria a seu firme proposito pela auto-destruição.
+
+Na eternidade os atos são temporais, portanto o ato de se findar é um ato temporal e não um ato definitivo, ou seja, a alma possuidora de todo o tempo continua sendo retroalimentada de um vazio de si, o individuo simplesmente se esvai do tempo, e o que sobra é sua auto imagem desmembrada. Uma eternidade de alguem que se foi do tempo e que se vai a todo mundo. O fogo do inferno é produzido pela retroalimentação constante da decisão do individuo de seu sumiço. O inferno não é construido pela consequencia de um ato, mas pela manutenção deste ato pela força do desejo. Uma dureza de coração eterna é a morte eterna e não um ato isolado no tempo. Portanto, o individuo ainda existe, mas sua existencia é velada, é sem significado, é não vivida. Portanto, o coração totalmente enrrigecido forma, em razão de sua intenção e não em razão da  possibiildaide metafisica, a morte eterna. 
+
+Nao é a impossibilidade de voltar a vida que o rico teme, mas a possibildiade de permanecer no estado para sempre em razão da tamanha rigidez de sua intenção em relacão a seu posicionamento quanto a vida. O rico teme a sua propria teimosia, a sua certeza do mal que fara a si mesmo e a manutenção deste mal, a inclinação firme e imutavel que possui é que lhe confere terror, pois o corpo nada pode fazer contra a força da alma. Temos portanto uma dicotomia no prirpio corpo, um estado de ansiedade que o corpo desenvolve por portar uma decisão tão dura contra si mesmo. O Corpo, portanto, manifesta o temor perante a propria alma nele instaurada.
 
