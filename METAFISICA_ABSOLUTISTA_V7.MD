@@ -14,7 +14,7 @@ Neste livro, você será conduzido a uma jornada profunda pelos pensamentos ocul
 
 **Não se trata apenas de ler as palavras de Jesus—mas de penetrar em sua mente, compreender sua visão cósmica e desvendar os mistérios que a humanidade ainda não estava pronta para receber.**  
 
-Prepare-se para uma revelação que unirá fé, filosofia e ciência, transformando para sempre sua compreensão do sagrado.  
+Prepare-se para uma revelação que unirá fé, filosofia e ciência, transformando para sempre sua compreensão da vida.  
 
 **"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**  
 
