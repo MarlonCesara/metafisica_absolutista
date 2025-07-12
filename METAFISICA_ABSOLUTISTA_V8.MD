@@ -1,5 +1,5 @@
 
-# ** A Matrix Decodificada**: Destruindo as Estruturas de Dominação  
+# **A Matrix Decodificada**: Destruindo as Estruturas de Dominação  
 
 **E se as palavras de Jesus contivessem um código metafísico capaz de desvendar os mecanismos ocultos do poder?**  
 **E se a lógica e a razão confirmassem os mesmos mistérios que a fé sempre intuiu?**  
