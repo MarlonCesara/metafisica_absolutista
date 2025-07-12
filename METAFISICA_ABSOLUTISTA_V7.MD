@@ -229,18 +229,6 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 - O Possível manifesta-se como ordem no seio do Absoluto
 - O Impossível surge como limite interno da possibilidade
 
-### **Reformulação dos Conceitos Metafísicos Fundamentais**  
-
-#### **Absoluto**  
-**Definição:** A realidade última, irredutível e totalizante que fundamenta e transcende todas as categorias metafísicas.  
-- **Abarcância:**  
-  - **Possibilidade** (existência lógica, domínio da realidade inteligível).  
-  - **Impossibilidade** (existência ilógica, limite da contradição formal).  
-  - **Incognoscibilidade** (o que está além da estruturação lógica e da representação conceitual).  
-- **Natureza:**  
-  - **Não é um "ente" entre outros**, mas o fundamento último de toda diferenciação ontológica.  
-  - **Não está confinado ao cognoscível**, pois inclui o inexprimível e o inapreensível pela razão discursiva.  
-
 # **A Causalidade no Âmbito do Absoluto cognocível**  
 Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.  
 
@@ -1875,5 +1863,17 @@ Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, 
 
 **O cognoscível** tem como subcategorias o **possível** e o **impossível**, ou seja, ele pode se alinhar a favor ou contra as leis lógicas. Se o conteúdo do pensamento envolve o **incognoscível**, não faria sentido enquadrá-lo nesta investigação, já que se trata de uma forma mentalizável de definir a totalidade. Portanto, mesmo que exista algo que escape à esfera do impossível e do possível, isso permanece inacessível ao pensamento conceitual, pois nossa psique se limita a categorizar tudo o que concebemos dentro de uma estrutura lógica ou em dissonância com ela. Cabe, assim, ao **sentimento humano** abarcar o incognoscível — aquilo que só se revela por meio da **experiência direta**.  
 
-Dessa forma, a **razão** lida com o cognoscível (seja possível ou impossível), enquanto o **incognoscível** está restrito a uma **experiência transcendente**, já que ultrapassa a capacidade da psique humana de conceber algo além das estruturas lógicas e das relações metafísicas causais que tais leis pressupõem.  
+Dessa forma, a **razão** lida com o cognoscível (seja possível ou impossível), enquanto o **incognoscível** está restrito a uma **experiência transcendente**, já que ultrapassa a capacidade da psique humana de conceber algo além das estruturas lógicas e das relações metafísicas causais que tais leis pressupõem. 
+
+### **Reformulação dos Conceitos Metafísicos Fundamentais**  
+
+#### **Absoluto**  
+**Definição:** A realidade última, irredutível e totalizante que fundamenta e transcende todas as categorias metafísicas.  
+- **Abarcância:**  
+  - **Possibilidade** (existência lógica, domínio da realidade inteligível).  
+  - **Impossibilidade** (existência ilógica, limite da contradição formal).  
+  - **Incognoscibilidade** (o que está além da estruturação lógica e da representação conceitual).  
+- **Natureza:**  
+  - **Não é um "ente" entre outros**, mas o fundamento último de toda diferenciação ontológica.  
+  - **Não está confinado ao cognoscível**, pois inclui o inexprimível e o inapreensível pela razão discursiva.   
 
