@@ -18,25 +18,26 @@ Prepare-se para uma revelação que unirá fé, filosofia e ciência, transforma
 
 **"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**  
 
-# **Somos construtores de piramides modernas**
+# **Somos construtores de pirâmides modernas**  
 
 Ao imaginar o que levava uma civilização inteira a dedicar sua existência à construção de pirâmides, surge uma pergunta perturbadora: **seria o medo de que aquelas estruturas fossem, de alguma forma, essenciais para a ordem do cosmos?**  
 
 Da mesma forma, hoje, bilionários e magnatas acumulam riquezas com uma obsessão que parece irracional—**não por sabedoria ou por um projeto social legítimo, mas por um segredo interno, um terror metafísico que os corrói.**  
 
-Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis através da escravidão moderna tal como na antiguidade, parece que até hoje nada mudou, ainda somos escravos olhando para o horizonte e esperando o dia em que desfrutaremos plenamente da vida. **Mas por quê?**  
+Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis. Através da escravidão moderna, tal como na Antiguidade, parece que nada mudou—ainda somos escravos, olhando para o horizonte e esperando o dia em que desfrutaremos plenamente da vida. **Mas por quê?**  
 
-Porque ainda não entendemos as palavras de Jesus, não entendemos o real intuito do rico, não entedemos o que o rico guarda na alma. Não conseguimos quesitonar as formas exploratórias por que as julgamos necessarias. Não imaginamos o conflito que os donos dos empreedimentos escravistas guardam na alma para medirmos a má intenção de suas ações. Em outras palavras, ainda nos idas de hoje não sabemos como as piramides foram construidas, mas o que mais é necessario descobrir é porque foram construidas. 
+Porque ainda não entendemos as palavras de Jesus. Não compreendemos a verdadeira intenção do rico, nem o que ele guarda na alma. Não questionamos as formas exploratórias porque as julgamos necessárias. Não imaginamos o conflito que os donos dos empreendimentos escravistas carregam no íntimo, e assim não medimos a má intenção por trás de suas ações. Em outras palavras, ainda hoje não sabemos como as pirâmides foram construídas—mas o que mais precisamos descobrir é **por que** foram construídas.  
 
 ### **O Segredo Que os Ricos Não Querem Que Você Saiba**  
 
-Não é sobre inteligência, mérito ou "fazer o mundo melhor". **É sobre um vazio—um medo primitivo que Jesus expôs há dois milênios:**  
+Não se trata de inteligência, mérito ou "fazer o mundo melhor". **É sobre um vazio—um medo primitivo que Jesus expôs há dois milênios:**  
 
 > *"É mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no reino dos céus."*  
 
-Essas palavras não são apenas uma crítica moral, mas uma **revelação metafísica**. Os ricos, em sua maioria, não acumulam por ambição, mas por **pânico**. Eles sabem, mesmo que inconscientemente, que a riqueza extrema é uma armadilha—**uma ilusão de que o ouro pode comprar a eternidade.**  
+Essas palavras não são apenas uma crítica moral, mas uma **revelação metafísica**. Os ricos, em sua maioria, não acumulam por ambição, mas por **pânico**. Eles sabem, ainda que inconscientemente, que a riqueza extrema é uma armadilha—**uma ilusão de que o ouro pode comprar a eternidade.**  
 
-Conheça neste livro o mundo espiritual em detalhes e compreenda realmente o que acontece com o psicológico dos ricos e qual será o destino deles.
+Conheça, neste livro, o mundo espiritual em detalhes e compreenda o que realmente acontece com a psique dos ricos—e qual será o destino deles.  
+
 
 # **Reformulação dos Princípios da Lógica Clássica**
 
