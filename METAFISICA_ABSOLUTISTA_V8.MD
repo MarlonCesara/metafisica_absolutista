@@ -24,7 +24,7 @@ Ao imaginar o que levava uma civilização inteira a dedicar sua existência à 
 
 Da mesma forma, hoje, bilionários e magnatas acumulam riquezas com uma obsessão que parece irracional—**não por sabedoria ou por um projeto social legítimo, mas por um segredo interno, um terror metafísico que os corrói.**  
 
-Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis. **Mas por quê?**  
+Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis através da escravidão moderna tal como na antiguidade, parece que até hoje nada mudou, ainda somos escravos olhando para o horizonte e esperando o dia em que desfrutaremos plenamente da vida. **Mas por quê?**  
 
 ### **O Segredo Que os Ricos Não Querem Que Você Saiba**  
 
