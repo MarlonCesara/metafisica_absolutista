@@ -21,7 +21,7 @@ Prepare-se para uma revelação que unirá fé, filosofia e ciência, transforma
 
 
 
-# **Reformulação dos Princípios da Lógica Clássica: Uma Abordagem Temporal e Ontológica**  
+# **Reformulação dos Princípios da Lógica Clássica
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
 
