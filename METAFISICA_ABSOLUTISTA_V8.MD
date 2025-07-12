@@ -422,12 +422,49 @@ Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações im
 
 
 
+# **A Autocausalidade Temporal e Atemporal do Espírito**  
 
+A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Essa dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.  
 
+### **1. Autocausalidade Atemporal: A Causa Definitiva**  
+- **Natureza:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável.  
+  - *"Eu Sou o que Sou" (Êxodo 3:14)*: A autoidentidade pura, sem dependência de tempo ou sequência.  
+- **Princípios Envolvidos:**  
+  - **Causa Identitária (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida.  
+  - **Causa Existencial (Atemporal):** *"O Absoluto existe por si mesmo"* — não deriva de nenhuma condição prévia.  
+- **Implicação Metafísica:**  
+  - A autocausalidade atemporal garante que o Espírito seja **fonte irredutível**, nunca um mero produto de processos.  
 
+### **2. Autocausalidade Temporal: O Ciclo Autossustentado**  
+- **Natureza:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada.  
+  - *"O Pai trabalha até agora, e Eu trabalho também" (João 5:17)*: A atividade contínua do Espírito no tempo.  
+- **Princípios Envolvidos:**  
+  - **Causa Identitária Continuada (Temporal):** *"O Absoluto persiste como Absoluto"* — mantém sua essência no devir.  
+  - **Causa Existencial Continuada (Temporal):** *"O Absoluto se sustenta a cada instante"* — não é estático, mas vivo.  
+- **Implicação Metafísica:**  
+  - A autocausalidade temporal revela que o Espírito **não é passivo**, mas age perpetuamente para sustentar sua própria realidade.  
 
+### **3. A Unidade Bifásica: Eternidade e Tempo Integrados**  
+- **Paradoxo Resolvido:**  
+  - **Atemporalidade:** Garante a imutabilidade da essência divina.  
+  - **Temporalidade:** Permite a ação e a relação com o contingente.  
+  - *Solução:* O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**.   
+- **Exemplo Metafórico:**
+  - Ao consumar o futuro, presente e passado em um instante único, temos uma natureza atemporal construída a partir do temporal.
 
-# **A Autocausalidade temporal e atemporal do Espírito**  
+### **4. Conclusão: O Espírito como Causalidade Viva**  
+O Absoluto é:  
+✔ **Fonte Atemporal** (causa de si mesmo *una vez por todas*)  
+✔ **Fonte Temporal** (causa de si mesmo *em cada instante*)  
+
+Essa dualidade não é divisão, mas **profundidade da autoconsciência espiritual**:  
+- *"Nele vivemos, nos movemos e existimos" (Atos 17:28)* — o tempo é um modo de participação na vida do Espírito, não seu oposto.  
+
+**Síntese Final:**  
+> *"O Absoluto é o Alfa e o Ômega (Apocalipse 22:13) — o princípio sem começo e o fim sem fim, cuja autocausalidade é tão eterna quanto dinâmica."*  
+
+Essa visão supera as dicotomias tradicionais, revelando um **Deus que é ao mesmo tempo fundamento imutável e amor em ação**.
+
  *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."* 
 
 ## **A Autocausalidade como Ato Imediato (Não-Temporal)**  
@@ -491,13 +528,11 @@ Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito 
 
 ## Não polaridade entre recursividade e ato do Ser
 
-**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato. Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão, Sua pureza dispensa essa oscilação —  pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translucido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da verdadeira existência. Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido).
-
-Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. Quando esse princípio é transposto para a realidade fenomênica, contrasta com uma não uniformidade, pois o fenômeno, ao buscar a si mesmo sem ser puro para si, resulta em uma soma ou disparidade (fenômeno ou nada) — não em unicidade (Espirito temporal e atemporal). O fenômeno jamais alcançaria seu momento final, tal como o Espírito converge seu momento final em sua própria trajetória de progressão.
+**A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Determinador é puro até para Si mesmo.** Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato. Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão, Sua pureza dispensa essa oscilação —  pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translucido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da verdadeira existência. Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido). Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento. 
 
 O Espírito já é a consumação de toda sua existencia em progressão, de forma que, seja tudo em ato ao passo que pode se aprofundar desse "tudo" de forma a encontrar o seu ambito "temporal". Ou seja, ao imaginarmos uma transcendencia do temporal, de forma a esgotarmos um tempo infinito ate encontrarmos o seu resvalo, temos, portanto, o tempo em ato único que é o tempo resumido em sua linha progressiva e regressiva infinita. Desta forma, temos a atemporalidade como sinônimo da temporalidade, definindo o atemporal como síntese de um temporal elevado ao seu limite, ou transcendido em sua essência dimensional.
 
-O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo, ao contrário do tempo do fenômeno, que se estende sem jamais ser translúcido ou se resvalar em sua própria totalidade.
+O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo.
 
 - **Causalidade com agente puro**:  
   A autocausalidade do Ser não estabelece uma oposição entre ato único e processo sustentador, ambas as autocausalidades não colidem, mas se sintetizam em uma única realidade.  
@@ -624,15 +659,26 @@ Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau
   - O Espírito garante a existência e a perfeição.  
   - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
-### **A Eternidade como Plenitude do Instante**  
 
-Na eternidade, cada momento encontra sua eternidade. Lá, o tempo não flui — espera. A felicidade se concentra em um ponto único, capaz de ser vivido e revivido em uma temporalidade eterna. A percepção do tempo torna-se bidimensional: alcança-se a plenitude temporal ao mesmo tempo em que se experimenta o tempo. O indivíduo contempla seu infinito em um eterno presente.  
 
-Sob uma perspectiva subjetiva, isso implica a ausência da ansiedade gerada pelo tempo, pois a visão do todo se revela. É como vivenciar um silêncio perfeito — um instante cristalino, livre do ruído da linearidade temporal. Na eternidade, o momento não é corroído pela incerteza do devir; ele simplesmente é, acompanhado por seu reflexo eterno no mesmo ato. Poderíamos compará-lo à quietude de um "agora" que não anseia por um fim, pois já contém em si a totalidade.  
 
-Na eternidade, o *agora* não é espera, mas deleite puro. Não há mais a angústia da expectativa, embora os eventos ainda ocorram. Cada ato se funde com o eterno, deixando de ser vazio ou perpetuamente desejante de um futuro. O evento encontra seu fundamento no instante, e o tempo perde seu caráter inquieto — aquele que busca sem cessar e sem término.  
 
-O *agora* eterno é límpido, transparente ao todo. Nele, não há lugar para o tédio, o desassossego ou a insegurança. A consciência repousa na visão integral de seu tempo, não mais limitada pela perspectiva linear e incerta da temporalidade finita. O véu que obscurecia a alma se dissolve: o futuro e o passado não são mais sombras, mas um horizonte aberto à contemplação.  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # **Criacionismo no nível do Absoluto**
 
@@ -1982,3 +2028,19 @@ Do ponto de vista lógico, a fenomenização do Absoluto exigiria um pressuposto
 
 Em termos mais simples, a presença infere somente a ação causal dotada de personalidade, que é o que se pode extrair do ponto de vista lógico do absoluto.
 Sem que definamos o absoluto se não pela metafisica auto causal, não podemos extrair dele o fenomeno, ou o nada, mas uma auto causalidade de forma que a definiçao de si pertence a si, a ação de si pertence a si, de forma que, o abosluto é primoridialmente vivo, no snetido espiritual, aquele que dispensa fenomeno. A materia ou energia não é o resultado direto do argumento auto causal, mas, em primeira instancia do que se auto causa, se afirma primeiramente sua liberdade: seu auto dominio, auto presença e poder sobre si.
+
+
+
+
+Ao aplicarmos os quatro principios causais ao Absoluto, a causalidade em duas esferas: temporal e atemporal de forma simultanea. Ao passo que o Absoluto causa a si de forma definitiva, também se retro alimenta de si como num ciculo infinito. Temos portanto uma natureza bifasica do tempo, o qual encontra seu resvalo em seu prooprio andamento. Ou seja, temos uma condição temporal consumada numa condição definitiva e única. 
+
+
+### **A Eternidade como Plenitude do Instante**  
+
+Na eternidade, cada momento encontra sua eternidade. Lá, o tempo não flui — espera. A felicidade se concentra em um ponto único, capaz de ser vivido e revivido em uma temporalidade eterna. A percepção do tempo torna-se bidimensional: alcança-se a plenitude temporal ao mesmo tempo em que se experimenta o tempo. O indivíduo contempla seu infinito em um eterno presente.  
+
+Sob uma perspectiva subjetiva, isso implica a ausência da ansiedade gerada pelo tempo, pois a visão do todo se revela. É como vivenciar um silêncio perfeito — um instante cristalino, livre do ruído da linearidade temporal. Na eternidade, o momento não é corroído pela incerteza do devir; ele simplesmente é, acompanhado por seu reflexo eterno no mesmo ato. Poderíamos compará-lo à quietude de um "agora" que não anseia por um fim, pois já contém em si a totalidade.  
+
+Na eternidade, o *agora* não é espera, mas deleite puro. Não há mais a angústia da expectativa, embora os eventos ainda ocorram. Cada ato se funde com o eterno, deixando de ser vazio ou perpetuamente desejante de um futuro. O evento encontra seu fundamento no instante, e o tempo perde seu caráter inquieto — aquele que busca sem cessar e sem término.  
+
+O *agora* eterno é límpido, transparente ao todo. Nele, não há lugar para o tédio, o desassossego ou a insegurança. A consciência repousa na visão integral de seu tempo, não mais limitada pela perspectiva linear e incerta da temporalidade finita. O véu que obscurecia a alma se dissolve: o futuro e o passado não são mais sombras, mas um horizonte aberto à contemplação.  
