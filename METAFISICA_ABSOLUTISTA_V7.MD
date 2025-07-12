@@ -73,10 +73,10 @@ Isso torna a lógica mais robusta para lidar com problemas de **mudança, identi
 
 ### **Classificação dos Princípios Lógicos:**  
 
-| **Categoria**       | **Relação Lógica**       | **Atemporal**            | **Temporal**                |  
-|---------------------|--------------------------|--------------------------|-----------------------------|  
-| **Ser vs. Não-Ser** | A ∨ ¬A                   | Terceiro Excluído        | Não-Contradição (¬(A ∧ ¬A)) |  
-| **Ser vs. Outro**   | A ≠ B                    | Identidade (A = A)       | Não-Disformidade (¬(A = B)) |  
+| **Categoria**       | **Relação Lógica**       | **Atemporal**              | **Temporal**                |  
+|---------------------|--------------------------|----------------------------|-----------------------------|  
+| **Ser vs. Não-Ser** | A ∨ ¬A                   | Terceiro Excluído (A ∨ ¬A) | Não-Contradição (¬(A ∧ ¬A)) |  
+| **Ser vs. Outro**   | A ≠ B                    | Identidade (A = A)         | Não-Disformidade (¬(A = B)) |  
 
 ### **Conclusão:**  
 A reformulação proposta demonstra que os princípios lógicos clássicos podem ser reorganizados em dois eixos:  
