@@ -230,7 +230,7 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 - O Impossível surge como limite interno da possibilidade
 
 # **A Causalidade no Âmbito do Absoluto cognocível**  
-Ao aplicarmos os princípios da causalidade a esses conceitos fundamentais, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.  
+Ao aplicarmos os princípios da causalidade ao conceito de Absoluto em toda sua abrangência, chegamos às respostas mais profundas da metafísica. **Não faria sentido buscar uma fundamentação anterior ou mais primitiva**, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.  
 
 - **Causalidade Absoluta:** O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.  
 - **Consequência Metafísica:** Qualquer tentativa de explicar a origem ou natureza do possível ou impossível deve partir do Absoluto como princípio inquestionável, pois ele é a única noção que não requer uma causa externa – sua existência e essência são **autofundadas, autodeterminadas e autocontinuadas**.  
