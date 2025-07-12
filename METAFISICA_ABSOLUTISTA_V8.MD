@@ -419,9 +419,6 @@ O Absoluto é **Espírito Autocausal**:
 
 Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações impessoais, afirmando o Absoluto como **Presença Viva** que, precisamente por ser autocausada, é **Espírito em sentido pleno e metafísico**. Da auto causalidade se deduz de forma pura o agente que determina, não haveria mais o que se extrair de forma imediata do argumento causal. 
 
-
-
-
 # **A Autocausalidade Temporal e Atemporal do Espírito**  
 
 A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Essa dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.  
@@ -576,6 +573,61 @@ O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas um
 
 Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — não como duração infinita, mas como **presença absoluta que transcende toda medida**.
 
+## Estruturando a infinitude (ato atemporal)  
+
+### Dissolução Espacial  
+
+- A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
+
+### Tempo Potencial e Expresso (Atemporalidade)  
+
+- O tempo existe como:  
+  1. **Tempo expresso** (manifestado).  
+  2. **Tempo inexpresso** (potencial não realizado).  
+
+- A infinitude consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.  
+- A infinitude consuma o tempo em sua expressão e inexpressão.  
+
+## Estruturando os eventos temporais   
+
+### Determinação numerável
+
+- A existência temporal **admite numerabilidade**. Assim, não há necessariamente uma única identidade ou modelo de subsistência, mas **uma ou múltiplas manifestações de existência**.  
+
+### Não-localidade  
+
+- A existência não se origina em um lugar específico, pois não há um ponto de origem relativo, sendo em si seu próprio ponto de origem.  
+  - *Exemplo:* O universo não pode ter começado em lugar nenhum.  
+
+### Espaço Infinito  
+
+- O espaço da existência é infinitamente percorrível, sem bordas ou confinamento.  
+  - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.  
+  - *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.  
+
+### Temporalidade Infinita  
+
+- O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.  
+  - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.  
+  - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
+  - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado. 
+
+
+## O Infinito e o Tempo: Princípios Indiscerníveis  
+
+Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e tempo (fluxo eventual) compartilham propriedades essenciais:  
+
+- **Ausência de dimensões absolutas**: Nem o evento nem a infinitude podem ser delimitados espacial ou temporalmente.  
+- **Dependência de um segundo termo**:  
+  - O infinito só é definível em relação ao evento (ex.: infinitude em progressão vs. infinitude consumada).  
+  - O evento só é reconhecível em contraste com o infinito (ex.: infinito vs. progressão infinita).  
+
+### Dualidade Necessária  
+
+- Sem dualidade, ambos colapsam:  
+  - O infinito é ininteligível sem o fluxo eventual.  
+  - A eventualidade em sua integralidade é indistinguível do infinito.  
+
 # Ações e pessoalidades do Espírito 
 
 ### Autodeterminação Vertical (Espírito Fundamentador)  
@@ -682,38 +734,16 @@ Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau
 
 # **Criacionismo no nível do Absoluto**
 
-## **Nada como Fenômeno Relacional**  
+## **Nada como existencia Relacional**  
 
-Ao concebermos o nada como um campo fenomênico potencialmente manifestável—isto é, como uma nulidade ou neutralização do fenômeno—, estamos operando dentro de um quadro fenomenológico. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
+Ao concebermos o nada como uma existencia potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
 
 - **Definição por Negação**: O nada só existe como contraparte de algo manifesto.  
   - *Exemplo*: A escuridão é a não-luz; o silêncio é a não-vibração sonora.  
 - **Referencialidade Obrigatória**: Não há "nada" sem relação com um "algo" prévio ou possível.  
   - *Exemplo*: A ausência de luz solar pressupõe a luz solar como conceito ou realidade.  
 
-Nesse sentido, o **nada fenomenológico** poderia ser interpretado como um fenômeno, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. No entanto, a manifestação, por sua própria natureza dimensionada, é incapaz de consumar-se como totalidade fenomenológica absoluta. Seu caráter necessariamente delimitado – seja por forma, medida, ou estrutura – impede a realização plena de uma manifestação infinita, que, em sua ausência de fronteiras, aproximar-se-ia do conceito de nada fenomênico.
-
-Se a manifestação em si não é consumada – isto é, se há dimensionamento nela –, torna-se impossível manifestar a totalidade de um fenômeno. Desse modo, a infinitude da manifestação, que corresponderia ao conceito mais próximo do "nada" existente, jamais é alcançada pela dimensão. Tudo o que é elevado a um nível infinito prescinde de medida, barreiras ou espaço, equivalendo-se ao "nada fenomênico".
-
-Como não há possibilidade do fenomênico – ou seja, o dimensionável – manifestar uma dimensão imensurável (isto é, infinita, o "nada fenomênico"), podemos conceber o "nada" (ausência existente do fenômeno) um conceito infundado.
-
-## Nada fenomênico: o falso infinito
-
-**O Nada como Falso Infinito: Fenômeno e Espírito**  
-
-O nada é um falso infinito, pois nunca atinge sua totalidade fenomênica para alcançar consumação. Quando equiparamos o nada ao Espírito, observamos que o Espírito atinge sua plenitude e transcende dimensões. Já o fenômeno, ao operar em dimensões, mesmo que infinitamente crescentes, nunca alcança sua completude, pois sua extensão permanece finita. Dimensões, por mais que se expandam, são limitadas em sua própria natureza — um crescimento infinito não equivale a uma extensão verdadeiramente infinita, já que o crescimento em si pressupõe dimensionalidade.  
-
-Ao considerarmos o "infinito" do fenômeno, somos levados à sua autossupressão, ou seja, o fenômeno deixa de existir, produzindo um *nada inexistente*. Não há transição do fenômeno para um "nada existente", pois esse nada não se sustenta em si mesmo e imediatamente se aniquila.  
-
-Nenhuma anulação do fenômeno que permaneça existente é possível, assim como é impossível ao fenômeno retroalimentar-se para atingir sua totalidade. O "infinito" fenomênico é uma manifestação sempre crescente, jamais realizada — um mero começo e fim no campo de eventos do Espírito. Se, por absurdo, o infinito do fenômeno fosse atingido, resultaria na autonegação do próprio fenômeno, pois o nada, quando não designa um infinito fenomênico, designa um objeto autossupressor, que se extingue.  
-
-Em contraste, o infinito do Espírito atinge sua plenitude não como nulidade, mas como *pureza* — uma realidade que se transcende, não estagnada, imóvel ou opaca, mas translúcida e dinâmica. O infinito do fenômeno não pode ser essa pureza, como ocorre no Espírito. O fenômeno não possui um infinito real; seu suposto infinito é um conceito ilusório que remete à sua autossupressão (o nada).  
-
-Assim, o nada se elimina imediatamente enquanto *inexistente*. E, se "existente" como nada fenomênico, torna-se um conceito infundado, como já demonstrado. Temos, portanto:  
-1. **O nada existente** (nada fenomênico) — um conceito inconsistente.  
-2. **O nada inexistente** (nada autossupressor) — aquele que se anula, dando lugar ao que não é si mesmo.  
-
-O nada inexistente é o que se extingue; o nada existente, uma contradição fenomênica.  
+Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. 
 
 ## Definição por Negação  
 
@@ -740,83 +770,7 @@ O nada inexistente é o que se extingue; o nada existente, uma contradição fen
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
   - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
 
-## Dissolução Espacial  
-
-- A nulidade abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
-
-## Tempo Potencial e Expresso (Atemporalidade)  
-
-- O tempo existe como:  
-  1. **Tempo expresso** (manifestado).  
-  2. **Tempo inexpresso** (potencial não realizado).  
-
-- A nulidade consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.  
-- A nulidade consuma o tempo em sua expressão e inexpressão.  
-
-# Estruturando a Manifestação  
-
-## Determinação
-
-- Se a manifestação é uma possibilidade, então ela é afirmada e, consequentemente, **admite numerabilidade**. Assim, não há uma única manifestação, mas **uma ou múltiplas manifestações**.  
-
-## Não-localidade  
-
-- A manifestação não se origina em um lugar específico, pois não há um ponto de origem Relativo, sendo em si seu próprio ponto de origem.  
-  - *Exemplo:* O universo não pode ter começado em lugar nenhum.  
-
-## Espaço Infinito  
-
-- O espaço da manifestação é infinitamente percorrível, sem bordas ou confinamento.  
-  - *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.  
-  - *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.  
-
-## Indivisibilidade Fenomênica  
-
-- Fenômenos não são separáveis, pois qualquer divisão gera uma regressão infinita de intermediários (ex.: entre A e B há C, entre A e C há D, etc.).  
-  - *Exemplo:* Ao separar blocos, sempre será possível colocar um bloco no meio dos blocos separados.  
-
-## Temporalidade Infinita  
-
-- O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.  
-  - *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.  
-  - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
-  - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.  
-
-# A Dialética do Infinito e do Nada  
-
-## O Infinito e o Nada: Princípios Indiscerníveis  
-
-Pelo **princípio da indiscernibilidade dos idênticos**, infinito (manifestação) e nada compartilham propriedades essenciais:  
-
-- **Ausência de dimensões absolutas**: Nem o nada nem a manifestação podem ser delimitados espacial ou temporalmente.  
-- **Dependência de um segundo termo**:  
-  - O nada só é definível em relação à manifestação (ex.: escuridão vs. luz).  
-  - A manifestação só é reconhecível em contraste com o nada (ex.: existência vs. ausência).  
-
-### Dualidade Necessária  
-
-- Sem dualidade, ambos colapsam:  
-  - O nada é ininteligível sem a manifestação.  
-  - A manifestação em sua integralidade é indistinguível do nada.  
-
-### Conclusão  
-
-- "Nada" e "infinito" são o mesmo conceito sob perspectivas opostas:  
-  - O nada é o infinito negado (ausência de forma).  
-  - A manifestação é o infinito afirmado (forma sem limites).  
-  - A manifestação só existe porque o nada a define, e o nada só é concebível porque a manifestação o nega. A realidade é essa tensão irredutível.  
-
-### A falsa infinitude do fenônomeno
-
-### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
-
-#### **Descrição do Modelo**  
-- Imagine uma espiral girando em aceleração infinita.  
-- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
-- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
-
-Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexiste se deixar nada de si, nenhuma presença ou pessoalidade é resultante. Diferentemente da realidade espíritual a qual comporta a infinitude sem que se esgote ou que perca sua estrutura temporal, o Espírito já é o tempo e a consumação do tempo em uma só realidade. 
-
+ 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
 Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
@@ -2044,3 +1998,18 @@ Sob uma perspectiva subjetiva, isso implica a ausência da ansiedade gerada pelo
 Na eternidade, o *agora* não é espera, mas deleite puro. Não há mais a angústia da expectativa, embora os eventos ainda ocorram. Cada ato se funde com o eterno, deixando de ser vazio ou perpetuamente desejante de um futuro. O evento encontra seu fundamento no instante, e o tempo perde seu caráter inquieto — aquele que busca sem cessar e sem término.  
 
 O *agora* eterno é límpido, transparente ao todo. Nele, não há lugar para o tédio, o desassossego ou a insegurança. A consciência repousa na visão integral de seu tempo, não mais limitada pela perspectiva linear e incerta da temporalidade finita. O véu que obscurecia a alma se dissolve: o futuro e o passado não são mais sombras, mas um horizonte aberto à contemplação.  
+### Indivisibilidade   
+
+- Existência não são separáveis, pois qualquer divisão gera uma regressão infinita de intermediários (ex.: entre A e B há C, entre A e C há D, etc.).  
+  - *Exemplo:* Ao separar blocos, sempre será possível colocar um bloco no meio dos blocos separados.  
+
+### A falsa infinitude do fenônomeno
+
+### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
+
+#### **Descrição do Modelo**  
+- Imagine uma espiral girando em aceleração infinita.  
+- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
+- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
+
+Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexiste se deixar nada de si, nenhuma presença ou pessoalidade é resultante. Diferentemente da realidade espíritual a qual comporta a infinitude sem que se esgote ou que perca sua estrutura temporal, o Espírito já é o tempo e a consumação do tempo em uma só realidade. 
