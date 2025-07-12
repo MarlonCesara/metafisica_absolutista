@@ -536,7 +536,7 @@ O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua co
 
 ## **O Tempo do Espírito vs. O Tempo Fenomênico**  
 
-O tempo fenomênico possui uma linha progressiva e regressiva limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se.
+O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se.
 
 O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente.
 
@@ -616,6 +616,19 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 ## O Infinito e o Tempo: Princípios Indiscerníveis  
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e tempo (fluxo eventual) compartilham propriedades essenciais:  
+
+## Não-Coexistência de Opostos Relativos  
+
+- A (eventualidade) e B (infinito) não podem ocupar a mesma dimensão se forem contraditórios.  
+  - *Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo.  
+
+## Referencial Possível  
+
+- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
+
+- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
+  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
+  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
 
 - **Ausência de dimensões absolutas**: Nem o evento nem a infinitude podem ser delimitados espacial ou temporalmente.  
 - **Dependência de um segundo termo**:  
@@ -711,26 +724,7 @@ Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau
   - O Espírito garante a existência e a perfeição.  
   - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+aquii
 
 # **Criacionismo no nível do Absoluto**
 
@@ -757,20 +751,7 @@ Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibil
 - Não há "nada" sem relação com um "algo".  
   - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
 
-## Não-Coexistência de Opostos Relativos  
 
-- A (manifestação) e B (nada) não podem ocupar a mesma dimensão se forem contraditórios.  
-  - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.  
-
-## Referencial Possível  
-
-- A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
-
-- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
-  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
-  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
-
- 
 ## **O Nada Auto-Supressor: A Dissolução do Fenomenológico**  
 
 Ao considerarmos o nada fenomenológico possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos o nada fenomenológico—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
