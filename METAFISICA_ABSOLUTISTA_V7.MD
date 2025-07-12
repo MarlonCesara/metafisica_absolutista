@@ -18,7 +18,7 @@ Prepare-se para uma revelação que unirá fé, filosofia e ciência, transforma
 
 **"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**  
 
-# **Reformulação dos Princípios da Lógica Clássica
+# **Reformulação dos Princípios da Lógica Clássica**
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
 
