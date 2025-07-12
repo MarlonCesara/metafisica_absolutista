@@ -18,9 +18,6 @@ Prepare-se para uma revelação que unirá fé, filosofia e ciência, transforma
 
 **"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**  
 
-
-
-
 # **Reformulação dos Princípios da Lógica Clássica
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
@@ -91,12 +88,6 @@ A reformulação proposta demonstra que os princípios lógicos clássicos podem
    - Temporal: **Não-Disformidade** (¬(A = B)).  
 
 Essa estrutura revela uma **simetria lógica** entre os princípios, integrando **temporalidade e ontologia** em um sistema coerente. A **Não-Disformidade** surge, assim, como um princípio necessário para garantir a **integridade dos entes no domínio do tempo**, complementando a lógica clássica com uma dimensão dinâmica.
-
-
-
-
-
-
 
 # Formulando os Princípios Causais Metafísicos  
 
