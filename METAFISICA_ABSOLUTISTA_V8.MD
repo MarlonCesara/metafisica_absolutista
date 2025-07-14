@@ -740,16 +740,15 @@ Ao considerarmos o nada existente, ele seria um elemento imediatamente extinguí
   - O nada não é um "estado" estável, mas um **movimento de passagem** para o existente.  
   - Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja.  
 
-Assim, a **auto-supressão do inexistente** implica necessariamente a emergência do **existente**.
+Assim, a **auto supressão do inexistente** implica necessariamente a emergência do **existente**.
 
 Não havendo o nada existente, não haveria também uma transição do nada para a existencia, e nem mesmo o reverso: transformar o nada existente em nada auto-supressor, isto é, não haveria um estado intermediário (nada existente) entre auto-supressão e existencia.
 
-O nada, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza ficticia. O nada não existe e, consequentemente, não tem efeito auto-supressor sobre si de forma concreta. A auto-supressão não tem um objeto auto-suprimido.
+A auto supressão não tem um objeto auto-suprimido. O nada, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza fictícia. O nada não existe e, consequentemente, não tem efeito auto supressor sobre si de forma concreta. 
 
-Desta forma, o nada, se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar do fenômeno. Isto é, não existe o produto da auto-supressão que aniquila a si mesmo de forma que este produto possa se transformar em existencia.
+Desta forma, o nada, se faz um estado fictício que nos permite imaginar a auto-supressão como um possível evocar da existência. Isto é, não existe o produto da auto-supressão que aniquila a si de forma que este produto possa se transformar em existência.
 
-
-Ao passo que a existencia criada não é oriunda de um desfazer da auto-supressão, mas é um estado determinado no tempo Espíritual. Dessa forma, num tempo X, há a criação, sem que esta tenha se originado como conversão do nada em algo, ou de um processo de reversão da auto-supressão. A auto-supressão designa o que foi suprimido, e o produto suprimido não existe.
+Ao passo que a existência criada não é oriunda de um desfazer da auto-supressão, mas é um estado determinado no tempo Espiritual. Dessa forma, num tempo X, há a criação, sem que esta tenha se originado como conversão do nada em algo, ou de um processo de reversão da auto-supressão. A auto supressão designa o que foi suprimido, e o produto suprimido não existe.
 
 #### **Mecanismo da Auto-Supressão**  
 1. **Colapso por Autorreferência**  
@@ -759,11 +758,10 @@ Ao passo que a existencia criada não é oriunda de um desfazer da auto-supress�
 
 2. **A Instantaneidade da Autonegação**  
    - O nada puro (sem relação com fenômeno algum) não é um "estado sustentável", mas um **ponto de viragem metafísico**.  
-   - No mesmo ato em que se concebe, já se converte em:  
-     - **Presença incognoscível** (fundamento não fenomenológico)  
+   - No mesmo ato em que se concebe, já se converte em **Presença**. 
  
 3. **A Ilusão do Intervalo Nulificador**  
-   - A suposta "passagem pelo nada" para existência é uma **projeção epistemológica**.  
+   - A suposta "passagem pelo nada auto supressor" para existência é uma **projeção epistemológica**.  
    - Na realidade metafísica:  
      - Não há vácuo ontológico entre auto-supressão e criação.  
 
@@ -773,7 +771,7 @@ Ao passo que a existencia criada não é oriunda de um desfazer da auto-supress�
 
 #### **Conclusão: A Armadilha do Nada**  
 A tentativa de conceber o nada como entidade metafísica independente é **um exercício de pensamento que se desfaz em suas próprias mãos**. O que chamamos de "nada" é na verdade:  
-1. **Um operador lógico** (negação relativa dentro de um sistema fenomênico)  
+1. **Um operador lógico** (negação relativa dentro de um sistema existencial)  
 2. **Um marcador de transição** (sinalização de transformação ontológica)  
 3. **Uma miragem conceitual** (projeção da mente que tenta pensar a ausência)  
 
@@ -781,8 +779,6 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 - A emergência de fenômenos  
 - A dissolução de formas  
 - Sem jamais passar por um "estado concreto de não existência"
-
-Em sintese, o nada não existe. O que existe é a presença incognocível ou a manifestação do fênomeno. 
 
 ### **O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
