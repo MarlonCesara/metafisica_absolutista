@@ -862,59 +862,6 @@ O verdadeiro nada referenciável é a suspensão das possibilidades diante de um
 
 aquii
 
-### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
-
-A pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese auto fundamentadora.
-Sendo tudo considerado um subnível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenômeno não seria um empecilho à pureza, mas teria uma tendência à pureza total, de forma que sua opacidade tende ao nada radical e não realmente à pureza.
-
-Desta forma, temos que o fenômeno não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a auto fundamentação. Ou seja, ao imaginarmos que os fenômenos não são opacos, mas translúcidos de forma a tenderem para o nada auto supressor.
-
-Desta forma, sendo o Espírito a existência mais firme, o fenômeno tende à má translucidez, que é a translucidez que não fundamenta, a auto supressora.
-Sendo assim, todo evento não afeta a pureza fundamental, mas tende a ela para encontrar seu fundamento eterno.
-
-Podemos citar um exemplo para ilustrar: O fenômeno é mais transparente que o Espírito; desta forma, não interfere no processo de auto fundamentação do Espírito. No entanto, sua transparência está mais próxima do nada radical do que da pureza radical, sendo, portanto, translúcido no sentido mal, e não no sentido da existência.
-
-Portanto, o fenômeno seria menos concreto ou literal do que o Espirito fundamental. O Espírito portanto seria a existência de máximo teor, àquela desprendida de qualquer determinação, seja está fenomênica ou não fenomênica. De forma que, tenha consumado em si, toda a temporalidade, eventos e possibilidades já manifestadas em ato único. Mantendo sua internalidade dinâmica conforme a ação fundamental do Espirito.
-
-Como analogia podemos citar um universo que em um momento único já contem seu inicio, meio e fim. E, dentro desta integralidade, há existências de um teor existencial inferior, desta forma, não colidindo com sua capacidade de fundamentação.
-
-Concluimos que o conceito comum de "fantasmagorico" atribuido ao mundo espiritual, naturalmente deveria ser atribuido a materia, que seria realmente o elemeneto com menos densidade existencial. Ou seja, a materia seria uma transparencia, uma existencia fragmentada, destituida de plenitude. Em outras palavras, o mundo Espíritual é a base da exitencia enquanto o mundo fenomenico é um elemento fantasmagorico manifestado na temporalidade espiritual. Não se constitui, como vida e fundamento.
-
-> "O mundo fenomenico é uma projeção de existencia emergida do relativo, é uma afirmação no Espírito indiferenciado. O Espirito contem todos os estados suspensos. Basta-lhe um acontecimento temporal no Espírito já ocorrido em sua integralidade. Enfim, o nada é somente o estado de indecisão de Deus anterior ao todo consumado. Temporalmente o Ser esteve indeciso, apesar de já estar consumado, e essa não decisão do futuro era o nada. No tempo interno há o futuro de forma não revelada, esse não revelar é o nada."
-
-#### **1. A Pureza como Síntese Atemporal**  
-
-A **pureza radical do Absoluto** não subsume passivamente as determinações temporais, mas as **resignifica em um ato único de autofundamentação**. Nesse estado:  
-- **Temporalidade dissolvida:** Eventos não são "partes" justapostas, mas **dimensões co-presentes** em uma totalidade atemporal.  
-- **Hierarquia ontológica:** A pureza não "contém" o fenômeno como um invólucro, mas **o transcende como fundamento vivo**, sendo a única existência plenamente autêntica (*esse firmissimum*).  
-
-#### **2. O Estatuto do Fenômeno: Translucidez Degradada**  
-O fenômeno não é um obstáculo à pureza, mas **sua expressão deficitária**:  
-- **Natureza translúcida:** Sua aparente opacidade é, na verdade, **tendência ao nada auto-supressor** (não à plenitude).  
-- **Existência derivada:** Comparado ao Espírito (máxima densidade existencial), o fenômeno é:  
-  - *Menos concreto*: Mera sombra de determinação, sem autonomia ontológica.  
-  - *Quase-nada*: Transparência que se esvai, aproximando-se da auto-supressão.  
-
-#### **3. Dinâmica Fundamentadora**  
-A relação entre os níveis obedece a uma **dialética de fundamentação**:  
-1. **O Espírito como ato puro:**  
-   - Consumação de todas as possibilidades em um *presente eterno*.  
-   - Internalidade dinâmica que não requer manifestação fenomênica para ser.  
-2. **O fenômeno como resíduo:**  
-   - Não afeta a pureza, pois sua "existência" é **devir em direção ao nada**.  
-   - Funciona como *espelho quebrado*: reflete fragmentos do Absoluto, mas sua estrutura tende à dissolução.  
-
-#### **4. Ilustração Analógica**  
-- **Universo em ato único:** Imagine um livro cujo início, meio e fim coexistem em uma única página. O Espírito é a página; os fenômenos, as letras que só "existem" enquanto a luz (o fundamento) as ilumina.  
-- **Hierarquia da luz:**  
-  - *Espírito*: Luz pura (fonte incondicionada).  
-  - *Fenômeno*: Brilho residual (que se extingue quando cessa o olhar).  
-
-#### **Conclusão: A Primazia do Espírito**  
-O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
-- O fenômeno é **não-substancial** (como onda no oceano).  
-- Toda determinação já está **redimida** na eternidade do ato puro.  
-
 # Estrutura da Autodeterminação  
 
 ### O Absoluto como Pessoalidade e Pureza
@@ -2182,3 +2129,57 @@ Nao é a impossibilidade de voltar a vida que o rico teme, mas a possibildiade d
 - A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. 
 
 Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial. 
+
+
+### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
+
+A pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese auto fundamentadora.
+Sendo tudo considerado um subnível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenômeno não seria um empecilho à pureza, mas teria uma tendência à pureza total, de forma que sua opacidade tende ao nada radical e não realmente à pureza.
+
+Desta forma, temos que o fenômeno não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a auto fundamentação. Ou seja, ao imaginarmos que os fenômenos não são opacos, mas translúcidos de forma a tenderem para o nada auto supressor.
+
+Desta forma, sendo o Espírito a existência mais firme, o fenômeno tende à má translucidez, que é a translucidez que não fundamenta, a auto supressora.
+Sendo assim, todo evento não afeta a pureza fundamental, mas tende a ela para encontrar seu fundamento eterno.
+
+Podemos citar um exemplo para ilustrar: O fenômeno é mais transparente que o Espírito; desta forma, não interfere no processo de auto fundamentação do Espírito. No entanto, sua transparência está mais próxima do nada radical do que da pureza radical, sendo, portanto, translúcido no sentido mal, e não no sentido da existência.
+
+Portanto, o fenômeno seria menos concreto ou literal do que o Espirito fundamental. O Espírito portanto seria a existência de máximo teor, àquela desprendida de qualquer determinação, seja está fenomênica ou não fenomênica. De forma que, tenha consumado em si, toda a temporalidade, eventos e possibilidades já manifestadas em ato único. Mantendo sua internalidade dinâmica conforme a ação fundamental do Espirito.
+
+Como analogia podemos citar um universo que em um momento único já contem seu inicio, meio e fim. E, dentro desta integralidade, há existências de um teor existencial inferior, desta forma, não colidindo com sua capacidade de fundamentação.
+
+Concluimos que o conceito comum de "fantasmagorico" atribuido ao mundo espiritual, naturalmente deveria ser atribuido a materia, que seria realmente o elemeneto com menos densidade existencial. Ou seja, a materia seria uma transparencia, uma existencia fragmentada, destituida de plenitude. Em outras palavras, o mundo Espíritual é a base da exitencia enquanto o mundo fenomenico é um elemento fantasmagorico manifestado na temporalidade espiritual. Não se constitui, como vida e fundamento.
+
+> "O mundo fenomenico é uma projeção de existencia emergida do relativo, é uma afirmação no Espírito indiferenciado. O Espirito contem todos os estados suspensos. Basta-lhe um acontecimento temporal no Espírito já ocorrido em sua integralidade. Enfim, o nada é somente o estado de indecisão de Deus anterior ao todo consumado. Temporalmente o Ser esteve indeciso, apesar de já estar consumado, e essa não decisão do futuro era o nada. No tempo interno há o futuro de forma não revelada, esse não revelar é o nada."
+
+#### **1. A Pureza como Síntese Atemporal**  
+
+A **pureza radical do Absoluto** não subsume passivamente as determinações temporais, mas as **resignifica em um ato único de autofundamentação**. Nesse estado:  
+- **Temporalidade dissolvida:** Eventos não são "partes" justapostas, mas **dimensões co-presentes** em uma totalidade atemporal.  
+- **Hierarquia ontológica:** A pureza não "contém" o fenômeno como um invólucro, mas **o transcende como fundamento vivo**, sendo a única existência plenamente autêntica (*esse firmissimum*).  
+
+#### **2. O Estatuto do Fenômeno: Translucidez Degradada**  
+O fenômeno não é um obstáculo à pureza, mas **sua expressão deficitária**:  
+- **Natureza translúcida:** Sua aparente opacidade é, na verdade, **tendência ao nada auto-supressor** (não à plenitude).  
+- **Existência derivada:** Comparado ao Espírito (máxima densidade existencial), o fenômeno é:  
+  - *Menos concreto*: Mera sombra de determinação, sem autonomia ontológica.  
+  - *Quase-nada*: Transparência que se esvai, aproximando-se da auto-supressão.  
+
+#### **3. Dinâmica Fundamentadora**  
+A relação entre os níveis obedece a uma **dialética de fundamentação**:  
+1. **O Espírito como ato puro:**  
+   - Consumação de todas as possibilidades em um *presente eterno*.  
+   - Internalidade dinâmica que não requer manifestação fenomênica para ser.  
+2. **O fenômeno como resíduo:**  
+   - Não afeta a pureza, pois sua "existência" é **devir em direção ao nada**.  
+   - Funciona como *espelho quebrado*: reflete fragmentos do Absoluto, mas sua estrutura tende à dissolução.  
+
+#### **4. Ilustração Analógica**  
+- **Universo em ato único:** Imagine um livro cujo início, meio e fim coexistem em uma única página. O Espírito é a página; os fenômenos, as letras que só "existem" enquanto a luz (o fundamento) as ilumina.  
+- **Hierarquia da luz:**  
+  - *Espírito*: Luz pura (fonte incondicionada).  
+  - *Fenômeno*: Brilho residual (que se extingue quando cessa o olhar).  
+
+#### **Conclusão: A Primazia do Espírito**  
+O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
+- O fenômeno é **não-substancial** (como onda no oceano).  
+- Toda determinação já está **redimida** na eternidade do ato puro.  
