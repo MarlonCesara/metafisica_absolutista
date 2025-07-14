@@ -836,7 +836,7 @@ Definamos o nada como estado relativo do Espírito. O **estado relativo** é a e
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
 
-O nada, portanto, não existe visto pela integralidade, mas visto através do tempo. O observador temporal enxerga o nada, porém o observador atemporal não tem a percepção do nada, pois não há configuração a se suceder para absoluto que já não tenha se sucedido. O nada bíblico é um conceito simples para o relativo, que na verdade não é o nada, mas um futuro observado pelo observador presente.
+O nada, portanto, não existe visto pela integralidade, mas visto através do tempo. O observador temporal enxerga o nada, porém o observador atemporal não tem a percepção do nada, pois não há configuração a se suceder para absoluto que já não tenha se sucedido. O nada bíblico é um conceito simples para o relativo, que na verdade não é o nada, mas um futuro observado pelo observador presente. O criador, sendo o espírito plenificador, o nada está para o espírito temporal e não para Espírito fundamentador.
 
 Em sintese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais, resultasse num momento único atemporal. Desta forma, a soma de todas as deterinações possíveis, impossíveis e incognocíveis, resulta em ato único e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
 
