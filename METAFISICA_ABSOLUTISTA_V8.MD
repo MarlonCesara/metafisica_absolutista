@@ -731,18 +731,18 @@ Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibil
 
 ## **O Nada Auto-Supressor**  
 
-Ao considerarmos o nada possível, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação (Espírito).
+Ao considerarmos o nada existente, ele seria um elemento imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação.
 
 - **O Nada referencial não se Sustenta**:  
   - Se o nada não tem relação com nenhum "algo", ele não pode ser definido.  
   - Logo, ele **não pode permanecer como nada** e imediatamente dá lugar à **presença**.  
 - **O nada como evidenciador, não como Substrato**:  
-  - O nada puro não é um "estado" estável, mas um **movimento de passagem** para o existente.  
+  - O nada não é um "estado" estável, mas um **movimento de passagem** para o existente.  
   - Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja.  
 
 Assim, a **auto-supressão do inexistente** implica necessariamente a emergência do **existente**.
 
-Não havendo o nada existente, não haveria também uma transição do nada para a existencia, e nem mesmo o reverso: transformar o nada existente em nada auto-supressor, isto é, não haveria um estado intermediário entre auto-supressão e existencia.
+Não havendo o nada existente, não haveria também uma transição do nada para a existencia, e nem mesmo o reverso: transformar o nada existente em nada auto-supressor, isto é, não haveria um estado intermediário (nada existente) entre auto-supressão e existencia.
 
 O nada, como conceito infundado, tem a auto-supressão como efeito de sua própria natureza ficticia. O nada não existe e, consequentemente, não tem efeito auto-supressor sobre si de forma concreta. A auto-supressão não tem um objeto auto-suprimido.
 
