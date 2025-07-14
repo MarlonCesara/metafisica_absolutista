@@ -592,7 +592,6 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
   - *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.  
   - *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado. 
 
-
 ## O Infinito e o Tempo: Princípios Indiscerníveis  
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e tempo (fluxo eventual) compartilham propriedades essenciais:  
@@ -795,12 +794,12 @@ Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro
 Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa determinação. Pois se dá como resultado de todas as opções para absoluto sem que haja escolha entre elas. E, toda determinação, já está interna a dissolução final, que é a infinitude do absoluto. Tudo já está consumado em sua integralidade. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. 
 
 Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita). 
-Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — a uma existência indetectável empíricamente (Espírito). Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a pureza da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica a qual origina todas as coisas internamente à sua temporalidade.   
+Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito. 
 
-Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial. 
+Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência fenomênica, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica a qual origina todas as coisas internamente à sua temporalidade.   
 
 #### **A Autodeterminação como Essência do Absoluto**  
-O Absoluto não é um "vazio que se preenche", mas uma **presença incognoscível** que:  
+O Absoluto não é um "vazio que se preenche", mas uma **presença** que:  
 - **Autoexiste**: Não deriva de nada externo; sua existência é autofundada.  
 - **Autodetermina-se**: Sua aparente "indiferenciação" é, na verdade, **liberdade metafísica** – a capacidade de se diferenciar sem perder a unidade.  
 - **Autossustenta-se**: A "forma" (manifestação) não é acrescentada a ele, mas emana de sua **natureza autoconsciente**.  
@@ -822,12 +821,20 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 
 #### **A Pureza do Relativo**  
 
-Ao considerar que, a pessoalidade espiritual não carrega determinação (campo fenomenológico ou não fenômeno), mas se entrega como pureza absoluta, é possível considerar que, qualquer determinação afetaria o estado de pureza tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. Definamos esta base causal como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+O relativo é o estado futuro tornando-se verdadeiro presente, ou seja, o relativo é um futuro sem um presente confirmado. É uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente. 
+
+O tempo, ebora consumado, de fato se extende, e neste extender se encontra um presente ainda sem seu futuro definido, embora o futuro já esteja consumado, ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.
+
+Portanto, o universo fora criado numa visão temporal, vista pelo referencial do futuro dado a criação sendo passado deste futuro. Isto é, pelo ponto de vista externo do Espírito, nada é criado, tudo já está consumado. Porém, através da ótica temporal as coisas são criadas, e o que é criado é uma definição do que esta consumado. Este processo é o que se chama de "criar do nada". 
+
+Ao considerar que, a pessoalidade espiritual não carrega determinação (campo fenomenológico ou não fenômeno), mas se entrega como verdade absoluta, é possível considerar que, qualquer determinação afetaria o estado de auto fundamentação tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. 
+
+Definamos o nada como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
 
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
 
-Em sintese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais, resultasse num momento único atemporal. Desta forma, a soma de todas as deterinações possíveis, impossíveis e incognocíveis, resulta na pureza em ato único e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
+Em sintese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais, resultasse num momento único atemporal. Desta forma, a soma de todas as deterinações possíveis, impossíveis e incognocíveis, resulta em ato único e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
 
 A criação, portanto, só existe como evento e não como integralidade. Tudo já existe, de forma que na internalidade, tudo está sendo criado temporalmente. E tudo é criado a partir da suspensão de possibilidades. 
 
@@ -841,7 +848,7 @@ De forma que, o nada seria o relativo, a indeterminação. Portanto, o Ser cria 
 
 #### **O Relativo como Autoexpressão do Absoluto**  
 
-O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **pureza** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.  
+O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **integralidade** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.  
 
 Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmica do Absoluto em sua liberdade irrestrita**, onde toda forma em potencial já está, paradoxalmente, **dissolvida na completude**.
 
@@ -2174,3 +2181,4 @@ Nao é a impossibilidade de voltar a vida que o rico teme, mas a possibildiade d
 - A presença atemporal do Espírito não exige uma determinação, pois não é numérica ou dimensional, portanto, dispensa forma e número. 
 - A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. 
 
+Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial. 
