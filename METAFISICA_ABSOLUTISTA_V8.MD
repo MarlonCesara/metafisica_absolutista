@@ -1395,9 +1395,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
    - **"A ausência do determinador ativo para relativo não anula os eventos temporais"**:  
      - Sendo as almas manifestadas na temporalidade, isto preserva a autofundamentação do relativo.  
 
-# A Liberdade entre o Real e o Ilusório  
-
-## A Liberdade: Incorruptibilidade e Corrupção  
+# A Liberdade: Incorruptibilidade e Corrupção  
 
 ### Liberdade do Ser (Incorruptibilidade)  
 
