@@ -862,6 +862,12 @@ Definamos o verdadeiro nada como o relativo, que seria, em seu sentido mais simp
 
 O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais podemos classificar como possíveis, impossíveis e incognocíveis.
 
+#### **Referencialidade do Observador**  
+**Princípio Unificador:**  
+A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se quando compreendemos que:  
+- **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
+  - *Para o o ato do Ser temporal:* Processo infinito (causalidade reverberante).  
+  - *Para o ato do Ser atemporal:* Ato único (consumação).  
 
 # Estruturando o Relativo 
 
@@ -1034,16 +1040,6 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 - *Exemplo:* Um horizonte ilimitado é "uma infinitude indiferenciada" até que o Espírito defina um ângulo de existência, convertendo-o em paisagem.  
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
 
-aquii
-
-#### **Referencialidade do Observador**  
-**Princípio Unificador:**  
-A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se quando compreendemos que:  
-- **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:  
-  - *Para o o ato do Ser temporal:* Processo infinito (causalidade reverberante).  
-  - *Para o ato do Ser atemporal:* Ato único (consumação).  
-
-- O relativo não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
 
 # A Natureza da Forma  
 
@@ -1090,17 +1086,14 @@ Assim, toda manifestação é, ao mesmo tempo:
 
 **Fundamento último:** A forma existe porque o infinito do Espírito, ao ser "observado", necessita expressar-se de modo determinado – e essa determinação é, em si mesma, a origem de toda identidade.  
 
-
 # A Convergência entre relativo e manifestação  
 
 ## O Espírito como Princípio de Manifestação do fenômeno
 
 A relação entre o relativo e a manifestação (existência fenomênica) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:  
 
-- **Integralidade → Inifnito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se infinito.  
+- **Integralidade → Infinito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se infinito.  
 - **Fragmentação → Manifestação**: Ao determinar um ângulo específico em um ou mais finitos, o relativo do Espírito se polariza em manifestação.  
-
-O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o determinador, e o determinador se doa na manifestação.  
 
 ### Tese Central  
 
@@ -1110,13 +1103,6 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 2. O **Espírito** como princípio ativo.  
 3. A **Manifestação** como efeito relacional.  
 
-## Criação a partir do Nada  
-
-Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
-
-- *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
-- Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
-
 ## A Experiência da Infinitude  
 
 ### Abstração e Sentimento  
@@ -1125,12 +1111,6 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 - *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.  
 
-# A manifestação do sou (A criação da Alma do Homem) 
-
-**O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
-
-**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
-
 ## Não multiplicidade do Ser
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
 
@@ -1138,6 +1118,12 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 - **Indiferença Ontológica**:  
   O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
+
+# A manifestação do sou (A criação da Alma do Homem) 
+
+**O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
+
+**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
 
 ## **A Distinção entre Ser e Sou**  
 O **Ser** representa o determinador puro, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
@@ -2186,3 +2172,14 @@ O Ser não é uma dimensão mensurável, mas uma experiência abstrata:
 - Não há "verdade estática", pois o relativo sempre se constitui na relação entre:  
   - A ação do determinador (Ser-ai).  
   - O determinado (incluindo o relativo como contraparte).  
+
+- O relativo não é o oposto do Ser, mas seu complemento necessário para que a autodeterminação tenha eficácia.  
+
+O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o determinador, e o determinador se doa na manifestação.  
+
+## Criação a partir do Nada  
+
+Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
+
+- *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
+- Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
