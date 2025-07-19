@@ -779,26 +779,26 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 - A dissolução de formas  
 - Sem jamais passar por um "estado concreto de não existência"
 
-### **O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
+### **O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
-Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo. 
+Conforme postula o Princípio da Causa Identitária, toda determinação exige uma razão suficiente: por que o Absoluto se manifesta de uma forma e não de outra? Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
 
-A ação auto fundamentadora que corresponde aos principios fundamentadores é menos complexa de ser explicada em razão de que, no atemporal não há decisoes formalizadas, tudo se dá como se é naturalmente. No entanto ao aplicarmos os principios causais deterministicos, temos o intuito de explicar as razões temporais para a determinação do absoluto. Ou seja, necessitamos explicar a causa de sua determinação e não somente de sua fundamentação. Devemos inevstigar porque as coisas existem como existe e não sómente porque existem. O absoluto é absoluto porque é causa de si mesmo, porém, sua determinação identitaria necessita de uma explicação.
+A ação auto-fundamentadora que corresponde aos princípios fundamentadores é menos complexa de ser explicada, pois, no atemporal, não há decisões formalizadas; tudo se dá como é naturalmente. No entanto, ao aplicarmos os princípios causais determinísticos, temos o intuito de explicar as razões temporais para a determinação do absoluto. Ou seja, necessitamos explicar a causa de sua determinação e não somente de sua fundamentação. Devemos investigar por que as coisas existem como existem e não somente por que existem. O absoluto é absoluto porque é causa de si mesmo; porém, sua determinação identitária necessita de uma explicação.
 
-Considerando o estado atemporal do espírito é possível que o Espírito seja auto fundamentado, pois não haveria mudança ou necessidade de determinação posterior em si. Porém, ao introduzirmos a realidade temporal do Espírito, temos que, toda a temporalidade já deveria estar presumida e vivenciada em seu começo meio e fim no instante eterno atemporal. Desta forma, teriamos uma realidade espiritual auto causal de forma que já se origina em toda sua essencia como tal, sem que haja uma necessitade de determinação posterior, o que anularia sua capacidade auto causal.
+Considerando o estado atemporal do Espírito, é possível que ele seja auto-fundamentado, pois não haveria mudança ou necessidade de determinação posterior em si. Porém, ao introduzirmos a realidade temporal do Espírito, temos que toda a temporalidade já deveria estar presumida e vivenciada em seu começo, meio e fim no instante eterno atemporal. Desta forma, teríamos uma realidade espiritual autocausal, de modo que já se origina em toda sua essência como tal, sem que haja uma necessidade de determinação posterior, o que anularia sua capacidade autocausal.
 
-Portanto, necessitamos de uma realidade auto-determinada, para justificar a presença. E uma realidade auto-determinada é aquela que já existe determinada por si, ou seja, sem ser necessario que execute uma ação temporal para formalizar sua condição absoluta. 
+Portanto, necessitamos de uma realidade auto-determinada para justificar a presença. E uma realidade auto-determinada é aquela que já existe determinada por si, ou seja, sem ser necessário que execute uma ação temporal para formalizar sua condição absoluta.
 
-O que se origina sem causa, não pode determinar-se em um momento posterior, caso contrário, não seria auto-determinado; pois anterior ao absoluto não há nada que pudesse determina-lo. Sendo o tempo consumado, temos que, toda a configuração é um montendo vindouro do que já aconteceu. A percepção de tempo, portanto, é um testemunho temporal do decorrer total do tempo que já se sucedeu completamente.
+O que se origina sem causa não pode determinar-se em um momento posterior; caso contrário, não seria auto-determinado, pois anterior ao absoluto não há nada que pudesse determiná-lo. Sendo o tempo consumado, temos que toda a configuração é um momento vindouro do que já aconteceu. A percepção de tempo, portanto, é um testemunho temporal do decorrer total do tempo que já se sucedeu completamente.
 
-Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto que se sucederam no tempo. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. E também significa que há uma razão para haver o fenômeno ao invés de o não fenômeno (Espírito puro) e está razão só pode estar ligada a natureza da plenitude do Espírito.
+Tanto o campo fenomenológico interno ao Espírito quanto o Espírito puro (não fenomenizado) seriam determinações internas do Absoluto que se sucederam no tempo. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. E também significa que há uma razão para haver o fenômeno ao invés do não-fenômeno (Espírito puro), e essa razão só pode estar ligada à natureza da plenitude do Espírito.
 
-Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa determinação. Pois se dá como resultado de todas as opções para absoluto sem que haja escolha entre elas. E, toda determinação, já está interna a dissolução final, que é a infinitude do absoluto. Tudo já está consumado em sua integralidade. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. 
+Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa determinação, pois se dá como resultado de todas as opções para o absoluto, sem que haja escolha entre elas. E toda determinação já está interna à dissolução final, que é a infinitude do absoluto. Tudo já está consumado em sua integralidade. Portanto, a forma (ou determinação) só pode emergir de uma existência prévia — não detectável empiricamente, mas necessariamente ativa.
 
-Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita). 
-Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito. 
+Essa existência não se reduz a fenômenos, mas é pura pessoalidade (subjetividade absoluta) e poder de ação (causalidade irrestrita).
+Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito.
 
-Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica a qual origina todas as coisas internamente à sua temporalidade.   
+Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.
 
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença** que:  
@@ -823,32 +823,30 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 
 #### **O Relativo**  
 
+O tempo, embora consumado, de fato se estende, e neste estender-se encontra-se um presente ainda sem seu futuro definido, embora o futuro já esteja consumado. Ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.  
 
+Portanto, o universo foi criado numa visão temporal, vista pelo referencial do futuro, dado que a criação é passado desse futuro. Isto é, pelo ponto de vista externo do Espírito, nada é criado, tudo já está consumado. Porém, através da ótica temporal, as coisas são criadas, e o que é criado é uma definição do que está consumado. Este processo é o que se chama de *"criar do nada"*. O nada é representado pelo relativo. O relativo é o estado futuro tornando-se verdadeiro presente, ou seja, o relativo é um futuro sem um presente confirmado. É uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente.  
 
-O tempo, ebora consumado, de fato se extende, e neste extender se encontra um presente ainda sem seu futuro definido, embora o futuro já esteja consumado, ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.
-
-Portanto, o universo fora criado numa visão temporal, vista pelo referencial do futuro dado a criação sendo passado deste futuro. Isto é, pelo ponto de vista externo do Espírito, nada é criado, tudo já está consumado. Porém, através da ótica temporal as coisas são criadas, e o que é criado é uma definição do que esta consumado. Este processo é o que se chama de "criar do nada". O nada é representado pelo relativo. O relativo é o estado futuro tornando-se verdadeiro presente, ou seja, o relativo é um futuro sem um presente confirmado. É uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente. 
-
-Ao considerar que, a pessoalidade espiritual não carrega determinação (ex: campo fenomenológico ou não fenômeno), mas se entrega como verdade absoluta, é possível considerar que, qualquer determinação afetaria o estado de auto fundamentação tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança deterministica fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo deterministico, é possível ainda assim constituir-se como base causal de toda determinação. 
+Ao considerar que a pessoalidade espiritual não carrega determinação (ex.: campo fenomenológico ou não-fenômeno), mas se entrega como verdade absoluta, é possível considerar que qualquer determinação afetaria o estado de auto-fundamentação, tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança determinística fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo determinístico, é possível ainda assim constituir-se como base causal de toda determinação.  
 
 Definamos o nada como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
 
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
 
-O nada, portanto, não existe visto pela integralidade, mas visto através do tempo. O observador temporal enxerga o nada, porém o observador atemporal não tem a percepção do nada, pois não há configuração a se suceder para absoluto que já não tenha se sucedido. O nada bíblico é um conceito simples para o relativo, que na verdade não é o nada, mas um futuro observado pelo observador presente. O criador, sendo o espírito plenificador, o nada está para o espírito temporal e não para Espírito fundamentador.
+O nada, portanto, não existe visto pela integralidade, mas visto através do tempo. O observador temporal enxerga o nada, porém o observador atemporal não tem a percepção do nada, pois não há configuração a se suceder para o absoluto que já não tenha se sucedido. O nada bíblico é um conceito simples para o relativo, que na verdade não é o nada, mas um futuro observado pelo observador presente. O criador, sendo o Espírito plenificador, o nada está para o espírito temporal e não para o Espírito fundamentador.  
 
-Em sintese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais, resultasse num momento único atemporal. Desta forma, a soma de todas as deterinações possíveis, impossíveis e incognocíveis, resulta em ato único e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade é Espirito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.
+Em síntese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais resultasse num momento único atemporal. Desta forma, a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em ato único, e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade, é Espírito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.  
 
-A criação, portanto, só existe como evento e não como integralidade. Tudo já existe, de forma que na internalidade, tudo está sendo criado temporalmente. E tudo é criado a partir da suspensão de possibilidades. 
+A criação, portanto, só existe como evento e não como integralidade. Tudo já existe, de forma que, na internalidade, tudo está sendo criado temporalmente. E tudo é criado a partir da suspensão de possibilidades.  
 
-A suspensão é o relativo, ou seja, o espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenario como um mar calmo, porém sua internalidade esta puxando dessa calmaria para criar sua continuidade interna. O relativo é a superficie, ao passo que é o futuro eventual do presente interno ao Espírito. A definição esta no presente, e não somente comsumada.
+A suspensão é o relativo, ou seja, o Espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenário como um mar calmo, porém sua internalidade está puxando dessa calmaria para criar sua continuidade interna. O relativo é a superfície, ao passo que é o futuro eventual do presente interno ao Espírito. A definição está no presente, e não somente consumada.  
 
-Desta forma, se conclui que o relativo é o único nada que faz sentido, sendo o nada lógico a ausencia da decisão perante uma infinitude de possibilidades já consumadas na superficie e suspensas na internalidade eventual do Espírito. 
+Desta forma, conclui-se que o relativo é o único nada que faz sentido, sendo o nada lógico a ausência da decisão perante uma infinitude de possibilidades já consumadas na superfície e suspensas na internalidade eventual do Espírito.  
 
-Desta forma, o tempo do espirito determina o que já esta consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluida no tempo Espíritual. A ausencia da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas.
+Desta forma, o tempo do Espírito determina o que já está consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluída no tempo espiritual. A ausência da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas.  
 
-De forma que, o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada. 
+De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada.  
 
 #### **O Relativo como Autoexpressão do Absoluto**  
 
@@ -856,63 +854,14 @@ O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação im
 
 Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmica do Absoluto em sua liberdade irrestrita**, onde toda forma em potencial já está, paradoxalmente, **dissolvida na completude**.
 
-Assim, constitui-se o relativo: um campo onde todas as possibilidades estão suspensas, definidas e contidas na pureza, de modo que apenas esta se sobressaia, atribuindo sentido auto-causal à totalidade. O relativo, portanto, é a ação pura concretizada, inerente à própria pureza.
+Assim, constitui-se o relativo: um campo onde todas as possibilidades estão suspensas, definidas e contidas na pureza, de modo que apenas esta se sobressaia, atribuindo sentido auto-causal à totalidade.
 
 Nele, tanto a ação quanto a inação estão instauradas de maneira a simplesmente serem, resumindo-se de forma perfeita e pura na totalidade. Como uma correnteza cujo movimento interno deságua na margem, sendo definida pela superfície, e não pela internalidade.
 
-Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais simples, a decisão não tomada pelo Ser. De forma que, todas as decisões já estão prontas em sua plenitude, basta que o Espírito as evoque da suspensão, ou seja, do nada.
+Definamos o verdadeiro nada como o relativo, que seria, em seu sentido mais simples, a decisão não tomada pelo Ser. De forma que, todas as decisões já estão prontas em sua plenitude, basta que o Espírito as evoque da suspensão, ou seja, do nada.
 
-O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais estão contidas do possível, impossível e incognocível.
+O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais podemos classificar como possíveis, impossíveis e incognocíveis.
 
-aquii
-
-# Estrutura da Autodeterminação  
-
-### O Absoluto como Pessoalidade e Pureza
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
-
-> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria determinação.*
-
-### O absoluto cognocível como Ser-aí
-  - O agente da autodeterminação é puro e sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
-  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
-  - O Ser, não define-se em sua ação "Aí". Existe além do que é manifestado.
-
-### O Ser como pureza autodeterminada
-- O Ser, enquanto absoluto, se autodetermina Ser.  
-  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
-
-### O Ser como Autodeterminador  
-- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
-  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
-    1. Existe (autofundamentação).  
-    2. Se define (autodeterminação).  
-    3. Persiste (autocontinuidade).  
-
-### O Relativo como Estrutura Idealizadora  
-- O relativo não é passivo, mas uma estrutura dinâmica que:  
-  - Se organiza segundo os princípios lógicos manifestados ou transcendidos (Identidade, Não-Contradição, Terceiro Excluído).  
-  - Se sustenta pela autocontinuidade do Ser.  
-  - Se atualiza através da autodeterminação.  
-
-### O Relativo como Ser Autônomo  
-- "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
-  - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
-**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**  
-
-## A Pureza do Ser e a Necessidade do Determinado  
-
-- O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.  
-  - Autodeterminação pura exige um termo relacional (aquilo que é determinado).  
-  - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.  
-
-## Não multiplicidade do Ser
-- O Ser não porta unicidade ou multiplicidade, simplesmente é.
-
-## A Natureza Não-Dual do Ser  
-
-- **Indiferença Ontológica**:  
-  O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
 
 # Estruturando o Relativo 
 
@@ -1085,55 +1034,7 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 - *Exemplo:* Um horizonte ilimitado é "uma infinitude indiferenciada" até que o Espírito defina um ângulo de existência, convertendo-o em paisagem.  
 - *Exemplo:* Ao contemplar o horizonte marítimo em sua totalidade, vemos apenas a indistinção (Ser). Quando focamos num barco específico (existência), manifesta-se a forma particular.  
 
-## Criação a partir do Nada  
-
-Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de forma a tornar existente possibilidades prévias:  
-
-- *Exemplo:* Um objeto X só abandona sua suspensão e se torna existênte devido a determinação do Espírito.  
-
-## A Experiência do Ser  
-
-### Abstração e Sentimento  
-
-O Ser não é uma dimensão mensurável, mas uma experiência abstrata:  
-
-- *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é o Ser manifestado como emoção.  
-
-# A manifestação do cosmos
-
-**O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante no tempo do Espírito** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
-
-**A vida**, nesse contexto, **é periférica em relação à vida central** – a periferia do Ser –, no sentido de que **agrega vida, mas não a vida em sua totalidade**.  
-
-### Principais características do cosmos:  
-1. **Não possui liberdade**.  
-2. **Não pode autodeterminar-se; é aquilo que é determinado**.  
-3. **Faz parte da natureza do Ser, porém em sua escassez, não em sua abundância**.  
-4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
-
-## Dualidade Fundamental: Determinador e Nada  
-
-- A ação do **Ser-ai** (determinação) e o **Relativo** (suspesão do determinado) são coessenciais.  
-  - Não são opostos absolutos, mas polos de uma mesma estrutura ontológica.  
-  - O nada não é aniquilação total, mas o limite interno da autodeterminação.  
-    - *Exemplo:* O olho que vê a escuridão.  
-    - Se não há luz, a escuridão existe como referência para a visão.  
-    - A ausência de luz só tem significado porque o olho (determinador) a percebe.  
-
-## O Relativo como Relação Dinâmica  
-
-- A **absoluto** é uma tensão entre:  
-  1. **O Ser-ai** (autodeterminação passiva) → Puro ato de existir.  
-  2. **O relativo** (potencial não realizado) → Ausência fenomenológica.  
-
-- Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.  
-  - O Ser-ai não "está" no nada – Ele age no nada em sua autodefinição contínua.  
-
-## Conclusão: O relativo como Processo  
-
-- Não há "verdade estática", pois o relativo sempre se constitui na relação entre:  
-  - A ação do determinador (Ser-ai).  
-  - O determinado (incluindo o relativo como contraparte).  
+aquii
 
 #### **Referencialidade do Observador**  
 **Princípio Unificador:**  
@@ -1229,6 +1130,14 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 **O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
 
 **O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
+
+## Não multiplicidade do Ser
+- O Ser não porta unicidade ou multiplicidade, simplesmente é.
+
+## A Natureza Não-Dual do Ser  
+
+- **Indiferença Ontológica**:  
+  O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
 
 ## **A Distinção entre Ser e Sou**  
 O **Ser** representa o determinador puro, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.  
@@ -2185,3 +2094,95 @@ A relação entre os níveis obedece a uma **dialética de fundamentação**:
 O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
 - O fenômeno é **não-substancial** (como onda no oceano).  
 - Toda determinação já está **redimida** na eternidade do ato puro.  
+
+
+# Estrutura da Autodeterminação  
+
+### O Absoluto como Pessoalidade e Pureza
+  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
+
+> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria determinação.*
+
+### O absoluto cognocível como Ser-aí
+  - O agente da autodeterminação é puro e sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
+  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
+  - O Ser, não define-se em sua ação "Aí". Existe além do que é manifestado.
+
+### O Ser como pureza autodeterminada
+- O Ser, enquanto absoluto, se autodetermina Ser.  
+  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
+
+### O Ser como Autodeterminador  
+- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
+  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
+    1. Existe (autofundamentação).  
+    2. Se define (autodeterminação).  
+    3. Persiste (autocontinuidade).  
+
+### O Relativo como Estrutura Idealizadora  
+- O relativo não é passivo, mas uma estrutura dinâmica que:  
+  - Se organiza segundo os princípios lógicos manifestados ou transcendidos (Identidade, Não-Contradição, Terceiro Excluído).  
+  - Se sustenta pela autocontinuidade do Ser.  
+  - Se atualiza através da autodeterminação.  
+
+### O Relativo como Ser Autônomo  
+- "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
+  - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
+**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**  
+
+## A Pureza do Ser e a Necessidade do Determinado  
+
+- O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.  
+  - Autodeterminação pura exige um termo relacional (aquilo que é determinado).  
+  - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.  
+
+
+## Criação a partir do Nada  
+
+Criar é tornar imanente o que estava suspenso. O Espirito cria ex nihilo, de forma a tornar existente possibilidades prévias:  
+
+- *Exemplo:* Um objeto X só abandona sua suspensão e se torna existênte devido a determinação do Espírito.  
+
+## A Experiência do Ser  
+
+### Abstração e Sentimento  
+
+O Ser não é uma dimensão mensurável, mas uma experiência abstrata:  
+
+- *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é o Ser manifestado como emoção.  
+
+# A manifestação do cosmos
+
+**O cosmos é a manifestação impessoal do Ser**, no sentido de que **não se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinante no tempo do Espírito** – ainda que essa possibilidade já estivesse contida nele como potência. A isso chamaremos **cosmos** ou **natureza**.  
+
+**A vida**, nesse contexto, **é periférica em relação à vida central** – a periferia do Ser –, no sentido de que **agrega vida, mas não a vida em sua totalidade**.  
+
+### Principais características do cosmos:  
+1. **Não possui liberdade**.  
+2. **Não pode autodeterminar-se; é aquilo que é determinado**.  
+3. **Faz parte da natureza do Ser, porém em sua escassez, não em sua abundância**.  
+4. **Pode ser um ou múltiplos cosmos**, pois está no domínio **da possibilidade e da impossibilidade**. Ou seja, o cosmos é **possível** enquanto **um ou muitos possíveis**.  
+
+## Dualidade Fundamental: Determinador e Nada  
+
+- A ação do **Ser-ai** (determinação) e o **Relativo** (suspesão do determinado) são coessenciais.  
+  - Não são opostos absolutos, mas polos de uma mesma estrutura ontológica.  
+  - O nada não é aniquilação total, mas o limite interno da autodeterminação.  
+    - *Exemplo:* O olho que vê a escuridão.  
+    - Se não há luz, a escuridão existe como referência para a visão.  
+    - A ausência de luz só tem significado porque o olho (determinador) a percebe.  
+
+## O Relativo como Relação Dinâmica  
+
+- A **absoluto** é uma tensão entre:  
+  1. **O Ser-ai** (autodeterminação passiva) → Puro ato de existir.  
+  2. **O relativo** (potencial não realizado) → Ausência fenomenológica.  
+
+- Essa dualidade não é uma divisão, mas a estrutura interna do próprio Ser.  
+  - O Ser-ai não "está" no nada – Ele age no nada em sua autodefinição contínua.  
+
+## Conclusão: O relativo como Processo  
+
+- Não há "verdade estática", pois o relativo sempre se constitui na relação entre:  
+  - A ação do determinador (Ser-ai).  
+  - O determinado (incluindo o relativo como contraparte).  
