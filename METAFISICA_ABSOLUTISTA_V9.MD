@@ -631,6 +631,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 
 Assim, **o atemporal não é uma vazão temporal, uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contem uma dimensão medível, se tem o atemporal, ou seja, uma experiência que extravasa o tempo.
 
+## A Experiência da Infinitude  
+
+### Abstração e Sentimento  
+
+A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:  
+
+- *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.  
 
 # Ações e pessoalidades do Espírito 
 
@@ -858,7 +865,10 @@ Desta forma, conclui-se que o relativo é o único nada que faz sentido, sendo o
 
 Desta forma, o tempo do Espírito determina o que já está consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluída no tempo espiritual. A ausência da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas.  
 
-De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada.  
+De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada. Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
+
+- *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
+- Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
 
 #### **O Relativo como Autoexpressão do Absoluto**  
 
@@ -879,6 +889,12 @@ O verdadeiro nada referenciável é a suspensão das possibilidades diante de um
   - Se organiza segundo os princípios lógicos manifestados ou transcendidos (Identidade, Não-Contradição, Terceiro Excluído).  
   - Se sustenta pela autocontinuidade do Ser.  
   - Se atualiza através da autodeterminação.
+
+O relativo é o produto dinâmico de três elementos irredutíveis:  
+
+1. O **Relativo** do Espírito como fundamentação do fenômeno.  
+2. O **Espírito** como princípio ativo.  
+3. A **Manifestação** como efeito relacional.  
 
 # Estruturando o Relativo 
 
@@ -1155,40 +1171,17 @@ Assim, toda manifestação é, ao mesmo tempo:
 
 **Fundamento último:** A forma existe porque o infinito do Espírito, ao ser "observado", necessita expressar-se de modo determinado – e essa determinação é, em si mesma, a origem de toda identidade.  
 
-
 # A Convergência entre relativo e manifestação  
 
 ## O Espírito como Princípio de Manifestação do fenômeno
 
 A relação entre o relativo e a manifestação (existência fenomênica) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:  
 
-- **Integralidade → Inifnito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se infinito.  
+- **Integralidade → Infinito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se infinito.  
 - **Fragmentação → Manifestação**: Ao determinar um ângulo específico em um ou mais finitos, o relativo do Espírito se polariza em manifestação.  
 
-O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o determinador, e o determinador se doa na manifestação.  
+aquii
 
-### Tese Central  
-
-O relativo é o produto dinâmico de três elementos irredutíveis:  
-
-1. O **Relativo** do Espírito como fundamentação do fenômeno.  
-2. O **Espírito** como princípio ativo.  
-3. A **Manifestação** como efeito relacional.  
-
-## Criação a partir do Nada  
-
-Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
-
-- *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
-- Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
-
-## A Experiência da Infinitude  
-
-### Abstração e Sentimento  
-
-A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:  
-
-- *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.  
 
 # A manifestação do sou (A criação da Alma do Homem) 
 
@@ -2188,3 +2181,6 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 - O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.  
   - Autodeterminação pura exige um termo relacional (aquilo que é determinado).  
   - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.  
+
+
+O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o determinador, e o determinador se doa na manifestação.  
