@@ -397,6 +397,13 @@ O Absoluto é **Espírito Autocausal**:
 - **Autolibertário** (define sua própria lógica e possibilidade);  
 - **Automanifestante** (a realidade é sua expressão, não sua limitação).  
 
+### O Ser como Autodeterminador  
+- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
+  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
+    1. Existe (autofundamentação).  
+    2. Se define (autodeterminação).  
+    3. Persiste (autocontinuidade).  
+
 Essa concepção evita reduções ao "nada", ao "fenômeno" ou a abstrações impessoais, afirmando o Absoluto como **Presença Viva** que, precisamente por ser autocausada, é **Espírito em sentido pleno e metafísico**. Da auto causalidade se deduz de forma pura o agente que determina, não haveria mais o que se extrair de forma imediata do argumento causal. 
 
 # **A Autocausalidade Temporal e Atemporal do Espírito**  
@@ -823,7 +830,6 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 
 #### **O Relativo**  
 
-
 O tempo, embora consumado, de fato se estende, e neste estender-se encontra-se um presente ainda sem seu futuro definido, embora o futuro já esteja consumado. Ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.  
 
 Portanto, o universo foi criado numa visão temporal, vista pelo referencial do futuro, dado que a criação é passado desse futuro. Isto é, pelo ponto de vista externo do Espírito, nada é criado, tudo já está consumado. Porém, através da ótica temporal, as coisas são criadas, e o que é criado é uma definição do que está consumado. Este processo é o que se chama de *"criar do nada"*. O nada é representado pelo relativo. O relativo é o estado futuro tornando-se verdadeiro presente, ou seja, o relativo é um futuro sem um presente confirmado. É uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente.  
@@ -863,55 +869,11 @@ Definamos o verdadeiro nada como o relativo, o "nada" seria, em seu sentido mais
 
 O verdadeiro nada referenciável é a suspensão das possibilidades diante de uma realidade verdadeira, única e pura. Tomenos como significado mais autentico do nada o "relativo" do Ser, que é seu estado de potencialidade diante das opções suspensas, as quais estão contidas do possível, impossível e incognocível.
 
-aquii
-
-# Estrutura da Autodeterminação  
-
-### O Absoluto como Pessoalidade e Pureza
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
-
-> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria determinação.*
-
-### O absoluto cognocível como Ser-aí
-  - O agente da autodeterminação é puro e sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
-  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
-  - O Ser, não define-se em sua ação "Aí". Existe além do que é manifestado.
-
-### O Ser como pureza autodeterminada
-- O Ser, enquanto absoluto, se autodetermina Ser.  
-  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
-
-### O Ser como Autodeterminador  
-- O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada).  
-  - "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que:  
-    1. Existe (autofundamentação).  
-    2. Se define (autodeterminação).  
-    3. Persiste (autocontinuidade).  
-
 ### O Relativo como Estrutura Idealizadora  
 - O relativo não é passivo, mas uma estrutura dinâmica que:  
   - Se organiza segundo os princípios lógicos manifestados ou transcendidos (Identidade, Não-Contradição, Terceiro Excluído).  
   - Se sustenta pela autocontinuidade do Ser.  
-  - Se atualiza através da autodeterminação.  
-
-### O Relativo como Ser Autônomo  
-- "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
-  - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
-**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**  
-
-## A Pureza do Ser e a Necessidade do Determinado  
-
-- O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.  
-  - Autodeterminação pura exige um termo relacional (aquilo que é determinado).  
-  - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.  
-
-## Não multiplicidade do Ser
-- O Ser não porta unicidade ou multiplicidade, simplesmente é.
-
-## A Natureza Não-Dual do Ser  
-
-- **Indiferença Ontológica**:  
-  O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
+  - Se atualiza através da autodeterminação.
 
 # Estruturando o Relativo 
 
@@ -1225,7 +1187,15 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 # A manifestação do sou (A criação da Alma do Homem) 
 
-**O sou é a manifestação pessoal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
+## Não multiplicidade do Ser
+- O Ser não porta unicidade ou multiplicidade, simplesmente é.
+
+## A Natureza Não-Dual do Ser  
+
+- **Indiferença Ontológica**:  
+  O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
+
+**O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
 
 **O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
 
@@ -2184,3 +2154,32 @@ A relação entre os níveis obedece a uma **dialética de fundamentação**:
 O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
 - O fenômeno é **não-substancial** (como onda no oceano).  
 - Toda determinação já está **redimida** na eternidade do ato puro.  
+
+# Estrutura da Autodeterminação  
+
+### O Absoluto como Pessoalidade e Pureza
+  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
+
+> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria determinação.*
+
+### O absoluto cognocível como Ser-aí
+  - O agente da autodeterminação é puro e sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
+  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
+  - O Ser, não define-se em sua ação "Aí". Existe além do que é manifestado.
+
+### O Ser como pureza autodeterminada
+- O Ser, enquanto absoluto, se autodetermina Ser.  
+  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
+
+  
+
+### O Relativo como Ser Autônomo  
+- "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
+  - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
+**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**  
+
+## A Pureza do Ser e a Necessidade do Determinado  
+
+- O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.  
+  - Autodeterminação pura exige um termo relacional (aquilo que é determinado).  
+  - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.  
