@@ -1180,15 +1180,23 @@ A relação entre o relativo e a manifestação (existência fenomênica) é med
 - **Integralidade → Infinito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se infinito.  
 - **Fragmentação → Manifestação**: Ao determinar um ângulo específico em um ou mais finitos, o relativo do Espírito se polariza em manifestação.  
 
-aquii
+# A potencialidade do Ser
 
+O Ser tem como relativo todas as possibilidades dentro do campo do absoluto, que se configura como possível, impossível e incognoscível.
+Sendo assim, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se configura como total potencialidade do existir e não como uma existência particular e formalizada.
+
+Ou seja, se o Ser fosse uma existência A, estaria formalizado como A e teria como potencial a existência de A, porém, o relativo atribui potência ao existir no campo das possibilidades do existir. Desta forma, o possível e seu limiar que é o impossível e o incognoscível são opções, desde que existam.
+
+Em palavras mais simples, se é possível existir é possível ao Ser, sendo o Ser não uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente corrente.
+
+Desta forma, seria possível ao Ser até mesmo determinar-se multiplo. Atemporalmente o ser não possúi dimensões, portanto não é numérico. No entanto, temporalmente haveria essa possibilidade. Portanto, são infindávels o campo das possibilidades para o existir, em antitese, é nulo o campo das possibilidades para o que não existe.
 
 # A manifestação do sou (A criação da Alma do Homem) 
 
-## Não multiplicidade do Ser
+### Não multiplicidade do Ser
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
 
-## A Natureza Não-Dual do Ser  
+### A Natureza Não-Dual do Ser  
 
 - **Indiferença Ontológica**:  
   O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
