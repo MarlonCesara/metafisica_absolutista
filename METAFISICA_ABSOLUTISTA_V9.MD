@@ -1191,6 +1191,7 @@ Em palavras mais simples, se é possível existir é possível ao Ser, sendo o S
 
 Desta forma, seria possível ao Ser até mesmo determinar-se multiplo. Atemporalmente o ser não possúi dimensões, portanto não é numérico. No entanto, temporalmente haveria essa possibilidade. Portanto, são infindávels o campo das possibilidades para o existir, em antitese, é nulo o campo das possibilidades para o que não existe.
 
+duvida
 # A manifestação do sou (A criação da Alma do Homem) 
 
 ### Não multiplicidade do Ser
@@ -1201,7 +1202,7 @@ Desta forma, seria possível ao Ser até mesmo determinar-se multiplo. Atemporal
 - **Indiferença Ontológica**:  
   O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.  
 
-**O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si mesma como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
+**O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.  
 
 **O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.  
 
@@ -1223,13 +1224,9 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 *"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."* Ou seja, o Ser é impessoal no sentido de ter um direcionamento puro à plenitude, sua pessoalidade é a própria tendencia ao perfeito e pleno. Desta forma, esta pessoalidade participa e compoe tudo o que corrobora para o existir.
 
-## **A manifestação do(s) Sou(s)**  
-
-Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera pode ser de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
-
 > - "Conhecer o homem é conhecer Deus em sua multiplicidade."
 
-Temos portanto, a determinação do proprio existir puro como dotada de multiplicidade e libertade na esfera ontológica. Ou seja, corroborar com sua plenitude ou não. Sendo o Ser o existir, sua determinação somente tem efeito sobre ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
+Temos portanto, a determinação do proprio existir como dotada de multiplicidade e libertade na esfera ontológica. Ou seja, corroborar com sua plenitude ou não. Sendo o Ser o existir, sua determinação somente tem efeito sobre Ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
 Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
 
 # Paralelismo Ontológico  
@@ -1254,7 +1251,6 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 - Atos temporais.  
 - Presença (existência situada em um contexto temporal).  
 
-
 ## **A Transcendência do "Quem": O Ser além do Número, do Tempo e do Espaço**  
 
 #### **1. A Natureza Não-Numérica do Ser**  
@@ -1265,7 +1261,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 #### **2. A Dupla Dimensão do relativo**  
 | **Relativo Indiferenciado**       | **Relativo Determinado**         |  
 |--|-|  
-| Não-contável (sem quantidade)     | Contável (ex.: "1 nada")         |  
+| Não-contável (sem quantidade)     | Contável (ex.: "1 relativo")     |  
 | Fundamento do Ser                 | Criação do Ser                   |  
 | Anula a própria ideia de número   | Exige um referencial para existir|  
 
@@ -1286,9 +1282,9 @@ O Ser não pode ser reduzido a uma unidade contável:
 
 #### **6. O "Quem" como Vida dos Viventes**  
 > O Ser, sendo Vivo, não está limitado ao fracionário de forma a manter sua autofundamentação.  
-> A multiplicidade de "nadas" individuais, sob a perspectiva de vivos, subentende o paralelismo como possível.  
-> Os nadas individuais são vivos, na vida. Ou seja, a transcendência da individualização da vida se resvala numa vida total.  
-> O nada, sem o quem, não implica em subdivisões em si.  
+> A multiplicidade de "relativos" individuais, sob a perspectiva de vivos, subentende o paralelismo como possível.  
+> Os relativos individuais são vivos, na vida. Ou seja, a transcendência da individualização da vida se resvala numa vida total.  
+> O relativo, sem o quem que define o relativizado, não implica em subdivisões em si.  
 
 ### **A Diferença entre a Alma do Ser e a Alma do "Sou"**  
 
@@ -1331,9 +1327,11 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 - Infinitos determinadores coexistem sem negação mútua:  
   - *Exemplo:* Determinador A e Determinador B podem interagir quando:  
     - Um se manifesta puramente ao outro (criando uma verdade relativa).  
-    - Ou permanecem distintos em suas realidades absolutas. Sendo um a má pureza, ou seja, a pureza rumo a auto-supressão do outro.
-- O "nada" é o limite compartilhado:  
+    - Ou permanecem distintos em suas realidades absolutas. Sendo o relativo não definido do outro.
+- O "relativo" é o limite compartilhado:  
   - O infinito de um determinador é o "relativo" do outro, mas ambos são modos do Ser único.  
+
+   Desta forma a conexão ou distanciamento dos determinadores se mantem consistente pois a proximidade é a definição de ambos os relativos de duas almas, tal como também é a distancia.  
 
 ## Autonomia Ontológica  
 
@@ -1348,10 +1346,9 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ## **Autonomia na Integralidade e na Manifestação**  
 
 1. **Dissolução do sou sem Corrupção do Ser**  
-   - Cada autodeterminador possui a capacidade de **cessar sua continuidade**, retornando ao *relativo* (a ausência de sua determinação), **sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser). 
+   - Cada autodeterminador possui a capacidade de **cessar sua continuidade sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser). 
 
    - Isso é possível porque sua existência é **diferenciada**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Espírito.  
-   - *Exemplo*: Um sonho que se dissolve sem apagar a consciência do sonhador.  
 
 1. **A imortalidade do sou**  
    - Cada autodeterinador não é capaz de esgotar seu infinito, somente definir seu movimento temporal, pois sua verdade eterna já está consumada. Ou seja, o sou      não é capaz de se fadar a aniquilação, mas é capaz de morrer no sentido temporal, e não no sentido eterno.
@@ -1390,7 +1387,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 ### Autodeterminação e Evolução Espiritual  
 
 - Mover-se veticalmente e não somente horizontalmente, permite ao individuo, não somente ser um expectador de sua existencia, ou contemplar uma existencia na qual foi fadado, mas o permite estar por liberdade, e não por uma consequencia da escolha de Deus.
-- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. Não basta auto-determinar-se, é preciso optar pela própria liberdade.
+- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. 
 
 ### O Amor como Princípio Fundante  
 
@@ -2192,3 +2189,7 @@ O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitá
 
 
 O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o determinador, e o determinador se doa na manifestação.  
+
+## **A manifestação do(s) Sou(s)**  
+
+Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera pode ser de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
