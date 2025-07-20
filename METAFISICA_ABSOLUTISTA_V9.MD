@@ -603,7 +603,7 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e tempo (fluxo eventual) compartilham propriedades essenciais:  
 
-## Não-Coexistência de Opostos Relativos  
+### Não-Coexistência de Opostos Relativos  
 
 - A (eventualidade) e B (infinito) não podem ocupar a mesma dimensão se forem contraditórios.  
   - *Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo.  
@@ -626,6 +626,11 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 - Sem dualidade, ambos colapsam:  
   - O infinito é ininteligível sem o fluxo eventual.  
   - A eventualidade em sua integralidade é indistinguível do infinito.  
+
+**O ato único do Espírito**, em outras palavras, consiste na **transcendência do temporal**. Desse modo, o tempo pode ser percorrido como uma linha infinita, e, ao adentrarmos a dimensão temporal infinita na tentativa de medi-la, o resultado obtido é **o ato único do Ser** – um ato que compreendemos como **atemporal**.  
+
+Assim, **o atemporal não é uma vazão temporal, uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contem uma dimensão medível, se tem o atemporal, ou seja, uma experiência que extravasa o tempo.
+
 
 # Ações e pessoalidades do Espírito 
 
