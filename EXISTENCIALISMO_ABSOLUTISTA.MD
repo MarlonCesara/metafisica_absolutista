@@ -991,7 +991,7 @@ Portanto, o resciento empresarial nao vem da genealidade, mas do oportunismo mis
 Redes como mc donalds, grandes redes de super mercados, todas essas falem se os trabalhadores exigirem remunerçaão justa,pois são submetidas a formas mais inteligentes de empreendimentos que respeitam o humano e tem processos mais ageis e facilitados, as que são fomentadas por verdaediros empreendedore sque pensam em agilidade, facilidade e no bem humano.
 
 
-
+O individuo passa a ignorar sua propria existencia, abandonando a noçao de eu.
 
 
 
