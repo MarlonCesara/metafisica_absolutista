@@ -430,4 +430,4 @@ A alma apática sente muito pesar por seus grndes erros, e isso agrava seu estad
 
 # A glorificação 
 
-A glorificação é uma chamada a transcender a unidade. A ser como Deus, a agregar o máximo conteúdo de Deus no homem de forma a se-lo. É uma extravasão da unidade de forma a mante-la, quase impossível para a razão.
+A glorificação é uma chamada a transcender a unidade. A ser como Deus, a agregar o máximo conteúdo de Deus no homem de forma a se-lo. É uma extravasão da unidade de forma a mante-la, quase impossível para a razão. Jesus e enxergava em cada um de nós, e sua alegria era se unir profundamente ao homem de forma que a existencia reine em todos.
