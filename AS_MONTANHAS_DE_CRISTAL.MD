@@ -1,4 +1,4 @@
-# Um vislumbre do paraíso
+# Ilustração: Um vislumbre do paraíso
 
 Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um garotinho de cabelos dourados e roupas simples, porém elegantes — um sobretudo azul com detalhes dourados e uma echarpe esvoaçante — contempla, maravilhado, um conjunto de montanhas de cristal que se erguem diante dele.
 
@@ -129,6 +129,38 @@ Nesse momento, a borboleta translúcida que guiava o garoto pousou no ombro do h
 O garoto sorriu, pois em seu coração sempre soubera desta verdade. Juntou-se ao desperto, e juntos observaram os demais caminhantes de barro - alguns começando a apresentar rachaduras luminosas, outros ainda profundamente entrincheirados em suas formas opacas.
 
 Cada despertar era único. Algumas almas emergiam cantando, outras chorando, muitas em silêncio reverente. Mas todas, sem exceção, ao verem o paraíso face a face, esqueciam imediatamente suas antigas perguntas sobre julgamento e condenação. A realidade presente era tão avassaladoramente bela que tornava irrelevantes todas as cosmologias do mundo de barro.
+
+## Significado
+
+- O universo não é separado do todo, mas é um existir. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a biblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas se refere que o barro impede a alma de viver intensamente, de experiementar o que realmente a plenifica. De vivenciar a alegria da variedade de vivencias que a torna plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, porém numa vivencia esterea do barro.
+
+- Considerando que o Ser é pleno, e corrobora em direção a plenitude, consideremos uma infinita possibilidade de diversificação de vida e de experiencias. Se há animais, plantas, universo, tudo isto é dado como possível e real também na vida alem desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis que corroboram para o bem.
+
+- O tempo sendo dualistico, na esfera do cosmo do Ser é determinado pelo Ser, mas na esfera do cosmo do homem é determinado pelo homem. No sentido que, pode haver uma realidade em que o tempo segue regras como esta agora, e uma realidade em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
+
+- Ao considerar o amor e plenitude do Ser, podemos esperar as formas mais fantasticas de vida, as experiencias mais inefaveis e extraordinarias, podemos esperar o extase, o incrível, o inefavel.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ## 📜 **Como Aristóteles Formulou os Princípios da Lógica**
