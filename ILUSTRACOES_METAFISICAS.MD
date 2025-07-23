@@ -1,4 +1,4 @@
-# Ilustração: Um vislumbre do paraíso
+# Um vislumbre do paraíso
 
 Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um garotinho de cabelos dourados e roupas simples, porém elegantes — um sobretudo azul com detalhes dourados e uma echarpe esvoaçante — contempla, maravilhado, um conjunto de montanhas de cristal que se erguem diante dele.
 
