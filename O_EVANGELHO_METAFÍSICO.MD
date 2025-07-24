@@ -2150,7 +2150,9 @@ A saliva de Cristo é a sabedoria que dissolve o barro da ilusão; o rio cristal
 
 O texto abre nossa percepção para o fato de que não vamos para a eternidade, já estamos nela, e estamos em processo de mudança. Abre os nossos olhos para a percepção que o comportamento do que chamamos agora de alem já se dá no exato presente. Há pessoas que desistem da vida por sentirem um ódio inexplicavel e que aqui mesmo em vida se matam aos poucos. Há pessoas aqui mesmo que vivem com grande caridade e alegria interior. E há pessoas aqui mesmo que não se sentem totalmente leves, livres e felizes pelas amarras da falta de perdão e do ódio. O homem, com o evangelho metafisico, adere de forma mais firme as verdades biblicas de maneira a se considerar integrande desde o momento presente da vida eterna e responsável por quem é perante a esta vida.
 
+Espero que este livro tenha ajudado a humanidade a entender com maior propriedade as palavras de Jesus, que, ao meu ver, necessitavam ser entendidas por uma nova ótica. Esta não é uma versão moderna do evangelho, mas uma nova ótica sob o evangelho tal como tantos autores já nos presentearam. Espero que este livro provoque mudanças! 
 
+Para a humanidade, escrito sob a tutela de um profundo amigo. 
 
 
 
