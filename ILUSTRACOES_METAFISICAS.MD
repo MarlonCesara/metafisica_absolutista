@@ -128,7 +128,7 @@ O garoto sorriu, pois em seu coração sempre soubera desta verdade. Juntou-se a
 
 Cada despertar era único. Algumas almas emergiam cantando, outras chorando, muitas em silêncio reverente. Mas todas, sem exceção, ao verem o paraíso face a face, esqueciam imediatamente suas antigas perguntas sobre julgamento e condenação. A realidade presente era tão avassaladoramente bela que tornava irrelevantes todas as cosmologias do mundo de barro.
 
-**O Despertar das Almas**
+## **O destino das Almas**
 
 O garoto, movido por uma sede insaciável de compreensão, dedicou-se a estudar o despertar das almas com a mesma devoção com que antes contemplara as montanhas de cristal. Cada alma que emergia do barro era um universo único, uma sinfonia de experiências pronta para ser ouvida. Ele passava eras em diálogos silenciosos, onde palavras não eram necessárias — apenas a troca de essências, de memórias que fluíam como rios de luz entre os seres.
 
@@ -139,8 +139,6 @@ Notou que as almas despertas dividiam-se em três categorias, não por hierarqui
 **As Almas Pesadas** formavam a outra metade — despertavam com um estremecimento, como quem acorda de um pesadelo. Sua luminosidade era opaca, intermitente, manchada por veias de sombra que pulsavam ao ritmo de seus pensamentos. Algumas gritavam acusações ao vazio, outras repetiam gestos inúteis — apertar mãos fantasmas, contar moedas imaginárias. Uma mulher de luz turva insistia em arrumar vestidos que não existiam mais; um homem de contornos nebulosos recitava discursos para multidões ausentes. O garoto viajou por suas memórias e encontrou padrões: eram almas que, em vida, confundiram posse com amor, poder com propósito, dor com identidade. Carregavam cicatrizes que não deixavam sarar, rancores que nutriam como flores venenosas. Ainda que livres do barro, permaneciam presas em labirintos de sua própria criação. Com paciência infinita, o garoto mostrava-lhes os reflexos nos rios de cristal — onde seus eus verdadeiros, intactos e luminosos, aguardavam por trás das névoas do hábito.
 
 **As Almas que se Dissolviam** eram as mais raras e as mais trágicas. Despertavam com um grito silencioso, seus corpos de luz tremeluzindo como velas ao vento. Seus olhos — pois ali os olhos ainda eram espelhos da alma — mostravam um terror primordial. Não do paraíso que as rodeava, mas de algo dentro de si. Antes que o garoto pudesse estender a mão, elas começavam a desfazer-se: primeiro os contornos, depois a substância, até restar apenas um brilho residual que se esvaía como fumaça. Em seus últimos instantes, sussurravam verdades dilacerantes: *"Não suporto estar comigo"*, *"É tudo culpa minha"*, *"Mereço o nada"*. O garoto, com lágrimas de estrelas escorrendo pelo rosto, compreendeu que essas eram almas que, em vida, haviam transformado sua dor em autoaniquilação. Suicidas não apenas do corpo, mas da própria essência — que agora, diante da eternidade, recusavam-se a si mesmas. Seu desaparecimento não era castigo, mas o último ato de liberdade de quem preferia o vazio à redenção.
-
-**A Anatomia do Auto-Ódio**  
 
 O garoto, com seu olhar que penetrava além das formas, discerniu o fio negro que unia aquelas almas condenadas ao esquecimento: um ódio primordial, não contra o mundo, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo de apagar-se.  
 
