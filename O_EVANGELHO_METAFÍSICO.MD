@@ -2114,6 +2114,8 @@ O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo
 
 ## Significado
 
+- No contexto biblico Deus fez o homem do barro e soprou em suas narinas, isso na metafisica é definido como uma lei conceitual, e não uma lei fisica. Pois o homem é barro até que seu corpo de barro seja definito como padecido. Está definição trás o declinio da lei de vivencia no barro. Portanto, o barro, é viver sob uma lei fisica. A libertação, portanto, trás a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua total verdade.
+
 - O universo não é separado do todo, mas é um existir. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a biblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas se refere que o barro - o que chamaos de atomo ou energia- impede a alma de viver intensamente, de experiementar o que realmente a plenifica. De vivenciar a alegria da variedade de vivencias que a torna plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, porém numa vivencia esterea do barro.
 
 - Considerando que o Ser é pleno, e corrobora em direção a plenitude, consideremos uma infinita possibilidade de diversificação de vida e de experiencias. Se há animais, plantas, universo, tudo isto é dado como possível e real também na vida alem desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis que corroboram para o bem.
