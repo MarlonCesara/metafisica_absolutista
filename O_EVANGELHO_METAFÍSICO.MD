@@ -1933,7 +1933,7 @@ O estado infernal revela:
 > *"O inferno não é onde Deus abandona o homem – é onde o homem, em sua liberdade terrível, insiste em abandonar a si mesmo."*  
 
 
-Ilustrações do paraíso
+# **Alegorias metafísicas**
 
 ## Um vislumbre do paraíso
 
