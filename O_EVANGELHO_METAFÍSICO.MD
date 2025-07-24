@@ -2155,4 +2155,6 @@ Espero que este livro tenha ajudado a humanidade a entender com maior propriedad
 Para a humanidade, escrito sob a tutela de um profundo amigo. 
 
 
+> " Um sorriso que transparecia a verdade mais intima de cada pessoa. Ele tinha um interesse genuino por cada pessoa e pelo seu sonho. Todos o conheciam não somente por ser Deus, mas por ser o melhor ser humano, o mais sonhador, o mais sincero e o que mais acreditava no impossível. Ele se declarava apaixonadamente. Ele epdiu a todos nós em um casamento, em uma união eterna com Ele. Se um coração diz que sim a paixão, como pode o outro dizer não? "
+
 
