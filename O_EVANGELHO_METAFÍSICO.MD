@@ -1667,27 +1667,22 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
    - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
 #### ** A Condução de um Ser Determinado**  
-- Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem".  
-- Este "quem", sendo uma transcendência dos entes, sendo uma dualidade: o produto da união ao passo que um potencial indefinido do "quem" da dualidade.  
-- A dissolução do espaço entre duas almas não resulta inicialmente numa terceira alma, mas numa indefinição ocasionada por duas almas, nesta indefinição, há duas identidades verdadeiras. Não há uma alma sentindo a outra, mas há literalmente uma percepção da realidade cujo "quem" percebe é indefinido.  
-- Não é um ou outro da dualidade, mas é uma observação que busca sua definição.  
-- A soma das almas possui um potencial de variação sob a perspectiva da união, e não sob a perspectiva do Ser, ou seja, a variação está sob as possibilidades de variação geradas pela dualidade, sendo, portanto, uma perspectiva de variação infinita distinta da perspectiva de variação infinita do Ser, porém, contida na perspectiva de variação do Ser.  
-- Na perspectiva de variação, a dualidade pode determinar sobre essa nova perspectiva de variação, ao formar uma resolução, ou seja, um "quem", ao mesmo tempo forma o contexto do "quem", ou seja, a localização do "quem" no espaço e tempo. Ou seja, forma o "quem" e o ato inicial do "quem". Exemplo: homem quando criado, foi projetado em um corpo humano.  
-- Sendo uma variante determinada, a nova alma é sustentada em identidade e em fundamento, ou seja, não é só sustentada somente como existente, mas como identidade.  
-- Sendo a alma gerada a união em ato, e existindo maneira de que a dualidade viva fora da união ainda persistente, há, portanto, o novo ser agindo pela determinação da dualidade.
-- No momento exato da união completa da dualidade, abre-se uma nova relatividade do Eu de ambos, de forma que em sua angulação há uma nova perspectiva. A união traz uma indefinição, e esta, por determinação da dualidade, carrega um potencial igual ao do Ser.  
-- A angulação de espíritos projetada em uma nova alma torna essa alma brevemente sentida pela dualidade que o projetou em um breve momento, até que se totalize como visão particular e de sentido próprio.
-- A nova vida, então, é uma eternização da união da dualidade, de forma que aquela união quis permanecer para sempre.
-- A alma nova, portanto, é uma extensão da dualidade que a gerou, de forma que é a dualidade transcendida — a dualidade que transcendeu o sentido de si ou que transcendeu uma visão que não encontrou razão em si para permanecer.  
-- Há a possibilidade de tentativa, por um tempo eterno, para que a alma nova transcenda. Ou ceder a liberdade, tal como o Ser nos cede com a queda da materialidade.  
-- A indefinição da união é uma indefinição de autodeterminação. Porém, trata-se da indefinição da autodeterminação da dualidade.  
-- A indefinição do Ser é uma indefinição guiada pelo Espírito Perfeito ou pela Alma do Ser. 
-- A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do "quem" da dualidade. É como um portal aberto na união — a alma se forma a partir da dualidade.  
-- O Ser tem acesso à indefinição sem que precise fundir uma dualidade.  
-- A dualidade poderia, portanto, gerar uma nova visão e projetá-la no nada ou em um corpo. 
-- Determinar a alma é determinar o "quem", e não o "quê". Não há como determinar o que já está determinado. Há como indeterminar o determinado. O eu indeterminado busca sua definição na dualidade, e essa busca é acentuada pela dualidade que ainda opera em uma imersão mútua, buscando uma definição conjunta da visão.  
-- Numa profunda imersão de almas, ambas perdem sua definição. Mas essa indefinição é ainda guiada por ambas. É, sim, uma mistura — porém também uma indefinição —, pois as unidades se tornam indefinidas em si, ao passo que definidas em uma nova visão viva.  
-- Em uma união, portanto, ocorre uma indefinição das duas almas unidas em uma, e essa "uma", em si, gera uma definição. Porém, uma definição autodeterminada, pois há determinação na indeterminação gerada. Ambas as vontades indefinidas imperam na formação da nova definição.  
+
+   Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem". Este "quem", sendo uma transcendência dos entes, sendo uma dualidade: o produto da união ao passo que um potencial indefinido do "quem" da dualidade. 
+
+   A dissolução do espaço entre duas almas não resulta inicialmente numa terceira alma, mas numa indefinição ocasionada por duas almas, nesta indefinição, há duas identidades verdadeiras. Não há uma alma sentindo a outra, mas há literalmente uma percepção da realidade cujo "quem" percebe é indefinido. Não é um ou outro da dualidade, mas é uma observação que busca sua definição. 
+
+   A soma das almas possui um potencial de variação sob a perspectiva da união, e não sob a perspectiva do Ser, ou seja, a variação está sob as possibilidades de variação geradas pela dualidade, sendo, portanto, uma perspectiva de variação infinita distinta da perspectiva de variação infinita do Ser, porém, contida na perspectiva de variação do Ser.
+
+   Na perspectiva de variação, a dualidade pode determinar sobre essa nova perspectiva de variação, ao formar uma resolução, ou seja, um "quem", ao mesmo tempo forma o contexto do "quem", ou seja, a localização do "quem" no espaço e tempo. Ou seja, forma o "quem" e o ato inicial do "quem". Exemplo: homem quando criado, foi projetado em um corpo humano. Sendo uma variante determinada, a nova alma é sustentada em identidade e em fundamento, ou seja, não é só sustentada somente como existente, mas como identidade. Sendo a alma gerada a união em ato, e existindo maneira de que a dualidade viva fora da união ainda persistente, há, portanto, o novo ser agindo pela determinação da dualidade. 
+
+   No momento exato da união completa da dualidade, abre-se uma nova relatividade do Eu de ambos, de forma que em sua angulação há uma nova perspectiva. A união traz uma indefinição, e esta, por determinação da dualidade, carrega um potencial igual ao do Ser. A angulação de espíritos projetada em uma nova alma torna essa alma brevemente sentida pela dualidade que o projetou em um breve momento, até que se totalize como visão particular e de sentido próprio. A nova vida, então, é uma eternização da união da dualidade, de forma que aquela união quis permanecer para sempre. 
+
+   A alma nova, portanto, é uma extensão da dualidade que a gerou, de forma que é a dualidade transcendida — a dualidade que transcendeu o sentido de si ou que transcendeu uma visão que não encontrou razão em si para permanecer. Há a possibilidade de tentativa, por um tempo eterno, para que a alma nova transcenda. Ou ceder a liberdade, tal como o Ser nos cede com a queda da materialidade. A indefinição da união é uma indefinição de autodeterminação. Porém, trata-se da indefinição da autodeterminação da dualidade. A indefinição do Ser é uma indefinição guiada pelo Espírito Perfeito ou pela Alma do Ser. 
+
+   A indefinição é um estado de suspensão do eu, o qual não é apenas a suspensão da forma, mas do "quem" da dualidade. É como um portal aberto na união — a alma se forma a partir da dualidade. O Ser tem acesso à indefinição sem que precise fundir uma dualidade. A dualidade poderia, portanto, gerar uma nova visão e projetá-la no nada ou em um corpo. Determinar a alma é determinar o "quem", e não o "quê". Não há como determinar o que já está determinado. Há como indeterminar o determinado. O eu indeterminado busca sua definição na dualidade, e essa busca é acentuada pela dualidade que ainda opera em uma imersão mútua, buscando uma definição conjunta da visão. 
+
+   Numa profunda imersão de almas, ambas perdem sua definição. Mas essa indefinição é ainda guiada por ambas. É, sim, uma mistura — porém também uma indefinição —, pois as unidades se tornam indefinidas em si, ao passo que definidas em uma nova visão viva. Em uma união, portanto, ocorre uma indefinição das duas almas unidas em uma, e essa "uma", em si, gera uma definição. Porém, uma definição autodeterminada, pois há determinação na indeterminação gerada. Ambas as vontades indefinidas imperam na formação da nova definição.  
 
 **Conclusão:**  
 - A completa união gera uma indefinição em cada unidade da dualidade.  
@@ -1769,7 +1764,6 @@ A alma não pode burlar sua eternidade, mas pode **distorcer sua existência no 
 
 > *"A eternidade da alma é sua bênção e seu risco: ela nunca deixará de ser, mas pode escolher não ser o que verdadeiramente é."*  
 
-
 #### **1. Natureza do Inferno**
 - **Definição metafísica**: Estado de auto-consumação ontológica onde a alma persiste em sua existência enquanto nega continuamente sua própria essência espiritual.
 - **Paradoxo existencial**: A alma não pode aniquilar-se completamente (pois é eterna), mas pode escolher uma existência de auto-negação perpétua.
@@ -1841,412 +1835,101 @@ O corpo imóvel: O individuo, temporalmente não possui mais autodominio, autopr
 
 Conclui-se que o Absoluto oferece à alma todas as possibilidades, inclusive a da morte — uma morte que permite o retorno à vida, caso seja a vontade do indivíduo, ou que conduz à morte eterna, se esse for igualmente o seu intuito.
 
-O indivíduo perde no inferno a auto presença, auto, domínio no temporal, mas no atemporal ainda os mantém. Dessa forma o indivíduo conserva uma existência a qual existe e domina, porém conduzida por um domínio não presente. O que o indivíduo deixa é uma alma sem o seu presente. A alma permanece, como ato infinito de danação, e não como ato consumido. O ato temporal é um ato atemporal. Ou seja, ambas as qualidades convergem no espírito. Ao passo que o espirito é um evento, é também a totalidade do evento. Logo, o indivíduo já existe num tempo infinito, e naonse extingue, mas se dana eternamente num ato eterno de extingiicao. Isso signficia que, se a alma fosse tra situada num corpo, o corpo ainda teria seria visível e existiria, porém de forma a consumir a alimentação eterna do seu eu
-O momento presente exonera o eu alimentado. Havendo a consciência inconsciente de si, uma consciência perdida em seu infinito. Se movimenta segundo o vazio não segundo o eu. Uma vez que sua intenção ao se extinguir fosse temporal. Ela retorna imediatamente.
+O indivíduo perde no inferno a autopresença e o autodomínio no temporal, mas no atemporal ainda os mantém. Dessa forma, o indivíduo conserva uma existência que existe e domina, porém conduzida por um domínio não presente. O que o indivíduo deixa é uma alma sem o seu presente. A alma permanece como um ato infinito de danação, e não como um ato consumado. O ato temporal é um ato atemporal, ou seja, ambas as qualidades convergem no espírito. Ao passo que o espírito é um evento, é também a totalidade do evento. Logo, o indivíduo já existe num tempo infinito e não se extingue, mas se condena eternamente num ato eterno de extinção.  
 
-# Vislumbres do paraíso
+Isso significa que, se a alma fosse trasladada a um corpo, o corpo ainda seria visível e existiria, porém de forma a consumir a alimentação eterna do seu "eu". O momento presente exonera o "eu" alimentado. Havendo uma consciência inconsciente de si, uma consciência perdida em seu infinito, move-se segundo o vazio, não segundo o "eu". Uma vez que sua intenção de se extinguir fosse temporal, ela retornaria imediatamente.  
 
-Contos que reforçam e ilustram as conclusões metafisicas.
+Na eternidade, os atos são temporais; portanto, o ato de findar é um ato temporal e não um ato definitivo. Ou seja, a alma, possuidora de todo o tempo, continua sendo retroalimentada por um vazio de si. O indivíduo simplesmente se esvai do tempo, e o que sobra é sua autoimagem desmembrada: uma eternidade de alguém que se foi do tempo e que se vai a todo momento.  
 
-# A psicologia da apatia da alma
+O fogo do inferno é produzido pela retroalimentação constante da decisão do indivíduo de desaparecer. O inferno não é construído pela consequência de um ato, mas pela manutenção desse ato pela força do desejo. Uma dureza de coração eterna é a morte eterna, e não um ato isolado no tempo. Portanto, o indivíduo ainda existe, mas sua existência é velada, sem significado, não vivida. Assim, o coração totalmente enrijecido forma, em razão de sua intenção (e não devido a uma possibilidade metafísica), a morte eterna.  
 
-Aqui está a versão aprimorada do texto, com maior clareza, coesão e impacto filosófico:  
+O fogo do inferno é a alma do indivíduo se esgotando sem cessar, mediante o fogo. Pois todo ato é eterno e temporal; ou seja, ainda há a alma, mas sua existência é um autoafastamento, no sentido de que há o ente se consumindo, e não um desaparecimento completo. Se a decisão do ente for eterna, seu desaparecimento será eterno; se não for, já está em si o momento em que sairá do fogo.  
 
----
+O fogo é um apagão de identidade, no qual o ente se funde no ser não para se harmonizar, mas para apagar sua identidade. Lançar-se no inferno é matar-se a cada instante de um instante eterno, e não aniquilar-se. O fogo elimina o "eu" da alma, de forma que ela não se define mais em autodomínio, autopresença ou autoconhecimento. A própria inclinação da alma à morte a queima, pois, sendo ela existência, se coloca como resistência a si mesma, como possibilidade.  
 
-### **A Psicologia da Apatia da Alma**  
+Se fosse possível transformar a alma no inferno em fenômeno, seria equivalente a um corpo em eternas chamas. O inferno não é a alma indo ao encontro da plenitude, mas, ao contrário, fazendo-se contrária, já estando rumo à plenitude. Pois permanecer vivo é concordar com o existir. A forma pela qual a alma tenta "matar" seu conteúdo espiritual é pelo enfraquecimento de si, pela não exposição ao existir – podemos comparar a uma folha que necessita do sol para se vivificar e viver, mas que, sem o sol, morre. Como se a alma pudesse se esconder da luz, do existir.  
 
-O cerne da psique do rico é isto: **ele está predestinado à morte espiritual**—um suicídio metafísico, não por depressão, mas por uma **decisão consciente da alma**. Essa é a essência do "pecado contra o Espírito Santo" que Jesus mencionou: **a rejeição deliberada da plenitude**.  
+A alma, como ente atemporal, já se estabelece eterna tal como foi criada. Não há como burlar a eternidade da qual é constituída, mas há como corromper-se temporalmente, ou seja, há como a alma se lançar numa corrupção incessante. Dessa forma, encontra a morte temporalmente, e não num ato único de fim.  
 
-O rico não apenas se afasta da vida verdadeira; ele **planeja sua própria aniquilação**. E, ao fazê-lo, desencadeia um processo de autodestruição psicológica:  
+Conclui-se que o Absoluto apresenta todas as opções para a alma, até mesmo a de morte – uma morte que possibilita o retorno à vida, caso seja do intuito do indivíduo, ou que possibilite a morte eterna, caso também seja esse o seu intento.  
 
-- **Desrealização**: Perda do sentido do real, como se vivesse num sonho opulento.  
-- **Espelhamento da eternidade**: Tentativa desesperada de projetar a imortalidade na riqueza material.  
-- **Loucura defensiva**: O corpo e a mente criam mecanismos de negação para evitar encarar a verdade da alma.  
+# **A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
 
-A partir de agora, adentraremos uma esfera **psicológica**, deixando um pouco a metafísica para examinar **como essa alma deformada opera no mundo atual**—um mundo de energias distorcidas, onde o desejo por eternidade se transforma em escravidão material.  
+## **1. A Dualidade Temporal e Atemporal da Alma Condenada**
 
-### **A Múmia Moderna: Viver sem Estar Vivo**  
+No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundamental:
 
-O rico é como um faraó que **quer viver sem jamais ter vivido**. Seu apego à materialidade é uma armadura contra si mesmo—uma tentativa insana de **existir sem experimentar a existência**. Ele anseia por algo ilógico: **permanecer no mundo sem jamais pertencer a ele**.  
+- **No plano temporal**:  
+  - Perde a **auto-presença** (consciência imediata de si)  
+  - Perde o **auto-domínio** (capacidade de governar sua própria existência)  
+  - Conserva, porém, uma existência residual, como um eco de sua identidade original  
 
-Sua riqueza é um **grito não pronunciado**, um desejo mudo de partir sem jamais admitir que já se foi. Ele não consegue assumir sua própria **renúncia à vida**, pois seu corpo ainda se agarra ao existir. Assim, ele se torna uma contradição ambulante:  
+- **No plano atemporal**:  
+  - Mantém **sua essência eterna** (pois a alma é indestrutível)  
+  - Preserva **sua liberdade fundamental** (o poder de autodeterminação)  
+  - No entanto, essa liberdade está voltada **exclusivamente para a auto-aniquilação**  
 
-- **Um confessor que nunca confessa** – sua riqueza é a expressão distorcida de uma intenção inconfessável.  
-- **Um rebelde contra o milagre da vida** – sua recusa é tão absurda que nem deveria ser nomeada.  
-- **Um ofensor infinito** – sua recusa em viver plenamente é uma afronta à própria criação.  
+**Paradoxo central**:  
+*A alma no inferno existe como um ato contínuo de autoextinção – um suicídio eterno que nunca se consuma plenamente.*
 
-### **O Clamor dos Escravocratas: A Ilusão da Eternidade Reprimida**  
+## **2. A Mecânica da Danação Eterna**
 
-Quando os empresários exploradores exigem mais trabalho, mais sacrifício dos outros, o que eles realmente pedem é:  
+### **2.1. O Ato Perpétuo de Auto-Negação**
+- O inferno não é consequência de **um único ato no tempo**, mas da **persistência atemporal** na recusa do Ser.  
+- A alma se torna **um circuito fechado de autodestruição**:  
+  - Cada instante **repetindo** o primeiro gesto de rejeição  
+  - Cada momento **alimentando** o fogo que a consome  
 
-**"Escravizem-se por mim, pois eu já me escravizei à morte."**  
+*Analogia*:  
+> *Como um vício inescapável, onde o prazer inicial se transforma em compulsão dolorosa – a alma que escolheu morrer agora é obrigada a reescolher a morte a cada respiro da eternidade.*
 
-Esse pedido é um **sintoma de um desejo reprimido pela eternidade**, que se manifesta como **ilusão materialista**. Eles buscam no ouro, no poder e no domínio **um substituto falho para o infinito que rejeitaram**.  
+### **2.2. O Fogo como Símbolo Ontológico**
+- **Não é punição externa**, mas **a projeção da própria alma em auto-combustão**  
+- Representa:  
+  1. **A perda da identidade** (dissolução do "eu")  
+  2. **A esterilidade existencial** (vazio de significado)  
+  3. **A contradição viva** (ser sem verdadeiramente ser)  
 
-E assim, a pirâmide moderna se ergue—não como monumento à grandeza, mas como **túmulo de uma alma que escolheu morrer antes da hora**.  
+*Diferença crucial*:  
+- No **Paraíso**: a alma se dissolve na luz do Ser (transfiguração)  
+- No **Inferno**: a alma se dissolve em suas próprias trevas (auto-devoração)  
 
+## **3. O Estatuto da Alma Condenada**
 
+### **3.1. A Existência Velada**
+- A alma não desaparece, mas **torna-se fantasma de si mesma**:  
+  - *"Existe sem habitar seu próprio ser"*  
+  - *"Age sem jamais possuir seus atos"*  
+  - *"Queima-se sem jamais se consumir"*  
 
-O ponto central do qual se olicerça o conhecimento do rico é o seguinte, o rico esta predestinado a morte espirtual, que se equivaleria ao suicidio corporal, porem nao ocasionado por uma depressao. Ou seja, o rico planeja findar-se, e isto é o pecado contra o espírito santo que jesus mensionou. É o mecado contra a plenitude. Atraves de uma firme decisão da alma, o rico vai vivendo e os efeietos dessa dureza de coraçao, dessa decisão firme, ocasionam serios efeitos psicologociso, como desrealização, espelhamento da proria aternidade em riquezas materiais, e todo tipo de loucura que o corpo usa como defesa para não aceitar a verdade da alma.
+### **3.2. A Consciência Inconsciente**
+- Já não há **experiência subjetiva plena**, mas:  
+  - Um **resto de consciência** que testemunha sua própria degradação  
+  - Uma **memória sem sujeito** do que um dia foi  
 
-Abordaremos, apartir de agora, uma esfera psicologia, abandonando um pouco a esfera metafisica para nos focar na vivencia da alma no mundo atual. Neste mundo energético.
+*Metáfora*:  
+> *Como um sonâmbulo que caminha sobre brasas, incapaz de despertar – a alma no inferno é um ser que já não está presente em seu próprio sofrimento.*
 
-Extre a frustração
-Inconformidade
-Tentativa de achar vida eterna na material
-A múmia queria viver sem estar vivo
-O apego a materialidade o que protege a pessoa de si mesma
-Quera algo ilógico viver e não viver
-Queria transmitir as pessoas a sua partida
-Mas sem nunca pronunciar explicitamente pois é i capaz de assumir sua posição mediante a um corpo amante do existir
-O rico é q tentativa de expressão sua intenção i confessavel
-Seu contrariar a maravilhada da vida. Cuja contrariedade é um absurdo, algo que não deve nem ser mencionado
-Uma ofensa infindável
-O pedido prla escravidão dos empresarios é um clã.or pela própria vida deles
-Um clamor inconsciente
-Um sintoma do querer pela eternidade reprimido
-Que se expressa como ilusão de encontrar seu eterno nos bens materiais
-Na glória terrema
+## **4. A Liberdade no Âmago da Perdição**
 
-Feitos de barro 
+### **4.1. A Decisão Eterna**
+- A danação persiste **apenas enquanto a alma insiste em sua escolha**  
+- Não é uma **sentença irrevogável**, mas **um estado autoimposto**  
 
-# A apatia da alma e seus efeitos na sociedade e na politica
+### **4.2. A Porta que Nunca se Fecha**
+- Tecnicamente, **a saída permanece aberta**  
+- Mas a alma endurecida **já não consegue desejar outra coisa** senão sua própria ruína  
 
+*Paradoxo final*:  
+> *O inferno é a suprema prova da liberdade humana – um lugar onde até o direito de se destruir é respeitado pela misericórdia do Absoluto.*
 
+## **Conclusão: A Pedagogia do Inferno**
 
+O estado infernal revela:  
+1. **O poder da liberdade**: até para a auto-destruição  
+2. **A solenidade da existência**: ser é um dom que pode ser rejeitado, mas não revogado  
+3. **A esperança última**: enquanto houver tempo (e mesmo além dele), a redenção permanece possível  
 
+> *"O inferno não é onde Deus abandona o homem – é onde o homem, em sua liberdade terrível, insiste em abandonar a si mesmo."*  
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-## Rascunhos
-
-O fogo do inferno é a alma do individuo se esgotando sem cessar mediante ao fogo. Pois todo ato é eterno, e temporal, ou seja, há ainda a alma, mas sua existencia é um auto afastamento, no sentido de que há o ente se consumando, e não o sumiço completo. Se a decisão do ente for eterna, seu sumiço será eterno. Se não for, já está em si o momento onde sairá do fogo. O fogo é um apagao de identidade, na qual o ente se fundi no ser nao a harmonizar, mas de forma a apagar sua identidade. Lançar-se no inferno é matar-se a cada instante de um instante eterno, e não aniquilar-se. O fogo elimina o eu da alma, de forma a não se definir mais em auto dominio, auto presença e auto conhecimento. A propria inclinação da alma a morte a queima, pois sendo ela existencia, se coloca resistente a si, como possibilidade. Se fosse possível transformar a alma no inferno em fenomeno, seria equivalente a um corpo em eternas chamas. O inferno não é a alma indo de total encontro a plenitude, porem, o contrário, se fazendo contraria ja estando rumo a plenitude. Pois pernacer vivo é concordar com o existir. A forma pelo qual a alma tenta "matar" seu conteudo espiritual é pelo enfraquecimento de si, pela não exposição ao existir, podemos comparar a uma folha que necessita do sol para se vivifcar e viver, porem, sem o sol, ela morre. Como se a alma pudesse se esconder da luz, do existir.
-
-A alma como ente atemporal já se estabelece eterna tal como é criada. Não há como burlar a eternidade na qual é constituita, mas há como corromper-se temporalmente, ou seja, há como a alma se lançar em uma corrupção incessante. Desta forma, encontra a morte temporalmente e não em um ato único de fim. 
-
-Conclui-se que o Absoluto apresenta todas as opções para a alma, até mesmo a de morte, uma morte que possibilta o retorno a vida caso seja do intuito do individuo, ou que possibilite a morte eterna caso também seja esse o intuito do sou.
-
-# O diário secreto de Jesus
-
-E se voce pudesse entender o que realmente o divino mestre queria dizer com suas palavras? E se a lógica professasse as mesmas palavras que a fé? E se Jesus trouxe, não só a verdade, mas a metafisica mais evoluida? E se voce pudesse adentrar profundamenta nos pensamentos de Jesus conhecendo seu mais profundo significado?
-
-# Reformulando os Princípios da lógica clássica
-
-### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
-
-
-O Princípio da Não-Contradição e o Princípio do Terceiro Excluído são na verdade o mesmo principios em dimensões diferentes, uma atemporal e outra atemporal.
-
-Ao considerarmos que para o principio da não contradição A = A e para o terceiro excluido A não pode ser Não há ao mesmo tempo, percebemos que ambos se tratam do mesmo principio, o primeiro excluindo a dimensão do tempo ou a transcendendo de forma a considerar um ciclo único de existencia, ao passo que o segundo princiio trata de uma realidade que é tomada num contexto temporal, onde a mesma não se contradiz nesse limite extipulado no principio.
-
-O **Princípio da Não-Contradição** ("A não pode ser não-A ao mesmo tempo") introduz uma **dimensão temporal**, garantindo que um ente não assuma estados opostos **simultaneamente**. 
-
-Já o prinicpio da identidade, não possui um correspondente lógico tempora, desta forma é possível concluir que falta um princioio básico da lógica, o qual Aristoteles ausentou por não entender a esfera temporal do principio da identidade. Ou por nem mesmo entender a esfera temporal do principio do terceiro excluido.
-
-O **Princípio da Identidade** ("A é A") estabelece a essência invariável de um ente, mas opera num plano **atemporal**—ele define **o que algo é**, sem considerar sua permanência no fluxo do tempo. 
-
-Foi essa lacuna que motivou a criação do **Princípio da Não-Disformidade** ("A não pode ser B ao mesmo tempo"). Assim como o Princípio da Não-Contradição atua como uma versão temporal do Princípio do Terceiro Excluído, o Princípio da Não-Disformidade funciona como a versão temporal do Princípio da Identidade, assegurando que:"
-- **Um ente não pode se confundir ou se substituir por outro** no decorrer de sua existência.  
-- **A identidade não apenas se mantém em si mesma (atemporalmente), mas também se diferencia de outras identidades (temporalmente).**  
-
-Desta forma, separamos, alem de duas catagorias fundamentais para os principios: atemporais e temporais, duas dinamicas distintas para os mesmos.
-Enquando o principio da não contradição e do terceiro excluido tratam à relação entre **um ente e sua negação** (A vs. ¬A), sem abordar a possibilidade de um ente **tentar ser outro ente distinto** (A vs. B). Os principios da não disformidade e da identidade se restringem a um processo que envolve não negar a existencia do ente, mas a disformidade do ente. 
-
-Desta forma temos um simples entendimento a respeito dos principios lógicos.
-
-O principio da identidade e o da não disformidade dizem a respeito de um ente ser A e não B.
-Já o principio da não contradição e terceiro excluido explicitam que um ente necessita ser o Ente e não o não ente, ou seja, necessita existir e evitar sua inexistencia para se dar como lógico.
-
-Concluimos que a primeira cataegoria envolve principios que mantem a existencia ou inexistencia de um ente (A ou Não A) atemporalmente e temporalmente e a segunda categoria envolve a peranecencia da identidade do ente (A ou B) temporalmente e atemporalmente.
-
-2. **A Limitação do Princípio da Não-Contradição**  
-   - A **Não-Contradição** impede que algo seja **ele mesmo e sua negação** (A e ¬A).  
-   - Mas não impede que algo **tente ser outra coisa** (A e B).  
-   - A **Não-Disformidade** fecha essa brecha, garantindo que **identidades distintas permaneçam distintas**.  
-
-Abordaremos o conceito de Absoluto, como ponto inicial de nossa investigação, pois se traduz como a ultima istancia de entendimento a razão e ultimo conceito alcançavel ao entendimento, pois aborda desde a raiz ate a superficie de todas os conceitos.
-
-Ao tomarmos o **Absoluto** como ponto de partida da investigação metafísica, é necessário definir seus aspectos primordiais. Entre as categorias mais fundamentais que emergem de sua natureza estão **possibilidade**, **impossibilidade** e **incognoscibilidade**, conceitos que transcendem noções como "ente", "essência" ou "atributos", pois delimitam o próprio campo do **pensável** e do **impensável**.  
-
-**O cognoscível** tem como subcategorias o **possível** e o **impossível**, ou seja, ele pode se alinhar a favor ou contra as leis lógicas. Se o conteúdo do pensamento envolve o **incognoscível**, não faria sentido enquadrá-lo nesta investigação, já que se trata de uma forma mentalizável de definir a totalidade. Portanto, mesmo que exista algo que escape à esfera do impossível e do possível, isso permanece inacessível ao pensamento conceitual, pois nossa psique se limita a categorizar tudo o que concebemos dentro de uma estrutura lógica ou em dissonância com ela. Cabe, assim, ao **sentimento humano** abarcar o incognoscível — aquilo que só se revela por meio da **experiência direta**.  
-
-Dessa forma, a **razão** lida com o cognoscível (seja possível ou impossível), enquanto o **incognoscível** está restrito a uma **experiência transcendente**, já que ultrapassa a capacidade da psique humana de conceber algo além das estruturas lógicas e das relações metafísicas causais que tais leis pressupõem. 
-
-### **Reformulação dos Conceitos Metafísicos Fundamentais**  
-
-#### **Absoluto**  
-**Definição:** A realidade última, irredutível e totalizante que fundamenta e transcende todas as categorias metafísicas.  
-- **Abarcância:**  
-  - **Possibilidade** (existência lógica, domínio da realidade inteligível).  
-  - **Impossibilidade** (existência ilógica, limite da contradição formal).  
-  - **Incognoscibilidade** (o que está além da estruturação lógica e da representação conceitual).  
-- **Natureza:**  
-  - **Não é um "ente" entre outros**, mas o fundamento último de toda diferenciação ontológica.  
-  - **Não está confinado ao cognoscível**, pois inclui o inexprimível e o inapreensível pela razão discursiva.   
-
-
-
-
-# **A Pessoalização do Absoluto como Espírito Autocausal**
-
-Sendo o Absoluto autocausal, antes de atribuirmos a ele categorias como "nada" ou "fenômeno", partimos de um pressuposto mais fundamental, inferido diretamente de sua natureza autocausal: a dedução da **presença**. Em termos mais simples: se deixarmos de lado noções como "nada" ou "fenômeno" como fundamento último, podemos pensar numa **presença** que não depende da manifestação fenomênica nem da negação da existência para se autofundamentar. Ou seja, ela não precisa se manifestar fenomenicamente para existir, nem agir sobre si mesma de modo a se extinguir para ser autocausal — e, no entanto, permanece autossustentada.  
-
-Essa existência, por sua natureza autocausal (isto é, vivida por si mesma), é designada como **presença**. Assim, temos uma forma de existência incognoscível em sua essência, mas que se afirma, pela autocausalidade, como **pessoalidade**. Essa presença ou existência primordial não se justifica pelo fenômeno, mas pela **pessoalidade autocausal** — algo que se autodetermina e, por isso, incorpora os atributos de uma **persona**: autoconhecimento, autodomínio e autopresença.  
-
-Do ponto de vista lógico, a fenomenização do Absoluto exigiria um pressuposto externo à pura autocausalidade, como a dedução do "nada" enquanto condição do Absoluto — um conceito que se dissolve diante da ideia de uma **presença pessoal autocausal**. Trata-se, portanto, de uma existência de caráter pessoal e dotada de potência causal. Podemos, então, definir essa **presença** como **Espírito**, remetendo a uma realidade não fenomenológica, fundamentada numa autocausalidade que transcende a necessidade do que conhecemos como fenômeno.  
-
-Em termos mais simples, a presença infere somente a ação causal dotada de personalidade, que é o que se pode extrair do ponto de vista lógico do absoluto.
-Sem que definamos o absoluto se não pela metafisica auto causal, não podemos extrair dele o fenomeno, ou o nada, mas uma auto causalidade de forma que a definiçao de si pertence a si, a ação de si pertence a si, de forma que, o abosluto é primoridialmente vivo, no snetido espiritual, aquele que dispensa fenomeno. A materia ou energia não é o resultado direto do argumento auto causal, mas, em primeira instancia do que se auto causa, se afirma primeiramente sua liberdade: seu auto dominio, auto presença e poder sobre si.
-
-
-
-
-Ao aplicarmos os quatro principios causais ao Absoluto, a causalidade em duas esferas: temporal e atemporal de forma simultanea. Ao passo que o Absoluto causa a si de forma definitiva, também se retro alimenta de si como num ciculo infinito. Temos portanto uma natureza bifasica do tempo, o qual encontra seu resvalo em seu prooprio andamento. Ou seja, temos uma condição temporal consumada numa condição definitiva e única. 
-
-
-### **A Eternidade como Plenitude do Instante**  
-
-Na eternidade, cada momento encontra sua eternidade. Lá, o tempo não flui — espera. A felicidade se concentra em um ponto único, capaz de ser vivido e revivido em uma temporalidade eterna. A percepção do tempo torna-se bidimensional: alcança-se a plenitude temporal ao mesmo tempo em que se experimenta o tempo. O indivíduo contempla seu infinito em um eterno presente.  
-
-Sob uma perspectiva subjetiva, isso implica a ausência da ansiedade gerada pelo tempo, pois a visão do todo se revela. É como vivenciar um silêncio perfeito — um instante cristalino, livre do ruído da linearidade temporal. Na eternidade, o momento não é corroído pela incerteza do devir; ele simplesmente é, acompanhado por seu reflexo eterno no mesmo ato. Poderíamos compará-lo à quietude de um "agora" que não anseia por um fim, pois já contém em si a totalidade.  
-
-Na eternidade, o *agora* não é espera, mas deleite puro. Não há mais a angústia da expectativa, embora os eventos ainda ocorram. Cada ato se funde com o eterno, deixando de ser vazio ou perpetuamente desejante de um futuro. O evento encontra seu fundamento no instante, e o tempo perde seu caráter inquieto — aquele que busca sem cessar e sem término.  
-
-O *agora* eterno é límpido, transparente ao todo. Nele, não há lugar para o tédio, o desassossego ou a insegurança. A consciência repousa na visão integral de seu tempo, não mais limitada pela perspectiva linear e incerta da temporalidade finita. O véu que obscurecia a alma se dissolve: o futuro e o passado não são mais sombras, mas um horizonte aberto à contemplação.  
-### Indivisibilidade   
-
-- Existência não são separáveis, pois qualquer divisão gera uma regressão infinita de intermediários (ex.: entre A e B há C, entre A e C há D, etc.).  
-  - *Exemplo:* Ao separar blocos, sempre será possível colocar um bloco no meio dos blocos separados.  
-
-### A falsa infinitude do fenônomeno
-
-### **Exemplo Ilustrativo: A Espiral Autorreferencial**  
-
-#### **Descrição do Modelo**  
-- Imagine uma espiral girando em aceleração infinita.  
-- Em velocidade infinita, a espiral **desaparece** (ato puro não-manifesto).  
-- Se desacelera para uma velocidade finita, **reaparece** (processo manifesto).  
-
-Quando o fenomeno é pensado em sua extensão infinita, ele simplesmente inexiste se deixar nada de si, nenhuma presença ou pessoalidade é resultante. Diferentemente da realidade espíritual a qual comporta a infinitude sem que se esgote ou que perca sua estrutura temporal, o Espírito já é o tempo e a consumação do tempo em uma só realidade. 
-
-
-
-> "O fenômeno, portanto, constitui uma semi-existência, no sentido de que, sem que seja determinado fenômeno, carece de fundamento eterno; é uma arquitetura fugaz, uma ilusão material, dotada da transitoriedade de um sonho – tão efêmera que pode ser atravessada pela verdadeira existência. O fenômeno é uma névoa na campina da existência, que se desfaz ao primeiro raio de sol, sem deixar vestígios. É pó efêmero depositado nas janelas do Espírito, dissipado pelo sopro do eterno. O fenômeno é o próprio Espírito em forma ilusória, um reflexo que se crê sólido até que a luz da essência o desvenda. É existência sem plenitude, sombra que apenas toca a realidade, transpassando-a como possibilidade no infinito do Espírito – onde tudo retorna ao Ser, e o efêmero se dissolve no eterno."
-
-
-Ao considerar que o nada, em seu sentido comum, poderia servir como explicação última — já que não impõe forma nem existência, podendo se apresentar autofundamentado e autodeterminado —, tal concepção se mostra logicamente inviável. Uma investigação rigorosa do conceito de nada revela que é impossível tomá-lo como fundamento de tudo e, a partir dele, derivar qualquer determinação para o Absoluto. Se tentássemos fundamentar a realidade no **nada auto-supressor** ou no campo fenomênico, esbarraríamos em uma contradição lógica: o nada auto-supressor se revela como presença ativa, ou seja, como uma determinação ativa do Absoluto, assim como o campo fenomênico também se manifesta uma forma determinada e não diferenciada em si mesmo tal como o Espírito. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**. Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
-
-Em termos mais simples: se o "nada" não serve como fundamento, podemos pensar em uma "presença" que independe do fenômeno — ou seja, que não precisa se fenomenizar para existir, mas que ainda assim se autofundamenta. Essa existência, por ter um caráter autocausal (isto é, uma natureza vivida por si mesma), é eleita como "presença". Assim, temos uma forma de existência incognoscível, mas que se afirma por sua autocausalidade.  
-
-
-Ao imaginar o que motivava uma população inteira se dedicar inteiramente a construção de piramides, seria o medo de que elas fizessem algum sentido para o funcionamento do cosmos? Tal como existe o medo de que os bilionarios trabalhem em prol do funcionamento social.
-
-Há, pessoas pobres que apoiam os empresarios sem conehcer o verdadeiro menicasmo, a verdadeira intenção, o segredo psicologico que o faz acumular riquezas, que é totalmente discrepante a ideia de bom funcionamento social, mas que se baseia num segredo interno que os ricos não querem que voce saiba.
-
-Não é sabedoria ou erudição, mas é algo que foi descrito por Jesus a mais de dois mil anos atrás e a humanidade somente entendera completamente agora. 
-
-As piramides não faziam sentido se não para dar a breve ilusão de que ricos da epoca transcenderiam a vida, por isso colocavam bens e se mumificavam em seus tumulos, em varios momentos os ricos da epoca queriam conservar seus espiritos, tinham um medo aterrador da morte que os levava a fazer o mal, escravizar, etc. 
-
-Jesus revelou que é mais facil um camelo passar no buraco de uma agulha que um rico entrar no reino dos céus. Desejaria realmente conhecer o que isto realmente significa?
-
-Porque os ricos tem tanto medo da morte afinal? Qual misterio metafisico espreita esse interim entre as palavras de Jesus e a psicologia do pavor do rico que o faz se apegar tanto a bens materiais?
-
-Qual mal aterrador espera os ricos? Descubra nos proximos capitulos.
-
-
-
-
-
-
-
-
-# **Matrix Decode**: Destroying the structures of domination
-
-E se você pudesse decifrar o verdadeiro significado por trás das palavras de Jesus? E se a lógica e a razão confirmassem os mesmos mistérios que a fé sempre abraçou? E se, além da verdade espiritual, Cristo trouxesse consigo a mais elevada metafísica, uma compreensão cósmica que transcende o tempo?  
-
-Neste livro, você será conduzido a uma jornada profunda pelos pensamentos ocultos de Jesus, explorando não apenas seus ensinamentos sagrados, mas a estrutura metafísica que os sustenta. Descubra:  
-
-- **O Evangelho político**: Como a verdade, plenamente entendida, modificará o cenário político atual, revelando a verdadeira natureza das guerras e miséria no mundo moderno.  
-- **Os Códigos Divinos**: A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.  
-- **A Ciência do Milagre**: Como a fé, a física e a metafísica se unem nos atos sobrenaturais de Jesus.  
-- **O niilismo patológico**: Como Jesus diagnosticou, há 2.000 anos, o niilismo da era contemporânea e as patologias associadas a este modelo de pensamento.
-- **A verdadeira origem das guerras e da miséria**: Como as estruturas de poder exploram a ignorância espiritual das massas.
-- **O caminho para uma sociedade crística**: O modelo de justiça, compaixão e soberania ensinado por Jesus – e por que ele ameaça qualquer sistema baseado em opressão.
-
-**Não se trata apenas de ler as palavras de Jesus, mas de penetrar em sua mente, compreender sua visão cósmica e desvendar os mistérios que a humanidade ainda não estava pronta para receber.**  
-
-Prepare-se para uma revelação que unirá fé, filosofia e ciência, transformando para sempre sua compreensão da vida.  
-
-**"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**  
-
-# **Somos construtores de pirâmides modernas**  
-
-Ao imaginar o que levava uma civilização inteira a dedicar sua existência à construção de pirâmides, surge uma pergunta perturbadora: **seria o medo de que aquelas estruturas fossem, de alguma forma, essenciais para a ordem do cosmos?**  
-
-Da mesma forma, hoje, bilionários e magnatas acumulam riquezas com uma obsessão que parece irracional—**não por sabedoria ou por um projeto social legítimo, mas por um segredo interno, um terror metafísico que os corrói.**  
-
-Assim como os faraós acreditavam que suas tumbas e múmias os salvariam da morte, os ultra-ricos de hoje constroem suas próprias "pirâmides": bunkers, ilhas privadas, tecnologias de imortalidade e fortunas inalcançáveis através da escravidão moderna, tal como na Antiguidade, parece que nada mudou—ainda somos escravos, olhando para o horizonte e esperando o dia em que desfrutaremos plenamente da vida. Somos ainda escravos com privillégios, a tecnologia tornou mais complexo o demolo de escravidão, que agora é fazer o cidadão acreditar que é livre; mas que na verdade esta recebendo pouco pelo seu esforço e sendo levado a se esforçar de forma imedida.
-
-**Mas por quê?** Porque depois de tanta evolução a escravidão ainda acontee? Porque o mundo ainda tem dominações se temos todo tipo de aparelhem e ciencia politica? Se temos a internet para trocarmos informações, porque o sumo controle ainda não foi assumido?
-
-Só há uma razão para isso. Ainda não entendemos complemtanete o mecanismo de opressao, a causa suma da escravidao que parte da mentalidade dos bilionarios. Ainda não entendemos as palavras de Jesus. Não compreendemos a verdadeira intenção do rico, nem o que ele guarda na alma. Não questionamos as formas exploratórias porque as julgamos necessárias. Não imaginamos o conflito que os donos dos empreendimentos escravistas carregam no íntimo, e assim não medimos a má intenção por trás de suas ações. Em outras palavras, ainda hoje não sabemos como as pirâmides foram construídas—mas o que mais precisamos descobrir é **por que** foram construídas.  
-
-Muitos ao olharem para as fortunas não entendem seu proposito real, julgam ate mesmo os empresarios ricos necessarios para o mundo, não conceguem conceber como um ser humano pode ser tão mal, agir com tamanha má intenção sobre a justificativa de crescimento social.
-
-Quando o mundo finalmente entender o proposito das piramides, ou seja, o proposito das lamburguines dos ricos, dos seus hiates, de seu acumulo de fortuna, finalmente a constestação a essas formas exploratórias tera uma completa adesão popular. O medo de que destruir as fortunas acabgará, a sutil impressão de que os ricos tem alguma sanidade e algum bom proposito acabara de uma vez por todas.
-
-Comeremos nossa busca por entender a mentalidade do rico resolvendo os principais problemas metafisicos ainda não resolvidos, para entender de forma verdaeira o que é Deus e o que é a alma. Assim que entedermos podemos explorar as potencialidades da alma de forma a entender o que se passa na mente perturbada dos bilionarios.
-
-### **O Segredo Que os Ricos Não Querem Que Você Saiba**  
-
-Não se trata de inteligência, mérito ou "fazer o mundo melhor". **É sobre um vazio—um medo primitivo que Jesus expôs há dois milênios:**  
-
-> *"É mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no reino dos céus."*  
-
-Essas palavras não são apenas uma crítica moral, mas uma **revelação metafísica**. Os ricos, em sua maioria, não acumulam por ambição, mas por **pânico**. Eles sabem, ainda que inconscientemente, que a riqueza extrema é uma armadilha—**uma ilusão de que o ouro pode comprar a eternidade.**  
-
-Conheça, neste livro, o mundo espiritual em detalhes e compreenda o que realmente acontece com a psique dos ricos—e qual será o destino deles.  
-
-### **Como os ricos realmente ficam ricos**  
-
-Não há outra forma de riqueza se não pela escravidão, ou seja, pelo mal. Não existe um ser humano que é mil vezes mais inteligente para justificar um ganho mil vezes maior mensal, ou até um milhão de vezes maior. Sim, existem acasos que fazem alguem enrriquecer, porém, não seria este o caso das pessoas que enrriquece rapido, cuja as ações tem uma forte ligaçao com o mal.
-
-Milhares de livros são lançados todos os anos passando formulas mágicas de como ficar rico, porém não dizem realmente como ficar rico, só dizem como trabalhar de forma eficaz. O verdadeiro modo de ficar rico do zero é sendo mal. Qualquer individuo que se predisponha a ilegalidade ou a qualquer forma cruel de ação ganha dinheiro como mágica.
-
-A riqueza não vem de uma forma de pensar ou de uma formula magica de investimento, mas da disposição deliberada do individuo de fazer exatamente qualquer coisa por dinheiro. Fazendo qualquer coisa se obtem dinheiro de inumers formas possíveis.
-
-Basta uma pitada de inteligencia, e não é necessario genialidade, para encontrar algo que é possível fazer para se obter pela maldade o dinheiro. Mas, o que realmente motiva um ser humano a abandonar sua humanidade, seus relacionametnos, sua vida emocional, sua saude mental e tudo que enxerga de bom afim de cometer atos tão atrozes por dinheiro como é o caso de escravizar pessoas?
-
-O metodo para ganhar dinheiro rapido é facil de se entender, mas a motivação ainda continua de dificil acesso. Porque alguem iria querer juntar uma fortuna vendo pessoas desfalecendo, adoecerem, perderem seus preciosos tempos de vida, não podendo conviver com familias e vivenciar momentos alegres? Que tipo de mentalidade leva o individuo a não se importar mais com o outro e muitas vezes nem consigo mesmo afim de tanta riqueza?
-
-É essa apatia que vamos explorar começando pela base dela: a alma. O mundo metafisico é a base para qeu entendamos de onde parte essa patologia, essa obsessão que leva o indivuo a se zumbificar, que tira dele sua humandade sob o proposito xulo de ver alguns digitos a mais na sua conta. Que tipo de hipnose, ou doença mental o aflige? Entendendo o real proposito do bilionario vamos conseguir desarticular suas estruturas, prever seus passos, entender seus movimentos, vamos conseguir isola-lo afim afim de captura-lo em sua intenção, entedender seus movimentos futuros. O unico modo de vencer a escravidão moderna e a entendendo. A decifrando. A força do entendimento é mais eficaz que a força bruta de conbate, de nada adianta matar todos os bilionarios como no caso recente do Luiz mangori, pois o verdadeira motivação que originrá outros lideres escravistas continua evidente e descoonhecida na sociedade.
-
-
-
-Quando o individuo s etorna niilista teme a si mesmo perante a morte e não propriamente a morte, passa a ser ser algoz, seu auto-julgador. E a isistencia da posição da alma contraria a existencia causa uma sintomatica conflituosa no corpo, e essa sintomatica ocasiona os sistemas de opressor.
-
-O individuo passa a tentar eliminar a alegria a sua volta e tudo que contraria a seu firme proposito pela auto-destruição.
-
-Na eternidade os atos são temporais, portanto o ato de se findar é um ato temporal e não um ato definitivo, ou seja, a alma possuidora de todo o tempo continua sendo retroalimentada de um vazio de si, o individuo simplesmente se esvai do tempo, e o que sobra é sua auto imagem desmembrada. Uma eternidade de alguem que se foi do tempo e que se vai a todo mundo. O fogo do inferno é produzido pela retroalimentação constante da decisão do individuo de seu sumiço. O inferno não é construido pela consequencia de um ato, mas pela manutenção deste ato pela força do desejo. Uma dureza de coração eterna é a morte eterna e não um ato isolado no tempo. Portanto, o individuo ainda existe, mas sua existencia é velada, é sem significado, é não vivida. Portanto, o coração totalmente enrrigecido forma, em razão de sua intenção e não em razão da  possibiildaide metafisica, a morte eterna. 
-
-Nao é a impossibilidade de voltar a vida que o rico teme, mas a possibildiade de permanecer no estado para sempre em razão da tamanha rigidez de sua intenção em relacão a seu posicionamento quanto a vida. O rico teme a sua propria teimosia, a sua certeza do mal que fara a si mesmo e a manutenção deste mal, a inclinação firme e imutavel que possui é que lhe confere terror, pois o corpo nada pode fazer contra a força da alma. Temos portanto uma dicotomia no prirpio corpo, um estado de ansiedade que o corpo desenvolve por portar uma decisão tão dura contra si mesmo. O Corpo, portanto, manifesta o temor perante a propria alma nele instaurada.
-
-
-
-- A presença atemporal do Espírito não exige uma determinação, pois não é numérica ou dimensional, portanto, dispensa forma e número. 
-- A presença tem como única configuração a dualidade entre presença e nada-auto supressor, o qual evidencia novamente a presença. 
-
-Enfim, a análise do **campo fenomenológico** e do **Espírito em seu estado temporal puro** revela que ambos são **determinações internas do Absoluto**, não fundamentos autônomos. Isso aponta para uma natureza mais profunda: o Absoluto não é estático, mas um **campo dinâmico de autodeterminação**, onde a própria distinção entre "não manifestação" e "manifestação" emerge como expressão de sua atividade essencial. 
-
-
-### **Determinação e Fundamentação: A Dialética entre Pureza e Fenômeno**
-
-A pureza (integralidade) não "esconde" ou "envolve" a determinação temporal, mas a resume em uma síntese auto fundamentadora.
-Sendo tudo considerado um subnível da pureza, sendo a pureza a existência mais firme. Ou seja, o fenômeno não seria um empecilho à pureza, mas teria uma tendência à pureza total, de forma que sua opacidade tende ao nada radical e não realmente à pureza.
-
-Desta forma, temos que o fenômeno não é uma concretude no espírito, mas um esboço de uma falta de concretude, o que permite a auto fundamentação. Ou seja, ao imaginarmos que os fenômenos não são opacos, mas translúcidos de forma a tenderem para o nada auto supressor.
-
-Desta forma, sendo o Espírito a existência mais firme, o fenômeno tende à má translucidez, que é a translucidez que não fundamenta, a auto supressora.
-Sendo assim, todo evento não afeta a pureza fundamental, mas tende a ela para encontrar seu fundamento eterno.
-
-Podemos citar um exemplo para ilustrar: O fenômeno é mais transparente que o Espírito; desta forma, não interfere no processo de auto fundamentação do Espírito. No entanto, sua transparência está mais próxima do nada radical do que da pureza radical, sendo, portanto, translúcido no sentido mal, e não no sentido da existência.
-
-Portanto, o fenômeno seria menos concreto ou literal do que o Espirito fundamental. O Espírito portanto seria a existência de máximo teor, àquela desprendida de qualquer determinação, seja está fenomênica ou não fenomênica. De forma que, tenha consumado em si, toda a temporalidade, eventos e possibilidades já manifestadas em ato único. Mantendo sua internalidade dinâmica conforme a ação fundamental do Espirito.
-
-Como analogia podemos citar um universo que em um momento único já contem seu inicio, meio e fim. E, dentro desta integralidade, há existências de um teor existencial inferior, desta forma, não colidindo com sua capacidade de fundamentação.
-
-Concluimos que o conceito comum de "fantasmagorico" atribuido ao mundo espiritual, naturalmente deveria ser atribuido a materia, que seria realmente o elemeneto com menos densidade existencial. Ou seja, a materia seria uma transparencia, uma existencia fragmentada, destituida de plenitude. Em outras palavras, o mundo Espíritual é a base da exitencia enquanto o mundo fenomenico é um elemento fantasmagorico manifestado na temporalidade espiritual. Não se constitui, como vida e fundamento.
-
-> "O mundo fenomenico é uma projeção de existencia emergida do relativo, é uma afirmação no Espírito indiferenciado. O Espirito contem todos os estados suspensos. Basta-lhe um acontecimento temporal no Espírito já ocorrido em sua integralidade. Enfim, o nada é somente o estado de indecisão de Deus anterior ao todo consumado. Temporalmente o Ser esteve indeciso, apesar de já estar consumado, e essa não decisão do futuro era o nada. No tempo interno há o futuro de forma não revelada, esse não revelar é o nada."
-
-#### **1. A Pureza como Síntese Atemporal**  
-
-A **pureza radical do Absoluto** não subsume passivamente as determinações temporais, mas as **resignifica em um ato único de autofundamentação**. Nesse estado:  
-- **Temporalidade dissolvida:** Eventos não são "partes" justapostas, mas **dimensões co-presentes** em uma totalidade atemporal.  
-- **Hierarquia ontológica:** A pureza não "contém" o fenômeno como um invólucro, mas **o transcende como fundamento vivo**, sendo a única existência plenamente autêntica (*esse firmissimum*).  
-
-#### **2. O Estatuto do Fenômeno: Translucidez Degradada**  
-O fenômeno não é um obstáculo à pureza, mas **sua expressão deficitária**:  
-- **Natureza translúcida:** Sua aparente opacidade é, na verdade, **tendência ao nada auto-supressor** (não à plenitude).  
-- **Existência derivada:** Comparado ao Espírito (máxima densidade existencial), o fenômeno é:  
-  - *Menos concreto*: Mera sombra de determinação, sem autonomia ontológica.  
-  - *Quase-nada*: Transparência que se esvai, aproximando-se da auto-supressão.  
-
-#### **3. Dinâmica Fundamentadora**  
-A relação entre os níveis obedece a uma **dialética de fundamentação**:  
-1. **O Espírito como ato puro:**  
-   - Consumação de todas as possibilidades em um *presente eterno*.  
-   - Internalidade dinâmica que não requer manifestação fenomênica para ser.  
-2. **O fenômeno como resíduo:**  
-   - Não afeta a pureza, pois sua "existência" é **devir em direção ao nada**.  
-   - Funciona como *espelho quebrado*: reflete fragmentos do Absoluto, mas sua estrutura tende à dissolução.  
-
-#### **4. Ilustração Analógica**  
-- **Universo em ato único:** Imagine um livro cujo início, meio e fim coexistem em uma única página. O Espírito é a página; os fenômenos, as letras que só "existem" enquanto a luz (o fundamento) as ilumina.  
-- **Hierarquia da luz:**  
-  - *Espírito*: Luz pura (fonte incondicionada).  
-  - *Fenômeno*: Brilho residual (que se extingue quando cessa o olhar).  
-
-#### **Conclusão: A Primazia do Espírito**  
-O fenômeno não é **outro** em relação ao Absoluto, mas **seu modo deficitário de aparecer**. Enquanto o Espírito *é*, o fenômeno *está sendo* — e esse "estar sendo" é, em última instância, **movimento de retorno à indiferenciação originária**. A autofundamentação não é perturbada porque:  
-- O fenômeno é **não-substancial** (como onda no oceano).  
-- Toda determinação já está **redimida** na eternidade do ato puro.  
-
-# Estrutura da Autodeterminação  
-
-### O Absoluto como Pessoalidade e Pureza
-  - Sendo o Absoluto autodeterminado, conclui-se que o agente da determinação é uma pessoalidade de pureza absoluta — pois, ao existir, não se fixa em nenhuma forma, dissolvendo-se imediatamente até mesmo no que é criado ou determinado a partir de si (absoluto cognocível). Sua ação se realiza junto à sua própria translucidez, revelando, assim, a perfeição da pureza: uma existência indetectável. Trata-se da forma mais livre de ser — aquela que não depende sequer da manifestação.
-
-> * O Absoluto se mostra como pura pessoalidade — uma essência tão límpida que, ao surgir, não se cristaliza em forma alguma, desfazendo-se no relativo no mesmo instante. Age justamente onde parece ausente, e nesse paradoxo revela sua perfeição: uma existência que transcende toda captação. Eis a liberdade última: ser sem estar sujeito sequer à própria determinação.*
-
-### O absoluto cognocível como Ser-aí
-  - O agente da autodeterminação é puro e sua ação determinante é eficaz. Assim, afirma-se o 'Ser-aí'. Sendo o "Ser", não anterior ou extrinseco ao "Ai" (absoluto cognocivel), mas puro ao "Ai".
-  - O "Ser" designa o determinador que age "Aí", ou seja, a existência de sua ação não define sua própria existência.
-  - O Ser, não define-se em sua ação "Aí". Existe além do que é manifestado.
-
-### O Ser como pureza autodeterminada
-- O Ser, enquanto absoluto, se autodetermina Ser.  
-  - Isso significa que o potencial do Ser (absoluto cognocível) não é um acidente, mas uma expressão necessária em sua autodefinição.  
-
-  
-
-### O Relativo como Ser Autônomo  
-- "O Absoluto é o Ser, e o Ser-Aí é o relativo autodeterminado."  
-  - Não há dualidade entre Absoluto e Relativo, pois o relativo é o modo como o Absoluto se autodetermina e é constituído em sua própria estrutura idealizadora.  
-**"O Ser é, porque se determina a Ser; e se determina a Ser, porque é Absoluto."**  
-
-## A Pureza do Ser e a Necessidade do Determinado  
-
-- O **"Ser"** (autodeterminação pura) existe em si mesmo, mas não pode manifestar-se sem um determinado.  
-  - Autodeterminação pura exige um termo relacional (aquilo que é determinado).  
-  - Portanto, a própria indiferenciação (Relativo) surge como contraparte necessária da autodeterminação.  
-
-
-O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimitar cria o mundo fenomênico. Essa relação é dialética: a manifestação só existe para o determinador, e o determinador se doa na manifestação.  
-
-## **A manifestação do(s) Sou(s)**  
-
-Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera pode ser de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
