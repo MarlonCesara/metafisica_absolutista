@@ -2114,7 +2114,7 @@ O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo
 
 ## Significado
 
-- No contexto biblico Deus fez o homem do barro e soprou em suas narinas, isso na metafisica é definido como uma lei conceitual, e não uma lei fisica. Pois o homem é barro até que seu corpo de barro seja definito como padecido. Está definição trás o declinio da lei de vivencia no barro. Portanto, o barro, é viver sob uma lei fisica. A libertação, portanto, trás a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua total verdade.
+- No contexto biblico Deus fez o homem do barro e soprou em suas narinas, isso na metafisica é definido como uma lei conceitual, e não uma lei fisica. Pois o homem é barro até que seu corpo de barro seja definito como padecido. Está definição trás o declinio da lei de vivencia no barro. Portanto, o barro, é viver sob uma lei fisica. A libertação, portanto, trás a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua total verdade e suas infinitas possibilidades, que extrapolam infinitamente a lei conceitual do homem criado no barro.
 
 - O universo não é separado do todo, mas é um existir. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a biblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas se refere que o barro - o que chamaos de atomo ou energia- impede a alma de viver intensamente, de experiementar o que realmente a plenifica. De vivenciar a alegria da variedade de vivencias que a torna plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, porém numa vivencia esterea do barro.
 
@@ -2123,8 +2123,6 @@ O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo
 - O tempo sendo dualistico, na esfera do cosmo do Ser é determinado pelo Ser, mas na esfera do cosmo do homem é determinado pelo homem. No sentido que, pode haver uma realidade em que o tempo segue regras como esta agora, e uma realidade em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
 
 - Ao considerar o amor e plenitude do Ser, podemos esperar as formas mais fantasticas de vida, as experiencias mais inefaveis e extraordinarias, podemos esperar o extase, o incrível, o inefavel.
-
-A ilustração que você compartilhou apresenta um rico simbolismo sobre a transcendência da alma além das limitações materiais, e podemos traçar uma profunda analogia com o episódio bíblico em que Jesus cura o cego de nascença misturando terra com saliva (João 9:1-12). Eis os paralelos:
 
 ### **1. O Barro como Véu da Percepção**  
 No seu texto, os homens de barro têm os olhos cobertos por uma crosta que os impede de ver a realidade plena do paraíso — assim como o cego do Evangelho vive em escuridão até que Cristo intervém. A saliva (símbolo do espírito/essência divina) misturada ao barro (matéria) representa a união do transcendente com o imanente, rompendo a opacidade do mundo físico.  
@@ -2150,7 +2148,7 @@ Assim como o menino da sua história testemunha as almas despertando de suas cas
 > *"O reino de Deus está dentro de vós"* (Lucas 17:21).  
 A saliva de Cristo é a sabedoria que dissolve o barro da ilusão; o rio cristalino do seu texto é a graça que flui do interior (João 7:38). Ambos os relatos apontam para a mesma verdade: a plenitude já está aqui — basta que nossos olhos sejam desobstruídos.
 
-
+O texto abre nossa percepção para o fato de que não vamos para a eternidade, já estamos nela, e estamos em processo de mudança. Abre os nossos olhos para a percepção que o comportamento do que chamamos agora de alem já se dá no exato presente. Há pessoas que desistem da vida por sentirem um ódio inexplicavel e que aqui mesmo em vida se matam aos poucos. Há pessoas aqui mesmo que vivem com grande caridade e alegria interior. E há pessoas aqui mesmo que não se sentem totalmente leves, livres e felizes pelas amarras da falta de perdão e do ódio. O homem, com o evangelho metafisico, adere de forma mais firme as verdades biblicas de maneira a se considerar integrande desde o momento presente da vida eterna e responsável por quem é perante a esta vida.
 
 
 
