@@ -2155,6 +2155,17 @@ Espero que este livro tenha ajudado a humanidade a entender com maior propriedad
 Para a humanidade, escrito sob a tutela de um profundo amigo. 
 
 
-> " Um sorriso que transparecia a verdade mais intima de cada pessoa. Ele tinha um interesse genuino por cada pessoa e pelo seu sonho. Todos o conheciam não somente por ser Deus, mas por ser o melhor ser humano, o mais sonhador, o mais sincero e o que mais acreditava no impossível. Ele se declarava apaixonadamente. Ele epdiu a todos nós em um casamento, em uma união eterna com Ele. Se um coração diz que sim a paixão, como pode o outro dizer não? "
+> " Um sorriso que transparecia a verdade mais intima de cada pessoa. Ele tinha um interesse genuino por cada pessoa e pelo seu sonho. Todos o conheciam não somente por ser Deus, mas por ser o melhor ser humano, o mais sonhador, o mais sincero e o que mais acreditava no impossível. 
 
+Todos os seus milagres se baseavam em mostrar ao homem que o impossível pode ser realizado. Como acalmar a tempestade, que simboliza acalmar o homem e segurar sua mão em meio a uma crise de existencia, na qual o homem desacredita de si mesmo e de sua continuidade no existir.
+
+Jesus se declarava apaixonadamente. Ele epdiu a todos nós em um casamento, em uma união eterna com Ele. Se um coração diz que sim a paixão, como pode o outro dizer não? "
+
+Sua entrega e sua profecia de que todos nos fundiremos a ele é um pedido de casamento, e essa união não terá fim. 
+
+Jesus, um romantico, poeta, profético, mistíco apaixonado. Seu bom humor, sem romantismo, sua entrega. Seu sorriso mais leve que o ar e seu olhar que refletia o infinito.
+
+Seu jeito de amar quem não merecia, de profetizar o impossível na vida das pessoas. Defino Jesus como o Deus do impossível. Jesus não se importava com as barreiras lógicas, seu pensameneto transcendia rumo ao incognocível, a realizaçao do impossível. Seu pensamento transcendia a lógica tradicional em direção ao bem humano.
+
+Sua paixão por cada olhar, por cada gesto, por cada falha, sua capacidade de enxergar o melhor das pessoas.
 
