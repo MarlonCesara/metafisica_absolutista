@@ -1902,6 +1902,14 @@ O estado infernal revela:
 
 # **Alegorias metafísicas**
 
+"As Alegorias Metafísicas" é uma obra inspirada na sociedade e na realidade metafísica. Trata-se de uma abordagem não convencional para descrever a metafísica em sua totalidade e sua intrínseca relação com o comportamento humano. Essa obra se sustenta em três premissas fundamentais:
+
+> O universo não é separado do Todo, mas é uma existência. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a Bíblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas sim ao fato de que o barro — o que chamamos de átomo ou energia — impede a alma de viver intensamente, de experimentar o que realmente a plenifica, de vivenciar a alegria da variedade de experiências que a tornam plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, ainda que numa vivência estéril do barro.
+
+> O tempo, sendo dualístico, na esfera do cosmo do Ser, é determinado pelo Ser, mas na esfera do cosmo do homem, é determinado pelo homem. No sentido de que pode haver uma realidade em que o tempo segue regras como as atuais e outra em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
+
+> Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas mais fantásticas de vida, as experiências mais inefáveis e extraordinárias, podemos esperar o êxtase, o incrível, o indizível.
+
 ## Um vislumbre do paraíso
 
 Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um garotinho de cabelos dourados e roupas simples, porém elegantes — um sobretudo azul com detalhes dourados e uma echarpe esvoaçante — contempla, maravilhado, um conjunto de montanhas de cristal que se erguem diante dele.
@@ -2083,12 +2091,6 @@ O paraíso não julgava — apenas mostrava a cada um o que já era. Como um esp
 E então, no ápice de sua compreensão, o garoto fez a descoberta mais extraordinária: as almas **podiam mudar**. Viu uma mulher de luz sombria que, ao observar uma flor de pétalas douradas, começou a cantarolar uma canção esquecida da infância. Notou como, nota após nota, sua luminosidade se intensificava. Viu um homem que por eras repetira gestos de avareza, até que uma borboleta de cristal pousou em sua mão — e o simples contato com aquela inocência quebrou seu ciclo. Até mesmo as almas à beira da dissolução podiam ser salvas, se aceitassem o abraço de outra alma mais luminosa.
 
 O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo — esse tempo elástico e dançante — era o espaço da cura.
-
-> O universo não é separado do Todo, mas é uma existência. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a Bíblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas sim ao fato de que o barro — o que chamamos de átomo ou energia — impede a alma de viver intensamente, de experimentar o que realmente a plenifica, de vivenciar a alegria da variedade de experiências que a tornam plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, ainda que numa vivência estéril do barro.
-
-> O tempo, sendo dualístico, na esfera do cosmo do Ser, é determinado pelo Ser, mas na esfera do cosmo do homem, é determinado pelo homem. No sentido de que pode haver uma realidade em que o tempo segue regras como as atuais e outra em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
-
-> Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas mais fantásticas de vida, as experiências mais inefáveis e extraordinárias, podemos esperar o êxtase, o incrível, o indizível.
 
 ### **1. O Barro como Véu da Percepção**  
 No texto, os homens de barro têm os olhos cobertos por uma crosta que os impede de ver a realidade plena do paraíso — assim como o cego do Evangelho vive em escuridão até que Cristo intervém. A saliva (símbolo do espírito/essência divina) misturada ao barro (matéria) representa a união do transcendente com o imanente, rompendo a opacidade do mundo físico.  
