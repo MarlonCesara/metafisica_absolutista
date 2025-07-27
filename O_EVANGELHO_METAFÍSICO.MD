@@ -1203,16 +1203,16 @@ A relação entre o relativo e a manifestação (existência fenomênica) é med
 
 # A potencialidade do Ser
 
-O Ser tem como relativo todas as possibilidades dentro do campo do absoluto, que se configura como possível, impossível e incognoscível.
-Sendo assim, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se configura como total potencialidade do existir e não como uma existência particular e formalizada.
+O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível.
 
-Ou seja, se o Ser fosse uma existência A, estaria formalizado como A e teria como potencial a existência de A, porém, o relativo atribui potência ao existir no campo das possibilidades do existir. Desta forma, o possível e seu limiar que é o impossível e o incognoscível são opções, desde que existam.
+Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada.
 
-Em palavras mais simples, se é possível existir é possível ao Ser, sendo o Ser não uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente corrente.
+Ou seja, se o Ser fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam.
 
-Desta forma, seria possível ao Ser até mesmo determinar-se multiplo. Atemporalmente o ser não possúi dimensões, portanto não é numérico. No entanto, temporalmente haveria essa possibilidade. Portanto, são infindávels o campo das possibilidades para o existir, em antitese, é nulo o campo das possibilidades para o que não existe.
+Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente.
 
-duvida
+Desse modo, seria possível ao Ser até mesmo determinar-se como múltiplo. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
+
 # A manifestação do sou (A criação da Alma do Homem) 
 
 ### Não multiplicidade do Ser
