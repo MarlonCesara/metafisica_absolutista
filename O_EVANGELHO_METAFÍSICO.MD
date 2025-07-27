@@ -61,7 +61,7 @@ Mas agora sabiam **como** conhecer.
 
 Os princípios lógicos fundamentais—**Identidade, Não-Contradição e Terceiro Excluído**—podem ser reinterpretados à luz de uma distinção entre **atemporalidade e temporalidade**. Observa-se que o **Princípio da Não-Contradição** e o **Princípio do Terceiro Excluído** são manifestações de uma mesma estrutura lógica em dimensões distintas: uma **estática (atemporal)** e outra **dinâmica (temporal)**.  
 
-Enquanto o **Princípio da Não-Contradição (¬(A ∧ ¬A))** estabelece a impossibilidade de um ente **assumir predicados contraditórios em um mesmo instante**, o **Princípio do Terceiro Excluído (A ∨ ¬A)** opera em um contexto em que se ** introduz a necessidade de decisão entre ser e não-ser definitiva**. Assim, ambos derivam de uma mesma exigência ontológica: a **preservação da consistência do ente**, seja em sua **forma imutável (atemporal)**, seja em sua **manifestação no devir (temporal)**.  
+Enquanto o **Princípio da Não-Contradição (¬(A ∧ ¬A))** estabelece a impossibilidade de um ente **assumir predicados contraditórios em um mesmo instante**, o **Princípio do Terceiro Excluído (A ∨ ¬A)** opera em um contexto em que se **introduz a necessidade de decisão entre ser e não-ser definitiva**. Assim, ambos derivam de uma mesma exigência ontológica: a **preservação da consistência do ente**, seja em sua **forma imutável (atemporal)**, seja em sua **manifestação no devir (temporal)**.  
 
 #### **Sintese:**  
 1. O **Princípio da Não-Contradição** ("A não pode ser não-A ao mesmo tempo") introduz uma **dimensão temporal**, garantindo que um ente não assuma estados opostos **simultaneamente**. 
