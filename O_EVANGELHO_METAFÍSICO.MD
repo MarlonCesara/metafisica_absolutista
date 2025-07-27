@@ -2063,42 +2063,39 @@ Ao investigar mais a fundo a história dessas almas, descobriu que eram pessoas 
 
 
 
-### **As Almas que se Dissolviam**
+### **As Almas que desapareciam**
 
 Eram as mais raras e as mais trágicas. Despertavam com um grito silencioso, seus corpos de luz tremeluzindo como velas ao vento. Seus olhos — pois ali os olhos ainda eram espelhos da alma — mostravam um terror primordial. Não do paraíso que as rodeava, mas de algo dentro de si. Antes que o garoto pudesse estender a mão, elas começavam a desfazer-se: primeiro os contornos, depois a substância, até restar apenas um brilho residual que se esvaía como fumaça. Em seus últimos instantes, sussurravam verdades dilacerantes: *"Não suporto estar comigo"*, *"É tudo culpa minha"*, *"Mereço o nada"*. O garoto, com lágrimas de estrelas escorrendo pelo rosto, compreendeu que essas eram almas que, em vida, haviam transformado sua dor em autoaniquilação. Suicidas não apenas do corpo, mas da própria essência — que agora, diante da eternidade, recusavam-se a si mesmas. Seu desaparecimento não era castigo, mas o último ato de liberdade de quem preferia o vazio à redenção.
 
 O garoto, com seu olhar que penetrava além das formas, discerniu o fio negro que unia aquelas almas condenadas ao esquecimento: um ódio primordial, não contra o mundo, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo de apagar-se.  
 
-Ao estuda-las mas a fundo descobriu que cometiam o que tinham na vida de barro uma deliberada e insistente busca pela morte. Os sinais mais claros eram tentativas de suicídio em vida, de forma lenta ou rápida. Dentre as almas com as quais conversou haviam muitas fumantes, almas que arriscam a vida sem necessidade ou qualquer tipo de atividade que tenha a intenção deliberada pela morte – seja esse processo mais lento ou menos lento.
+Ao estuda-las mais a fundo descobriu alguns padrôes em todas elas que cometiam na vida de barro: 
 
-Os suicidas, descobriu o garoto, — não apenas os que cortaram pulsos ou saltaram de pontes, mas os que se mataram em doses homeopáticas: garrafas de álcool transformadas em cápsulas de esquecimento, seringas cheias de névoa, comprimidos que anestesiavam a alma pedaço por pedaço. Outros eram ricos que, em meio a palácios e iates, descobriram o vazio mais absoluto e por isso tentavam espelhar na riqueza material a intenção pela vida que não tinham por dentro, tentavam substituir a verdadeira riqueza. Havia mendigos que, após uma existência de golpes e humilhações, decidiram demonstrar em vida o que sentiam por dentro. 
+- Algumas tinham uma deliberada e insistente busca pela morte. Os sinais mais claros eram tentativas de suicídio em vida, de forma lenta ou rápida. Dentre as almas com as quais conversou haviam muitas fumantes, almas que arriscam a vida sem necessidade ou qualquer tipo de atividade que tenha a intenção deliberada pela morte – seja esse processo mais lento ou menos lento. Os suicidas, descobriu o garoto, — não apenas os que cortaram pulsos ou saltaram de pontes, são os que se mataram em doses homeopáticas: garrafas de álcool transformadas em cápsulas de esquecimento, seringas cheias de névoa, comprimidos que anestesiavam a alma pedaço por pedaço. Portanto, em vida essas almas suicidas afastavam as coisas boas e procuravam a propria morte, não somente com atos e palavras, mas com ações. Reforçavam o ação na eternidade com demonstrações na vida de barro. 
 
-Todos eles eram indivíduos totalmente absorvido pela ideia de se autodanar e se afastavam das experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria. 
+- Outras eram ricos que, em meio a palácios e iates, descobriram o vazio mais absoluto e por isso tentavam espelhar na riqueza material a intenção pela vida que não tinham por dentro, tentavam substituir a verdadeira riqueza. Havia mendigos que, após uma existência de golpes e humilhações, decidiram demonstrar em vida o que sentiam por dentro. Ambas as categorias, ricos e mendigos, tentavam gritar para a sociedade seu estado interior seja se fadando a mendicancia ou se fadando ao acumulo extremo de bens materiais, todas são demonstração de cede interior.
 
-Todos eles tentavam gritar para a sociedade seu estado interior seja se fadando a mendicancia ou se fadando ao acumulo extremo de bens materiais, todas são demonstração de cede interior.
+- Todos eles eram indivíduos totalmente absorvido pela ideia de se autodanar e se afastavam das experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria. 
 
-A ação da danação não era motivada por um simples desgosto ou uma ausência de sentido em relação à vida, mas por um ódio difícil de remediar, que fazia com que o indivíduo quisesse se consumir, como uma vingança realizada em si mesmo, que não poderia chegar até o outro que gostaria de atingir.
+- Todas tinham um grande ódio. A ação da danação não era motivada por um simples desgosto ou uma ausência de sentido em relação à vida, mas por um ódio difícil de remediar, que fazia com que o indivíduo quisesse se consumir, como uma vingança realizada em si mesmo, que não poderia chegar até o outro que gostaria de atingir.
 
-Algumas das almas que sumiam compartilhavam alções em comum na vida de barro: o desejo de fazer o outro sentir o mesmo fogo que as consumia por dentro. Alguns o faziam com crueldade aberta — palavras afiadas, traições calculadas, violência gratuita. Outros, de modo mais sutil, espalhando cinismo como um vírus, sufocando esperanças alheias para justificar sua própria desesperança. Eram artistas do sofrimento, tecelões de miséria, que não suportavam ver luz onde haviam escolhido escuridão.  
+- Muitas tinham o desejo de fazer o outro sentir o mesmo fogo que as consumia por dentro. Alguns o faziam com crueldade aberta — palavras afiadas, traições calculadas, violência gratuita. Outros, de modo mais sutil, espalhando cinismo como um vírus, sufocando esperanças alheias para justificar sua própria desesperança. Eram artistas do sofrimento, tecelões de miséria, que não suportavam ver luz onde haviam escolhido escuridão.  
 
-Todas em vida não suportavam a frustração pela propria realidade interior que elas mesmas estabeleceram para si. Sintomas comum entre elas era um ódio gratuito, violencia fisica, desespero constante e uma enorme habilidade de auto engano, de disfarçar para o proprio corpo a propria intenção. Gostavam de viver em mentiras. Também tinham um orgulho extremo.
+- Todas em vida não suportavam a frustração pela propria realidade interior que elas mesmas estabeleceram para si. Sintomas comum entre elas era um ódio gratuito, violencia fisica, desespero constante.
 
-Quando o menino perguntava por que elas desapareciam antes de sumir de vez, nenhuma admitia que iria fazê-lo. Se ele tentasse revelar a verdade, elas ficavam agressivas e tentavam mais uma vez se esconder de suas próprias intenções.
+- Todas praticavam o auto engano. Quando o menino perguntava por que elas desapareciam antes de sumir de vez, nenhuma admitia que iria fazê-lo. Se ele tentasse revelar a verdade, elas ficavam agressivas e tentavam mais uma vez se esconder de suas próprias intenções. Desenvolviam uma enorme habilidade de auto engano, de disfarçar para o proprio corpo a propria intenção. Gostavam de viver em mentiras. Também tinham um orgulho extremo.
 
-As almas que tinham a intenção de se danar não necessariamente tinham um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção.
-
-Portanto, em vida essas almas suicidas afastavam as coisas boas e procuravam a propria morte, não somente com atos e palavras, mas com ações. Reforçavam o ação na eternidade com demonstrações na vida de barro. 
+- As almas que tinham a intenção de se danar não necessariamente tinham um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção. Portanto, todas evitavam criar expectativas, ou sonhar, idealizar, viver coisas boas. Quando a vida delas ficava boa, faziam questão de sabotar.
 
 Para o garoto, era incompreensível. Ele via suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam.  
 
-Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como uma coroa de espinhos, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
+Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
 
 E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
 
 O garoto chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado.  
 
 Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade.
-
 
 ### **A mudança das almas**
 
