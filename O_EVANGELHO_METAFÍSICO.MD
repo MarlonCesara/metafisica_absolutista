@@ -2092,6 +2092,8 @@ E então, no ápice de sua compreensão, o garoto fez a descoberta mais extraord
 
 O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo — esse tempo elástico e dançante — era o espaço da cura.
 
+## Significado:
+
 ### **1. O Barro como Véu da Percepção**  
 No texto, os homens de barro têm os olhos cobertos por uma crosta que os impede de ver a realidade plena do paraíso — assim como o cego do Evangelho vive em escuridão até que Cristo intervém. A saliva (símbolo do espírito/essência divina) misturada ao barro (matéria) representa a união do transcendente com o imanente, rompendo a opacidade do mundo físico.  
 → *"Enquanto estou no mundo, sou a luz do mundo"* (João 9:5). Jesus é quem remove o "barro dos olhos" para revelar a verdadeira natureza da realidade.
