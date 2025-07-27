@@ -897,7 +897,7 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 - O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o não fenômeno**.  
 - Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
-#### **O Relativo**  
+## **O tempo e o Relativo**  
 
 O tempo, embora consumado, de fato se estende, e neste estender-se encontra-se um presente ainda sem seu futuro definido, embora o futuro já esteja consumado. Ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.  
 
