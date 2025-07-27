@@ -2250,3 +2250,16 @@ O Ser-Ai do Espírito é inerente à manifestação, pois sua ação de delimita
 ## **A manifestação do(s) Sou(s)**  
 
 Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza absoluta, é possível, ao Ser, determinar-se, de forma que, é a pureza até mesmo de si. Ou seja, pode manifestar-se, e o ato da própria afirmação de si agrega ao Ser uma multiplicidade, pois torna-se determinado. Ou seja, ao se determinar, determina-se na esfera da possibilidade e nesta esfera pode ser de forma numérica. Também determina-se sem sua essencia de Ser necessariamente rumo a plenitude. Ou seja, sua determinação de si pode ser multipla, ou corrobrar em prol do da existencia ou permanecer estatica.
+
+
+
+- No contexto biblico Deus fez o homem do barro e soprou em suas narinas, isso na metafisica é definido como uma lei conceitual, e não uma lei fisica. Pois o homem é barro até que seu corpo de barro seja definito como padecido. Está definição trás o declinio da lei de vivencia no barro. Portanto, o barro, é viver sob uma lei fisica. A libertação, portanto, trás a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua total verdade e suas infinitas possibilidades, que extrapolam infinitamente a lei conceitual do homem criado no barro.
+
+- O universo não é separado do todo, mas é um existir. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a biblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas se refere que o barro - o que chamaos de atomo ou energia- impede a alma de viver intensamente, de experiementar o que realmente a plenifica. De vivenciar a alegria da variedade de vivencias que a torna plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, porém numa vivencia esterea do barro.
+
+- Considerando que o Ser é pleno, e corrobora em direção a plenitude, consideremos uma infinita possibilidade de diversificação de vida e de experiencias. Se há animais, plantas, universo, tudo isto é dado como possível e real também na vida alem desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis que corroboram para o bem.
+
+- O tempo sendo dualistico, na esfera do cosmo do Ser é determinado pelo Ser, mas na esfera do cosmo do homem é determinado pelo homem. No sentido que, pode haver uma realidade em que o tempo segue regras como esta agora, e uma realidade em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
+
+- Ao considerar o amor e plenitude do Ser, podemos esperar as formas mais fantasticas de vida, as experiencias mais inefaveis e extraordinarias, podemos esperar o extase, o incrível, o inefavel.
+
