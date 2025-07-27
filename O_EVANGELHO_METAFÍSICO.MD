@@ -765,9 +765,9 @@ O Espírito (autodeterminação do Relativo) atua em três dimensões:
 
 ### **Unidade na Trindade**  
 Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:  
-- O **Poder** garante que o jogo nunca desmorone.  
+- O **Poder** garante que o universo não desmorone.  
 - A **Sabedoria** assegura que cada movimento seja impecável.  
-- A **Liberdade** introduz o riso na dança cósmica.  
+- A **Liberdade** introduz a personalidade na dança cósmica.  
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
