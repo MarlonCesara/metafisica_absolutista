@@ -2075,7 +2075,7 @@ Ao estuda-las mais a fundo descobriu alguns padrôes em todas elas que cometiam 
 
 - Outras eram ricos que, em meio a palácios e iates, descobriram o vazio mais absoluto e por isso tentavam espelhar na riqueza material a intenção pela vida que não tinham por dentro, tentavam substituir a verdadeira riqueza. Havia mendigos que, após uma existência de golpes e humilhações, decidiram demonstrar em vida o que sentiam por dentro. Ambas as categorias, ricos e mendigos, tentavam gritar para a sociedade seu estado interior seja se fadando a mendicancia ou se fadando ao acumulo extremo de bens materiais, todas são demonstração de cede interior.
 
-- Todos eles eram indivíduos totalmente absorvido pela ideia de se autodanar e se afastavam das experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria. 
+- As almas que tinham a intenção de se danar não necessariamente tinham um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção. Portanto, todas evitavam criar expectativas, ou sonhar, idealizar, viver coisas boas. Quando a vida delas ficava boa, faziam questão de sabotar. Todos eles eram indivíduos totalmente absorvido pela ideia de se autodanar e se afastavam das experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria. Como se não se permitissem sonhar, ou criar grandes expectativas pela vida que recusarão.
 
 - Todas tinham um grande ódio. A ação da danação não era motivada por um simples desgosto ou uma ausência de sentido em relação à vida, mas por um ódio difícil de remediar, que fazia com que o indivíduo quisesse se consumir, como uma vingança realizada em si mesmo, que não poderia chegar até o outro que gostaria de atingir.
 
@@ -2084,8 +2084,6 @@ Ao estuda-las mais a fundo descobriu alguns padrôes em todas elas que cometiam 
 - Todas em vida não suportavam a frustração pela propria realidade interior que elas mesmas estabeleceram para si. Sintomas comum entre elas era um ódio gratuito, violencia fisica, desespero constante.
 
 - Todas praticavam o auto engano. Quando o menino perguntava por que elas desapareciam antes de sumir de vez, nenhuma admitia que iria fazê-lo. Se ele tentasse revelar a verdade, elas ficavam agressivas e tentavam mais uma vez se esconder de suas próprias intenções. Desenvolviam uma enorme habilidade de auto engano, de disfarçar para o proprio corpo a propria intenção. Gostavam de viver em mentiras. Também tinham um orgulho extremo.
-
-- As almas que tinham a intenção de se danar não necessariamente tinham um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção. Portanto, todas evitavam criar expectativas, ou sonhar, idealizar, viver coisas boas. Quando a vida delas ficava boa, faziam questão de sabotar.
 
 Para o garoto, era incompreensível. Ele via suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam.  
 
