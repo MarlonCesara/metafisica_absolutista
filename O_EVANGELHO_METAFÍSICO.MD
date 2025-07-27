@@ -1213,6 +1213,8 @@ Em palavras mais simples: se algo pode existir, então é possível ao Ser — j
 
 Desse modo, seria possível ao Ser até mesmo determinar-se como múltiplo. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
 
+> Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.
+
 # A manifestação do sou (A criação da Alma do Homem) 
 
 ### Não multiplicidade do Ser
@@ -1535,19 +1537,7 @@ A natureza do Ser estabelece tanto leis físicas quanto conceituais, sendo que e
 ### **Conclusão:**  
 Leis conceituais estão vinculadas à definição dos termos envolvidos e podem ser reinterpretadas conforme o entendimento do Ser. Já as leis físicas operam sob condições objetivas e imutáveis, independentemente da percepção humana.  
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+> No contexto bíblico, Deus fez o homem do barro e soprou em suas narinas. Isso, na metafísica, é definido como uma lei conceitual, e não uma lei física, pois o homem é barro até que seu corpo de barro seja definido como padecido. Essa definição traz o declínio da lei de vivência no barro. Portanto, o barro é viver sob uma lei física. A libertação, então, traz a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua verdade total e suas infinitas possibilidades, que transcendem infinitamente a lei conceitual do homem criado no barro.
 
 
 # **A Dialética Transcendência**  
@@ -2094,25 +2084,18 @@ E então, no ápice de sua compreensão, o garoto fez a descoberta mais extraord
 
 O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo — esse tempo elástico e dançante — era o espaço da cura.
 
+> O universo não é separado do Todo, mas é uma existência. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a Bíblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas sim ao fato de que o barro — o que chamamos de átomo ou energia — impede a alma de viver intensamente, de experimentar o que realmente a plenifica, de vivenciar a alegria da variedade de experiências que a tornam plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, ainda que numa vivência estéril do barro.
 
-## Significado
+> O tempo, sendo dualístico, na esfera do cosmo do Ser, é determinado pelo Ser, mas na esfera do cosmo do homem, é determinado pelo homem. No sentido de que pode haver uma realidade em que o tempo segue regras como as atuais e outra em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
 
-- No contexto biblico Deus fez o homem do barro e soprou em suas narinas, isso na metafisica é definido como uma lei conceitual, e não uma lei fisica. Pois o homem é barro até que seu corpo de barro seja definito como padecido. Está definição trás o declinio da lei de vivencia no barro. Portanto, o barro, é viver sob uma lei fisica. A libertação, portanto, trás a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua total verdade e suas infinitas possibilidades, que extrapolam infinitamente a lei conceitual do homem criado no barro.
-
-- O universo não é separado do todo, mas é um existir. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a biblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas se refere que o barro - o que chamaos de atomo ou energia- impede a alma de viver intensamente, de experiementar o que realmente a plenifica. De vivenciar a alegria da variedade de vivencias que a torna plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, porém numa vivencia esterea do barro.
-
-- Considerando que o Ser é pleno, e corrobora em direção a plenitude, consideremos uma infinita possibilidade de diversificação de vida e de experiencias. Se há animais, plantas, universo, tudo isto é dado como possível e real também na vida alem desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis que corroboram para o bem.
-
-- O tempo sendo dualistico, na esfera do cosmo do Ser é determinado pelo Ser, mas na esfera do cosmo do homem é determinado pelo homem. No sentido que, pode haver uma realidade em que o tempo segue regras como esta agora, e uma realidade em que o tempo é determinado pela alma que o percebe. Considerando que o homem é um absoluto determinado, também tem um tempo determinado em si e por si.
-
-- Ao considerar o amor e plenitude do Ser, podemos esperar as formas mais fantasticas de vida, as experiencias mais inefaveis e extraordinarias, podemos esperar o extase, o incrível, o inefavel.
+> Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas mais fantásticas de vida, as experiências mais inefáveis e extraordinárias, podemos esperar o êxtase, o incrível, o indizível.
 
 ### **1. O Barro como Véu da Percepção**  
-No seu texto, os homens de barro têm os olhos cobertos por uma crosta que os impede de ver a realidade plena do paraíso — assim como o cego do Evangelho vive em escuridão até que Cristo intervém. A saliva (símbolo do espírito/essência divina) misturada ao barro (matéria) representa a união do transcendente com o imanente, rompendo a opacidade do mundo físico.  
+No texto, os homens de barro têm os olhos cobertos por uma crosta que os impede de ver a realidade plena do paraíso — assim como o cego do Evangelho vive em escuridão até que Cristo intervém. A saliva (símbolo do espírito/essência divina) misturada ao barro (matéria) representa a união do transcendente com o imanente, rompendo a opacidade do mundo físico.  
 → *"Enquanto estou no mundo, sou a luz do mundo"* (João 9:5). Jesus é quem remove o "barro dos olhos" para revelar a verdadeira natureza da realidade.
 
 ### **2. O Despertar como Julgamento**  
-Seu texto descreve o "julgamento" não como condenação, mas como autoiluminação: quando o homem de barro se racha e liberta sua essência luminosa, ele percebe que o paraíso sempre esteve presente — assim como o curo do Evangelho, ao lavar-se no tanque de Siloé ("Enviado"), compreende que a salvação já estava ali, mas sua percepção a negava.  
+O texto descreve o "julgamento" não como condenação, mas como autoiluminação: quando o homem de barro se racha e liberta sua essência luminosa, ele percebe que o paraíso sempre esteve presente — assim como o curo do Evangelho, ao lavar-se no tanque de Siloé ("Enviado"), compreende que a salvação já estava ali, mas sua percepção a negava.  
 → *"Para juízo vim a este mundo: para que os que não veem vejam, e os que veem sejam cegos"* (João 9:39). O verdadeiro julgamento é a escolha entre permanecer no barro (ilusão) ou aceitar a visão plena.
 
 ### **3. A Água que Habita o Homem**  
@@ -2133,9 +2116,7 @@ A saliva de Cristo é a sabedoria que dissolve o barro da ilusão; o rio cristal
 
 O texto abre nossa percepção para o fato de que não vamos para a eternidade, já estamos nela, e estamos em processo de mudança. Abre os nossos olhos para a percepção que o comportamento do que chamamos agora de alem já se dá no exato presente. Há pessoas que desistem da vida por sentirem um ódio inexplicavel e que aqui mesmo em vida se matam aos poucos. Há pessoas aqui mesmo que vivem com grande caridade e alegria interior. E há pessoas aqui mesmo que não se sentem totalmente leves, livres e felizes pelas amarras da falta de perdão e do ódio. O homem, com o evangelho metafisico, adere de forma mais firme as verdades biblicas de maneira a se considerar integrande desde o momento presente da vida eterna e responsável por quem é perante a esta vida.
 
-Espero que este livro tenha ajudado a humanidade a entender com maior propriedade as palavras de Jesus, que, ao meu ver, necessitavam ser entendidas por uma nova ótica. Esta não é uma versão moderna do evangelho, mas uma nova ótica sob o evangelho tal como tantos autores já nos presentearam. Espero que este livro provoque mudanças! 
-
-Para a humanidade, escrito sob a tutela de um profundo amigo. 
+## O sorriso de Jesus
 
 > " Um sorriso que transparecia a verdade mais intima de cada pessoa. Ele tinha um interesse genuino por cada pessoa e pelo seu sonho. Todos o conheciam não somente por ser Deus, mas por ser o melhor ser humano, o mais sonhador, o mais sincero e o que mais acreditava no impossível. 
 
