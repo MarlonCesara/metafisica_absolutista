@@ -2118,9 +2118,7 @@ Assim como o menino da sua história testemunha as almas despertando de suas cas
 > *"O reino de Deus está dentro de vós"* (Lucas 17:21).  
 A saliva de Cristo é a sabedoria que dissolve o barro da ilusão; o rio cristalino do seu texto é a graça que flui do interior (João 7:38). Ambos os relatos apontam para a mesma verdade: a plenitude já está aqui — basta que nossos olhos sejam desobstruídos.
 
-**Versão Aprimorada:**  
-
-O texto nos convida a uma profunda reflexão: **não estamos a caminho da eternidade — já nela vivemos**, e nosso presente é um constante processo de transformação. Ele nos desperta para a compreensão de que **o que chamamos de "além" não é um destino futuro, mas uma realidade que se manifesta agora**, em cada escolha, em cada atitude.  
+A alegoria nos convida a uma profunda reflexão: **não estamos a caminho da eternidade — já nela vivemos**, e nosso presente é um constante processo de transformação. Ele nos desperta para a compreensão de que **o que chamamos de "além" não é um destino futuro, mas uma realidade que se manifesta agora**, em cada escolha, em cada atitude.  
 
 **Aqui mesmo, em vida**, percebemos os mesmos padrões que se desdobram na eternidade:  
 - **Há aqueles que, corroídos por um ódio inexplicável, rejeitam a própria existência** — matam-se aos poucos, seja pelo vício, pela amargura ou pelo autoabandono.  
