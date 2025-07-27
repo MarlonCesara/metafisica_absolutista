@@ -2116,21 +2116,33 @@ Assim como o menino da sua história testemunha as almas despertando de suas cas
 > *"O reino de Deus está dentro de vós"* (Lucas 17:21).  
 A saliva de Cristo é a sabedoria que dissolve o barro da ilusão; o rio cristalino do seu texto é a graça que flui do interior (João 7:38). Ambos os relatos apontam para a mesma verdade: a plenitude já está aqui — basta que nossos olhos sejam desobstruídos.
 
-O texto abre nossa percepção para o fato de que não vamos para a eternidade, já estamos nela, e estamos em processo de mudança. Abre os nossos olhos para a percepção que o comportamento do que chamamos agora de alem já se dá no exato presente. Há pessoas que desistem da vida por sentirem um ódio inexplicavel e que aqui mesmo em vida se matam aos poucos. Há pessoas aqui mesmo que vivem com grande caridade e alegria interior. E há pessoas aqui mesmo que não se sentem totalmente leves, livres e felizes pelas amarras da falta de perdão e do ódio. O homem, com o evangelho metafisico, adere de forma mais firme as verdades biblicas de maneira a se considerar integrande desde o momento presente da vida eterna e responsável por quem é perante a esta vida.
+**Versão Aprimorada:**  
 
-## O sorriso de Jesus
+O texto nos convida a uma profunda reflexão: **não estamos a caminho da eternidade — já nela vivemos**, e nosso presente é um constante processo de transformação. Ele nos desperta para a compreensão de que **o que chamamos de "além" não é um destino futuro, mas uma realidade que se manifesta agora**, em cada escolha, em cada atitude.  
 
-> " Um sorriso que transparecia a verdade mais intima de cada pessoa. Ele tinha um interesse genuino por cada pessoa e pelo seu sonho. Todos o conheciam não somente por ser Deus, mas por ser o melhor ser humano, o mais sonhador, o mais sincero e o que mais acreditava no impossível. 
+**Aqui mesmo, em vida**, percebemos os mesmos padrões que se desdobram na eternidade:  
+- **Há aqueles que, corroídos por um ódio inexplicável, rejeitam a própria existência** — matam-se aos poucos, seja pelo vício, pela amargura ou pelo autoabandono.  
+- **Há os que vivem em estado de graça**, transbordando caridade e alegria interior, como se já tocassem o divino em cada gesto.  
+- **E há os que carregam o peso de corações não libertos**, presos às amarras do ressentimento, da falta de perdão e da recusa em se render ao amor.  
 
-"Todos os Seus milagres se baseavam em mostrar ao homem que o impossível pode ser realizado. Como acalmar a tempestade – que simboliza acalmar o homem e segurar sua mão em meio à crise existencial, quando ele desacredita de si mesmo e de sua permanência na vida.
+O **Evangelho metafísico** nos revela essa verdade com clareza: **somos participantes ativos da vida eterna desde já**, e nossa existência terrena é o palco onde se delineia nossa essência espiritual. **Não há separação entre "agora" e "depois"** — há apenas **um contínuo despertar**, onde cada pensamento, cada ação, nos aproxima ou nos afasta da plenitude que já nos habita.  
 
-Jesus Se declarava apaixonadamente. Ele nos pediu em casamento, numa união eterna com Ele. Se um coração diz 'sim' a essa paixão, como o outro poderia dizer 'não'?
+Assim, compreendemos que **não seremos julgados por um tribunal distante, mas pela luz da própria consciência**, que revelará, sem véus, quem verdadeiramente nos tornamos. **A eternidade não começa após a morte — ela se desdobra em cada instante**, e somos nós quem decidimos, hoje, como desejamos nela habitar.  
 
-Sua entrega e Sua profecia – de que todos nos fundiremos a Ele – são um pedido de casamento. E essa união não terá fim.
+## Sobre Jesus
 
-Jesus: romântico, poeta, profeta, místico apaixonado. Seu bom humor despretensioso, Sua entrega absoluta. Seu sorriso, mais leve que o ar, e Seu olhar, que refletia o infinito.
+"Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível.  
 
-Seu modo de amar quem não merecia, de profetizar o impossível na vida das pessoas... Defino-O como o Deus do Impossível. Jesus não Se importava com barreiras lógicas; Seu pensamento transcendia, rumo ao incognoscível, à realização do impossível. Ele ultrapassava a razão tradicional em nome do bem humano.
+Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida.  
 
-Sua paixão por cada olhar, por cada gesto, por cada falha. Sua capacidade de enxergar o melhor nas pessoas..."
+Jesus Se declarava apaixonadamente. **Ele nos pediu em casamento, numa união eterna**. Se um coração diz *"sim"* a esse amor, como outro poderia dizer *"não"*?  
+
+Sua entrega e Sua profecia — **a promessa de que todos nos fundiremos a Ele** — são um pedido de casamento. E essa união não terá fim.  
+
+Jesus: **romântico, poeta, profeta, místico apaixonado**. Seu bom humor despretensioso, Sua entrega absoluta. Seu sorriso, mais leve que o ar, e Seu olhar, que refletia o infinito.  
+
+Seu modo de amar **quem não merecia**, de profetizar **o impossível na vida das pessoas**... Defino-O como **o Deus do Impossível**. Jesus não Se importava com barreiras lógicas; Seu pensamento transcendia, rumo ao incognoscível, **à realização do inalcançável**. Ele ultrapassava a razão tradicional **em nome do amor humano**.  
+
+Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de enxergar o melhor nas pessoas**..."  
+
 
