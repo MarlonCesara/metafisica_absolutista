@@ -1902,7 +1902,7 @@ O estado infernal revela:
 
 # **Alegorias metafísicas**
 
-"As Alegorias Metafísicas" é uma obra inspirada na sociedade e na realidade metafísica. Trata-se de uma abordagem não convencional para descrever a metafísica em sua totalidade e sua intrínseca relação com o comportamento humano. Essa obra se sustenta em três premissas fundamentais:
+"As Alegorias apresentadas a seguir são inspiradas na sociedade e na realidade metafísica. Trata-se de uma abordagem não convencional para descrever a metafísica em sua totalidade e sua intrínseca relação com o comportamento humano. As alegorias se sustentam em três premissas fundamentais:
 
 > O universo não é separado do Todo, mas é uma existência. Não há um universo não pleno e um universo pleno. Há o mesmo Ser em suas variadas manifestações. Quando a Bíblia retrata o mundo atual como uma vida sem plenitude, não se refere ao mundo como uma dicotomia entre ser e não ser, mas sim ao fato de que o barro — o que chamamos de átomo ou energia — impede a alma de viver intensamente, de experimentar o que realmente a plenifica, de vivenciar a alegria da variedade de experiências que a tornam plena. Ou seja, a vida neste mundo é sem plenitude do ponto de vista perceptual da alma, porém é possível considerar o paraíso desde já, ainda que numa vivência estéril do barro.
 
