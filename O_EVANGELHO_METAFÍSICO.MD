@@ -2118,18 +2118,26 @@ Espero que este livro tenha ajudado a humanidade a entender com maior propriedad
 
 Para a humanidade, escrito sob a tutela de um profundo amigo. 
 
-
 > " Um sorriso que transparecia a verdade mais intima de cada pessoa. Ele tinha um interesse genuino por cada pessoa e pelo seu sonho. Todos o conheciam não somente por ser Deus, mas por ser o melhor ser humano, o mais sonhador, o mais sincero e o que mais acreditava no impossível. 
 
-Todos os seus milagres se baseavam em mostrar ao homem que o impossível pode ser realizado. Como acalmar a tempestade, que simboliza acalmar o homem e segurar sua mão em meio a uma crise de existencia, na qual o homem desacredita de si mesmo e de sua continuidade no existir.
+"Todos os Seus milagres se baseavam em mostrar ao homem que o impossível pode ser realizado. Como acalmar a tempestade – que simboliza acalmar o homem e segurar sua mão em meio à crise existencial, quando ele desacredita de si mesmo e de sua permanência na vida.
 
-Jesus se declarava apaixonadamente. Ele epdiu a todos nós em um casamento, em uma união eterna com Ele. Se um coração diz que sim a paixão, como pode o outro dizer não? "
+Jesus Se declarava apaixonadamente. Ele nos pediu em casamento, numa união eterna com Ele. Se um coração diz 'sim' a essa paixão, como o outro poderia dizer 'não'?
 
-Sua entrega e sua profecia de que todos nos fundiremos a ele é um pedido de casamento, e essa união não terá fim. 
+Sua entrega e Sua profecia – de que todos nos fundiremos a Ele – são um pedido de casamento. E essa união não terá fim.
 
-Jesus, um romantico, poeta, profético, mistíco apaixonado. Seu bom humor, sem romantismo, sua entrega. Seu sorriso mais leve que o ar e seu olhar que refletia o infinito.
+Jesus: romântico, poeta, profeta, místico apaixonado. Seu bom humor despretensioso, Sua entrega absoluta. Seu sorriso, mais leve que o ar, e Seu olhar, que refletia o infinito.
 
-Seu jeito de amar quem não merecia, de profetizar o impossível na vida das pessoas. Defino Jesus como o Deus do impossível. Jesus não se importava com as barreiras lógicas, seu pensameneto transcendia rumo ao incognocível, a realizaçao do impossível. Seu pensamento transcendia a lógica tradicional em direção ao bem humano.
+Seu modo de amar quem não merecia, de profetizar o impossível na vida das pessoas... Defino-O como o Deus do Impossível. Jesus não Se importava com barreiras lógicas; Seu pensamento transcendia, rumo ao incognoscível, à realização do impossível. Ele ultrapassava a razão tradicional em nome do bem humano.
 
-Sua paixão por cada olhar, por cada gesto, por cada falha, sua capacidade de enxergar o melhor das pessoas.
+Sua paixão por cada olhar, por cada gesto, por cada falha. Sua capacidade de enxergar o melhor nas pessoas..."
 
+# Os sintomas psicológicos das almas em pecado grave
+
+O pecado grave nada mais é do que a deliberada e insistente busca pela morte. Os sinais mais claros de uma alma que está em estado grave são tentativas de suicídio em vida, de forma lenta ou rápida. Como exemplo, podemos citar os fumantes, pessoas que arriscam a vida sem necessidade ou qualquer tipo de atividade que tenha a intenção deliberada pela morte – seja esse processo mais lento ou menos lento.
+
+O indivíduo totalmente absorvido pela ideia de se autodanar afasta as experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria.
+
+A ação da danação não é motivada por um simples desgosto ou uma ausência de sentido em relação à vida, mas por um ódio difícil de remediar, que faz com que o indivíduo queira se consumir, como uma vingança realizada em si mesmo, que não pode chegar até o outro que gostaria de atingir.
+
+O indivíduo que tem a intenção de se danar não necessariamente tem um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção.
