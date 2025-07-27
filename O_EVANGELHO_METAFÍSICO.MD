@@ -2030,7 +2030,7 @@ A alma recém-libertada piscou, confusa. "Onde estou?", sua voz era o tilintar d
 
 "Julgamento...", murmurou a alma, como quem tenta recordar um sonho ao despertar. "No mundo de onde vim, ensinaram-nos que após a morte haveria um grande tribunal. Os justos seriam separados dos pecadores, os crentes dos infiéis". 
 
-"Platão tinha razão", murmurou o homem recém-despertado, nós não temos almas - nós somos almas, que por um tempo vestiram barro."
+"Murmurou o homem recém-despertadO: nós não temos almas - nós somos almas, que por um tempo vestiram barro."
 
 Nesse momento, a borboleta translúcida que guiava o garoto pousou no ombro do homem despertado, suas asas cintilantes refletindo em seus olhos. O homem despertado olhou para o inseto, depois para o menino, e uma compreensão silenciosa passou entre eles.
 
@@ -2041,6 +2041,8 @@ O garoto sorriu, pois em seu coração sempre soubera desta verdade. Juntou-se a
 Cada despertar era único. Algumas almas emergiam cantando, outras chorando, muitas em silêncio reverente. Mas todas, sem exceção, ao verem o paraíso face a face, esqueciam imediatamente suas antigas perguntas sobre julgamento e condenação. A realidade presente era tão avassaladoramente bela que tornava irrelevantes todas as cosmologias do mundo de barro.
 
 O garoto, movido por uma sede insaciável de compreensão, dedicou-se a estudar o despertar das almas com a mesma devoção com que antes contemplara as montanhas de cristal. Cada alma que emergia do barro era um universo único, uma sinfonia de experiências pronta para ser ouvida. Ele passava eras em diálogos silenciosos, onde palavras não eram necessárias — apenas a troca de essências, de memórias que fluíam como rios de luz entre os seres.
+
+## **A ciencia das almas**
 
 Notou que as almas despertas dividiam-se em três categorias, não por hierarquia, mas por vibração, como notas distintas de uma mesma melodia cósmica.
 
@@ -2056,15 +2058,19 @@ Ao investigar mais a fundo a história dessas almas, descobriu que eram pessoas 
 
 O garoto, com seu olhar que penetrava além das formas, discerniu o fio negro que unia aquelas almas condenadas ao esquecimento: um ódio primordial, não contra o mundo, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo de apagar-se.  
 
-Alguns haviam sido suicidas — não apenas os que cortaram pulsos ou saltaram de pontes, mas os que se mataram em doses homeopáticas: garrafas de álcool transformadas em cápsulas de esquecimento, seringas cheias de névoa, comprimidos que anestesiavam a alma pedaço por pedaço. Outros eram bilionários que, em meio a palácios e iates, descobriram o vazio mais absoluto — e passaram a odiar a vida por não lhes dar o que nem sabiam nomear. Havia mendigos que, após uma existência de golpes e humilhações, decidiram que a própria humanidade era uma fraude.  
-
-O que todas compartilhavam como vivências na vida de barro era um impulso perverso: o desejo de fazer o outro sentir o mesmo fogo que as consumia por dentro. Alguns o faziam com crueldade aberta — palavras afiadas, traições calculadas, violência gratuita. Outros, de modo mais sutil, espalhando cinismo como um vírus, sufocando esperanças alheias para justificar sua própria desesperança. Eram artistas do sofrimento, tecelões de miséria, que não suportavam ver luz onde haviam escolhido escuridão.  
-
 Ao estuda-las mas a fundo descobriu que cometiam o que tinham na vida de barro uma deliberada e insistente busca pela morte. Os sinais mais claros eram tentativas de suicídio em vida, de forma lenta ou rápida. Dentre as almas com as quais conversou haviam muitas fumantes, almas que arriscam a vida sem necessidade ou qualquer tipo de atividade que tenha a intenção deliberada pela morte – seja esse processo mais lento ou menos lento.
 
-Eram indivíduos totalmente absorvido pela ideia de se autodanar e se afastavam das experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria.
+Os suicidas, descobriu o garoto, — não apenas os que cortaram pulsos ou saltaram de pontes, mas os que se mataram em doses homeopáticas: garrafas de álcool transformadas em cápsulas de esquecimento, seringas cheias de névoa, comprimidos que anestesiavam a alma pedaço por pedaço. Outros eram ricos que, em meio a palácios e iates, descobriram o vazio mais absoluto e por isso tentavam espelhar na riqueza material a intenção pela vida que não tinham por dentro, tentavam substituir a verdadeira riqueza. Havia mendigos que, após uma existência de golpes e humilhações, decidiram demonstrar em vida o que sentiam por dentro. 
+
+Todos eles eram indivíduos totalmente absorvido pela ideia de se autodanar e se afastavam das experiências que proporcionam alegria e sentido, na tentativa de não se distrair de seu foco e não se frustrar por estar abandonando aquilo que mais queria. 
+
+Todos eles tentavam gritar para a sociedade seu estado interior seja se fadando a mendicancia ou se fadando ao acumulo extremo de bens materiais, todas são demonstração de cede interior.
 
 A ação da danação não era motivada por um simples desgosto ou uma ausência de sentido em relação à vida, mas por um ódio difícil de remediar, que fazia com que o indivíduo quisesse se consumir, como uma vingança realizada em si mesmo, que não poderia chegar até o outro que gostaria de atingir.
+
+Algumas das almas que sumiam compartilhavam alções em comum na vida de barro: o desejo de fazer o outro sentir o mesmo fogo que as consumia por dentro. Alguns o faziam com crueldade aberta — palavras afiadas, traições calculadas, violência gratuita. Outros, de modo mais sutil, espalhando cinismo como um vírus, sufocando esperanças alheias para justificar sua própria desesperança. Eram artistas do sofrimento, tecelões de miséria, que não suportavam ver luz onde haviam escolhido escuridão.  
+
+Todas em vida não suportavam a frustração pela propria realidade interior que elas mesmas estabeleceram para si. 
 
 As almas que tinham a intenção de se danar não necessariamente tinham um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção.
 
