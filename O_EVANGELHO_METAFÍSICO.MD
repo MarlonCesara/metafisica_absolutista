@@ -2083,6 +2083,8 @@ Algumas das almas que sumiam compartilhavam alções em comum na vida de barro: 
 
 Todas em vida não suportavam a frustração pela propria realidade interior que elas mesmas estabeleceram para si. Sintomas comum entre elas era um ódio gratuito, violencia fisica, desespero constante e uma enorme habilidade de auto engano, de disfarçar para o proprio corpo a propria intenção. Gostavam de viver em mentiras. Também tinham um orgulho extremo.
 
+Quando o menino perguntava por que elas desapareciam antes de sumir de vez, nenhuma admitia que iria fazê-lo. Se ele tentasse revelar a verdade, elas ficavam agressivas e tentavam mais uma vez se esconder de suas próprias intenções.
+
 As almas que tinham a intenção de se danar não necessariamente tinham um comportamento imoral; sua principal característica é retirar de sua vida tudo o que mais lhe agrada, para não se distrair de sua intenção.
 
 Portanto, em vida essas almas suicidas afastavam as coisas boas e procuravam a propria morte, não somente com atos e palavras, mas com ações. Reforçavam o ação na eternidade com demonstrações na vida de barro. 
@@ -2096,13 +2098,6 @@ E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tud
 O garoto chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado.  
 
 Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade.
-
-
-
-
-
-
-
 
 
 ### **A mudança das almas**
