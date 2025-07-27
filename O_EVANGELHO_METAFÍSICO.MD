@@ -1535,9 +1535,26 @@ A natureza do Ser estabelece tanto leis físicas quanto conceituais, sendo que e
 ### **Conclusão:**  
 Leis conceituais estão vinculadas à definição dos termos envolvidos e podem ser reinterpretadas conforme o entendimento do Ser. Já as leis físicas operam sob condições objetivas e imutáveis, independentemente da percepção humana.  
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # **A Dialética Transcendência**  
 
-A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma infinitude, no sentido de romper o potencial inexpressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
+A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma finitude, no sentido de romper um potencial expressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendencia, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
+
+A unidade que definimos como sou, não pode ser um limite, mas é uma vazão para a infinitude. Ou seja, desta forma, dissipamos o conceito de finitude até mesmo para a determinação individual; possibilitando que até mesmo o sou transcenda em si mesmo sem que perca sua autonomia e identidade. 
 
 > **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer no **Ser**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de Ser** — e Ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.  
 
@@ -1663,9 +1680,7 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.  
 
-Aqui está uma reformulação aprimorada e organizada dos conceitos sobre o inferno e a alma:
-
-# **A Ontologia do Inferno: A Alma em Auto-Negação Eterna**
+# **A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
 
 O fogo do inferno é a alma do indivíduo se esgotando sem cessar diante do fogo. Pois todo ato é eterno e temporal, ou seja, a alma ainda existe, mas sua existência é um autoafastamento, no sentido de que há o ente se consumindo, e não um desaparecimento completo. Se a decisão do ente for eterna, seu desaparecimento será eterno; se não for, já está em si o momento em que sairá do fogo.
 
@@ -1816,8 +1831,6 @@ Se fosse possível transformar a alma no inferno em fenômeno, seria equivalente
 A alma, como ente atemporal, já se estabelece eterna tal como foi criada. Não há como burlar a eternidade da qual é constituída, mas há como corromper-se temporalmente, ou seja, há como a alma se lançar numa corrupção incessante. Dessa forma, encontra a morte temporalmente, e não num ato único de fim.  
 
 Conclui-se que o Absoluto apresenta todas as opções para a alma, até mesmo a de morte – uma morte que possibilita o retorno à vida, caso seja do intuito do indivíduo, ou que possibilite a morte eterna, caso também seja esse o seu intento.  
-
-# **A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
 
 ## **1. A Dualidade Temporal e Atemporal da Alma Condenada**
 
