@@ -2145,6 +2145,5 @@ Seu modo de amar **quem não merecia**, de profetizar **o impossível na vida da
 
 Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de enxergar o melhor nas pessoas**..."  
 
-Ele morreu de braços abertos, olhando para o céu...uma entrega incompreenssível, que frutifica o impossível. A transformação radical em cada coração, uma esperança que se ascende e jamais se apaga, um caminho claro para o sentido...
-
+Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
 
