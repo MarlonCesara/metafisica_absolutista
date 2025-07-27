@@ -2024,7 +2024,7 @@ Foi então que o milagre aconteceu. Um dos peregrinos de argila estremeceu. Fiss
 
 A alma recém-libertada piscou, confusa. "Onde estou?", sua voz era o tilintar de cristais colidindo suavemente.
 
-## O julgamento das almas
+## **O destino das Almas**
 
 "Onde está Deus e Seu julgamento final? Esperava trovões e trombetas, não... isto." Seu gesto abarcou o jardim infinito, as montanhas de cristal, o céu dançante.
 
@@ -2041,8 +2041,6 @@ Nesse momento, a borboleta translúcida que guiava o garoto pousou no ombro do h
 O garoto sorriu, pois em seu coração sempre soubera desta verdade. Juntou-se ao desperto, e juntos observaram os demais caminhantes de barro - alguns começando a apresentar rachaduras luminosas, outros ainda profundamente entrincheirados em suas formas opacas.
 
 Cada despertar era único. Algumas almas emergiam cantando, outras chorando, muitas em silêncio reverente. Mas todas, sem exceção, ao verem o paraíso face a face, esqueciam imediatamente suas antigas perguntas sobre julgamento e condenação. A realidade presente era tão avassaladoramente bela que tornava irrelevantes todas as cosmologias do mundo de barro.
-
-## **O destino das Almas**
 
 O garoto, movido por uma sede insaciável de compreensão, dedicou-se a estudar o despertar das almas com a mesma devoção com que antes contemplara as montanhas de cristal. Cada alma que emergia do barro era um universo único, uma sinfonia de experiências pronta para ser ouvida. Ele passava eras em diálogos silenciosos, onde palavras não eram necessárias — apenas a troca de essências, de memórias que fluíam como rios de luz entre os seres.
 
