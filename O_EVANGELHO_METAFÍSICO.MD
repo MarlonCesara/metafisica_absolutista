@@ -2135,7 +2135,7 @@ Assim, compreendemos que **não seremos julgados por um tribunal distante, mas p
 
 Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida.  
 
-Jesus Se declarava apaixonadamente. **Ele nos pediu em casamento, numa união eterna**. Se um coração diz *"sim"* a esse amor, como outro poderia dizer *"não"*?  
+Jesus Se declarava apaixonadamente. **Ele nos pediu em casamento, numa união eterna**. Se um coração diz *"sim"* a esse amor, como outro poderia dizer *"não"*? Essa é a pergunta que lhes faço nesse momento.
 
 Sua entrega e Sua profecia — **a promessa de que todos nos fundiremos a Ele** — são um pedido de casamento. E essa união não terá fim.  
 
