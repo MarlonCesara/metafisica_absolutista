@@ -2263,3 +2263,14 @@ Portanto o Ser, a possibilidade e a impossibilidade em seu contexto como pureza 
 
 - Ao considerar o amor e plenitude do Ser, podemos esperar as formas mais fantasticas de vida, as experiencias mais inefaveis e extraordinarias, podemos esperar o extase, o incrível, o inefavel.
 
+
+O incognoscível define-se, antes de tudo, por sua negatividade radical, é definido e pensável pelo que não é, ou seja, não é o cognocível, o que pode ser pensado, mas não se deefine realmente o que o incognocível é de forma positiva. 
+
+melhore o trecho abaixo incorporando o trecho acima
+
+é o domínio que escapa a toda determinação conceitual, o limite intransponível do Absoluto quando abordado pela lógica e pela metafísica racional. Sua presença não é uma falha no sistema do conhecimento, mas um horizonte estrutural — aquilo que, por sua própria natureza, não se deixa reduzir às categorias do pensamento discursivo.
+
+
+
+O incognocível, portanto, é definido pelo que ele não é, sendo o limite do Absoluto explorável pela lógica e pela metafísica. A investigação do absoluto a seguir envolve a esfera pensável, ou seja, o absoluto cognocível. Pois é a esfera que permite ser pensada. Isto não quer dizer que o incognocível atrapalhe a busca pelas respostas, mas quer dizer que é necessario admitir que o conhecimento racional não é necessariamente o ultimo conhecimento em magnitude absoluta, e esse assumir é representado pela incorporação da esfera do ingonocível no absoluto.
+
