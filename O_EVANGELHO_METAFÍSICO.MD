@@ -232,7 +232,6 @@ A **impossibilidade** abrange tudo o que é logicamente contraditório, pertence
 
 - **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a existência.  
 
-revisão
 ### **Incognoscibilidade: O Domínio da Transcendência Radical**  
 
 **Definição Ontológica:**
@@ -265,13 +264,16 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 2. **Possível** (realidade estruturada)
    ↓
 3. **Impossível** (limite do possível)
+   ↓
+3. **Incognocível** (limite do racionável)
 
 **Observação Crucial:**
 Esta estrutura não é meramente classificatória, mas revela a arquitetura ontológica fundamental:
 - O Cognoscível revela os limites do Absoluto mentalizável 
 - O Possível manifesta-se como ordem no seio do Absoluto
 - O Impossível surge como limite interno da possibilidade
-
+- O Incognocível surge como limite interno do racionalizável 
+revisão
 # **A Causalidade no Absoluto cognocível**  
 
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise:
