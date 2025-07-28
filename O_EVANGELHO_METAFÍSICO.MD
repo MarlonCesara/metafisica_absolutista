@@ -648,8 +648,6 @@ O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de
   - O observador no tempo fenomênico percebe apenas **fatias da realidade** (presente, passado, futuro).  
   - O infinito não se manifesta no campo fenomênico como experiência direta.  
 
-revisão
-
 #### **2. Natureza do Tempo Espiritual**  
 - **Progressão como Encontro Consigo Mesmo**:  
   - O tempo do Espírito não se estende linearmente, mas **se recolhe em si mesmo** a cada ato de autodeterminação.  
@@ -660,7 +658,7 @@ revisão
   - A retroalimentação do Espírito não é uma repetição vazia, mas um **eterno retorno ao Ser pleno**.  
 
 - **Visão Transcendente**:  
-  - O observador no tempo espiritual não percebe o infinito como algo distante, mas como **fundamento imediato** de sua própria consciência.  
+  - O observador no tempo espiritual não percebe o infinito como algo distante, mas como **fundamento imediato** de sua própria consciência. 
   - A temporalidade não é uma sucessão de "agoras", mas um **eterno presente que engloba passado e futuro**.  
 
 #### **Conclusão**  
@@ -677,7 +675,7 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 - A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
 
 ### Tempo Potencial e Expresso (Atemporalidade)  
-
+revisão
 - O tempo existe como:  
   1. **Tempo expresso** (manifestado).  
   2. **Tempo inexpresso** (potencial não realizado).  
