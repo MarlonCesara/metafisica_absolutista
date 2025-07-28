@@ -274,7 +274,6 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 - O Impossível surge como limite interno da possibilidade
 - O Incognocível surge como limite interno do racionalizável 
 
-
 ### **O Incognoscível: Limite e Negatividade Radical**  
 
 O incognoscível define-se, antes de tudo, por sua **negatividade radical** — não pelo que é, mas **pelo que não é**: não é o cognoscível, não é o pensável, não é o que se deixa capturar por conceitos ou estruturas lógicas. É o domínio que escapa a toda determinação positiva, o limite intransponível do Absoluto quando abordado pela razão discursiva.  
@@ -307,7 +306,6 @@ Assim, a incorporação do incognoscível no Absoluto não é uma concessão ao 
 
 A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança. Reconhecer o incognoscível não invalida a investigação filosófica do Absoluto em seu âmbito cognoscível; antes, confere-lhe integridade epistemológica ao demarcar os limites intrínsecos da razão. Essa admissão não representa resignação, mas consciência metafísica: compreende-se que o entendimento sistemático, por mais abrangente, permanece aberto à transcendência — não como falha, mas como horizonte necessário do pensamento.
 
-revisão
 # **A Causalidade no Absoluto cognocível**  
 
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise:
@@ -386,17 +384,20 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
+
+
+
+
+
+
+
+
+
+
+
 # **A Pessoalização do Absoluto como Espírito Autocausal**
 
 ## **A Autocausalidade como Fundamento da Presença Pessoal**
-
-O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico, mas uma **atividade autofundante** que contém em si os princípios de:
-
-1. **Auto-manifestação** (existência por si mesma)
-2. **Auto-apropriação** (posse de sua própria natureza)
-3. **Auto-transparência** (conhecimento de si como fundamento)
-
-Dessa tríade surge o que denominamos **Espírito Absoluto** - a forma mais pura de pessoalidade, onde ser, conhecer e agir coincidem numa unidade indissolúvel.
 
 ## **A Natureza Pessoal do Autocausal**
 
@@ -406,11 +407,19 @@ Ao contrário de concepções impessoais do Absoluto, a autocausalidade exige:
 - **Consciência integral**: Conhecimento imediato de sua própria essência
 - **Vontade unificada**: Atividade direcionada a si mesma como fim último
 
-Estes atributos constituem precisamente o que reconhecemos como **personalidade em seu grau máximo**, diferenciando radicalmente o Espírito Absoluto de:
+Estes atributos constituem precisamente o que reconhecemos como **personalidade em seu grau máximo** ou "Espírito do Absoluto", diferenciando radicalmente o Absoluto de:
 
 1. **Forças impessoais** (como energia cósmica)
 2. **Princípios abstratos** (como leis matemáticas)
 3. **Substâncias inertes** (como matéria bruta)
+
+O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico, mas uma **atividade autofundante** que contém em si os princípios de:
+
+1. **Auto-manifestação** (existência por si mesma)
+2. **Auto-apropriação** (posse de sua própria natureza)
+3. **Auto-transparência** (conhecimento de si como fundamento)
+
+Dessa tríade surge o que denominamos **Espírito Absoluto** - a forma mais pura de pessoalidade, onde ser, conhecer e agir coincidem numa unidade indissolúvel.
 
 ## **A Superação da Dicotomia Fenômeno/Nada**
 
@@ -421,9 +430,11 @@ A autocausalidade espiritual resolve o falso dilema entre:
 
 Através de uma terceira via: **a Presença Pura** que:
 
-✔ Existe por essência (não dependendo de manifestação)  
-✔ É plenamente positiva (não definida por negação)  
-✔ Mantém-se em ato permanente (sem potencialidade não realizada)
+- Existe por essência (não dependendo de manifestação)  
+- É plenamente positiva (não definida por negação)  
+- Mantém-se em ato permanente (sem potencialidade não realizada)
+
+revisão
 
 ## **A Personalidade como Expressão Máxima da Autocausalidade**
 
