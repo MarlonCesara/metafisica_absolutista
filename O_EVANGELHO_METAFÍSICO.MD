@@ -2058,9 +2058,6 @@ Formavam a outra metade — despertavam com um estremecimento, como quem acorda 
 
 Ao investigar mais a fundo a história dessas almas, descobriu que eram pessoas sem grande espiritualidade, mas que ainda assim agarravam-se à vida, mesmo sem terem sido lapidadas. Carregavam rancores, sentimentos pesados e precisavam libertar-se do barro que as prendia. Dominadas por grandes vícios, ainda necessitavam atravessar um longo processo de evolução.
 
-Aqui está o texto com os erros de português corrigidos, mantendo ao máximo a estrutura e o estilo original:
-
-
 ### **As Almas que Desapareciam**  
 
 Eram as mais raras e as mais trágicas. Despertavam com um grito silencioso, seus corpos de luz tremeluzindo como velas ao vento. Seus olhos — pois ali os olhos ainda eram espelhos da alma — mostravam um terror primordial. Não do paraíso que as rodeava, mas de algo dentro de si. Antes que o garoto pudesse estender a mão, elas começavam a desfazer-se: primeiro os contornos, depois a substância, até restar apenas um brilho residual que se esvaía como fumaça. Em seus últimos instantes, sussurravam verdades dilacerantes: *"Não suporto estar comigo"*, *"É tudo culpa minha"*, *"Mereço o nada"*. O garoto, com lágrimas de estrelas escorrendo pelo rosto, compreendeu que essas eram almas que, em vida, haviam transformado sua dor em autoaniquilação. Suicidas não apenas do corpo, mas da própria essência — que agora, diante da eternidade, recusavam-se a si mesmas. Seu desaparecimento não era castigo, mas o último ato de liberdade de quem preferia o vazio à redenção.  
