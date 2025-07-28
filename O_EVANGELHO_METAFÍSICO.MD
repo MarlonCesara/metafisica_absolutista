@@ -2225,27 +2225,6 @@ Jesus participou de lutas sociais e combatia com fervor a falsidade dos religios
 
 Nós, os que O seguíamos, não entendíamos a natureza da liberdade da alma e Sua postura neste mundo. Levou um tempo até assimilarmos Sua verdadeira intenção. Só depois percebemos que Ele não apenas queria libertar a sociedade da escravidão, mas também nos resguardar de um destino terrível: a morte eterna. E foi por essa intenção que Ele morreu por todos nós."  
 
-## Significado:
-
-### **1. O Barro como Véu da Percepção**  
-No texto, os homens de barro têm os olhos cobertos por uma crosta que os impede de ver a realidade plena do paraíso — assim como o cego do Evangelho vive em escuridão até que Cristo intervém. A saliva (símbolo do espírito/essência divina) misturada ao barro (matéria) representa a união do transcendente com o imanente, rompendo a opacidade do mundo físico.  
-→ *"Enquanto estou no mundo, sou a luz do mundo"* (João 9:5). Jesus é quem remove o "barro dos olhos" para revelar a verdadeira natureza da realidade.
-
-### **2. O Despertar como Julgamento**  
-O texto descreve o "julgamento" não como condenação, mas como autoiluminação: quando o homem de barro se racha e liberta sua essência luminosa, ele percebe que o paraíso sempre esteve presente — assim como o curo do Evangelho, ao lavar-se no tanque de Siloé ("Enviado"), compreende que a salvação já estava ali, mas sua percepção a negava.  
-→ *"Para juízo vim a este mundo: para que os que não veem vejam, e os que veem sejam cegos"* (João 9:39). O verdadeiro julgamento é a escolha entre permanecer no barro (ilusão) ou aceitar a visão plena.
-
-### **3. A Água que Habita o Homem**  
-No seu mundo de cristal, o menino bebe a água e se funde com ela — assim como o cego obedece à ordem de lavar-se na água (símbolo do batismo/renascimento) e não apenas recupera a visão física, mas inicia uma jornada espiritual. A cura é a restauração da percepção da unidade:  
-→ *"Foi, lavou-se e voltou vendo"* (João 9:7). A água não limpa apenas os olhos, mas dissolve a separação entre o homem e o divino.
-
-### **4. A Borboleta como Espírito Santo**  
-A borboleta translúcida que guia o menino pode ser comparada ao Espírito Santo que conduz à verdade (João 16:13). Ela pousa sobre o homem despertado, assim como a pomba desce sobre Jesus no batismo — sinal de que a libertação do barro é obra do Espírito.
-
-### **5. O Paradoxo do Barro**  
-O barro na Bíblia é tanto matéria da criação (Gênesis 2:7) quanto prisão (no seu texto). Jesus usa justamente o barro para curar, mostrando que a matéria não é má em si — é o *uso* que dela fazemos que nos aprisiona ou liberta.  
-→ *"O barro nos olhos não era barro comum — era o esquecimento da essência"*. Cristo transforma o barro da cegueira em instrumento de revelação.
-
 ### **Conclusão Simbólica**  
 Assim como o menino da sua história testemunha as almas despertando de suas cascas opacas, Jesus demonstra que o Reino dos Céus não é um lugar distante, mas uma *nova forma de ver*:  
 > *"O reino de Deus está dentro de vós"* (Lucas 17:21).  
