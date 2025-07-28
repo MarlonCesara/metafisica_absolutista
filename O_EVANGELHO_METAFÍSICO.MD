@@ -2085,8 +2085,6 @@ A alma recém-libertada piscou, confusa. "Onde estou?", sua voz era o tilintar d
 
 "Julgamento...", murmurou a alma, como quem tenta recordar um sonho ao despertar. "No mundo de onde vim, ensinaram-nos que após a morte haveria um grande tribunal. Os justos seriam separados dos pecadores, os crentes dos infiéis". 
 
-"Murmurou o homem recém-despertado: nós não temos almas - nós somos almas, que por um tempo vestiram barro."
-
 Nesse momento, a borboleta translúcida que guiava o filósofo pousou no ombro do homem despertado, suas asas cintilantes refletindo em seus olhos. O homem despertado olhou para o inseto, depois para o sábio, e uma compreensão silenciosa passou entre eles.
 
 "O julgamento", disse o homem desperto suavemente, "não é um evento, mas um processo. Não é pronunciado por outro, mas realizado por cada um de nós, à medida que nos libertamos das cascas que nos impedem de ver."
