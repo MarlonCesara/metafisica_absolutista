@@ -630,7 +630,7 @@ O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua co
   A autocausalidade do Ser não estabelece uma oposição entre ato único e processo sustentador, ambas as autocausalidades não colidem, mas se sintetizam em uma única realidade.  
 
 ## **O Tempo do Espírito vs. O Tempo Fenomênico**  
-revisão
+
 O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se.
 
 O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente.
@@ -646,7 +646,9 @@ O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de
 
 - **Visão Dimensional**:  
   - O observador no tempo fenomênico percebe apenas **fatias da realidade** (presente, passado, futuro).  
-  - O infinito aparece como **abstração**, nunca como experiência direta.  
+  - O infinito não se manifesta no campo fenomênico como experiência direta.  
+
+revisão
 
 #### **2. Natureza do Tempo Espiritual**  
 - **Progressão como Encontro Consigo Mesmo**:  
