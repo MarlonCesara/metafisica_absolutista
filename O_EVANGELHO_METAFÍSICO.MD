@@ -304,8 +304,10 @@ Assim, a incorporação do incognoscível no Absoluto não é uma concessão ao 
    - O incognoscível é o **Absoluto inexplorável** — não por falta de esforço, mas por excesso de realidade.  
 
 ### **Conclusão**  
-A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança.
 
+A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança. Reconhecer o incognoscível não invalida a investigação filosófica do Absoluto em seu âmbito cognoscível; antes, confere-lhe integridade epistemológica ao demarcar os limites intrínsecos da razão. Essa admissão não representa resignação, mas consciência metafísica: compreende-se que o entendimento sistemático, por mais abrangente, permanece aberto à transcendência — não como falha, mas como horizonte necessário do pensamento.
+
+revisão
 # **A Causalidade no Absoluto cognocível**  
 
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise:
