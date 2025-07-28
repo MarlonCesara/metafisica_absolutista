@@ -1568,8 +1568,8 @@ A transcendência da alma gira em torno de duas hipóteses:
 Desta forma, a alma, podendo transcender para o Ser (translucidez) ou para si mesma (renascimento de um apadrinhamento) como no mundo vigente, carece de uma forma de transcender completamente seu Eu.
 
 A transcendência do "quem" aborda distintas possibilidades:  
-1. **Por morte**: A anulação temporal do "sou", de forma a restaurar a capacidade de transcendência original como Ser. Porém, esta não é uma transcendência, mas retrocesso, pois a transcendência significa sair de si havendo um si que permanece de forma que seja o agente da transcendência.  
-2. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas. A conexão é temporal e envolve uma queima no outro, um fogo que não aniquila, mas se constitui numa união de vidas que fomenta uma nova vida. O queimar do encontro e união total é diferente do queimar do inferno, pois o primeiro é uma diluição enquanto o segundo é um apagão. Desta forma, o queimar do apagão elimina as sensações do invidiuo, que encara o vazio, ou seja, o não estar aqui. Já o fogo do encontro auto continua o sentir do invividuo atribuindo-lhe de uma presença que extravasa a si mesmo. É o ardor do outro.
+
+1. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas. A conexão é temporal e envolve uma queima no outro, um fogo que não aniquila, mas se constitui numa união de vidas que fomenta uma nova vida. O queimar do encontro e união total é diferente do queimar do inferno, pois o primeiro é uma diluição enquanto o segundo é um apagão. Desta forma, o queimar do apagão elimina as sensações do invidiuo, que encara o vazio, ou seja, o não estar aqui. Já o fogo do encontro auto continua o sentir do invividuo atribuindo-lhe de uma presença que extravasa a si mesmo. É o ardor do outro.
 
 #### ** Exploração da Hipótese da Alma Completa**  
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.  
@@ -1695,6 +1695,8 @@ No entanto, essa eternidade não anula sua **capacidade de corrupção no âmbit
 A corrupção da alma não é uma aniquilação de seu ser, mas uma **degradação contínua de sua manifestação no tempo**. Trata-se de um processo no qual:  
 - **A alma persiste em existir**, mas **se desvia de sua plenitude**.  
 - **Não "morre" em um único ato**, mas **se consome em uma queda perpétua** – como um fogo que arde sem se extinguir.  
+
+A anulação temporal do "sou" não é uma transcendência, mas retrocesso, pois a transcendência significa sair de si havendo um si que permanece de forma que seja o agente da transcendência.  
 
 **Analogia:**  
 - *Uma chama que, em vez de se elevar, se volta contra si mesma, queimando sem cessar, mas sem jamais se apagar.*  
