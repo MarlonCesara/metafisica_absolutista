@@ -273,7 +273,39 @@ Esta estrutura não é meramente classificatória, mas revela a arquitetura onto
 - O Possível manifesta-se como ordem no seio do Absoluto
 - O Impossível surge como limite interno da possibilidade
 - O Incognocível surge como limite interno do racionalizável 
-revisão
+
+
+### **O Incognoscível: Limite e Negatividade Radical**  
+
+O incognoscível define-se, antes de tudo, por sua **negatividade radical** — não pelo que é, mas **pelo que não é**: não é o cognoscível, não é o pensável, não é o que se deixa capturar por conceitos ou estruturas lógicas. É o domínio que escapa a toda determinação positiva, o limite intransponível do Absoluto quando abordado pela razão discursiva.  
+
+Sua natureza não é meramente "o ainda não conhecido", mas **o que resiste intrinsecamente à conceptualização**. Sua presença não representa uma falha no sistema do conhecimento, mas um **horizonte estrutural** — aquilo que, por essência, não se deixa reduzir às categorias do pensamento. Não é ausência, mas **excesso**; não é vazio, mas **plenitude inexprimível**.  
+
+Enquanto o cognoscível é o território onde a lógica e a metafísica operam, o incognoscível é o **sinal de que o real ultrapassa toda tentativa de apreensão total**. Ele não pode ser definido positivamente, mas sua sombra se projeta como um aviso: há mais na realidade do que a razão pode circunscrever.
+
+### **O Incognoscível e os Limites da Razão**  
+
+A investigação filosófica do Absoluto, portanto, concentra-se necessariamente no **cognoscível**, a esfera onde a razão opera com ferramentas lógicas e metafísicas. Isso não implica que o incognoscível seja irrelevante ou um obstáculo; pelo contrário, sua admissão é **condição para uma epistemologia honesta**. Reconhecer o incognoscível é aceitar que o conhecimento racional, por mais amplo que seja, não esgota a magnitude do real.  
+
+Assim, a incorporação do incognoscível no Absoluto não é uma concessão ao irracional, mas um **gesto de humildade intelectual**. Ele marca a fronteira onde a razão, após mapear o possível e o impossível, encontra seu término — não por incapacidade, mas porque ali começa o domínio do que só pode ser **experienciado, intuído ou vivido**, nunca plenamente conceituado.  
+
+### **Reformulação Estrutural**  
+
+1. **O Incognoscível como Negação Ativa**  
+   - Não é "o que não conhecemos", mas **o que não pode ser conhecido** por vias racionais.  
+   - Exemplo: A natureza íntima do Absoluto enquanto pura transcendência (além de ser, não-ser, ou qualquer predicado).  
+
+2. **Função do Incognoscível no Sistema Metafísico**  
+   - **Delimitação:** Mostra onde termina a linguagem e começa o mistério.  
+   - **Equilíbrio:** Impede que a razão se absolutize, lembrando-a de que há uma dimensão do real além de suas estruturas.  
+
+3. **Relação com o Cognoscível**  
+   - O cognoscível é o **Absoluto explorável** — o domínio onde a lógica e a metafísica podem operar.  
+   - O incognoscível é o **Absoluto inexplorável** — não por falta de esforço, mas por excesso de realidade.  
+
+### **Conclusão**  
+A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança.
+
 # **A Causalidade no Absoluto cognocível**  
 
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise:
