@@ -434,8 +434,6 @@ Através de uma terceira via: **a Presença Pura** que:
 - É plenamente positiva (não definida por negação)  
 - Mantém-se em ato permanente (sem potencialidade não realizada)
 
-revisão
-
 ## **A Personalidade como Expressão Máxima da Autocausalidade**
 
 A estrutura do Espírito Absoluto revela-se como:
@@ -478,7 +476,7 @@ Se a autocausalidade implica **autoconhecimento**, **autodomínio** e **autopres
 
 2. **Espírito como Liberdade Metafísica**  
    - A autodeterminação implica **capacidade de autoafirmação além da necessidade lógica**.  
-   - O Absoluto não é obrigado a ser "A" ou "não-A"; **ele se define como A (ou como além de A) por ato livre de sua natureza autocausada**.  
+   - O Absoluto não é obrigado a ser "A" ou "não-A"; **ele se define como A (ou como além de A) por ato livre de sua natureza autocausada**. 
 
 3. **Espírito como Unidade Dinâmica**  
    - Enquanto os entes derivados estão sujeitos à distinção entre essência e existência, o Espírito Absoluto **é essência-existência em unidade indivisa**.  
@@ -527,7 +525,7 @@ A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura di
   - **Causa Identitária (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida.  
   - **Causa Existencial (Atemporal):** *"O Absoluto existe por si mesmo"* — não deriva de nenhuma condição prévia.  
 - **Implicação Metafísica:**  
-  - A autocausalidade atemporal garante que o Espírito seja **fonte irredutível**, nunca um mero produto de processos.  
+  - A autocausalidade atemporal garante que o Espírito seja **fonte irredutível**, nunca uma consequência de processos.  
 
 ### **2. Autocausalidade Temporal: O Ciclo Autossustentado**  
 - **Natureza:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada.  
@@ -548,8 +546,8 @@ A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura di
 
 ### **4. Conclusão: O Espírito como Causalidade Viva**  
 O Absoluto é:  
-✔ **Fonte Atemporal** (causa de si mesmo *una vez por todas*)  
-✔ **Fonte Temporal** (causa de si mesmo *em cada instante*)  
+- **Fonte Atemporal** (causa de si mesmo *una vez por todas*)  
+- **Fonte Temporal** (causa de si mesmo *em cada instante*)  
 
 Essa dualidade não é divisão, mas **profundidade da autoconsciência espiritual**:  
 - *"Nele vivemos, nos movemos e existimos" (Atos 17:28)* — o tempo é um modo de participação na vida do Espírito, não seu oposto.  
@@ -576,8 +574,8 @@ No ato imediato causal, o Espirito não se causa em um processo temporal sucessi
 - O Espirito **já é** plenamente si mesmo em um eterno presente.  
 - Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).  
 
-#### **O Ser-ai em Ato (Consumação)**  
-O **Espírito** não é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
+#### **O Ser em Ato (Consumação)**  
+O **Espírito** é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.  
 - **Espírito em Ato (Consumado)** → O Espírito já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.  
   - *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.  
 
@@ -617,8 +615,8 @@ Isso unifica:
 - **Eternidade** (Espírito em ato)  
 - **Temporalidade** (Espírito em processo)  
 
-Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
-Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente à determinações temporais.
+- Na temporalidade, todas ações são manifestadas de forma temporal: possível, impossível e incognoscível. 
+- Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente à determinações temporais.
 
 ## Não polaridade entre recursividade e ato do Ser
 
@@ -632,7 +630,7 @@ O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua co
   A autocausalidade do Ser não estabelece uma oposição entre ato único e processo sustentador, ambas as autocausalidades não colidem, mas se sintetizam em uma única realidade.  
 
 ## **O Tempo do Espírito vs. O Tempo Fenomênico**  
-
+revisão
 O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se.
 
 O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente.
