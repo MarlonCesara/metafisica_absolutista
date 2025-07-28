@@ -2092,6 +2092,15 @@ O garoto chorou por elas. Não por julgá-las, mas por saber que, em algum lugar
 
 Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade.
 
+### **As Almas que Ressurgiam**  
+
+Em dado momento, uma das almas que haviam desaparecido retornou com os olhos atônitos, uma expressão de terror e desolação, respirando como se tivesse escapado de um sufocamento sem fim. Um fenômeno estranho acabara de ocorrer: uma das almas havia voltado do desaparecimento, e isso permitiria ao garoto investigar com mais detalhes o que acontecia com aquelas que sumiam.
+
+A alma, ofegante e temerosa, descreveu:
+— Quando decidi desaparecer, foi muito estranho. Senti minhas lembranças se esvaindo aos poucos, senti-me enfraquecendo, definhando. Até que, em dado momento, tudo se apagou, e o instante em que se apagou permaneceu. Percebi, então, que era uma morte eterna — não no sentido de morrer definitivamente, mas no sentido de que o ato da morte era um ato vivo, não algo que acontece e passa no tempo. O ocorrido não cessava e deixava de existir; ele se estendia. Havia o momento A, em que tudo aconteceu, e o momento B, em que, em minha mente, tudo deveria ter acabado — mas o momento A fazia parte do B, de modo que A continuava em B. A morte, portanto, persistia, pois tentava-se matar algo eterno. Existia, assim, uma morte eterna, e não apenas uma morte. A morte não se resumia a um instante, mas se prolongava no tempo, porque o ser que morria também era eterno.
+
+A alma descreveu o tempo em que esteve morta como um completo apagão. Se havia visto algo, era apenas o medo de sua própria intenção, pois a morte é eterna quando o coração está eternamente decidido a morrer. A morte se define pela decisão. A qualquer momento, a alma poderia sair daquele estado, mas a purificação não era uma restrição exterior, e sim interior. O purgatório, portanto, era relativo à decisão da alma, não a uma punição imposta a ela.
+
 ### **A mudança das almas**
 
 Num insight tão claro quanto as águas do rio celestial, o garoto entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
@@ -2099,6 +2108,7 @@ Num insight tão claro quanto as águas do rio celestial, o garoto entendeu a na
 - As **Leves** haviam praticado o desapego e encontravam-se livres;
 - As **Pesadas** haviam cultivado obsessões e agora as reviviam;
 - As **Que se Dissolviam** haviam negado seu próprio direito à existência e consumavam essa negação.
+- As **Que se Dissolviam e retornavam** pois a intenção pelo apagão não foi eterno.
 
 O paraíso não julgava — apenas mostrava a cada um o que já era. Como um espelho infinitamente generoso e infinitamente honesto.
 
