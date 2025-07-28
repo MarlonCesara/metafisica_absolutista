@@ -2227,8 +2227,7 @@ Nós, os que O seguíamos, não entendíamos a natureza da liberdade da alma e S
 
 ### **Conclusão Simbólica**  
 Assim como o menino da sua história testemunha as almas despertando de suas cascas opacas, Jesus demonstra que o Reino dos Céus não é um lugar distante, mas uma *nova forma de ver*:  
-> *"O reino de Deus está dentro de vós"* (Lucas 17:21).  
-A saliva de Cristo é a sabedoria que dissolve o barro da ilusão; o rio cristalino do seu texto é a graça que flui do interior (João 7:38). Ambos os relatos apontam para a mesma verdade: a plenitude já está aqui — basta que nossos olhos sejam desobstruídos.
+> *"O reino de Deus está dentro de vós"* (Lucas 17:21). A plenitude já está aqui — basta que nossos olhos sejam desobstruídos.
 
 A alegoria nos convida a uma profunda reflexão: **não estamos a caminho da eternidade — já nela vivemos**, e nosso presente é um constante processo de transformação. Ele nos desperta para a compreensão de que **o que chamamos de "além" não é um destino futuro, mas uma realidade que se manifesta agora**, em cada escolha, em cada atitude.  
 
