@@ -200,18 +200,27 @@ A **possibilidade** define tudo o que é coerente do ponto de vista lógico-meta
 
 - **Exemplo:** Um círculo é uma realidade geométrica possível, pois sua definição não contém contradição. "Um triângulo de quatro lados" é impossível, portanto, não se enquadraria no domínio da existência lógica.
 
-- **Implicação:** Tudo o que é possível pertence ao domínio da **Realidade**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
+- **Implicação:** Tudo o que é possível pertence ao domínio do **lógico**, um subconjunto ativo do Absoluto, onde a existência se manifesta de forma ordenada.  
 
 ### **Impossibilidade: O Domínio da Existência ilógica**  
 
 **Definição Ontológica:**
 A classe de entes cuja própria definição constitui violação direta dos princípios lógicos fundamentais.  
 
-**Tipologia:**
-- **Contradições Explícitas:** "Círculo quadrado" (viola Não-Disformidade)
+A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **impossibilidade**.  
+
+- **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.
+
+### **Tipologia da Impossibilidade:**  
+
+1. **Contradições Explícitas (Violação Direta dos Princípios Lógicos)**  
+   - *Exemplo:* "Círculo quadrado"  
+     - **Violação da Não-Contradição:** Um círculo, por definição, não possui vértices, enquanto um quadrado, necessariamente, possui quatro. Logo, afirmar que algo é "círculo e não-círculo" (quadrado) simultaneamente gera uma contradição lógica direta.  
+     - **Violação da Não-Disformidade:** A essência de um círculo (curva contínua sem ângulos) é incompatível com a de um quadrado (quatro lados retos e ângulos). Portanto, um ente não pode **tornar-se** ou **ser descrito como** ambos sem deixar de ser um deles.  
+   - *Consequência:* Como a definição do "círculo quadrado" exige a coexistência de propriedades excludentes, ele não apenas não existe, mas **não pode existir** em nenhum mundo possível.  
 
 **Status Metafísico:**
-- Não constitui meramente a ausência de possibilidade
+- Não se reduz à mera negação do possível, podendo, sob determinadas condições, alcançar realização concreta.
 - Funciona como limite intrínseco da estrutura da realidade
 - Revela os contornos do espaço metafísico possível
 
@@ -221,12 +230,9 @@ A classe de entes cuja própria definição constitui violação direta dos prin
 3. **Delimitador Transcendental:** Mostra os limites do pensamento coerente
 4. **Mentalização parcial:** A impossibilidade pode ser imaginada em partes. É possível mentalizar um circulo e um quadrado, porém não é possível unir os dois.
 
-A **impossibilidade** abrange tudo o que é logicamente contraditório, pertencendo ao domínio da **impossibilidade**.  
-
-- **Exemplo:** Um "círculo quadrado" é impossível, pois sua definição viola os princípios da identidade e da não-contradição.
-
 - **Implicação:** A impossibilidade não é um mero "nada", mas um **limite lógico intrínseco ao Absoluto**, que, em sua natureza totalizante, pode transcender ou reconfigurar tais limites. Isso implica que o Absoluto não está rigidamente restrito ao que é atualmente possível, podendo, em sua plenitude, dissolver ou ressignificar o impossível, transformando-o em novo fundamento para a existência.  
 
+revisão
 ### **Incognoscibilidade: O Domínio da Transcendência Radical**  
 
 **Definição Ontológica:**
