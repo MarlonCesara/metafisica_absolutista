@@ -255,7 +255,7 @@ A dimensão do real que excede permanentemente qualquer estruturação conceitua
 
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica e até mesmo a corrupção da mesma cede lugar a outras formas de apreensão da realidade, distantes de serem mentalizadas ao menos parcialmente. 
 
-**Nível de cognoscibilidade"": não pode sequer ser idealizado de forma aproximada. É inalcançável pela conceituação, incapturável, inconcebível. Até mesmo o ilógico poderia ser vislumbrado de maneira difusa, mas o incognoscível não se permite qualquer comparação ou compreensão por meio de conceitos.
+**Nível de cognoscibilidade**: não pode sequer ser idealizado de forma aproximada. É inalcançável pela conceituação, incapturável, inconcebível. Até mesmo o ilógico poderia ser vislumbrado de maneira difusa, mas o incognoscível não se permite qualquer comparação ou compreensão por meio de conceitos.
 
 ### **Relação Hierárquica dos Domínios**
 
