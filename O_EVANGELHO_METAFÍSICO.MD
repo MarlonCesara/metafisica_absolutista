@@ -719,8 +719,6 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 ## Referencial Possível  
 
 - A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
-revisão
-
 
 - **Ausência de dimensões absolutas**: Nem o evento nem a infinitude podem ser delimitados espacial ou temporalmente.  
 - **Dependência de um segundo termo**:  
@@ -819,6 +817,48 @@ Essas personas não são divisões, mas **modos de relação do Espírito consig
 - A **Liberdade** introduz a personalidade na dança cósmica.  
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
+
+### A Trindade bíblica 
+
+A relação entre as autodeterminações do Espírito (vertical, diagonal e horizontal) e as Pessoas da Trindade na Bíblia pode ser explorada de forma analógica, embora com ressalvas teológicas, já que a natureza de Deus transcende categorias humanas. Aqui está uma possível correlação:
+
+### **1. Autodeterminação Vertical (Espírito Fundamentador) → Deus Pai**  
+- **Bíblia:**  
+  - O Pai é frequentemente associado à **fonte da existência** e à **incorruptibilidade**:  
+    - *"Porque dele, e por meio dele, e para ele são todas as coisas."* (Romanos 11:36).  
+    - *"Eu sou o Alfa e o Ômega, diz o Senhor Deus, aquele que é, que era e que há de vir, o Todo-Poderoso."* (Apocalipse 1:8).  
+  - **Fundamentação ontológica**: O Pai é o princípio não-gerado, a base da Trindade (João 5:26).  
+
+- **Relação:**  
+  - Assim como o **Espírito Fundamentador** garante a existência do sistema, o Pai é a origem imutável e autoexistente (Êxodo 3:14).  
+
+### **2. Autodeterminação Diagonal (Espírito Plenificador) → Espírito Santo**  
+- **Bíblia:**  
+  - O Espírito Santo age de forma **despersonalizada** (não é uma "persona" no sentido humano) e **direciona à plenitude**:  
+    - *"O Espírito sopra onde quer"* (João 3:8).  
+    - *"Mas o Consolador, o Espírito Santo, a quem o Pai enviará em meu nome, vos ensinará todas as coisas."* (João 14:26).  
+  - **Dons e frutos**: Sua ação é sempre rumo à perfeição (1 Coríntios 12:7-11, Gálatas 5:22-23).  
+
+- **Relação:**  
+  - O **Espírito Plenificador** age sem vícios pessoais, apenas para a plenitude — assim como o Espírito Santo santifica, unge e completa a obra de Deus.  
+
+### **3. Autodeterminação Horizontal (Espírito Personalizador) → Jesus (Filho)**  
+- **Bíblia:**  
+  - Jesus é a **personalização de Deus** (Alma/Persona):  
+    - *"E o Verbo se fez carne e habitou entre nós."* (João 1:14).  
+    - *"Cristo Jesus, sendo em forma de Deus, esvaziou-se a si mesmo, assumindo a forma de servo."* (Filipenses 2:5-7).  
+  - **Liberdade direcionada**: Jesus age com traços humanos (emoções, vontade, humor?):  
+    - Chorou (João 11:35), teve ira (Marcos 3:5), usou parábolas com ironia (Mateus 23:24).  
+
+- **Relação:**  
+  - O **Espírito Personalizador** manifesta-se em ações "acidentais" (como ser engraçado ou emocionado), assim como Jesus assumiu uma natureza humana sem perder a divindade.  
+
+### **Resumo Trinitário:**  
+1. **Pai (Vertical)**: Fundamenta a existência.  
+2. **Espírito Santo (Diagonal)**: Completa e santifica sem persona fixa.  
+3. **Filho (Horizontal)**: Encarna a personalidade divina na história.  
+
+Essa analogia não esgota o mistério da Trindade, mas ajuda a visualizar como as três autodeterminações podem ecoar nas Pessoas divinas.
 
 ## Conclusão  
 
