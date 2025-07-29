@@ -675,7 +675,7 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 - A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável.  
 
 ### Tempo Potencial e Expresso (Atemporalidade)  
-revisão
+
 - O tempo existe como:  
   1. **Tempo expresso** (manifestado).  
   2. **Tempo inexpresso** (potencial não realizado).  
@@ -691,7 +691,7 @@ revisão
 
 ### Não-localidade  
 
-- A existência não se origina em um lugar específico, pois não há um ponto de origem relativo, sendo em si seu próprio ponto de origem.  
+- A existência não se origina em um lugar específico, pois não há um ponto de origem, sendo em si seu próprio ponto de origem.  
   - *Exemplo:* O universo não pode ter começado em lugar nenhum.  
 
 ### Espaço Infinito  
@@ -713,13 +713,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 
 ### Não-Coexistência de Opostos Relativos  
 
-- A (eventualidade) e B (infinito) não podem ocupar a mesma dimensão se forem contraditórios.  
+- A (eventos) e B (infinitude) não podem ocupar a mesma dimensão se forem contraditórios.  
   - *Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo.  
 
 ## Referencial Possível  
 
 - A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
-
+revisão
 - Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
   - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
