@@ -1047,6 +1047,23 @@ De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria d
 
 revisão
 
+### Recolocar
+
+Entendi que só existia o relativo, pois todas as opções já existem e estão consumadas, portanto, ao olhar o futuro se olha o relativo. Todas as oppções. Há o relativo determiando e o indeterminado. O relativo indeterminado chamamos de nada, e o determinado de existir. Todas as ações já existem, mas a existencia é a confirmação, a realização temporal na qual se adequa o observador, é o pulsar de vida que viaja no tempo do espirito. 
+
+- **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
+
+O nada, portanto, não existe visto pela integralidade, mas visto através do tempo. O observador temporal enxerga o nada, porém o observador atemporal não tem a percepção do nada, pois não há configuração a se suceder para o absoluto que já não tenha se sucedido. O nada bíblico é um conceito simples para o relativo, que na verdade não é o nada, mas um futuro observado pelo observador presente. O criador, sendo o Espírito plenificador, o nada está para o espírito temporal e não para o Espírito fundamentador.  
+
+Em síntese: a fundamentação é o absoluto consumado, de forma que a totalidade da soma dos eventos temporais resultasse num momento único atemporal. Desta forma, a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em ato único, e este seria o estado relativo para o Absoluto. Portanto, o absoluto, em sua integralidade, é Espírito, e em sua internalidade também o é, porém, resume os acontecimentos temporais em um ato atemporal.  
+
+A criação, portanto, só existe como evento e não como integralidade. Tudo já existe, de forma que, na internalidade, tudo está sendo criado temporalmente. E tudo é criado a partir da suspensão de possibilidades.  
+
+A suspensão é o relativo, ou seja, o Espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenário como um mar calmo, porém sua internalidade está puxando dessa calmaria para criar sua continuidade interna. O relativo é a superfície, ao passo que é o futuro eventual do presente interno ao Espírito. A definição está no presente, e não somente consumada. 
+
+Desta forma, conclui-se que o relativo é o único nada que faz sentido, sendo o nada lógico a ausência da decisão perante uma infinitude de possibilidades já consumadas na superfície e suspensas na internalidade eventual do Espírito.  
+
+Desta forma, o tempo do Espírito determina o que já está consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluída no tempo espiritual. A ausência da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas. 
 
 #### **O Relativo como Autoexpressão do Absoluto**  
 
