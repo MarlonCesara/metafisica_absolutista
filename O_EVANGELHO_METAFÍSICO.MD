@@ -851,7 +851,7 @@ A relação entre as autodeterminações do Espírito (vertical, diagonal e hori
     - Chorou (João 11:35), teve ira (Marcos 3:5), usou parábolas com ironia (Mateus 23:24).  
 
 - **Relação:**  
-  - O **Espírito Personalizador** manifesta-se em ações "acidentais" (como ser engraçado ou emocionado), assim como Jesus assumiu uma natureza humana sem perder a divindade.  
+  - O **Espírito Personalizador** manifesta-se em ações "acidentais" (como ser romântico ou emocionado), assim como Jesus assumiu uma natureza humana sem perder a divindade.  
 
 ### **Resumo Trinitário:**  
 1. **Pai (Vertical)**: Fundamenta a existência.  
@@ -864,9 +864,11 @@ Essa analogia não esgota o mistério da Trindade, mas ajuda a visualizar como a
 
 - O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.  
 - A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.  
-- Espírito e Alma são as duas dimensões da autodeterminação:  
-  - O Espírito garante a existência e a perfeição.  
-  - A Alma introduz a liberdade e a personalidade na estrutura do relatívo.  
+- O Espírito do Ser tem três dimensões de ação que o distingue em pessoas distintas em sua autodeterminação:  
+  - O Espírito fundamental e o plenificador garante a existência e a perfeição.  
+  - A Alma (personificação do Espírito) introduz a liberdade e a personalidade na estrutura do Absoluto.  
+
+revisão
 
 # **Criacionismo no nível do Absoluto**
 
