@@ -1036,16 +1036,17 @@ O observador temporal, portanto, não enxerga o relativo, mas enxerga a infinitu
 
 A suspensão é o relativo, ou seja, o Espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenário como um mar calmo, porém sua internalidade está puxando dessa calmaria para criar sua continuidade interna. O relativo é a superfície futura, é o futuro eventual do presente interno ao Espírito. A definição está no presente e o relativo é um futuro na temporalidade, que definimos como "nada", ou como fonte da criação do Ser.
 
-revisão
+Desta forma, conclui-se que o relativo é o único nada que faz sentido, sendo a ausência da decisão perante uma infinitude de possibilidades futuras, suspensas na internalidade eventual do Espírito. E consumadas no sentido de que, todas as possibilidades aconteceram, ainda que não vivenciadas pela verdade do observador.
 
-Desta forma, conclui-se que o relativo é o único nada que faz sentido, sendo o nada lógico a ausência da decisão perante uma infinitude de possibilidades já consumadas na superfície e suspensas na internalidade eventual do Espírito.  
+O tempo do Espírito determina o que já está consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluída no tempo espiritual. A ausência da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas. 
 
-Desta forma, o tempo do Espírito determina o que já está consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluída no tempo espiritual. A ausência da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas.  
-
-De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada. Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se (Ser-ai) possibilidades prévias:  
+De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada. Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se possibilidades prévias:  
 
 - *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
 - Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
+
+revisão
+
 
 #### **O Relativo como Autoexpressão do Absoluto**  
 
