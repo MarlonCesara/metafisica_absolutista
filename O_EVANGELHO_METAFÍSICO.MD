@@ -977,10 +977,11 @@ O conceito mais próximo de "nada" que a filosofia pode oferecer é o "Relativo"
 
 A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu modo de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. Esse seria o conceito mais próximo de "nada": uma existência indiferenciada.
 
-revisão
+### **O Relativo e o Absoluto Auto Determinado**  
+
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.  
 
-A ação auto-fundamentadora que corresponde aos princípios fundamentadores é menos complexa de ser explicada, pois, no atemporal, não há decisões formalizadas; tudo se dá como é naturalmente. No entanto, ao aplicarmos os princípios causais determinísticos, temos o intuito de explicar as razões temporais para a determinação do absoluto. Ou seja, necessitamos explicar a causa de sua determinação e não somente de sua fundamentação. Devemos investigar por que as coisas existem como existem e não somente por que existem. O absoluto é absoluto porque é causa de si mesmo; porém, sua determinação identitária necessita de uma explicação.  
+A ação atemporal auto-fundamentadora que corresponde aos princípios fundamentadores é menos complexa de ser explicada, pois, no atemporal, não há decisões formalizadas; tudo se dá como é naturalmente. No entanto, ao aplicarmos os princípios causais determinísticos, temos o intuito de explicar as razões temporais para a determinação do absoluto. Ou seja, necessitamos explicar a causa de sua determinação no tempo e não somente de sua fundamentação atemporal. Devemos investigar por que as coisas existem como existem e não somente por que existem. O absoluto é absoluto porque é causa de si mesmo; porém, sua determinação identitária necessita de uma explicação.  
 
 Considerando o estado atemporal do Espírito, é possível que ele seja auto-fundamentado, pois não haveria mudança ou necessidade de determinação posterior em si. Porém, ao introduzirmos a realidade temporal do Espírito, temos que toda a temporalidade já deveria estar presumida e vivenciada em seu começo, meio e fim no instante eterno atemporal. Desta forma, teríamos uma realidade espiritual autocausal, de modo que já se origina em toda sua essência como tal, sem que haja uma necessidade de determinação posterior, o que anularia sua capacidade autocausal.  
 
@@ -990,10 +991,9 @@ O que se origina sem causa não pode determinar-se em um momento posterior; caso
 
 Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto que se sucederam no tempo. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. E também significa que há uma razão para haver o fenômeno ao invés do não-fenômeno (Espírito puro), e essa razão só pode estar ligada à natureza da plenitude do Espírito.  
 
-Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa determinação, pois se dá como resultado de todas as opções para o absoluto, sem que haja escolha entre elas. E toda determinação já está interna à dissolução final, que é a infinitude do absoluto. Tudo já está consumado em sua integralidade. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia** — não detectável empiricamente, mas necessariamente **ativa**.  
+Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa determinação, pois se dá como resultado de todas as opções para o absoluto, sem que haja escolha entre elas. E toda determinação já está interna à dissolução final, que é a infinitude do absoluto. Tudo já está consumado em sua integralidade. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia**. 
 
-Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita).  
-Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito.  
+Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita). Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito.  
 
 Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.  
 
@@ -1006,12 +1006,12 @@ O Absoluto não é um "vazio que se preenche", mas uma **presença** que:
 #### **A Personalidade como Estrutura da Autocausalidade**   
 1. **Autoconhecimento**: O Absoluto não "pensa" – ele **é** o ato de conhecer a si mesmo como fonte de todas as possibilidades.  
 2. **Autodomínio**: Sua liberdade não é escolha, mas **soberania ontológica** – a capacidade de ser, simultaneamente, o indiferenciado e o diferenciado.  
-3. **Autoexpressão**: As manifestações (formas, fenômenos) não são "partes" do Absoluto, mas **atos de sua autodeterminação contínua**.  
+3. **Autoexpressão**: As manifestações (formas, fenômenos) são **atos de sua autodeterminação contínua**.  
 
 #### **Conclusão: Do Nada ao Absoluto Autoconsciente**  
 A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:  
 - O não fenômeno ou o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis.  
-- O verdadeiro fundamento é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.  
+- O fudamento "criador" é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.  
 
 **Em síntese:**  
 - O campo fenomenológico e o não fenômeno são **ferramentas conceituais** que apontam para além de si mesmas.  
@@ -1027,6 +1027,8 @@ Portanto, o universo foi criado numa visão temporal, vista pelo referencial do 
 Ao considerar que a pessoalidade espiritual não carrega determinação (ex.: campo fenomenológico ou não-fenômeno), mas se entrega como verdade absoluta, é possível considerar que qualquer determinação afetaria o estado de auto-fundamentação, tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança determinística fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo determinístico, é possível ainda assim constituir-se como base causal de toda determinação.  
 
 Definamos o nada como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+
+revisão
 
 - **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
 - **A determinação é imanente** — não há "externalidade" determinada, apenas a totalidade autodeterminando-se internamente, porém, indeterminada em sua totalidade em ato.  
