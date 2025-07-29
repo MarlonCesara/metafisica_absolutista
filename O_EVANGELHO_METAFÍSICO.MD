@@ -868,13 +868,11 @@ Essa analogia não esgota o mistério da Trindade, mas ajuda a visualizar como a
   - O Espírito fundamental e o plenificador garante a existência e a perfeição.  
   - A Alma (personificação do Espírito) introduz a liberdade e a personalidade na estrutura do Absoluto.  
 
-revisão
-
 # **Criacionismo no nível do Absoluto**
 
 ## **Nada como existencia Relacional**  
-
-Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
+revisão
+Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando ainda dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial.  
 
 - **Definição por Negação**: O nada só existe como contraparte de algo manifesto.  
   - *Exemplo*: A escuridão é a não-luz; o silêncio é a não-vibração sonora.  
@@ -1076,7 +1074,6 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 - Se a manifestação (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço do relativizado (já que potencial implica em manifestação, incompatível com a ausência total).  
   - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
   - *Potenciais opostos:* Excluem-se, pois o "relativo" não pode conter possibilidades e impossibilidades latentes sem perder sua definição.  
-
 # Estruturando o possível e o impossível  
 
 ### **Dissolução entre Possibilidade e Impossibilidade**  
