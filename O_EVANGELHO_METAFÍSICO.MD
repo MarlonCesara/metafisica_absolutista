@@ -720,9 +720,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 
 - A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).  
 revisão
-- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
-  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
-  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
+
 
 - **Ausência de dimensões absolutas**: Nem o evento nem a infinitude podem ser delimitados espacial ou temporalmente.  
 - **Dependência de um segundo termo**:  
@@ -854,6 +852,12 @@ Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibil
 - A negação só existe se A já foi manifestado ou é possível.  
 - Não há "nada" sem relação com um "algo".  
   - *Exemplo:* Só há ausência da luz do sol se houver a luz do sol.  
+
+## Oposição negativa
+
+- Se a manifestação (A) e o nada (B) forem potenciais opostos, não podem coexistir, pois o "nada" deixaria de ser nada ao ter qualquer traço de manifestação (já que potencial implica energia ou latência, incompatível com a ausência total).  
+  - *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).  
+  - *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.  
 
 ## **O Nada Auto-Supressor**  
 
