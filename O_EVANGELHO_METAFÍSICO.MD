@@ -384,22 +384,7 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Garante que o Absoluto não se dissolva na inexistência.  
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
-
-
-
-
-
-
-
-
-
-
-
-# **A Pessoalização do Absoluto como Espírito Autocausal**
-
-## **A Autocausalidade como Fundamento da Presença Pessoal**
-
-## **A Natureza Pessoal do Autocausal**
+# **A Natureza Pessoal do Autocausal**
 
 Ao contrário de concepções impessoais do Absoluto, a autocausalidade exige:
 
