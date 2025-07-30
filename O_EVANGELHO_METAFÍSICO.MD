@@ -956,16 +956,15 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 - A dissolução de formas  
 - Sem jamais passar por um "estado concreto de não existência"
 
-### **O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
-
-O conceito mais próximo de "nada" que a filosofia pode oferecer é o "Relativo", entendido como a suspensão de qualquer possibilidade — ou seja, nem mesmo o nada operaria nessa realidade, que abarcaria o absoluto de forma indiferenciada. O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o potencial da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.
-
-A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu modo de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. Esse seria o conceito mais próximo de "nada": uma existência indiferenciada.
-
+### **O Campo Relativo: O Absoluto Indiferenciado e o nada**  
 revisão
-obs: o relativo não é o conceito mais próximo de nada, a palavra nada, é uma auto-evidenciador da auto-causalidade. O Espírito idepende de funamento externo, e isso é criar do nada, criar no contexto atemporal é ser do nada. Ser auto-causal, ou seja, auto evidenciador.
+Ao tentarmos aproximar ou adequar o conceito de "nada" como um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada —, podemos nomear tal estado de "relativo". Pois ele se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada. O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o *potencial* da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.  
 
-### **O Relativo e o Absoluto Auto Determinado**  
+A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu *modo* de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. E esse ainda seria um conceito distante de "nada", pois consiste em uma existência indiferenciada.  
+
+Temos, portanto, que o relativo *não* é o conceito mais próximo de nada. A palavra "nada", portanto, só pode ser tratada como um auto-evidenciador da presença autocausal. O Espírito independe de fundamento externo, e isso é *Ser do nada*. *Criar do nada* é existir sem um fundamento externo. *Surgir do nada*, portanto, é sinônimo de ser autocausal. E *criar do nada* significa determinar-se de forma autocausal.  
+
+### **O Absoluto Indiferenciado como Fundamento Dinâmico**  
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.  
 
@@ -2315,4 +2314,45 @@ Ele foi **romântico, poeta, profeta, místico apaixonado**. Seu bom humor despr
 Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de enxergar o melhor nas pessoas**..."  
 
 Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
+
+
+##Rascunho
+
+### **O Campo Relativo: O Absoluto Indiferenciado como Fundamento Dinâmico**  
+
+O conceito mais próximo de "nada" que a filosofia pode oferecer é o "Relativo", entendido como a suspensão de qualquer possibilidade — ou seja, nem mesmo o nada operaria nessa realidade, que abarcaria o absoluto de forma indiferenciada. O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o potencial da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.
+
+A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu modo de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. Esse seria o conceito mais próximo de "nada": uma existência indiferenciada.
+
+revisão
+obs: o relativo não é o conceito mais próximo de nada, a palavra nada, é uma auto-evidenciador da auto-causalidade. O Espírito idepende de funamento externo, e isso é criar do nada, criar no contexto atemporal é ser do nada. Ser auto-causal, ou seja, auto evidenciador.
+
+### **O Relativo e o Absoluto Auto Determinado**  
+
+Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.  
+
+A ação atemporal auto-fundamentadora que corresponde aos princípios fundamentadores é menos complexa de ser explicada, pois, no atemporal, não há decisões formalizadas; tudo se dá como é naturalmente. No entanto, ao aplicarmos os princípios causais determinísticos, temos o intuito de explicar as razões temporais para a determinação do absoluto. Ou seja, necessitamos explicar a causa de sua determinação no tempo e não somente de sua fundamentação atemporal. Devemos investigar por que as coisas existem como existem e não somente por que existem. O absoluto é absoluto porque é causa de si mesmo; porém, sua determinação identitária necessita de uma explicação.  
+
+Considerando o estado atemporal do Espírito, é possível que ele seja auto-fundamentado, pois não haveria mudança ou necessidade de determinação posterior em si. Porém, ao introduzirmos a realidade temporal do Espírito, temos que toda a temporalidade já deveria estar presumida e vivenciada em seu começo, meio e fim no instante eterno atemporal. Desta forma, teríamos uma realidade espiritual autocausal, de modo que já se origina em toda sua essência como tal, sem que haja uma necessidade de determinação posterior, o que anularia sua capacidade autocausal.  
+
+Portanto, necessitamos de uma realidade auto-determinada para justificar a presença. E uma realidade auto-determinada é aquela que já existe determinada por si, ou seja, sem ser necessário que execute uma ação temporal para formalizar sua condição absoluta.  
+
+O que se origina sem causa não pode determinar-se em um momento posterior; caso contrário, não seria auto-determinado, pois anterior ao absoluto não há nada que pudesse determiná-lo. Sendo o tempo consumado, temos que toda a configuração é um momento vindouro do que já aconteceu. A percepção de tempo, portanto, é um testemunho temporal do decorrer total do tempo que já se sucedeu completamente.  
+
+Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto que se sucederam no tempo. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. E também significa que há uma razão para haver o fenômeno ao invés do não-fenômeno (Espírito puro), e essa razão só pode estar ligada à natureza da plenitude do Espírito.  
+
+Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa determinação, pois se dá como resultado de todas as opções para o absoluto, sem que haja escolha entre elas. E toda determinação já está interna à dissolução final, que é a infinitude do absoluto. Tudo já está consumado em sua integralidade. Portanto, a **forma** (ou determinação) só pode emergir de uma **existência prévia**. 
+
+Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita). Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito.  
+
+Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.  
+
+### outro
+
+Ao tentarmos aproximar ou adequar o conceito de "nada" como um estado de suspensão para absoluto, no qual o possível, impossível ou incognocível existem de forma suspensa, ou seja, indiferenciada, podemos nomear tal estado de "relativo". Pois se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade — ou seja, abarcaria o absoluto de forma indiferenciada. O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o potencial da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.
+
+A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu modo de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. E este ainda seria o conceito distante de "nada", pois se consiste em uma existência indiferenciada.
+
+Temos, portanto que, o relativo não é o conceito mais próximo de nada, a palavra nada, portanto, só pode ser retraatada como um auto-evidenciador da presença auto causal. O Espírito independe de fundamento externo, e isso é Ser do nada. Criar do nada, é existir sem um fundamento externo. Surgir do nada, portanto, é o sinonimo de ser auto causal. E criar do nada significa determinar de forma auto causal.
+
 
