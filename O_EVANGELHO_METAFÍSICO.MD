@@ -2218,6 +2218,8 @@ Ao estudá-las mais a fundo, descobriu alguns padrões em todas elas que cometia
 
 - Essas almas se autodenominavam niilistas, mas não eram apenas indivíduos que não acreditavam no sentido da vida. Eram, sobretudo, aqueles que se recusavam a crer, mesmo quando a verdade lhes era revelada de forma incontestável. Sua convicção interior, contrária à permanência na existência, não lhes permitia aceitar qualquer forma de crença. Como consequência, julgavam-se donos da moralidade, permitindo a si mesmos qualquer tipo de comportamento, pois consideravam que todo prazer era lucro e que nenhum ato afetaria sua eternidade de alguma forma. Viviam como se a existência fosse um jogo sem consequências, onde os limites éticos eram apenas ilusões.
 
+- Para o niilista, só convém aproveitar o momento presente sem se apoiar no que é, em sua conduta, em seus dons ou em seu crescimento perante a vida. Portanto, a ânsia por proveito é imediatista, pois ele se considera sem futuro, enxerga sua vida como vazia de significado e vê o presente como algo que pode ser vivido sem qualquer preocupação ética. O pensamento da falta de sentido não se sustenta em uma estrutura lógica, mas acompanha seu sentimento — um desejo de, ao menos, não estar desperdiçando a vida ao agir contra ela.
+
 Para o filósofo, era incompreensível. Ele via suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam.  
 
 Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
