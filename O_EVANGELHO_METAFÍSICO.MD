@@ -1032,6 +1032,17 @@ De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria d
 
 revisão
 
+
+## Parte nova
+
+- Tudo já está suspenso no espírito, mas a suspensão é o ocorrido de fato.
+- Tudo já ocorreu, mas está sendo reconhecido. 
+- O termo ''criar'' significa que Deus trás as possibilidades de si do nada, o que funciona como um evidenciador de presença. De forma que o Ser se auto justifica.
+- O tempo é a localização da alma no decorrer do espírito. 
+- Por isto, não é criado, mas tudo já existe.
+- A suspensão é a realização de todas as possibilidades de forma simultanea. 
+- O Espirito faz novas escolhas e evidencia uma das possibilidades em suspensão. O Espírito vivifica no tempo, autenticar.
+
 ### Recolocar
 
 Entendi que só existia o relativo, pois todas as opções já existem e estão consumadas, portanto, ao olhar o futuro se olha o relativo. Todas as oppções. Há o relativo determiando e o indeterminado. O relativo indeterminado chamamos de nada, e o determinado de existir. Todas as ações já existem, mas a existencia é a confirmação, a realização temporal na qual se adequa o observador, é o pulsar de vida que viaja no tempo do espirito. 
