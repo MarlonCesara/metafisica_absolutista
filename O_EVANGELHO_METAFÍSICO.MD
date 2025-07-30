@@ -2281,34 +2281,6 @@ E então, no ápice de sua compreensão, o filósofo fez a descoberta mais extra
 
 O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo — esse tempo elástico e dançante — era o espaço da cura.
 
-## **Um Encontro com o Discípulo do Mestre**
-
-O filósofo, mais tarde, encontrou um homem de barro que despertara há muito tempo no paraíso e guardava memórias bastante peculiares. Chamava-se João e afirmava ter testemunhado fenômenos miraculosos no mundo de barro. Acreditava que poderia auxiliar o filósofo em sua busca por compreender os homens de barro e orientá-los no momento de seu despertar. João contava que, em seu mundo de origem, fora seguidor do Divino Mestre e presenciara milagres indescritíveis. Ao narrar suas lembranças, seu olhar transbordava serenidade, e seu rosto revelava a marca de quem contemplara o maravilhoso — uma experiência tão profunda que se tornara impossível de esquecer, pois tudo o que vira gravara-se em seu ser para sempre.
-
-"Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida.  
-
-Jesus Se declarava apaixonadamente. **Ele nos pediu em casamento, numa união eterna**. Se um coração diz *"sim"* a esse amor, como outro poderia dizer *"não"*? Essa é a pergunta que Ele quis deixar para a humanidade.
-
-Sua entrega e Sua profecia — **a promessa de que todos nos fundiremos a Ele** — são um pedido de casamento. E essa união não terá fim, dizia Ele.  
-
-Ele foi **romântico, poeta, profeta, místico apaixonado**. Seu bom humor despretensioso, Sua entrega absoluta. Seu sorriso, mais leve que o ar, e Seu olhar, que refletia o infinito.  
-
-Seu modo de amar **quem não merecia**, de profetizar **o impossível na vida das pessoas**... Defino-O como **o Deus do Impossível**. Jesus não Se importava com barreiras lógicas; Seu pensamento transcendia, rumo ao incognoscível, **à realização do inalcançável**. Ele ultrapassava a razão tradicional **em nome do amor humano**.  
-
-Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de enxergar o melhor nas pessoas**..."  
-
-Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
-
-João estava com os olhos cheios de lágrimas e deu uma breve pausa como quem templa uma maravilhosa lembrança, e então continuou:  
-
-"Todos nós pensávamos que Ele seria um rei e que dominaríamos toda a Galileia. Porém, Jesus tinha um desejo mais profundo que a ordem social. Ele queria, acima de tudo, que todo ser humano se salvasse — que fizesse as pazes com a vida, que permanecesse na existência.  
-
-Ele não aceitava, de forma alguma, a realidade da morte espiritual. Seus atos foram baseados na crença de que o impossível poderia acontecer. Jesus chegou a tentar transgredir a liberdade humana num gesto que tocaria cada coração, sem, no entanto, corromper o homem em sua essência livre. Esse era Seu maior desejo.  
-
-Jesus participou de lutas sociais e combatia com fervor a falsidade dos religiosos da época — uma batalha crucial. Mas o Pai lhe mostrou que havia uma causa ainda maior naquele momento. E, a princípio, foi difícil compreender.  
-
-Nós, os que O seguíamos, não entendíamos a natureza da liberdade da alma e Sua postura neste mundo. Levou um tempo até assimilarmos Sua verdadeira intenção. Só depois percebemos que Ele não apenas queria libertar a sociedade da escravidão, mas também nos resguardar de um destino terrível: a morte eterna. E foi por essa intenção que Ele morreu por todos nós."  
-
 ### **Conclusão Simbólica**  
 Assim como o menino da sua história testemunha as almas despertando de suas cascas opacas, Jesus demonstra que o Reino dos Céus não é um lugar distante, mas uma *nova forma de ver*:  
 > *"O reino de Deus está dentro de vós"* (Lucas 17:21). A plenitude já está aqui — basta que nossos olhos sejam desobstruídos.
@@ -2325,4 +2297,15 @@ O **Evangelho metafísico** nos revela essa verdade com clareza: **somos partici
 Assim, compreendemos que **não seremos julgados por um tribunal distante, mas pela luz da própria consciência**, que revelará, sem véus, quem verdadeiramente nos tornamos. **A eternidade não começa após a morte — ela se desdobra em cada instante**, e somos nós quem decidimos, hoje, como desejamos nela habitar.  
 
 
+## **A personalidade do Mestre**
+
+"Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida.  
+
+Jesus Se declarava apaixonadamente. **Ele nos pediu em casamento, numa união eterna**. Se um coração diz *"sim"* a esse amor, como outro poderia dizer *"não"*? Essa é a pergunta que Ele quis deixar para a humanidade. Sua entrega e Sua profecia — **a promessa de que todos nos fundiremos a Ele** — são um pedido de casamento. E essa união não terá fim, dizia Ele.  
+
+Ele foi **romântico, poeta, profeta, místico apaixonado**. Seu bom humor despretensioso, Sua entrega absoluta. Seu sorriso, mais leve que o ar, e Seu olhar, que refletia o infinito. Seu modo de amar **quem não merecia**, de profetizar **o impossível na vida das pessoas**... Defino-O como **o Deus do Impossível**. Jesus não Se importava com barreiras lógicas; Seu pensamento transcendia, rumo ao incognoscível, **à realização do inalcançável**. Ele ultrapassava a razão tradicional **em nome do amor humano**.  
+
+Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de enxergar o melhor nas pessoas**..."  
+
+Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
 
