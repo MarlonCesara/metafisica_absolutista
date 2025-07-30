@@ -2202,6 +2202,8 @@ Ao estudá-las mais a fundo, descobriu alguns padrões em todas elas que cometia
 
 - Todas praticavam o autoengano. Quando o filósofo perguntava por que elas desapareciam, antes de sumir de vez, nenhuma admitia que iria fazê-lo. Se ele tentasse revelar a verdade, elas ficavam agressivas e tentavam mais uma vez se esconder de suas próprias intenções. Desenvolviam uma enorme habilidade de autoengano, de disfarçar para o próprio corpo a própria intenção. Gostavam de viver em mentiras. Também tinham um orgulho extremo.  
 
+- Essas almas se autodenominavam niilistas, mas não eram apenas indivíduos que não acreditavam no sentido da vida. Eram, sobretudo, aqueles que se recusavam a crer, mesmo quando a verdade lhes era revelada de forma incontestável. Sua convicção interior, contrária à permanência na existência, não lhes permitia aceitar qualquer forma de crença. Como consequência, julgavam-se donos da moralidade, permitindo a si mesmos qualquer tipo de comportamento, pois consideravam que todo prazer era lucro e que nenhum ato afetaria sua eternidade de alguma forma. Viviam como se a existência fosse um jogo sem consequências, onde os limites éticos eram apenas ilusões.
+
 Para o filósofo, era incompreensível. Ele via suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam.  
 
 Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
