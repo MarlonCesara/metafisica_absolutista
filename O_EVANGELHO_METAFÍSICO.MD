@@ -962,6 +962,9 @@ O conceito mais próximo de "nada" que a filosofia pode oferecer é o "Relativo"
 
 A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu modo de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. Esse seria o conceito mais próximo de "nada": uma existência indiferenciada.
 
+revisão
+obs: o relativo não é o conceito mais próximo de nada, a palavra nada, é uma auto-evidenciador da auto-causalidade. O Espírito idepende de funamento externo, e isso é criar do nada, criar no contexto atemporal é ser do nada. Ser auto-causal, ou seja, auto evidenciador.
+
 ### **O Relativo e o Absoluto Auto Determinado**  
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.  
