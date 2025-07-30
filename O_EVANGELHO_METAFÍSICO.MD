@@ -957,7 +957,7 @@ A verdadeira "base" da manifestação não é o nada, mas **a potência auto-org
 - Sem jamais passar por um "estado concreto de não existência"
 
 ### **O Campo Relativo: O Absoluto Indiferenciado e o nada**  
-revisão
+
 Ao tentarmos aproximar ou adequar o conceito de "nada" como um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada —, podemos nomear tal estado de "relativo". Pois ele se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada. O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o *potencial* da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.  
 
 A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu *modo* de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. E esse ainda seria um conceito distante de "nada", pois consiste em uma existência indiferenciada.  
@@ -1006,18 +1006,16 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 
 ## **O tempo e o Relativo**  
 
-O tempo, embora consumado, de fato se estende, e neste estender-se encontra-se um presente ainda sem seu futuro definido, embora o futuro já esteja consumado. Ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.  
+O futuro, portanto, é uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente.  
+Desta forma, o Espírito, sendo a consumação do processo determinístico, é possível ainda assim constituir-se como base causal de toda determinação. 
 
-Portanto, o universo foi criado numa visão temporal, vista pelo referencial do futuro, dado que a criação é passado desse futuro. Isto é, pelo ponto de vista externo do Espírito, nada é criado, tudo já está consumado. Porém, através da ótica temporal, as coisas são criadas, e o que é criado é uma definição do que está consumado. Este processo é o que se chama de *"criar do nada"*. O nada é representado pelo relativo. O relativo é o estado futuro tornando-se verdadeiro presente, ou seja, o relativo é um futuro sem um presente confirmado. É uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente.  
+O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
 
-Ao considerar que a pessoalidade espiritual não carrega determinação (ex.: campo fenomenológico ou não-fenômeno), mas se entrega como verdade absoluta, é possível considerar que qualquer determinação afetaria o estado de auto-fundamentação, tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança determinística fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo determinístico, é possível ainda assim constituir-se como base causal de toda determinação.  
+- **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda foi testemunhada.  
 
-Definamos o nada como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+- **A determinação é imanente e relativa** — há "externalidade" indiferenciada e a internalidade testemunhada no mesmo ato. A totalidade autodeterminando-se internamente relativa ao observador, revelando-se ao seu referencial em ato de progressão e definição continua.
 
-- **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
-
-- **A determinação é imanente** — há "externalidade" determinada e indeterminada no mesmo ato. E há a totalidade autodeterminando-se internamente, preenchendo a totalidade em ato de progressão e definição continua.
-
+revisão
 O observador temporal, portanto, não enxerga o relativo, mas enxerga a infinitude em ato, visto que não há definição para o futuro estando o observador em seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em ato único, o qual é determinado e indeterminado, existe em ato e em progressão interna. Tudo é criado a partir da suspensão de possibilidades.  
 
 A suspensão é o relativo, ou seja, o Espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenário como um mar calmo, porém sua internalidade está puxando dessa calmaria para criar sua continuidade interna. O relativo é a superfície futura, é o futuro eventual do presente interno ao Espírito. A definição está no presente e o relativo é um futuro na temporalidade, que definimos como "nada", ou como fonte da criação do Ser.
@@ -1030,9 +1028,6 @@ De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria d
 
 - *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
 - Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
-
-revisão
-
 
 ## Parte nova
 
@@ -2323,7 +2318,7 @@ O conceito mais próximo de "nada" que a filosofia pode oferecer é o "Relativo"
 
 A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu modo de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. Esse seria o conceito mais próximo de "nada": uma existência indiferenciada.
 
-revisão
+
 obs: o relativo não é o conceito mais próximo de nada, a palavra nada, é uma auto-evidenciador da auto-causalidade. O Espírito idepende de funamento externo, e isso é criar do nada, criar no contexto atemporal é ser do nada. Ser auto-causal, ou seja, auto evidenciador.
 
 ### **O Relativo e o Absoluto Auto Determinado**  
@@ -2355,3 +2350,29 @@ A existência de um potencial de possibilidades, no entanto, mais uma vez anular
 Temos, portanto que, o relativo não é o conceito mais próximo de nada, a palavra nada, portanto, só pode ser retraatada como um auto-evidenciador da presença auto causal. O Espírito independe de fundamento externo, e isso é Ser do nada. Criar do nada, é existir sem um fundamento externo. Surgir do nada, portanto, é o sinonimo de ser auto causal. E criar do nada significa determinar de forma auto causal.
 
 
+#### outrem
+
+O tempo, embora consumado, de fato se estende, e neste estender-se encontra-se um presente ainda sem seu futuro definido, embora o futuro já esteja consumado. Ainda não é formalizado pelo ponto de referencial interno, somente é consumado externamente, ou seja, no ato atemporal do Espírito.  
+
+Portanto, o universo foi criado numa visão temporal, vista pelo referencial do futuro, dado que a criação é passado desse futuro. Isto é, pelo ponto de vista externo do Espírito, nada é criado, tudo já está consumado. Porém, através da ótica temporal, as coisas são criadas, e o que é criado é uma definição do que está consumado. Este processo é o que se chama de *"criar do nada"*. O nada é representado pelo relativo. O relativo é o estado futuro tornando-se verdadeiro presente, ou seja, o relativo é um futuro sem um presente confirmado. É uma suspensão temporal futura das possibilidades ainda não previamente vividas e testemunhadas temporalmente.  
+
+Ao considerar que a pessoalidade espiritual não carrega determinação (ex.: campo fenomenológico ou não-fenômeno), mas se entrega como verdade absoluta, é possível considerar que qualquer determinação afetaria o estado de auto-fundamentação, tornando inelegível o Espírito como fundamento do absoluto, a menos que a mudança determinística fosse interna, de forma que já esteja consumada e dissolvida no Espírito. Desta forma, o Espírito, sendo a consumação do processo determinístico, é possível ainda assim constituir-se como base causal de toda determinação.  
+
+Definamos o nada como estado relativo do Espírito. O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:  
+
+- **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não ocorreu.  
+
+- **A determinação é imanente** — há "externalidade" determinada e indeterminada no mesmo ato. E há a totalidade autodeterminando-se internamente, preenchendo a totalidade em ato de progressão e definição continua.
+
+O observador temporal, portanto, não enxerga o relativo, mas enxerga a infinitude em ato, visto que não há definição para o futuro estando o observador em seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em ato único, o qual é determinado e indeterminado, existe em ato e em progressão interna. Tudo é criado a partir da suspensão de possibilidades.  
+
+A suspensão é o relativo, ou seja, o Espírito indeterminado se determinando em sua internalidade. Podemos imaginar este cenário como um mar calmo, porém sua internalidade está puxando dessa calmaria para criar sua continuidade interna. O relativo é a superfície futura, é o futuro eventual do presente interno ao Espírito. A definição está no presente e o relativo é um futuro na temporalidade, que definimos como "nada", ou como fonte da criação do Ser.
+
+Desta forma, conclui-se que o relativo é o único nada que faz sentido, sendo a ausência da decisão perante uma infinitude de possibilidades futuras, suspensas na internalidade eventual do Espírito. E consumadas no sentido de que, todas as possibilidades aconteceram, ainda que não vivenciadas pela verdade do observador.
+
+O tempo do Espírito determina o que já está consumado no indiferenciado. E o processo interno eventual de diferenciação seria a criação do nada. Pois o que será criado somente existe consumado, ou seja, em suspensão. O nada é a determinação ainda não concluída no tempo espiritual. A ausência da determinação envolve a presença da consumação. E na consumação há todas as determinações consumadas. 
+
+De forma que o nada seria o relativo, a indeterminação. Portanto, o Ser cria do indeterminado e não do nada. Criar é tornar imanente o que estava suspenso no relativo. O Espírito cria ex nihilo, de forma a auto-determinar-se possibilidades prévias:  
+
+- *Exemplo:* Um objeto X só existe para o Espírito quando torna-se visível em seu campo temporal.  
+- Portanto, o "nada" só poderia se referir a indiferenciação do Espírito, e não ao próprio Espírito. Ou seja, o nada é referente a uma denominação do estado de indiferenciação, pois esta seria a única referência que atribuiria algum sentido a este conceito.
