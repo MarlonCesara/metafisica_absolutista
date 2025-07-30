@@ -1090,6 +1090,9 @@ O testemunho temporal do Espírito é:
 
 Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o Absoluto se renova em si mesmo**, infinitamente.
 
+- **Integralidade → Infinito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se relativo, o qual engloba o que foi ou não foi renovado.
+- **Fragmentação → Vivência**: Ao determinar um ângulo específico em um ou mais finitos, o relativo do Espírito se polariza em vivência presente.  
+
 # Estruturando o Relativo 
 
 ## Definição por Negação  
@@ -1225,8 +1228,6 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 
 **Observação:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.  
 
-
-
 ## O Espírito do Ser como Princípio de Manifestação  
 
 A relação entre o relativo e a manifestação (possível e impossível) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:  
@@ -1300,15 +1301,7 @@ Assim, toda manifestação é, ao mesmo tempo:
 
 **Fundamento último:** A forma existe porque o infinito do Espírito, ao ser "observado", necessita expressar-se de modo determinado – e essa determinação é, em si mesma, a origem de toda identidade.  
 
-revisão
-# A Convergência entre relativo e manifestação  
 
-## O Espírito como Princípio de Manifestação do fenômeno
-
-A relação entre o relativo e a manifestação (existência fenomênica) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:  
-
-- **Integralidade → Infinito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se infinito.  
-- **Fragmentação → Manifestação**: Ao determinar um ângulo específico em um ou mais finitos, o relativo do Espírito se polariza em manifestação.  
 
 # A potencialidade do Ser
 
