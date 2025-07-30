@@ -1088,7 +1088,7 @@ O testemunho temporal do Espírito é:
 **Síntese final:**  
 > *"Para o Espírito, o tempo não passa — ele se desdobra. O futuro não está por vir; ele já está sendo vivido na eternidade que o transcende e o sustenta."*  
 
-Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o Absoluto se alegra em si mesmo**, infinitamente.
+Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o Absoluto se renova em si mesmo**, infinitamente.
 
 # Estruturando o Relativo 
 
