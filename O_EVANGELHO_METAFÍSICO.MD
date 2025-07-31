@@ -1513,6 +1513,10 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 - Mover-se veticalmente e não somente horizontalmente, permite ao individuo, não somente ser um expectador de sua existencia, ou contemplar uma existencia na qual foi fadado, mas o permite estar por liberdade, e não por uma consequencia da escolha de Deus.
 - A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. 
+-  homem é, portanto, trinário por opção. Pode direcionar-se à plenitude ou não. Desta forma, constitui-se em seu fundamento como determinação do Ser em uma particularidade temporal, o espírito perfeito de forma opcional inerente ao seu ser e a personalidade.
+- Não existe a antitese do espírito perfeito que levaria o homem a sua auto-destruição, somente existe o homem sendo trinário, ou seja, sendo pleno, corroborando com a mesma plenitude do Ser, ou caracterizado pela ausencia do Espírito perfeito, ou seja, pela não harmonia com o Ser e com sua plenitude.
+
+>  "Por isso eu lhes digo: todo pecado e toda blasfêmia serão perdoados, mas a blasfêmia contra o Espírito não será perdoada - Mateus 12:31-32"
 
 ### O Amor como Princípio Fundante  
 
