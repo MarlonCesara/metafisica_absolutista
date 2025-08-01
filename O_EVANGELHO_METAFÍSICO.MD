@@ -1565,12 +1565,12 @@ Nossa experiência do "agora":
 - Nossas ações livres emergem desta plenitude atemporal como expressões individuais de previsões que já existem previamente, porém não realizadas.  
 - O presente do Espírito é a realidade que impera, sendo o passado e o futuro diluído no relativo. O ente navega pelas possibilidades, uma vez vivido um espaço ou temporalidade esta situação é diluída novamente no relativo. 
 - A alma vivência uma das possibilidades, que são paralelas, de forma a provocar a temporalidade. A temporalidade não é um fragmento de tempo e espaço, mas um fragmento de possibilidade. 
+- A vivência do Espírito, ou que chamamos de agora, portanto, é uma vivência em uma das possibilidades conscientizadas pelo Espírito. Criar do "nada", para o Espírito, é vivificar uma das possibilidades suspensas de forma a causar uma definição particular e relativa ao vivificador no âmbito do relativo.
 
 ## Natureza da Conexão entre o Sou e o Ser  
 
 ### O Ser como Fundamento  
 - O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.  
-
 
 ## Dons Naturais e Sobrenaturais  
 
