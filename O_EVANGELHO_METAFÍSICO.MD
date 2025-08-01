@@ -982,7 +982,12 @@ Desta forma, temos o Espírito consumado, ou seja, o Espírito que dispensa dete
 
 Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subjetividade absoluta) e **poder de ação** (causalidade irrestrita). Tal presença ou existência prévia não se justifica pelo fenômeno, mas pela pessoalidade autocausal — algo que se determina a si mesmo e, por isso, incorpora os traços de uma persona: autoconhecimento, autodomínio e autopresença. A forma, portanto, permanece inerente — ou interna — ao Espírito.  
 
-Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.  
+Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade. 
+
+O relativo, portanto, é um infinito de possibilidades; as quais não se assumem por si de forma que, não haja unidade ou multiplicidade, mas um estado indiferente, o qual é existente, porém puro. Um estado de completude no qual não há definição, número, dimensão, ou forma, porém, tudo que é possível em uma suspensão.
+
+O relativo está em relação ao infinito, ou seja, o infinito de espaço e tempo é uma suspensão do espaço e tempo. Temos, portanto, o relativo como transcendência da forma. O Ser, no relativo, não é um ser, mas simplesmente é. O ato de "Ser", transcende a determinação "Sou", para uma pureza que chamamos de indiferenciação. 
+
 
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença** que:  
@@ -1558,6 +1563,8 @@ Nossa experiência do "agora":
 - É uma manifestação particular da eternidade.  
 - O que experimentamos como presente já está contido na totalidade do Ser.  
 - Nossas ações livres emergem desta plenitude atemporal como expressões individuais de previsões que já existem previamente, porém não realizadas.  
+- O presente do Espírito é a realidade que impera, sendo o passado e o futuro diluído no relativo. O ente navega pelas possibilidades, uma vez vivido um espaço ou temporalidade esta situação é diluída novamente no relativo. 
+- A alma vivência uma das possibilidades, que são paralelas, de forma a provocar a temporalidade. A temporalidade não é um fragmento de tempo e espaço, mas um fragmento de possibilidade. 
 
 ## Natureza da Conexão entre o Sou e o Ser  
 
