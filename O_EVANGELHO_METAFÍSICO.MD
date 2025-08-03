@@ -1213,6 +1213,13 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 - **Depois:** A mudança ocorre **sem destruir a realidade** (as leis da natureza não são revogadas, mas **transcendidas**).  
 - **Efeito:** O impossível **não nega** o mundo, mas **revela sua profundidade oculta**.  
 
+#### **1. A glorificação do homem**  
+> "Divino e humano, uma síntese transcendente!"
+- **Antes:**  O homem existe como uma unidade determinada, cuja unidade o difere do todo.  
+- **Depois:** Sem ruptura de sua natureza, ele se transfigura — tornando-se simultaneamente plenamente humano e participante do Divino. 
+- **Efeito:** O impossível revela a profundidade da potencialidade do Ser e do homem no Ser.  
+
+
 ### **Implicações Filosóficas e Teológicas**  
 1. **Realidade Aberta:**  
    - O real **não é um sistema fechado** – ele admite o **transcendente sem colapso**.  
