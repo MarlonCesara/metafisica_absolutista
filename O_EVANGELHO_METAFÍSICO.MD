@@ -2259,6 +2259,10 @@ A alma, ofegante e temerosa, descreveu:
 
 A alma descreveu o tempo em que esteve morta como um completo apagão. Se havia visto algo, era apenas o medo de sua própria intenção, pois a morte é eterna quando o coração está eternamente decidido a morrer. A morte se define pela decisão. A qualquer momento, a alma poderia sair daquele estado, mas a purificação não era uma restrição exterior, e sim interior. O purgatório, portanto, era relativo à decisão da alma, não a uma punição imposta a ela.
 
+> O purgatório é a esperança do inferno e não uma purificação paradisiaca como a do momento presente. A alma do purgatório experimenta um apagão, por vezes, incentivado por um ódio que se consumou a ponto de resvalar o individuo sob tempo determinado longe da sua prória estadia e presença no Ser. O diferencial entre a morte eterna e a morte temporaria é o tempo e a intenção. Se não fossem esses diferencias, o estado de não-ser do purgatório seria identico a morte eterna, ou seja, ao inferno.
+
+> O foto do inferno é o processo de consumação da alma que se extende por tempo infinito, pois o consumir-se no momento presente não esgota o conteúdo da alma que é infinito. Desta forma, temos o fogo eterno, um processo de autro destruição que não encontra seu fim. 
+
 ### **A Mudança das Almas**
 
 Num insight tão claro quanto as águas do rio celestial, o filósofo entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
