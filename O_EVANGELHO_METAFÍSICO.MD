@@ -1063,6 +1063,8 @@ O Espírito não "experimenta" o tempo como uma entidade finita, mas **o constit
 *Exemplo:*  
 Imagine um autor que já escreveu toda a história de um personagem (ato atemporal), mas ainda a lê página por página (processo temporal). O Espírito é **o autor, a história e o leitor** ao mesmo tempo.  
 
+A auto determinação envolve o que se determina, porem o auto conhecimento envolve o quem se conhece. O ato de conhecer é uma determinação temporal, pois sugere o que se conhece. No sentido de que, a experiência (conhecimento) do Espírito é auto determinado no sentido temporal. O conhecimento, atemporal, acontece concomitantemente ao temporal, e nisto o Espírito tem consciência de sua infinitude ao passo que tem estadia determinada no tempo. Sendo o conhecimento uma determinação sob a fundamentação, o Espírito pode escolher sua condição entre a dualidade atemporal e temporal. Ao escolher um foco não está negando o todo, mas o fragmentando. E ao escolher o todo, não está negando o tempo, mas o consumando.
+
 #### **2. A Dualidade do Testemunho**  
 O Espírito testemunha o tempo de duas formas complementares:  
 
