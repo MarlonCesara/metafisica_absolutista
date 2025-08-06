@@ -2306,7 +2306,7 @@ Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de 
 
 Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
 
-#Rascunho
+## Rascunho
 
 - Na união de almas há o relativo para todas, e as opções vivificadas são as consolidadas. 
 
