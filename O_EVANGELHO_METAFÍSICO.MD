@@ -2308,8 +2308,9 @@ Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de 
 
 Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
 
-## Rascunho
+## **O objetivo do Mestre**
 
-- Na união de almas há o relativo para todas, e as opções vivificadas são as consolidadas. 
+**Jesus, totalmente voltado para a prevenção do suicídio, não priorizava revelar a vida transcendental, mas sim a vida em si.** Evitou, portanto, entrar em detalhes sobre o *eros* transcendental ou discutir filosofias em excesso, concentrando-se principalmente em resgatar e dar sentido àqueles que haviam perdido seu propósito. **Assim, a trajetória de Jesus não foi marcada por debates filosóficos, mas sim pela salvação.** Ele não se aprofundou em explicações metafísicas, mas transmitiu, por meio de simbolismos, o necessário para que o homem evitasse o mau uso de sua liberdade.  
 
+Dessa forma, Jesus estabeleceu uma religião — do latim *religare* —, cujo objetivo é **religar o homem à vida**. No entanto, **não ofereceu uma visão clara e metafísica do além-vida**, tanto que a Igreja Católica, por exemplo, ainda não consegue explicar com precisão se haverá eventos no céu.  
 
