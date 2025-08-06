@@ -1,4 +1,4 @@
-## **Como Aristóteles Formulou os Princípios da Lógica**
+# **Como Aristóteles Formulou os Princípios da Lógica**
 
 #### **Capítulo I – O Silêncio de Platão**
 
@@ -55,7 +55,7 @@ Na sua velhice, Aristóteles contemplava as estrelas e dizia:
 — “Todos os homens têm, por natureza, o desejo de conhecer.”
 Mas agora sabiam **como** conhecer.
 
-## **Complementação dos Princípios da Lógica Clássica**
+# **Complementação dos Princípios da Lógica Clássica**
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
 
