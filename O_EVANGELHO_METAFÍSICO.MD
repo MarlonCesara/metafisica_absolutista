@@ -1727,8 +1727,10 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
 - A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar ao nada. 
 
 #### **8. Morte e Renascimento Ontológico**  
-- A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Relativo.  
-- O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao Relativo, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual de cada indivíduo.  
+- A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Relativo. 
+- O total encontro em uma manifestação envolve a experiência de incorrer em uma indefinição, ou seja, num apagão temporário para si mesmo em prol de viver um outro como totalidade do encontro. Dessa forma, temos um efeito semelhante ao Relativo, o ente se indefine, porém, como a indefinição parte de duas definições, a definição resultante é projetada do encontro e não de uma potencialidade nata que se obtém de forma individual em cada alma.  
+- O cessar individual do eu no outro eu geraria um fogo que se consome no outro, isto é, um ato de consumir-se no outro que seria equiparado a um êxtase de transcendência. 
+- Na união de almas há o relativo para todas, e as opções vivificadas são as consolidadas. Isto é, no relativo existe as hipoteses de todas as uniões possíveis em suspensão.
 
 #### ** Tipologia da Autodeterminação**  
 1. **Em si**  
