@@ -1548,9 +1548,9 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 # **Liberdade e Neutralidade**  
 
 - No contexto de um infinito, o livre-arbítrio implica a coexistência simultânea de todas as possibilidades hipotéticas.  
-- No entanto, apenas uma dessas possibilidades se manifesta como realidade concreta: aquela que envolve a autodeterminação do ente.  
-- As demais possibilidades permanecem irreais, pois carecem da verdade plena — uma realidade parcial é, em essência, falsa.  
-- Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então Deus também teria infinitas possibilidades de ação em sua integralidade.  
+- No entanto, apenas uma dessas possibilidades se manifesta como realidade vívida: aquela que envolve a autodeterminação do ente.  
+- As demais possibilidades permanecem suspensas, pois carecem da verdade plena — uma realidade não vívida é, em essência, não personificada. 
+- Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então o Ser também teria infinitas possibilidades de ação em sua integralidade.  
 
 **1. A Atemporalidade do Ser e a Manifestação Temporal**  
 O Ser não precisa "adentrar" no tempo, pois em sua natureza integral todos os acontecimentos já estão consumados. Não há necessidade de movimento temporal, pois todos os movimentos já ocorreram simultaneamente na eternidade do Ser.  
@@ -1558,7 +1558,7 @@ O Ser não precisa "adentrar" no tempo, pois em sua natureza integral todos os a
 **2. O Conhecimento do Ser e o Livre-Arbítrio**  
 Quanto ao conhecimento do Ser sobre os eventos que dependem do arbítrio humano:  
 - A consumação do tempo pelo Ser não significa a inexistência das ações.  
-- Significa que todas as ações possíveis já estão contidas na integralidade atemporal.  
+- Significa que todas as ações possíveis, ainda que não vívidas, já estão contidas na integralidade atemporal.  
 - O Ser conhece todas as potencialidades do arbítrio como já realizadas em sua plenitude.  
 
 **3. A Natureza Interna do Tempo no Ser**  
@@ -2305,4 +2305,9 @@ Ele foi **romântico, poeta, profeta, místico apaixonado**. Seu bom humor despr
 Sua paixão por cada olhar, por cada gesto, por cada falha. **Sua capacidade de enxergar o melhor nas pessoas**..."  
 
 Ele se entregou de braços abertos, olhando para o céu... uma entrega incompreensível, que frutifica o impossível. Uma transformação radical em cada coração, uma esperança que se acende e jamais se apaga, um caminho claro para o sentido..."
+
+#Rascunho
+
+- Na união de almas há o relativo para todas, e as opções vivificadas são as consolidadas. 
+
 
