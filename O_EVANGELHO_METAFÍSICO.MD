@@ -2317,7 +2317,7 @@ Dessa forma, Jesus estabeleceu uma religião — do latim *religare* —, cujo o
 
 ## **O pecado e a corrupção**
 
-**Interpreto que a corrupção narrada pela Bíblia, que afetou todo o cosmos, originou-se no coração de Deus e que o primeiro pecado foi, essencialmente, um suicídio espiritual do ser humano primordial.** Assim, do ponto de vista abstrato e sentimental, é possível suavizar o impacto de certos conceitos marcantes na teologia tradicional.  
+**Interpreto que a corrupção narrada pela Bíblia, que afetou todo o cosmos, originou-se no coração de Deus como uma tristeza pela condição de estagnação espíritual do homem e que o primeiro pecado foi, essencialmente, um suicídio espiritual do ser humano primordial.** Assim, do ponto de vista abstrato e sentimental, é possível suavizar o impacto de certos conceitos marcantes na teologia tradicional.  
 
 **Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana.  
 
