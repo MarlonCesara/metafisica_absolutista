@@ -353,8 +353,6 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
 - Sua existência, permanência e identidade são autocausadas.  
 - O Absoluto é auto fundamentado, autodeterminado e autocontinuado.  
 
-> "Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."
-
 ### Propriedades Essenciais do Absoluto  
 
 ### Autofundamentação  
@@ -386,6 +384,8 @@ Dessa forma, a análise do Absoluto não apenas estrutura a metafísica, mas rev
   - Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.  
 
 # **A Natureza Pessoal do Autocausal**
+
+> "Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."
 
 Ao contrário de concepções impessoais do Absoluto, a autocausalidade exige:
 
