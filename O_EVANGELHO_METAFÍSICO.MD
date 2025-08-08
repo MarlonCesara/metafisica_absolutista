@@ -59,15 +59,16 @@ Mas agora sabiam **como** conhecer.
 
 ### **O Princípio da Não-Disformidade como Complemento Temporal da Identidade**  
 
-Os princípios lógicos fundamentais—**Identidade, Não-Contradição e Terceiro Excluído**—podem ser reinterpretados à luz de uma distinção entre **atemporalidade e temporalidade**. Observa-se que o **Princípio da Não-Contradição** e o **Princípio do Terceiro Excluído** são manifestações de uma mesma estrutura lógica em dimensões distintas: uma **estática (atemporal)** e outra **dinâmica (temporal)**.  
-
-Enquanto o **Princípio da Não-Contradição (¬(A ∧ ¬A))** estabelece a impossibilidade de um ente **assumir predicados contraditórios em um mesmo instante**, o **Princípio do Terceiro Excluído (A ∨ ¬A)** opera em um contexto em que se **introduz a necessidade de decisão entre ser e não-ser definitiva**. Assim, ambos derivam de uma mesma exigência ontológica: a **preservação da consistência do ente**, seja em sua **forma imutável (atemporal)**, seja em sua **manifestação no devir (temporal)**.  
+Os princípios lógicos fundamentais—**Identidade, Não-Contradição e Terceiro Excluído**—podem ser reinterpretados à luz de uma distinção entre **atemporalidade e temporalidade**. 
 
 #### **Sintese:**  
 1. O **Princípio da Não-Contradição** ("A não pode ser não-A ao mesmo tempo") introduz uma **dimensão temporal**, garantindo que um ente não assuma estados opostos **simultaneamente**. 
 2. O **Princípio do Terceiro Excluido** ("A ou não-A") introduz uma **dimensãoa temporal**, garantindo que um ente não assuma estados opostos **definitivos**. 
-
 2. O **Princípio da Identidade** ("A é A") estabelece a essência invariável de um ente, mas opera num plano **atemporal**—ele define **o que algo é**, sem considerar sua permanência no fluxo do tempo. 
+
+Observa-se que o **Princípio da Não-Contradição** e o **Princípio do Terceiro Excluído** são manifestações de uma mesma estrutura lógica em dimensões distintas: uma **estática (atemporal)** e outra **dinâmica (temporal)**.  
+
+Enquanto o **Princípio da Não-Contradição (¬(A ∧ ¬A))** estabelece a impossibilidade de um ente **assumir predicados contraditórios em um mesmo instante**, o **Princípio do Terceiro Excluído (A ∨ ¬A)** opera em um contexto em que se **introduz a necessidade de decisão entre ser e não-ser definitiva**. Assim, ambos derivam de uma mesma exigência ontológica: a **preservação da consistência do ente**, seja em sua **forma imutável (atemporal)**, seja em sua **manifestação no devir (temporal)**.  
 
 O **Princípio da Identidade (A = A)**, por sua vez, define a **essência invariável** de um ente, mas permanece restrito a uma **condição atemporal**, pois não contempla a **persistência da identidade no fluxo temporal**. Essa lacuna revela a ausência de um **princípio lógico-temporal** que assegure a **não confusão entre entes distintos ao longo do tempo**.  
 
