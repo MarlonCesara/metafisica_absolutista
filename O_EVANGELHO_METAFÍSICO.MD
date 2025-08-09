@@ -2326,3 +2326,13 @@ Dessa forma, Jesus estabeleceu uma religião — do latim *religare* —, cujo o
 
 **Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana.  
 
+
+## **A salvação**
+
+Se Deus falasse diretamente ao homem, Ele diria:  
+
+**"Evangelizem! Quero todos os Meus filhos vivos. Não se apeguem a raciocínios humanos. Quero todos salvos. Façam o que for necessário, pois para Mim o impossível não existe."**  
+
+Esse pronunciamento resume toda a história da salvação, na qual Deus transcende as barreiras da lógica, as resistências do coração, o individualismo e a vontade humana, conduzindo-nos a realidades que ultrapassam nosso entendimento. Ele fará **tudo** para resgatar o homem em sua queda. É aqui que a lógica aristotélica se rende ao divino, e o impossível se manifesta na Igreja fundada por Cristo.  
+
+
