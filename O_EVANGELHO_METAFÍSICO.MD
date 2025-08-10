@@ -1792,7 +1792,7 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
 - O cessar individual do eu no outro eu geraria um fogo que se consome no outro, isto é, um ato de consumir-se no outro que seria equiparado a um êxtase de transcendência. 
 - Na união de almas há o relativo para todas, e as opções vivificadas são as consolidadas. Isto é, no relativo existe as hipoteses de todas as uniões possíveis em suspensão.
 
-#### ** Tipologia da Autodeterminação**  
+#### **Tipologia da Autodeterminação**  
 1. **Em si**  
    - O homem que tem consciência de si.  
    - Que está presente em si mesmo.  
