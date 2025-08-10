@@ -1821,7 +1821,7 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
 2. **Corrupção do Encontro**  
    - Quando duas almas se fundem, porém, sua relação não se fundamenta adequadamente, de forma que ambas cessam o movimento em direção à união e à plenitude desta união.  
 
-#### ** A Condução de um Ser Determinado**  
+#### **A Condução de um Ser Determinado**  
 
    Uma vez que a indefinição, não numérica, sendo um ser determinado por ambas as almas. Como se transcendessem o "quem" de ambas e atingissem um status semelhante ao do Ser com um potencial atrelado ao tempo da união de criar um "quem". Este "quem", sendo uma transcendência dos entes, sendo uma dualidade: o produto da união ao passo que um potencial indefinido do "quem" da dualidade. 
 
