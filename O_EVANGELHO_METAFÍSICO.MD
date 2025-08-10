@@ -1815,7 +1815,7 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
 5. **Para o outro de si**  
    - Determinação em relação à prole, sendo esta externa e independente em sua liberdade.  
 
-#### ** Tipologia da corrupção**  
+#### **Tipologia da corrupção**  
 1. **Corrupção da Alma**  
    - Quando a alma permanece em estado de retrocesso. Sem procurar sua transcendência no amor rumo a eternidade. Ou seja, sem buscar sua evolução espiritual.  
 2. **Corrupção do Encontro**  
