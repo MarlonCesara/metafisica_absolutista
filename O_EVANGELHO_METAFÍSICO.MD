@@ -2335,4 +2335,10 @@ Se Deus falasse diretamente ao homem, Ele diria:
 
 Esse pronunciamento resume toda a história da salvação, na qual Deus transcende as barreiras da lógica, as resistências do coração, o individualismo e a vontade humana, conduzindo-nos a realidades que ultrapassam nosso entendimento. Ele fará **tudo** para resgatar o homem em sua queda. É aqui que a lógica aristotélica se rende ao divino, e o impossível se manifesta na Igreja fundada por Cristo.  
 
+## **A paixão de Jesus**
 
+**Jesus não falou somente sobre a salvação, mas nos ensinou a viver intensamente. A viver as emoções.**  
+
+Enquanto o indivíduo guiado pelo niilismo evita as fortes emoções, as alegrias eternas, os momentos intensos, Jesus exaltou a ousadia desse comportamento. Tudo o que Ele fazia era profundamente intenso e poético. Suas palavras carregavam um tom filosófico e profundo. Quando expulsou os vendilhões do templo, quando perguntou a Pedro três vezes se o amava... Jesus nos ensinou a viver cada momento com plenitude, a valorizar com ardor o que temos de mais precioso na vida, a sentir na pele, a deixar as emoções fluírem. A enfrentar o impacto do desconhecido. A superar nossos maiores medos...  
+
+**Jesus nos ensinou a viver.** Ele foi o ser humano mais intenso que já passou por este mundo.  
