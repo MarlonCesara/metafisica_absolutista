@@ -1783,7 +1783,7 @@ Se aceitamos que verdades determinantes podem unir-se sem contradição, então 
 
 No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais percebe B percebendo A. Ambas as almas experimentam o fim da transmissão de sensações. Em vez disso, A encontra em B a sua própria completude. Surge então uma nova perspectiva sintética, que transcende a dualidade original sem anulá-la. Dessa forma, emerge uma visão não intrínseca à dualidade, mas extrínseca, como um novo modo de perceber a realidade. E essa nova visão é viva, pois é resultado da união de duas percepções vivas. Ao cessar a autodeterminação individual em uma manifestação essencial, tendo o infinito de si retroalimentando a alma, se experimenta o não sentir o outro, mas o sentir do outro. No sentido de que a união traz uma nulidade de si em prol de uma definição terceira das almas imersas em uma dualidade. Não há mais como sentir o que o outro sente, estando totalmente imerso no outro, as reflexões que tendem ao infinito cessam, dando espaço para uma visão privilegiada do outro, sem reflexões, a visão "do ponto de vista do outro", não mais a visão do outro pelo próprio ponto de vista.  
 
-#### ** A Indeterminação Resultante**  
+#### **A Indeterminação Resultante**  
 - A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar ao nada. 
 
 #### **8. Morte e Renascimento Ontológico**  
