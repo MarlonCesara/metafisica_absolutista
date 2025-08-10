@@ -1753,13 +1753,13 @@ A transcendência do "quem" aborda distintas possibilidades:
 
 1. **Por interação**: A interação entre dois "sous" pode gerar o resultado que se espera para realizar o potencial total da alma como determinação do Ser. Desta forma, conclui-se que a interação e conexão entre duas almas subentendem uma alma em seu completo potencial. Desta forma, o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas. A conexão é temporal e envolve uma queima no outro, um fogo que não aniquila, mas se constitui numa união de vidas que fomenta uma nova vida. O queimar do encontro e união total é diferente do queimar do inferno, pois o primeiro é uma diluição enquanto o segundo é um apagão. Desta forma, o queimar do apagão elimina as sensações do invidiuo, que encara o vazio, ou seja, o não estar aqui. Já o fogo do encontro auto continua o sentir do invividuo atribuindo-lhe de uma presença que extravasa a si mesmo. É o ardor do outro.
 
-#### ** Exploração da Hipótese da Alma Completa**  
+#### **Exploração da Hipótese da Alma Completa**  
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.  
 
-##### ** O Paradoxo da Manifestação**  
+##### **O Paradoxo da Manifestação**  
 - Nenhuma união esgota o potencial dos "sous" originários. Toda a ação eventual é finita perante o infinito que a engloba e sustenta. A aparente fragmentação é o modo pelo qual o Espírito se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.  
 
-#### ** Possibilidade de Comunhão entre Almas**  
+#### **Possibilidade de Comunhão entre Almas**  
 Pode uma alma tornar-se homogênea a outra? Não falamos de fusão (que implica dissolução de identidades), mas de encontro integral, onde uma alma opera transformativamente sobre a outra, preservando, porém, sua identidade. Se a alma e o espírito são imateriais por natureza, enquanto a matéria obedece à exclusão espacial, o espírito poderia compartilhar o mesmo "espaço ontológico" de modo não-excludente. Pois o paralelismo permite a determinação de uma distância nula, ou seja, é possível uma distância infinita e uma distância nula, sendo a distância perceptual.  
 
 Sendo as realidades paralelas uma complexidade numérica devido à realidade ser perceptual, e não estreitamente material, existe, portanto, uma distância nula e uma distância infinita intrínseca ao todo. O Ser, portanto, é não numérico e numérico ao mesmo tempo. Já é homogêneo em si.  Ou seja, o encontro torna-se tão vivo que, dele, é possível resultar uma identidade vívida. Portanto, não se torna o encontro de duas matérias mortas, mas o encontro de matéria viva, no sentido de que o conceito de vivo é homogêneo, enquanto o conceito estático, material, não permitiria uma fusão.  
@@ -1768,7 +1768,7 @@ No sentido estreitamente material, e não levando em consideração a matéria s
 
 O ser já é uno ao mesmo tempo que é dual. A separação e união é do ponto de vista perceptual. O Espírito primordial abarca N espíritos individuais. Ao considerarmos o conceito de "quem", temos o conceito de "vida", que não engloba multiplicidade, e o conceito de "vivos" que não anula o conceito de vida. Da mesma forma, o conceito de "Espírito primordial" não anula os espíritos individuais, pois o espírito, possuindo o "quem", aborda o conceito de "vivo", "vivente". E isto permite que o Espírito primordial possa se diferir do espírito individual.  
 
-#### ** A Ontologia do Toque Interpessoal**  
+#### **A Ontologia do Toque Interpessoal**  
 1. **O Toque como Atribuição Recíproca de Sentido**  
    - Quando um "sou" encontra a essência autodeterminada do outro, ocorre uma síntese ontológica. Conhecer a verdade do outro é assimilá-la como dimensão constitutiva de si mesmo. Não há mera representação, mas incorporação direta da verdade alheia. Assim, o toque é mútua determinação existencial.  
 2. **O Toque como Reflexão Infinita**  
