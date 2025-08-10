@@ -1743,7 +1743,7 @@ Quando o Ser se determina como unidade de si mesmo, determina simultaneamente se
 
 O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, podendo, até mesmo, retornar à indeterminação (corrupção).
 
-#### ** A Transcendência da Alma**  
+#### **A Transcendência da Alma**  
 A transcendência da alma gira em torno de duas hipóteses:  
 - A alma já transcende, tal como Ser, o tempo e espaço em seu infinito particular, porém não transcende a própria identidade. Ou seja, o "quem" da unidade não está em uniformidade à capacidade do Ser, de forma que a unidade transcenda seu "quem" tal como o Ser.  
 
