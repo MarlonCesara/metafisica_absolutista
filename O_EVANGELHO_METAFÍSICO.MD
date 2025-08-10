@@ -1602,7 +1602,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
    - A autonegação da autenticidade (não inclinação à própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade e autencidade de autonomia e liberdade.  
 
 2. **A Liberdade como Risco Relativo**  
-   - Escolher existir é assumir a ** autocriação contínua**, sem garantias externas.  
+   - Escolher existir é assumir a **autocriação contínua**, sem garantias externas.  
    - *Paradoxo*: O *"sou"* só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**.  
 
 # **Liberdade e Neutralidade**  
