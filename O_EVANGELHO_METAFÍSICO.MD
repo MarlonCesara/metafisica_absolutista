@@ -1048,6 +1048,8 @@ O relativo, portanto, é um infinito de possibilidades; as quais não se assumem
 
 O relativo está em relação ao infinito, ou seja, o infinito de espaço e tempo é uma suspensão do espaço e tempo. Temos, portanto, o relativo como transcendência da forma. O Ser, no relativo, não é um ser, mas simplesmente é. O ato de "Ser", transcende a determinação "Sou", para uma pureza que chamamos de indiferenciação. 
 
+Todas as possibilidades em suspensão resulta em uma infinitude de possibilidades, tal como o tempo em sua completude se resume o atemporal. Portanto, o Absoluto não fragmentado, é uma suspensão das possibilidades de forma que isto resulte em um infinito possível, não somente de tempo, espaço, mas das próprias possibilidades.
+
 
 #### **A Autodeterminação como Essência do Absoluto**  
 O Absoluto não é um "vazio que se preenche", mas uma **presença** que:  
