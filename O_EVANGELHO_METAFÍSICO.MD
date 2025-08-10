@@ -856,6 +856,13 @@ Essa analogia não esgota o mistério da Trindade, mas ajuda a visualizar como a
 
 # **Criacionismo no nível do Absoluto**
 
+
+
+
+## Introdução: Do Causal ao Criacional
+
+Tendo estabelecido os princípios da autocausalidade absoluta, adentramos agora a natureza íntima do Autocausado. Se antes investigamos como o Absoluto se fundamenta, cabe agora perguntar: o que é esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia, mas como ato puro de autoposição? Não exploraremos não mais a causalidade, mas a natureza do autocausado. Ou seja, sabemos que o autocausado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
+
 ## **Nada como existencia Relacional**  
 
 Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando ainda dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial. Nesse sentido, o **nada** poderia ser interpretado como existencia, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. Portanto, ao considerarmos o nada como uma possibilidade para o absoluto – ou seja, como uma realidade existente – temos uma dependência do seu correlato, o existir, de modo que haja:
