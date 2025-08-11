@@ -1673,21 +1673,21 @@ Nossa experiência do "agora":
 
 # **Definindo a Alma**  
 
-### 1. **A alma como identidade**  
+### **A alma como identidade**  
 - A alma não é um "recipiente", mas **o próprio Absoluto em perspectiva singular** que adere a um infinito particular de si.  
 - Ela não precisa "conter" o infinito — **ela o expressa** como uma manifestação única do Espírito fundamental.  
 - Sua infinitude particular não a limita ontologicamente, pois sua identidade é **autossustentada e inseparável do Ser**.  
 
-### 2. **A Substância Pura da Alma**  
+### **A Substância Pura da Alma**  
 - A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
 - Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Espírito fundamental**. 
 - A alma, apesar de ser uma unicidade, não carrega teor fenomenológico, ou seja, não é um fenômeno. 
 - A alma é o Ser singularizado que dispoe de autonomia.
 - O material do qual a alma é feito pode ser definindo como espirito, ou seja, é uma identidade e não um material. Dispensa dimensões. É uma singularidade no Ser.
 
-### 3. **O relativo da Alma**  
+### **O relativo da Alma**  
 
-- A alma é relativa. No infinito da alma há uma infinitude de determinações. A alma não é somente um infinito de espaço e tempo, mas é um infinito de possibilidades. A alma se aprópria do seu relativo tal como o Ser se apropria do seu, de forma que, a alma busca sua definição em si mesma. A alma, portanto, pode assumir uma forma, tendo uma infinitude de possibilidades em si. 
+- A alma é relativa. No infinito da alma há uma infinitude de determinações. A alma não é somente um infinito de espaço e tempo, mas é um infinito de possibilidades. A alma se apropria do seu relativo tal como o Ser se apropria do seu, de forma que, a alma busca sua definição em si mesma. A alma, portanto, pode assumir uma forma, tendo uma infinitude de possibilidades em si. 
 
 ### 4. **Pluralidade de Almas como Diversidade Ontológica**  
 - Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
@@ -1700,10 +1700,10 @@ Nossa experiência do "agora":
 
 ## **O Status Quo da Alma do Homem**  
 
-### 1. **A Alma do Homem neste Mundo**  
+### **A Alma do Homem neste Mundo**  
 Sob o ponto de vista da finitude atual, é presumível que a alma humana, neste momento, manifeste seu infinito individual fundido à natureza efemera criada pelo Ser. Dessa forma, existe visão, vivência e domínio sem uma conexão efetiva e espíritual entre as almas. Assim, o homem conhece apenas as ações do arbítrio do outro, mas ainda protege sua verdadeira vida essêncial.  
 
-### 2. **A Determinação das Leis Físicas e Conceituais na Natureza do Ser**  
+### **A Determinação das Leis Físicas e Conceituais na Natureza do Ser**  
 
 A natureza do Ser estabelece tanto leis físicas quanto conceituais, sendo que estas últimas dependem fundamentalmente da definição e interpretação do próprio Ser.  
 
