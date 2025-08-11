@@ -2413,11 +2413,11 @@ Enquanto o indivíduo guiado pelo niilismo evita as fortes emoções, as alegria
 
 Em meio a tantos problemas sociais, Jesus compreendia a urgência de uma sociedade mais justa e organizada. No entanto, Ele buscava, dentro do possível e até do impossível, alertar o ser humano sobre realidades que transcendem as necessidades desta vida e até mesmo as aspirações individuais, elevando-as às aspirações do Ser.  
 
-Jesus participou e incentivou lutas sociais, mas seu olhar era mais profundo. Além dos conflitos, havia pessoas invisíveis aos olhos do mundo: os desanimados, os perdidos, aqueles que, após esta vida terrena, não teriam mais onde se esconder e a quem ninguém poderia resgatar.  
-Seu chamado era silencioso — um grito abafado, expresso em metáforas, pois a humanidade ainda não estava pronta para receber sua mensagem em plenitude. Jesus desejava que salvássemos as almas; apoiava a luta social, mas, acima de tudo, almejava a salvação de todos.  
+Jesus participou e incentivou lutas sociais, mas seu olhar era mais profundo. Além dos conflitos, havia pessoas invisíveis aos olhos do mundo: os desanimados, os perdidos, aqueles que, após esta vida terrena, não teriam mais onde se esconder e a quem ninguém poderia resgatar. Seu chamado era silencioso — um grito abafado, expresso em metáforas, pois a humanidade ainda não estava pronta para receber sua mensagem em plenitude. Jesus desejava que salvássemos as almas; apoiava a luta social, mas, acima de tudo, almejava a salvação de todos.  
 
 Ele sabia, de certa forma, que o ser humano não estaria necessariamente preparado para a verdade sobre sua própria essência. Também entendia que a sociedade não era ainda um lugar totalmente reformado — muito menos um espaço onde os niilistas encontrariam protagonismo. Mesmo assim, Jesus insistiu em ecoar sua mensagem, ainda que os problemas sociais tentassem silenciá-lo. Até hoje, a humanidade não compreendeu.  
 
+> Eu vim para que todos tenham vida. E todos tenham vida plenamente - João 10:10"
 
 
 
