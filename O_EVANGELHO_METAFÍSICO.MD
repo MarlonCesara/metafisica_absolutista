@@ -1685,6 +1685,10 @@ Nossa experiência do "agora":
 - A alma é o Ser singularizado que dispoe de autonomia.
 - O material do qual a alma é feito pode ser definindo como espirito, ou seja, é uma identidade e não um material. Dispensa dimensões. É uma singularidade no Ser.
 
+### 3. **O relativo da Alma**  
+
+- A alma é relativa. No infinito da alma há uma infinitude de determinações. A alma não é somente um infinito de espaço e tempo, mas é um infinito de possibilidades. A alma se aprópria do seu relativo tal como o Ser se apropria do seu, de forma que, a alma busca sua definição em si mesma. A alma, portanto, pode assumir uma forma, tendo uma infinitude de possibilidades em si. 
+
 ### 4. **Pluralidade de Almas como Diversidade Ontológica**  
 - Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
 - Não há repetição no Ser: **cada consciência é um ato irrepetível de autodeterminação**.  
@@ -2403,3 +2407,17 @@ Esse pronunciamento resume toda a história da salvação, na qual Deus transcen
 Enquanto o indivíduo guiado pelo niilismo evita as fortes emoções, as alegrias eternas, os momentos intensos, Jesus exaltou a ousadia desse comportamento. Tudo o que Ele fazia era profundamente intenso e poético. Suas palavras carregavam um tom filosófico e profundo. Quando expulsou os vendilhões do templo, quando perguntou a Pedro três vezes se o amava... Jesus nos ensinou a viver cada momento com plenitude, a valorizar com ardor o que temos de mais precioso na vida, a sentir na pele, a deixar as emoções fluírem. A enfrentar o impacto do desconhecido. A superar nossos maiores medos...  
 
 **Jesus nos ensinou a viver.** Ele foi o ser humano mais intenso que já passou por este mundo.  
+
+
+## **Jesus tentou se comunicar, e ainda hoje Ele tenta**  
+
+Em meio a tantos problemas sociais, Jesus compreendia a urgência de uma sociedade mais justa e organizada. No entanto, Ele buscava, dentro do possível e até do impossível, alertar o ser humano sobre realidades que transcendem as necessidades desta vida e até mesmo as aspirações individuais, elevando-as às aspirações do Ser.  
+
+Jesus participou e incentivou lutas sociais, mas seu olhar era mais profundo. Além dos conflitos, havia pessoas invisíveis aos olhos do mundo: os desanimados, os perdidos, aqueles que, após esta vida terrena, não teriam mais onde se esconder e a quem ninguém poderia resgatar.  
+Seu chamado era silencioso — um grito abafado, expresso em metáforas, pois a humanidade ainda não estava pronta para receber sua mensagem em plenitude. Jesus desejava que salvássemos as almas; apoiava a luta social, mas, acima de tudo, almejava a salvação de todos.  
+
+Ele sabia, de certa forma, que o ser humano não estaria necessariamente preparado para a verdade sobre sua própria essência. Também entendia que a sociedade não era um céu — muito menos um espaço onde os niilistas encontrariam protagonismo. Mesmo assim, Jesus insistiu em ecoar sua mensagem, ainda que os problemas sociais tentassem silenciá-lo. Até hoje, a humanidade não compreendeu.  
+
+
+
+
