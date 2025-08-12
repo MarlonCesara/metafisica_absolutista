@@ -35,11 +35,6 @@ Bem-vindo ao repositório que explora os princípios fundamentais da **lógica, 
 - **`/alegorias`** → Narrativas simbólicas sobre o paraíso e a alma.  
 - **`/diagramas`** → Representações visuais dos conceitos metafísicos.  
 
-## 💛 **Apoie Esta Obra**  
-Se este conteúdo ressoa com você e deseja apoiar sua continuidade, contribua via PIX:  
-**Chave PIX: 415.785.118-03**  
-*(Doações ajudam a manter e expandir esta pesquisa filosófica e espiritual.)*  
-
 ## 🚀 **Como Contribuir?**  
 1. **Debata os conceitos** – Suas interpretações são bem-vindas!  
 2. **Sugira melhorias** – Seja na clareza ou no aprofundamento dos temas.  
