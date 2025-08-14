@@ -1668,7 +1668,7 @@ Nossa experiência do "agora":
 - Quanto mais profunda a conexão do "sou" com o Ser, maior sua translucidez, no sentido de que, sua cristalinidade passa a ser identificável em sua essência.  
 - A translucidez não transgride o "sou", mas é um fundamento que transcende o "sou" de forma que o faça ser em si e ser no Ser.  
 - A imersão total do "sou" em si transcende no ser. A determinação sobre si não tem limite, pois este limite é extravasado no ser. E este seria a possibilidade aprofundar-se em si sem limitações.  
-- A translucidez é o querer mais de si. *Exemplo:* enquanto o "sou" que não quer mais que a si pode teleportar o corpo, o "sou" que transcendeu a si pode teleportar objetos e interferir na natureza. Enquanto o "sou" que não deseja mais do que tem o brilho de si, o "sou" que transcende a si tem o brilho de si e um brilho que emana do Ser.  
+- A translucidez é o querer mais de si que extravasa no Ser e concede luminosidade a alma do indivíduo. 
 
 # **Definindo a Alma**  
 
@@ -1680,13 +1680,13 @@ Nossa experiência do "agora":
 ### **A Substância Pura da Alma**  
 - A alma não depende de um substrato externo; ela é **uma identidade viva no Ser**, sustentada por sua própria essência ou pelo Ser como princípio.  
 - Ela é **o Ser em ato de transcendência de si mesmo**, uma nova perspectiva que emerge como **ação individualizada do Espírito fundamental**. 
-- A alma, apesar de ser uma unicidade, não carrega teor fenomenológico, ou seja, não é um fenômeno. 
+- A alma, apesar de ser uma unicidade, não carrega teor fenomenológico, ou seja, não é um fenômeno, mas pode contê-lo em seu relativo. 
 - A alma é o Ser singularizado que dispoe de autonomia.
 - O material do qual a alma é feito pode ser definindo como espirito, ou seja, é uma identidade e não um material. Dispensa dimensões. É uma singularidade no Ser.
 
 ### **O relativo da Alma**  
 
-- A alma é relativa. No infinito da alma há uma infinitude de determinações. A alma não é somente um infinito de espaço e tempo, mas é um infinito de possibilidades. A alma se apropria do seu relativo tal como o Ser se apropria do seu, de forma que, a alma busca sua definição em si mesma. A alma, portanto, pode assumir uma forma, tendo uma infinitude de possibilidades em si. 
+- A alma é relativa. No infinito da alma há uma infinitude de determinações. A alma não é somente um infinito de espaço e tempo, mas é um infinito de possibilidades. A alma se apropria do seu relativo tal como o Ser se apropria do seu, de forma que, a alma busca sua definição em si mesma. A alma, portanto, pode assumir inúmeras formas, temporalidades ou existências, tendo uma infinitude de possibilidades em si. 
 
 ### 4. **Pluralidade de Almas como Diversidade Ontológica**  
 - Cada alma (**"sou A"**, **"sou B"**) é uma **variação infinita dentro da unidade metafísica**.  
@@ -1725,7 +1725,6 @@ A natureza do Ser estabelece tanto leis físicas quanto conceituais, sendo que e
 Leis conceituais estão vinculadas à definição dos termos envolvidos e podem ser reinterpretadas conforme o entendimento do Ser. Já as leis físicas operam sob condições objetivas e imutáveis, independentemente da percepção humana.  
 
 > No contexto bíblico, Deus fez o homem do barro e soprou em suas narinas. Isso, na metafísica, é definido como uma lei conceitual, e não uma lei física, pois o homem é barro até que seu corpo de barro seja definido como padecido. Essa definição traz o declínio da lei de vivência no barro. Portanto, o barro é viver sob uma lei física. A libertação, então, traz a possibilidade da vida livre, ou seja, da vida em plenitude, onde a alma encontra sua verdade total e suas infinitas possibilidades, que transcendem infinitamente a lei conceitual do homem criado no barro.
-
 
 # **A Dialética Transcendência**  
 
