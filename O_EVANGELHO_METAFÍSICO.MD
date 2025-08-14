@@ -1767,11 +1767,11 @@ Pode uma alma tornar-se homogênea a outra? Não falamos de fusão (que implica 
 
 Sendo as realidades paralelas uma complexidade numérica devido à realidade ser uma construção individual, e não estreitamente material, existe, portanto, uma distância nula e uma distância infinita intrínseca ao todo. O Ser, desta maneira, é não numérico e numérico ao mesmo tempo- é homogêneo em si. 
 
-> O encontro das almas torna-se tão vivo que, dele, é possível resultar uma identidade vívida. Portanto, não se torna o encontro de duas matérias mortas, mas o encontro de matéria viva, no sentido de que o conceito de vivo é homogêneo, enquanto o conceito estático, material, não permitiria uma fusão.  
-
 No sentido estreitamente material, e não levando em consideração a matéria sendo espírito, não é possível duas dimensões materiais serem paralelas, se unirem ou se separarem. O fenômeno por si só não seria separável do fenômeno, fundível ao próprio fenômeno ou ser paralelo a si mesmo. Sendo alma o conteudo da fusão, a fusão já existe, bastando ser determinada. 
 
 O ser já é uno ao mesmo tempo que é dual. A separação e união é do ponto de vista perceptual. O Espírito primordial abarca N espíritos individuais. Ao considerarmos o conceito de "quem", temos o conceito de "vida", que não engloba multiplicidade, e o conceito de "vivos" que não anula o conceito de vida. Da mesma forma, o conceito de "Espírito primordial" não anula os espíritos individuais, pois o espírito, possuindo o "quem", aborda o conceito de "vivo", "vivente". E isto permite que o Espírito primordial possa se diferir do espírito individual.  
+
+> O encontro das almas torna-se tão vivo que, dele, é possível resultar uma identidade vívida. Portanto, não se torna o encontro de duas matérias mortas, mas o encontro de matéria viva, no sentido de que o conceito de vivo é homogêneo, enquanto o conceito estático, material, não permitiria uma fusão.  
 
 #### **A Ontologia do Toque Interpessoal**  
 1. **O Toque como Atribuição Recíproca de Sentido**  
@@ -1789,7 +1789,7 @@ Se aceitamos que verdades determinantes podem unir-se sem contradição, então 
 No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais percebe B percebendo A. Ambas as almas experimentam o fim da transmissão de sensações. Em vez disso, A encontra em B a sua própria completude. Surge então uma nova perspectiva sintética, que transcende a dualidade original sem anulá-la. Dessa forma, emerge uma visão não intrínseca à dualidade, mas extrínseca, como um novo modo de perceber a realidade. E essa nova visão é viva, pois é resultado da união de duas percepções vivas. Ao cessar a autodeterminação individual em uma manifestação essencial, tendo o infinito de si retroalimentando a alma, se experimenta o não sentir o outro, mas o sentir do outro. No sentido de que a união traz uma nulidade de si em prol de uma definição terceira das almas imersas em uma dualidade. Não há mais como sentir o que o outro sente, estando totalmente imerso no outro, as reflexões que tendem ao infinito cessam, dando espaço para uma visão privilegiada do outro, sem reflexões, a visão "do ponto de vista do outro", não mais a visão do outro pelo próprio ponto de vista.  
 
 #### **A Indeterminação Resultante**  
-- A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar ao nada. 
+- A união total dissolve as fronteiras identitárias: nem A nem B permanecem estritamente definidos. A busca por definição agora emerge do campo relacional criado, não mais das individualidades prévias. O ente resultante, dotado de identidade, forma e consciência próprias - todos os requisitos de uma alma sólida enfrenta -, enfrenta o dilema primordial: afirmar-se como nova totalidade (evoluir seu espírito) ou retornar ao relativo. 
 
 #### **8. Morte e Renascimento Ontológico**  
 - A experiência da união implica um "apagamento" temporário do eu em favor da vivência do Nós. O ser se desfaz em sua determinação prévia para reconstituir-se a partir da relação, num movimento que espelha o processo criativo do Relativo. 
@@ -1803,7 +1803,7 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
    - Que está presente em si mesmo.  
    - E que tem domínio sobre si. 
 2. **Por si**  
-   - Manifestação do nada individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência, tal como nos manifestamos        na natureza criada pelo Ser.  
+   - Manifestação do relativo individual em outro determinador que resulta na determinação sobre outrem sem envolver a própria essência, tal como nos manifestamos na natureza criada pelo Ser.  
 3. **De si**  
    - O homem que tem consciência do outro.  
    - Que está presente em no outro.  
@@ -1861,7 +1861,7 @@ O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é um
 
 # **A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
 
-O fogo do inferno é a alma do indivíduo se esgotando sem cessar diante do fogo. Pois todo ato é eterno e temporal, ou seja, a alma ainda existe, mas sua existência é um autoafastamento, no sentido de que há o ente se consumindo, e não um desaparecimento completo. Se a decisão do ente for eterna, seu desaparecimento será eterno; se não for, já está em si o momento em que sairá do fogo.
+O fogo do inferno é a alma do indivíduo se esgotando sem cessar mediante a um fogo espíritual. Pois todo ato é eterno e temporal, ou seja, a alma ainda existe, mas sua existência é um autoafastamento, no sentido de que há o ente se consumindo, e não um desaparecimento completo. Se a decisão do ente for eterna, seu desaparecimento será eterno; se não for, já está em si o momento em que sairá do fogo.
 
 O fogo é um apagão de identidade, no qual o ente se funde no ser, não para harmonizar-se, mas de modo a apagar sua própria essência. Lançar-se no inferno é matar-se a cada instante de um tempo eterno, e não aniquilar-se por completo. O fogo elimina o "eu" da alma, de forma que ela não mais se define por autodomínio, autopresença ou autoconhecimento.
 
@@ -1895,13 +1895,9 @@ A corrupção temporal opera em três dimensões:
 
 1. **Autoalienação**  
    - A alma **se afasta de sua identidade verdadeira**, perdendo contato com sua natureza espiritual.  
-   - *Exemplo:* Um homem que, embora vivo, já não se reconhece no espelho.  
+   - *Exemplo:* Um homem que, embora vivo, já não se reconhece no espelho.   
 
-2. **Auto-engano**  
-   - A alma **substitui sua verdade por ilusões**, criando uma realidade paralela de autoafirmação distorcida.  
-   - *Exemplo:* Um rei que, em seu delírio, acredita ser um mendigo e vive como tal, mesmo tendo um palácio.  
-
-3. **Autodestruição Ativa**  
+2. **Autodestruição Ativa**  
    - A alma **trabalha contra si mesma**, buscando ativamente anular sua própria essência.  
    - *Exemplo:* Um rio que, em vez de fluir para o mar, cava seu próprio leito cada vez mais fundo na terra seca.  
 
