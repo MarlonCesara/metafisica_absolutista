@@ -1583,21 +1583,21 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 
 ### Alma como Determinação Relativa  
 - O "sou" (alma corruptível) é uma manifestação determinada do Relativo, porém não necessária para a autofundamentação do Ser, ou seja, a alma é corruptível. É revelada no tempo sob determinação do Espírito do Ser.  
-- O âmbito espiritual da alma determinada pelo Ser é relativo à própria existência desta alma, não se refere ao direcionamento espiritual do Ser que é essencialmente perfeito.  
+- O âmbito espiritual (diagonal) da alma determinada pelo Ser é relativo à própria existência desta alma, não se refere ao direcionamento espiritual do Ser que é essencialmente perfeito em verticalidade.  
 
 ### Autodeterminação e Evolução Espiritual  
 
-- Mover-se veticalmente e não somente horizontalmente, permite ao individuo, não somente ser um expectador de sua existencia, ou contemplar uma existencia na qual foi fadado, mas o permite estar por liberdade, e não por uma consequencia da escolha de Deus.
-- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonancia consigo. É o Eu em harmonia com sua auto-determinação. 
--  homem é, portanto, trinário por opção. Pode direcionar-se à plenitude ou não. Desta forma, constitui-se em seu fundamento como determinação do Ser em uma particularidade temporal, o espírito perfeito de forma opcional inerente ao seu ser e a personalidade.
-- Não existe a antitese do espírito perfeito que levaria o homem a sua auto-destruição, somente existe o homem sendo trinário, ou seja, sendo pleno, corroborando com a mesma plenitude do Ser, ou caracterizado pela ausencia do Espírito perfeito, ou seja, pela não harmonia com o Ser e com sua plenitude.
+- Mover-se diagonalmente e não somente horizontalmente, permite ao indivíduo, não somente ser um expectador de sua existência, ou contemplar uma existência na qual foi fadado, mas o permite estar por liberdade, e não por uma consequência da escolha de Deus.
+- A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonância consigo. É o Eu em harmonia com sua auto determinação. 
+- O homem é, portanto, trinário por opção. Pode direcionar-se à plenitude (verticalmente) ou não. Desta forma, constitui-se em seu fundamento como determinação do Ser em uma particularidade temporal, o espírito perfeito de forma opcional inerente ao seu ser e a personalidade.
+- Não existe a antítese do espírito perfeito que levaria o homem à sua autodestruição, somente existe o homem sendo trinário, ou seja, sendo pleno, corroborando com a mesma plenitude do Ser, ou caracterizado pela ausência do Espírito perfeito, ou seja, pela não harmonia com o Ser e com sua plenitude.
 
 >  "Por isso eu lhes digo: todo pecado e toda blasfêmia serão perdoados, mas a blasfêmia contra o Espírito não será perdoada - Mateus 12:31-32"
 
 ### O Amor como Princípio Fundante  
 
 - A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da evolução espíritual. 
-- Sem direcionamento vertical (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, ou seja, é a escolha pela existência.
+- Sem direcionamento diagonal (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, ou seja, é a escolha pela existência.
 
 1. **A Corrupção como Retorno ao Nada**  
    - A autonegação radical voluntária (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Espírito permanece, ainda que o *"sou"* humano se dissolva temporalmente.  
@@ -1619,8 +1619,7 @@ O Ser não precisa "adentrar" no tempo, pois em sua natureza integral todos os a
 
 **2. O Conhecimento do Ser e o Livre-Arbítrio**  
 Quanto ao conhecimento do Ser sobre os eventos que dependem do arbítrio humano:  
-- A consumação do tempo pelo Ser não significa a inexistência das ações.  
-- Significa que todas as ações possíveis, ainda que não vívidas, já estão contidas na integralidade atemporal.  
+- A consumação do tempo pelo Ser não significa a inexistência das ações. Significa que todas as ações possíveis, ainda que não vívidas, já estão contidas na integralidade atemporal.  
 - O Ser conhece todas as potencialidades do arbítrio como já realizadas em sua plenitude.  
 
 **3. A Natureza Interna do Tempo no Ser**  
