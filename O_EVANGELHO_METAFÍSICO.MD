@@ -1498,11 +1498,11 @@ O Ser não pode ser reduzido a uma unidade contável:
 
 *"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações de si mesmo)."*  
 
-# Dualidade Estrutural: Determinadores e Realidades  
+# Determinadores (sous)   
 
 ## Princípio de Individuação  
 
-Cada realidade exige um determinador (observador) que a constitui. As relações entre realidades são:  
+As relações entre os "sous" são:  
 
 1. **Ignorância mútua** (existências isoladas, sem interação).  
 2. **Percepção fenomênica** (aparências compartilhadas, mas sem essência comum).  
@@ -1511,7 +1511,7 @@ Cada realidade exige um determinador (observador) que a constitui. As relações
 ## Paralelismo sem Separação  
 
 - **Coexistência de infinitos no status quo do mundo**: Dois determinadores (A e B) interagem se um se torna fenômeno para o outro e ambos compartilham a visibilidade de seus atos (ações fenomenicas) e não sua essência espiritual.  
-- **O nada como limite**: O infinito de A é o relativo de B, e vice-versa. Ambos são modos do mesmo Ser.  
+- **O relativo como limite**: O infinito de A é o relativo de B, e vice-versa. Ambos são modos do mesmo Ser.  
 - *Exemplo:* Dois observadores podem habitar a mesma infinitude sem distância espacial — a "separação" é uma construção individual.  
 
 ## Paralelismo e Infinito  
