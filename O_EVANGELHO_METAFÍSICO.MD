@@ -1759,7 +1759,7 @@ Ao criar um "sou", o Ser não se determina inteiro, pois sua plenitude como dete
 #### **Exploração da Hipótese da Alma Completa**  
 Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.  
 
-##### **O Paradoxo da Manifestação**  
+### **O Paradoxo da Manifestação**  
 - Nenhuma união esgota o potencial dos "sous" originários. Toda a ação eventual é finita perante o infinito que a engloba e sustenta. A aparente fragmentação é o modo pelo qual o Espírito se temporaliza: cada ato existencial é simultaneamente revelação e ocultação do Todo.  
 
 #### **Possibilidade de Comunhão entre Almas**  
