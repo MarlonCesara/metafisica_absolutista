@@ -2392,10 +2392,6 @@ Enquanto o indivíduo guiado pelo niilismo evita as fortes emoções, as alegria
 
 **Jesus nos ensinou a viver.** Ele foi o ser humano mais intenso que já passou por este mundo.  
 
-### **A Glorificação**  
-
-O ato nupcial na noite de sua entrega é um pedido de casamento que tem como efeito a união de dois corpos: o de Jesus e o nosso. Dessa união, adquiriríamos capacidades semelhantes às d'Ele. Ou seja, seria uma conotação próxima ao amor entre duas almas individuais, porém, em essência, uma união com a própria alma da vida. Isso enfatiza a característica romântica e entregue de Jesus, que, não satisfeito em simplesmente estar conosco, desejou habitar no mais profundo de nosso ser.  
-
 ### **Gênesis**  
 
 O Gênesis parece exortar o homem ao mesmo conhecimento que Adão e Eva tiveram no Paraíso. O Éden seria a Terra, e o fruto proibido traria consigo a morte, ainda que não fosse necessariamente consumido. É como se o ser humano fosse chamado a amores eternos, ao verdadeiro autoconhecimento, mesmo sem ter escolhido comer o fruto. Esse parece ser um convite à transcendência, mas também um alerta sobre os perigos da liberdade, que pode culminar em morte.  
