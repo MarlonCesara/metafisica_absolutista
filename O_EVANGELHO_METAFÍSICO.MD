@@ -1421,6 +1421,8 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 *"O **Sou** é o determinador presente, a afirmação personalizada e numerável. Enquanto o Ser é neutro e necessário, o Sou introduz assimetria, pois pode agir de modo alinhado ou não à plenitude do Absoluto."* É possível haver inúmeros "sous" porém o Ser não é um ou muitos, simplesmente é.
 
+> "Então disse Deus: "Façamos o homem à nossa imagem, con­for­me a nossa semelhança. - Gênesis 1:26-28"
+
 *"O Ser é o próprio ato puro de existir, desprovido de **'quem'** decide ou **'o quê'** é decidido. Há somente o decidir."* Ou seja, o Ser é impessoal no sentido de ter um direcionamento puro à plenitude, sua pessoalidade é a própria tendencia ao perfeito e pleno. Desta forma, esta pessoalidade participa e compoe tudo o que corrobora para o existir.
 
 > - "Conhecer o homem é conhecer Deus em sua multiplicidade."
@@ -2272,6 +2274,8 @@ Ao estudá-las mais a fundo, descobriu alguns padrões em todas elas que cometia
 - Os niilistas tinham um enorme sentimento de competição. A baixa estima atribuida a sua realidade interior os trazia uma enorme frustração, sentimento de fracasso. Sentiam-se em uma sub categoria de humano, um tipo de humano tão mediocre que não aprendeu nem mesmo a apreciar a vida. Portanto tinham um comportamento obsessivo e competitivo, não lançavam mão de fazer qualquer tipo de coisa para se sair na frente financeiramente na vida, desde fraudar, escravidar pessoas, enganar até mesmo a sabotarem o próprio corpo em busca do sucesso exterior; sendo o que, o que realmente queriam era o interior. Sentiam-se um fracasso, por isso buscavam sempre estar a frente, os cargos de liderança, um patamar financeiro maior, entre outras coisas estavam sempre em busca de se validarem mediante a imensuravel invalidação que impuseram a si mesmos sem motivo aparente.
 
 - Os niilistas tinham um apego exagerado a posses, propriedades, bens, e a tudo que lhes conferisse a sensação de possuirem a si mesmo. A sensação de estarem no controle de si mesmos ou de construirem coisas terras que os eternizassem. Seria para eles como escrever seu nome na areia, isto é, reforçar a identidade na vida material como se não quisessem a decisão interior. Era como se criassem miragens de vida de forma terrena ou tentassem enxergar a riqueza de forma que a espalhavam nas coisas materiais.
+
+- Muitos niilistas tinham um amor na vida de barro que não deu certo ou que não os desejou e por isso não queriam mais viver sem o objeto de seu desejo.
 
 > Declarou-lhe Jesus: Eu sou a ressurreição e a vida; quem crê em mim, ainda que morra, viverá;
 
