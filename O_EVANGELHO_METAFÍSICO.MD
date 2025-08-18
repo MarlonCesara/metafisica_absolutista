@@ -15,22 +15,8 @@ Para divulgação ampla, o conteúdo pode (e deve) ser adaptado em formatos mais
 
 Este trabalho é  **a culminação crítica de toda a evolução filosófica, científica e espiritual da humanidade**, filtrada por uma lógica implacável, evoluída e reorganizada em um sistema coerente.  
 
-### **Três Pilares da Investigação:**  
-1. **Filosofia** – Da metafísica clássica (Platão, Aristóteles) ao racionalismo moderno (Descartes, Kant, Hegel).  
-2. **Ciência** – Da física newtoniana à teoria da relatividade e à mecânica quântica.  
-3. **Espiritualidade** – Das escrituras judaico-cristãs ao misticismo oriental, com ênfase na **mensagem essencial de Jesus Cristo**, livre de dogmatismos históricos.  
-
-## **A Busca pela Verdade Absoluta**  
-
-Aqui, não há espaço para **conjecturas infundadas** ou **fé cega**. Cada afirmação é justificada por:  
-- **Lógica formal** (princípio da não-contradição, razão suficiente).  
-- **Evidência empírica** (quando aplicável).  
-- **Experiência espiritual direta** (como fonte de conhecimento válido, mas não irracional).  
-
 O resultado é uma **metafísica absolutista** – um modelo unificado que explica:  
 - **A natureza do Ser** (Deus, o Absoluto).  
-- **A origem da realidade**.  
-- **O propósito da existência**.  
 - **O significado último da mensagem de Jesus**.  
 
 ## **Para Quem Este Livro é Escrito?**  
