@@ -2406,8 +2406,6 @@ Enquanto o indivíduo guiado pelo niilismo evita as fortes emoções, as alegria
 
 **Jesus nos ensinou a viver.** Ele foi o ser humano mais intenso que já passou por este mundo.  
 
-Aqui está uma versão aprimorada dos seus textos, com melhor fluidez, clareza e correção gramatical, mantendo o tom poético e filosófico original:
-
 ### **A Glorificação**  
 
 O ato nupcial é um pedido de casamento que tem como efeito a união de dois corpos: o de Jesus e o nosso. Dessa união, adquiriríamos capacidades semelhantes às d'Ele. Ou seja, seria uma conotação próxima ao amor entre duas almas individuais, porém, em essência, uma união com a própria alma da vida. Isso enfatiza a característica romântica e entregue de Jesus, que, não satisfeito em simplesmente estar conosco, desejou habitar no mais profundo de nosso ser.  
