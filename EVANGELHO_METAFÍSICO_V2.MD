@@ -61,10 +61,6 @@ Como se, naquele instante, não houvesse mais diferença entre o que se toca e o
 
 Era possível, naquele mundo, caminhar como se caminha aqui — mas ali, o tempo não era um véu que escondia o sentido das coisas. Ao contrário, cada passo era uma revelação, cada passagem era um espelho que devolvia o mistério ao olhar atento. Mesmo os seres mais simples — como os insetos, os ventos ou as sombras suaves — carregavam uma profundidade que, no mundo de fora, talvez passasse despercebida.
 
-Perfeito — vou continuar a partir de **“Os Estranhos Homens de Barro”**, mantendo todo o conteúdo e apenas corrigindo o português.
-
----
-
 ## **Os Estranhos Homens de Barro**
 
 E então, ela passou. Uma borboleta translúcida, cintilando em tons suaves de âmbar e branco, atravessou o ar como uma prece em movimento. No instante em que suas asas tocaram a brisa, o sábio sentiu, como num suspiro eterno, o sentimento do vento ao voar — um êxtase silencioso, um chamado à liberdade.
