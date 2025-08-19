@@ -2408,8 +2408,9 @@ Arrasar a face da terra e dispersar as almas seria uma forma de destruir rapidam
 
 Ou seja, a luta foi pela compreensão, e esta já está vencida. No entanto, o que resta após a compreensão é invadir, falir ou dominar as estruturas de controle (as grandes indústrias), e isso demanda um tempo que não exige mais sabedoria, mas sim força bruta. Essa mesma força poderia ser operada por um evento cataclísmico, que destruiria toda essa estrutura erguida quando a humanidade ainda desconhecia o mal e estava indefesa.
 
-Uma nova sociedade, construída sobre a consciência do mal, não possibilitará ou fomentará estruturas capitalistas que corroborem para a concentração de riquezas. Portanto, considere esta metafísica um preparativo para o fim que se aproxima.
+Uma nova sociedade, construída sobre a consciência dos males do passado, não permitiria nem fomentaria estruturas capitalistas que corroborassem a concentração de riqueza. Portanto, é mais árduo tentar reformar uma sociedade erguida sob alicerces de dominação do que iniciar uma nova desde a base. Nesse sentido, parece coerente o ponto de vista bíblico de que a Terra necessita de renovação.
 
+A questão que se coloca é: por quantas gerações se estenderá o monopólio das grandes empresas? E o dos latifúndios? Se a sociedade recomeçasse do zero, certamente não haveria mais concentração de monopólios ou grandes empresas que não fossem estatais, uma vez que o conhecimento que sustenta essas estruturas já estaria distribuído de forma uniforme por toda a sociedade.
 
 
 
