@@ -2399,3 +2399,18 @@ O Gênesis parece exortar o homem ao mesmo conhecimento que Adão e Eva tiveram 
 ### **A preparação da alma**  
 
 A libertação do corpo de barro é uma amplitude de possibilidades para a alma, porém, isso é de deleite para quem tem um propósito firme em direção à vida, e é essa a proposta de Jesus quando diz para amarmos a Deus sobre todas as coisas. O desejo pela vida deve estar acima de frustrações no amor, de frustrações pessoais, ou de qualquer coisa que desvie nossa intenção e desejo do divino, do deleite, do paraíso. 
+
+### **O fim dos tempos**  
+
+A sociedade foi construída sobre um sistema opressivo. Embora as lutas e as ações políticas tenham derrubado esse império, muitas estruturas de controle ainda permanecem sob o domínio de pessoas egoístas e gananciosas. E estas farão de tudo para defender esse monopólio.
+
+Arrasar a face da terra e dispersar as almas seria uma forma de destruir rapidamente as dominações e as estruturas de controle em um curtíssimo espaço de tempo. Isso dispensaria grande parte de uma luta social que, muitas vezes, apenas gere um movimento cíclico, e não uma mudança estratégica visionária.
+
+Ou seja, a luta foi pela compreensão, e esta já está vencida. No entanto, o que resta após a compreensão é invadir, falir ou dominar as estruturas de controle (as grandes indústrias), e isso demanda um tempo que não exige mais sabedoria, mas sim força bruta. Essa mesma força poderia ser operada por um evento cataclísmico, que destruiria toda essa estrutura erguida quando a humanidade ainda desconhecia o mal e estava indefesa.
+
+Uma nova sociedade, construída sobre a consciência do mal, não possibilitará ou fomentará estruturas capitalistas que corroborem para a concentração de riquezas. Portanto, considere esta metafísica um preparativo para o fim que se aproxima.
+
+
+
+
+
