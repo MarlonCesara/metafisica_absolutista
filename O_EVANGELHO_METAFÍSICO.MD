@@ -2086,7 +2086,7 @@ O estado infernal revela:
 
 ### **O relativo da alma**  
 
-No instante final do filósofo, sua alma adentrou um estado de quietude absoluta. Apenas a voz do pensamento permanecia. Ao seu redor, estendia-se um mar infinito de espelhos — reflexos de memórias, experiências e possibilidades. Uma indefinição que abraçava o mais perfeito silêncio. Era como um palácio de cristais e luz, delicado e translúcido, iluminado por uma claridade divina. Luzes distantes cintilavam, e cada transparência reverberava um eco de infinito.
+No instante final do filósofo, sua alma adentrou um estado de quietude absoluta. Apenas a voz do pensamento permanecia. Ao seu redor, estendia-se um mar infinito de espelhos — reflexos de memórias, experiências e possibilidades. Uma indefinição que abraçava o mais perfeito silêncio. Era como um palácio de cristais e luz, delicado e translúcido, iluminado por uma claridade divina. Luzes distantes cintilavam, e cada transparência reverberava um eco de infinito. Era como uma meditação infinita e etérea, na qual havia uma paz absoluta, nada ali incomodava. Era a mais sublime paz. Aquele lugar estava alem do tempo, porém, no tempo, estavam os desejos do coração.
 
 Seu primeiro impulso foi o desejo de conhecer. Saber onde estava e o que lhe cabia dali em diante. Então, gritou ao vazio:
 — Onde estou?
