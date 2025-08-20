@@ -2103,7 +2103,7 @@ O filósofo insistiu, mas ao fazê-lo, sentiu-se fragmentar, como se sua vontade
 
 ## **Um Vislumbre do Paraíso**
 
-Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um homem santo de barba grisalha e trajes simples, porém dignos — um manto azul com bordados dourados e um cinto de linho — contemplava, com olhos de filósofo, um conjunto de montanhas de cristal que se erguiam diante dele.
+Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um homem de barba grisalha e trajes simples, porém dignos — um manto azul com bordados dourados e um cinto de linho — contemplava, com olhos de filósofo, um conjunto de montanhas de cristal que se erguiam diante dele.
 
 As montanhas reluziam com tons de ametista, safira e quartzo, como se fossem feitas de luz solidificada. Cada pico emitia um leve som etéreo, como o tilintar de sinos distantes tocados pelo vento. O céu acima era fantástico — uma imensidão que mesclava tons de azul profundo, lavanda e dourado, salpicado por constelações que se moviam lentamente, como se dançassem ao ritmo do tempo.
 
