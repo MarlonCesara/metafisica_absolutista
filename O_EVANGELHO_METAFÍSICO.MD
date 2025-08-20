@@ -2300,7 +2300,7 @@ A primeira alma, percebendo o destino da companheira, lançou-se em desespero. S
 
 Mas o abraço não salvou — condenou.  
 
-O filósofo assistiu, com o coração pulsando em seu peito translúcido, enquanto as duas almas se fundiam num último instante de paixão e, então, se esvaíam juntas. Não como um apagamento abrupto, mas como um suspiro prolongado — um adeus que levava consigo duas eternidades.  
+O filósofo assistiu, com o coração pulsando em seu peito translúcido, enquanto as duas almas se abraçavam num último instante de paixão e, então, se esvaíam juntas. Não como um apagamento abrupto, mas como um suspiro prolongado — um adeus que levava consigo duas eternidades.  
 
 Foi então que ele compreendeu: **o amor que aprisiona pode ser tão mortal quanto o ódio que consome.**  
 
