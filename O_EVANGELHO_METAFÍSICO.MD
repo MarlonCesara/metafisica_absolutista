@@ -2084,6 +2084,23 @@ O estado infernal revela:
 
 > Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas mais fantásticas de vida, as experiências mais inefáveis e extraordinárias, podemos esperar o êxtase, o incrível, o indizível.
 
+### **O relativo da alma**  
+
+No instante final do filósofo, sua alma adentrou um estado de quietude absoluta. Apenas a voz do pensamento permanecia. Ao seu redor, estendia-se um mar infinito de espelhos — reflexos de memórias, experiências e possibilidades. Uma indefinição que abraçava o mais perfeito silêncio. Era como um palácio de cristais e luz, delicado e translúcido, iluminado por uma claridade divina. Luzes distantes cintilavam, e cada transparência reverberava um eco de infinito.
+
+Seu primeiro impulso foi o desejo de conhecer. Saber onde estava e o que lhe cabia dali em diante. Então, gritou ao vazio:
+— Onde estou?
+
+Uma voz retumbante respondeu, ecoando por toda a extensão do ser:
+— Este é o teu relativo. Não é um lugar — és tu. Para ir a algum lugar, deseje-o; para ser, basta desejar ser. Tudo já está consumado em tuas possibilidades. Se o lugar que desejas te aceitar, ali estarás.
+
+— Quero voltar ao mundo de onde vim.
+
+A voz respondeu, suave e firme:
+— As regras deste momento não o permitem.
+
+O filósofo insistiu, mas ao fazê-lo, sentiu-se fragmentar, como se sua vontade se chocasse contra a harmonia do Ser. Percebeu a dissonância em seu intento. Então, em vez disso, desejou estar onde pudesse reencontrar aqueles que amara. Imediatamente, foi conduzida a uma terra renovada, onde tudo era mais belo e pleno de sentido.
+
 ## **Um Vislumbre do Paraíso**
 
 Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um homem santo de barba grisalha e trajes simples, porém dignos — um manto azul com bordados dourados e um cinto de linho — contemplava, com olhos de filósofo, um conjunto de montanhas de cristal que se erguiam diante dele.
@@ -2399,19 +2416,4 @@ O Gênesis parece exortar o homem ao mesmo conhecimento que Adão e Eva tiveram 
 ### **A preparação da alma**  
 
 A libertação do corpo de barro é uma amplitude de possibilidades para a alma, porém, isso é de deleite para quem tem um propósito firme em direção à vida, e é essa a proposta de Jesus quando diz para amarmos a Deus sobre todas as coisas. O desejo pela vida deve estar acima de frustrações no amor, de frustrações pessoais, ou de qualquer coisa que desvie nossa intenção e desejo do divino, do deleite, do paraíso. 
-
-### **O fim dos tempos**  
-
-A sociedade foi construída sobre um sistema opressivo. Embora as lutas e as ações políticas tenham derrubado esse império, muitas estruturas de controle ainda permanecem sob o domínio de pessoas egoístas e gananciosas. E estas farão de tudo para defender esse monopólio.
-
-Arrasar a face da terra e dispersar as almas seria uma forma de destruir rapidamente as dominações e as estruturas de controle em um curtíssimo espaço de tempo. Isso dispensaria grande parte de uma luta social que, muitas vezes, apenas gere um movimento cíclico, e não uma mudança estratégica visionária.
-
-Ou seja, a luta foi pela compreensão, e esta já está vencida. No entanto, o que resta após a compreensão é invadir, falir ou dominar as estruturas de controle (as grandes indústrias), e isso demanda um tempo que não exige mais sabedoria, mas sim força bruta. Essa mesma força poderia ser operada por um evento cataclísmico, que destruiria toda essa estrutura erguida quando a humanidade ainda desconhecia o mal e estava indefesa.
-
-Uma nova sociedade, construída sobre a consciência dos males do passado, não permitiria nem fomentaria estruturas capitalistas que corroborassem a concentração de riqueza. Portanto, é mais árduo tentar reformar uma sociedade erguida sob alicerces de dominação do que iniciar uma nova desde a base. Nesse sentido, parece coerente o ponto de vista bíblico de que a Terra necessita de renovação.
-
-A questão que se coloca é: por quantas gerações se estenderá o monopólio das grandes empresas? E o dos latifúndios? Se a sociedade recomeçasse do zero, certamente não haveria mais concentração de monopólios ou grandes empresas que não fossem estatais, uma vez que o conhecimento que sustenta essas estruturas já estaria distribuído de forma uniforme por toda a sociedade.
-
-
-
 
