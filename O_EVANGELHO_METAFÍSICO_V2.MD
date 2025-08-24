@@ -100,8 +100,6 @@ Aristóteles, portanto, não se limitou a observar o mundo; **ele forjou a ferra
 > (“Todos os homens, por natureza, desejam conhecer.”)[^4]
 > — Em sua velhice, Aristóteles contemplava a ordem cósmica. Ele não apenas afirmou este desejo universal, mas entregou à humanidade o **método** para satisfazê-lo.
 
-
-
 ### **CAPÍTULO 2: DA LÓGICA CLÁSSICA À ONTOLOGIA TEMPORAL**
 #### **§ 2.1 – Análise Crítica dos Princípios: A Questão Temporal**
 
@@ -199,16 +197,15 @@ Esta distinção radical demonstra que a causalidade não se aplica apenas ao su
 
 Os quatro princípios causais, assim formulados, constituem um sistema completo e autoconsistente de fundamentação metafísica, onde toda realidade encontra sua **razão suficiente** (*ratio sufficiens*) tanto no plano da existência quanto no da essência.
 
-| **Princípio Causal**                  | **Formulação**                                                                 | **Equivalente Lógico**                          | **Âmbito de Aplicação**       |
-| - |  | -- | -- |
-| **1. Causa Existencial**              | Tudo que existe tem uma causa que explica por que existe em vez de não existir. | Princípio do Terceiro Excluído **(A ∨ ¬A)**     | **Fundamentação da Existência** |
-| **2. Causa Existencial Continuada**   | Tudo que persiste no ser tem uma causa que sustenta sua existência.             | Princípio da Não-Contradição **(¬(A ∧ ¬A))**    | **Persistência da Existência**  |
-| **3. Causa Identitária**              | Tudo que existe tem uma razão para ser *o que é* e não de outra forma.          | Princípio da Identidade **(A = A)**             | **Fundamentação da Essência**   |
-| **4. Causa Identitária Continuada**   | Tudo que persiste no ser tem uma causa que sustenta sua identidade.             | Princípio da Não-Disformidade **(¬(A = B))**    | **Persistência da Essência**    |
+
+| Princípio Causal                  | Formulação                                                                 | Equivalente Lógico                          | Âmbito de Aplicação       |
+|-----------------------------------|----------------------------------------------------------------------------|---------------------------------------------|---------------------------|
+| **1. Causa Existencial**          | Tudo que existe tem uma causa que explica por que existe em vez de não existir. | Princípio do Terceiro Excluído **(A ∨ ¬A)** | Fundamentação da Existência |
+| **2. Causa Existencial Continuada** | Tudo que persiste no ser tem uma causa que sustenta sua existência.        | Princípio da Não-Contradição **(¬(A ∧ ¬A))** | Persistência da Existência |
+| **3. Causa Identitária**          | Tudo que existe tem uma razão para ser *o que é* e não de outra forma.     | Princípio da Identidade **(A = A)**         | Fundamentação da Essência   |
+| **4. Causa Identitária Continuada** | Tudo que persiste no ser tem uma causa que sustenta sua identidade.        | Princípio da Não-Disformidade **(¬(A = B))** | Persistência da Essência    |
 
 Este quadro sistêmico demonstra que a pergunta metafísica fundamental — *"Por que há algo em vez de nada?"* — desdobra-se necessariamente em duas: *"Por que este algo *existe*?"* e *"Por que este algo é *isto*?"*. A resposta completa demanda uma causa para ambas as dimensões.
-
-
 
 ### **CAPÍTULO 4: O ABSOLUTO COMO HORIZONTE METAFÍSICO**
 #### **§ 4.1 – O Conceito de Absoluto como Fundamento**
