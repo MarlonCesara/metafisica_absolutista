@@ -3108,6 +3108,20 @@ O **Evangelho metafísico** nos revela essa verdade com clareza: **somos partici
 
 Assim, compreendemos que **não seremos julgados por um tribunal distante, mas pela luz da própria consciência**, que revelará, sem véus, quem verdadeiramente nos tornamos. **A eternidade não começa após a morte — ela se desdobra em cada instante**, e somos nós quem decidimos, hoje, como desejamos nela habitar.  
 
+### **Um Encontro na Eternidade**
+
+Em sua jornada através das dimensões celestiais, o filósofo deparou-se com uma alma que irradiava uma familiaridade transcendente. Era um amor de outras eras, uma presença que ecoava em seu próprio ser como uma melodia há muito adormecida. Seu coração, agora um centro luminoso de consciência, reconheceu-a não por features ou lembranças específicas, mas por uma ressonância essencial — como duas notas da mesma sinfonia cósmica finalmente se reencontrando.
+
+Ambos estavam envoltos em corpos de luz estelar, vestes temporárias que serviam como intermediárias entre sua forma terrena passada e sua essência pura. Esses corpos, embora gloriosos e feitos da própria substância das estrelas, ainda eram véus que os separavam da plenitude absoluta do encontro. Eram como vitrais magníficos que filtram a luz divina — belos, mas ainda obstáculos à visão direta do Sol.
+
+Ao tocar o rosto dessa alma familiar, o filósofo não experimentou um simples contato físico, mas uma fusão de memórias cósmicas. Não eram recordações no sentido humano — cenas, palavras ou imagens — mas sim a percepção direta de uma ligação que transcendia o tempo e o espaço. Sentiu-se inundado por uma verdade eterna: seu amor não era um acidente do tempo, mas um fio dourado tecido no próprio tapete da criação.
+
+Compreenderam, então, que para alcançarem a união completa — o matrimônio definitivo de suas almas — precisariam transcender até mesmo esses corpos gloriosos. O fruto proibido não existia ali, pois o conhecimento já não era mais objeto de tentação, mas sim de contemplação. A morte física já havia sido vencida, mas agora enfrentavam a "morte" última: a dissolução final de toda barreira individual para se tornarem um no Amor que é Deus.
+
+Não havia pressa, pois o tempo era agora um aliado eterno. Sabiam que diante deles estendiam-se séculos e milênios de descoberta mútua — não como um fardo, mas como uma dança infinita de revelação. Cada era que passasse seria um novo capítulo em seu diálogo de almas, cada milênio uma oportunidade de se conhecerem em profundidades ainda insondáveis.
+
+E assim, de mãos dadas — ou melhor, de essências unidas — começaram sua jornada definitiva: não mais como duas almas buscando-se, mas como uma única sinfonia de amor se desdobrando perante o trono do Eterno. O paraíso não era mais um lugar onde estavam, mas a própria realidade do seu amor em constante expansão.
+
 ## **A personalidade do Mestre**
 
 Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*.  
@@ -3158,16 +3172,4 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 **Assim, estas alegorias metafísicas, longe de contradizerem a fé católica, iluminam-na com novas profundidades, mostrando que a eternidade não é um lugar distante, mas uma realidade que já habitamos, e que nossas escolhas presentes ecoam na eternidade sem fim.**
 
-### **Um Encontro na Eternidade**
 
-Em sua jornada através das dimensões celestiais, o filósofo deparou-se com uma alma que irradiava uma familiaridade transcendente. Era um amor de outras eras, uma presença que ecoava em seu próprio ser como uma melodia há muito adormecida. Seu coração, agora um centro luminoso de consciência, reconheceu-a não por features ou lembranças específicas, mas por uma ressonância essencial — como duas notas da mesma sinfonia cósmica finalmente se reencontrando.
-
-Ambos estavam envoltos em corpos de luz estelar, vestes temporárias que serviam como intermediárias entre sua forma terrena passada e sua essência pura. Esses corpos, embora gloriosos e feitos da própria substância das estrelas, ainda eram véus que os separavam da plenitude absoluta do encontro. Eram como vitrais magníficos que filtram a luz divina — belos, mas ainda obstáculos à visão direta do Sol.
-
-Ao tocar o rosto dessa alma familiar, o filósofo não experimentou um simples contato físico, mas uma fusão de memórias cósmicas. Não eram recordações no sentido humano — cenas, palavras ou imagens — mas sim a percepção direta de uma ligação que transcendia o tempo e o espaço. Sentiu-se inundado por uma verdade eterna: seu amor não era um acidente do tempo, mas um fio dourado tecido no próprio tapete da criação.
-
-Compreenderam, então, que para alcançarem a união completa — o matrimônio definitivo de suas almas — precisariam transcender até mesmo esses corpos gloriosos. O fruto proibido não existia ali, pois o conhecimento já não era mais objeto de tentação, mas sim de contemplação. A morte física já havia sido vencida, mas agora enfrentavam a "morte" última: a dissolução final de toda barreira individual para se tornarem um no Amor que é Deus.
-
-Não havia pressa, pois o tempo era agora um aliado eterno. Sabiam que diante deles estendiam-se séculos e milênios de descoberta mútua — não como um fardo, mas como uma dança infinita de revelação. Cada era que passasse seria um novo capítulo em seu diálogo de almas, cada milênio uma oportunidade de se conhecerem em profundidades ainda insondáveis.
-
-E assim, de mãos dadas — ou melhor, de essências unidas — começaram sua jornada definitiva: não mais como duas almas buscando-se, mas como uma única sinfonia de amor se desdobrando perante o trono do Eterno. O paraíso não era mais um lugar onde estavam, mas a própria realidade do seu amor em constante expansão, ecoando a promessa final: "Para que todos sejam um, como tu, Pai, és em mim e eu em ti" (João 17:21).
