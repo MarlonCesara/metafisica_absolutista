@@ -373,8 +373,6 @@ O Absoluto possui uma natureza **autofundante** que transcende as categorias con
 
 A análise revela uma estrutura hierárquica de causalidade:
 
-# Níveis de Realidade e Causalidade
-
 | Nível de Realidade | Tipo de Causalidade      | Exemplo                          | Relação com o Absoluto         |
 |--------------------|--------------------------|----------------------------------|--------------------------------|
 | **Absoluto**       | Causalidade Constitutiva | Fundamento de toda realidade     | Auto-fundante                  |
