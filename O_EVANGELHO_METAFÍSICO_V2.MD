@@ -161,9 +161,10 @@ Esta reformulação torna a lógica intrinsecamente mais robusta para lidar com 
 ### **Tabela 2.1: Classificação Sistêmica dos Princípios Lógicos Fundamentais**
 
 | **Categoria Relacional** | **Princípio Atemporal**          | **Princípio Temporal**              | **Função Primária**                          |
-|                          | --                               | --                                  | -                                          - |
-| **Ser vs. Não-Ser**      | Terceiro Excluído **(A ∨ ¬A)**   | Não-Contradição **(¬(A ∧ ¬A))**     | Garantir a determinação e consistência truth-value. |
-| **Ser vs. Outro**        | Identidade **(A = A)**           | **Não-Disformidade (¬(A = B))**     | Garantir a individuação e distinção ontológica. |
+|--------------------------|----------------------------------|-------------------------------------|----------------------------------------------|
+| **Ser vs. Não-Ser**      | Terceiro Excluído **(A ∨ ¬A)**   | Não-Contradição **(¬(A ∧ ¬A))**     | Garantir a determinação e consistência truth-value |
+| **Ser vs. Outro**        | Identidade **(A = A)**           | **Não-Disformidade (¬(A = B))**     | Garantir a individuação e distinção ontológica |
+
 
 ### **Síntese Final da Estrutura Lógica:**
 
