@@ -1214,8 +1214,6 @@ Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade
 
 ### **Tabela 10.1: Os Modos de Ser do Absoluto**
 
-# Modos de Ser do Absoluto
-
 | Modo de Ser          | Descrição                                                                 | Manifestação Temporal      |
 |----------------------|---------------------------------------------------------------------------|----------------------------|
 | **Absoluto Indiferenciado** | Estado de pura potencialidade, todas as possibilidades em suspensão           | Eternidade atemporal           |
