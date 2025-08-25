@@ -2461,8 +2461,6 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.
 
-> Porque Deus sabe que no dia em que dele comerdes se abrirão os vossos olhos, e sereis como Deus, conhecedores do bem e do mal."
-
 ### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
 #### **§ 25.1 – A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
