@@ -453,7 +453,6 @@ Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fu
 
 **Nota do Editor:** Esta dedução das propriedades do Absoluto a partir dos princípios causais estabelece as bases para a transição à teologia filosófica. As propriedades de autoconsciência e autodeterminação particularmente preparam o terreno para a discussão sobre um Absoluto pessoal, o que será crucial para a integração da mensagem cristã.
 
-### **CAPÍTULO 5: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL** (Conclusão)
 #### **§ 5.8 – A Natureza Pessoal do Autocausal**
 
 A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige personalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e autodeterminação em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
@@ -519,7 +518,7 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 
 **Nota do Editor:** Esta conclusão do capítulo sobre causalidade estabelece a ponte definitiva entre a metafísica filosófica e a teologia revelada. A identificação do Absoluto como Espírito Pessoal prepara o terreno para a integração da revelação cristã, que será desenvolvida nos capítulos seguintes sobre a Trindade e a Encarnação.
 
-### **CAPÍTULO 5: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL** (Conclusão Final)
+### **CAPÍTULO 5: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL** 
 #### **§ 5.12 – Fundamento Autocausal e a Noção de "Presença"**
 
 O Absoluto, enquanto realidade autocausada, não requer justificação externa — nem pelo "nada", nem pela fenomenalidade, nem por qualquer categoria derivada. Sua existência é autoevidente em sua **autofundamentação**, **autodeterminação** e **autocontinuidade**. Esta tríade causal revela uma natureza que transcende a mera abstração conceitual, apontando para uma **presença ontológica primordial**.
