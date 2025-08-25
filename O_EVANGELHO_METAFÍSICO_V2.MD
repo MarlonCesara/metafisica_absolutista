@@ -285,7 +285,7 @@ A análise da impossibilidade revela sua natureza através de violações espec�
 
 **Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência que, para nós, permanece eternamente fechado no mistério. Este é o limiar entre a Metafísica e a Teologia Negativa.
 
-### **CAPÍTULO 4: O ABSOLUTO COMO HORIZONTE METAFÍSICO** (Conclusão)
+### **CAPÍTULO 4: O ABSOLUTO COMO HORIZONTE METAFÍSICO** 
 #### **§ 4.5 – O Domínio da Incognoscibilidade: A Transcendência Radical**
 
 **Definição Ontológica:**
@@ -1099,7 +1099,7 @@ Antes, a criação _ex nihilo_ significa:
 > _— João 1:1-3_
 
 
-### **CAPÍTULO 9: DO AUTOCAUSAL AO CRIACIONAL** (Conclusão)
+### **CAPÍTULO 9: DO AUTOCAUSAL AO CRIACIONAL** 
 #### **§ 9.10 – O Campo Relativo: O Absoluto Indiferenciado**
 
 Ao tentarmos aproximar ou adequar o conceito de "nada" como um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada —, podemos nomear tal estado de "relativo". Pois ele se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada.
@@ -1479,7 +1479,7 @@ Esta compreensão tem profundas implicações para a doutrina da criação:
 > _"Ah, SENHOR Deus! Eis que fizeste os céus e a terra com o teu grande poder e com o teu braço estendido; nada te é demasiado difícil."_
 > _— Jeremias 32:17_
 
-### **CAPÍTULO 12: A ESTRUTURA DO POSSÍVEL E DO IMPOSSÍVEL** (Conclusão)
+### **CAPÍTULO 12: A ESTRUTURA DO POSSÍVEL E DO IMPOSSÍVEL** 
 #### **§ 12.7 – Consequências Filosóficas**
 
 ##### **Para a Metafísica:**
@@ -2558,7 +2558,7 @@ O inferno não é a ausência de Deus, mas **a presença de Deus experimentada c
 
 A vocação humana é escolher a vida - escolher ser plenamente o que somos: **imagens de Deus destinadas à comunhão eterna**.
 
-### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO** (Conclusão)
+### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO** 
 #### **§ 25.6 – A Dinâmica da Queda**
 
 A corrupção temporal opera em três dimensões:
@@ -2651,7 +2651,7 @@ O céu não é ausência de sofrimento, mas **presença de amor**; o inferno nã
 
 A vocação humana é escolher a vida - escolher ser plenamente o que somos: **imagens de Deus destinadas à comunhão eterna no amor trinitário**.
 
-### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO** (Conclusão Final)
+### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO** 
 #### **§ 25.14 – O Sofrimento Essencial**
 
 -   **Raiz do tormento**:
@@ -2741,7 +2741,7 @@ O inferno não é falha no amor divino, mas **testemunho radical desse amor** - 
 
 A porta sempre permanece aberta - o fogo infernal só persiste porque a alma, em sua liberdade terrível, insiste em alimentá-lo.
 
-### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO** (Conclusão Absoluta)
+### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO** 
 #### **§ 25.20 – A Dualidade Temporal e Atemporal da Alma Condenada**
 
 No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundamental:
