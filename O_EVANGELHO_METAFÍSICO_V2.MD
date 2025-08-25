@@ -2829,9 +2829,7 @@ Seu primeiro impulso foi o desejo de conhecer. Saber onde estava e o que lhe cab
 — Onde estou?
 
 Uma voz retumbante respondeu, ecoando por toda a extensão do ser:
-— Este é o teu relativo. Não é um lugar — és tu. Para ir a algum lugar, deseje-o; para ser, basta desejar ser. Tudo já está consumado em tuas possibilidades. Se o lugar que desejas te aceitar, ali estarás.
-
-> Uma antevisão do estado intermediário antes da ressurreição final.
+— Este é o teu relativo. Não é um lugar — és tu. Para ir a algum lugar, deseje-o; para ser, basta desejar ser. Tudo já está consumado em tuas possibilidades. Se o lugar que desejas te aceitar, ali estarás — uma antevisão do estado intermediário antes da ressurreição final.
 
 — Quero voltar ao mundo de onde vim.
 
