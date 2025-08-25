@@ -2451,8 +2451,7 @@ Esta análise revela que:
 
 A almogênese espelha o próprio ato criador de Deus - não como necessidade, mas como **transbordamento de amor** que gera novas liberdades para amar.
 
-### **CAPÍTULO 25: O SER COMO INDIFERENCIAÇÃO DA ALMA E A ONTOLOGIA DO INFERNO**
-#### **§ 25.1 – O Ser como Indiferenciação da Alma**
+#### **§ 24.7 – O Ser como Indiferenciação da Alma**
 
 O Ser é o produto puro da indefinição da dualidade, porém governado pelo espírito perfeito, e não determinado pela dualidade. Assim, o Ser deve ser uma indefinição, uma mistura de todos os "sous" possíveis. Essa indefinição — ou seja, o "sou" ausente — abarca todos os "sous" possíveis para o Ser.
 
@@ -2462,7 +2461,11 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.
 
-#### **§ 25.2 – A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
+> Porque Deus sabe que no dia em que dele comerdes se abrirão os vossos olhos, e sereis como Deus, conhecedores do bem e do mal."
+
+### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
+
+#### **§ 25.1 – A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
 
 O fogo do inferno é a alma do indivíduo se esgotando sem cessar mediante a um fogo espiritual. Pois todo ato é eterno e temporal, ou seja, a alma ainda existe, mas sua existência é um autoafastamento, no sentido de que há o ente se consumindo, e não um desaparecimento completo. Se a decisão do ente for eterna, seu desaparecimento será eterno; se não for, já está em si o momento em que sairá do fogo.
 
@@ -2472,7 +2475,7 @@ A própria inclinação da alma à morte a queima, pois, sendo ela existência, 
 
 A forma pela qual a alma tenta "matar" seu conteúdo espiritual é pelo enfraquecimento de si mesma, pela não exposição ao existir. Podemos compará-la a uma folha que precisa do sol para se vivificar e viver, mas que, sem ele, morre. Como se a alma pudesse se esconder da luz, da existência.
 
-#### **§ 25.3 – A Alma entre a Eternidade e a Corrupção Temporal**
+#### **§ 25.2 – A Alma entre a Eternidade e a Corrupção Temporal**
 
 ##### **1. A Eternidade da Alma como Fundamento Ontológico**
 A alma, enquanto ente espiritual, **já é eterna em sua criação** – sua existência não está sujeita ao devir, mas à permanência no Ser. Isso significa que:
@@ -2500,7 +2503,7 @@ A anulação temporal do "sou" não é uma transcendência, mas retrocesso, pois
 | **Alma em Corrupção**    | Autoafastamento do Ser                 | Consumo perpétuo sem plenitude         |
 | **Alma Infernal**        | Resistência ativa ao Ser               | Fogo espiritual de auto-negação        |
 
-#### **§ 25.4 – Implicações para uma Teologia da Salvação**
+#### **§ 25.3 – Implicações para uma Teologia da Salvação**
 
 Esta análise revela que:
 
@@ -2514,7 +2517,7 @@ Esta análise revela que:
 > _"E isto é o testemunho: que Deus nos deu a vida eterna, e esta vida está em seu Filho. Quem tem o Filho tem a vida; quem não tem o Filho de Deus não tem a vida."_
 > _— 1 João 5:11-12_
 
-#### **§ 25.5 – Conclusão: A Liberdade entre Plenitude e Inferno**
+#### **§ 25.4 – Conclusão: A Liberdade entre Plenitude e Inferno**
 
 A análise revela o paradoxo último da liberdade humana:
 
@@ -2527,7 +2530,7 @@ O inferno não é a ausência de Deus, mas **a presença de Deus experimentada c
 
 A vocação humana é escolher a vida - escolher ser plenamente o que somos: **imagens de Deus destinadas à comunhão eterna**.
 
-#### **§ 25.6 – A Dinâmica da Queda**
+#### **§ 25.5 – A Dinâmica da Queda**
 
 A corrupção temporal opera em três dimensões:
 
@@ -2539,7 +2542,7 @@ A corrupção temporal opera em três dimensões:
 -   A alma **trabalha contra si mesma**, buscando ativamente anular sua própria essência.
 -   *Exemplo:* Um rio que, em vez de fluir para o mar, cava seu próprio leito cada vez mais fundo na terra seca.
 
-#### **§ 25.7 – O Inferno como Corrupção Consumada**
+#### **§ 25.6 – O Inferno como Corrupção Consumada**
 
 Quando a corrupção se torna irreversível (por decisão livre e contínua da alma), ela atinge um estado de **morte temporal eternizada** – o que chamamos de **inferno**. Aqui:
 -   **A alma não é destruída**, mas **fica presa em um ciclo de autoanulação**.
@@ -2549,7 +2552,7 @@ Quando a corrupção se torna irreversível (por decisão livre e contínua da a
 **Paradoxo do Inferno:**
 -   *A alma que escolheu a morte temporal nunca a alcança plenamente – pois continua existindo, mas sem jamais viver.*
 
-#### **§ 25.8 – A Liberdade como Risco e Redenção**
+#### **§ 25.7 – A Liberdade como Risco e Redenção**
 
 A possibilidade da corrupção existe **porque a alma é livre**. Essa mesma liberdade, porém, permite:
 1.  **A Queda** (corrupção contínua)
@@ -2560,12 +2563,12 @@ A alma não pode burlar sua eternidade, mas pode **distorcer sua existência no 
 
 > *"A eternidade da alma é sua bênção e seu risco: ela nunca deixará de ser, mas pode escolher não ser o que verdadeiramente é."*
 
-#### **§ 25.9 – Natureza do Inferno**
+#### **§ 25.8 – Natureza do Inferno**
 
 -   **Definição metafísica**: Estado de auto-consumação ontológica onde a alma persiste em sua existência enquanto nega continuamente sua própria essência espiritual.
 -   **Paradoxo existencial**: A alma não pode aniquilar-se completamente (pois é eterna), mas pode escolher uma existência de auto-negação perpétua.
 
-#### **§ 25.10 – O Fogo Infernal como Símbolo Ontológico**
+#### **§ 25.9 – O Fogo Infernal como Símbolo Ontológico**
 
 -   **Fogo = Auto-consumação**: Representa o processo pelo qual a alma:
     -   Mantém sua existência (eternidade)
@@ -2574,7 +2577,7 @@ A alma não pode burlar sua eternidade, mas pode **distorcer sua existência no 
     -   No Ser pleno: a alma se dissolve na luz (transcendência unificadora)
     -   No inferno: a alma se queima nas trevas (dissolução caótica)
 
-#### **§ 25.11 – Mecânica da Condenação**
+#### **§ 25.10 – Mecânica da Condenação**
 
 -   **Decisão temporal → Efeito eterno**:
     -   A escolha pela auto-negação torna-se um princípio autoperpetuante
@@ -2592,7 +2595,7 @@ A alma não pode burlar sua eternidade, mas pode **distorcer sua existência no 
 | **Tempo**      | Eternidade vivida         | Instante repetido          |
 | **Liberdade**  | Submissão amorosa         | Revolta infinita           |
 
-#### **§ 25.12 – Implicações para uma Teologia da Liberdade**
+#### **§ 25.11 – Implicações para uma Teologia da Liberdade**
 
 Esta análise revela que:
 
@@ -2606,7 +2609,7 @@ Esta análise revela que:
 > _"E o fumo do seu tormento sobe para todo o sempre; e não têm repouso nem de dia nem de noite os que adoram a besta e a sua imagem, e aquele que receber o sinal do seu nome."_
 > _— Apocalipse 14:11_
 
-#### **§ 25.13 – Conclusão Final: O Mistério da Liberdade**
+#### **§ 25.12 – Conclusão Final: O Mistério da Liberdade**
 
 A ontologia do inferno nos confronta com o mistério último da liberdade:
 
@@ -2619,7 +2622,7 @@ O céu não é ausência de sofrimento, mas **presença de amor**; o inferno nã
 
 A vocação humana é escolher a vida - escolher ser plenamente o que somos: **imagens de Deus destinadas à comunhão eterna no amor trinitário**.
 
-#### **§ 25.14 – O Sofrimento Essencial**
+#### **§ 25.13 – O Sofrimento Essencial**
 
 -   **Raiz do tormento**:
     -   A alma experimenta simultaneamente:
@@ -2629,7 +2632,7 @@ A vocação humana é escolher a vida - escolher ser plenamente o que somos: **i
         -   Precisa de luz para fotossíntese (alma precisa do Ser)
         -   Mas se esconde eternamente do sol (rejeição voluntária)
 
-#### **§ 25.15 – Status Ontológico da Alma Condenada**
+#### **§ 25.14 – Status Ontológico da Alma Condenada**
 
 -   **Presença diminuída**:
     -   Não aniquilação, mas "apagamento gradual"
@@ -2639,7 +2642,7 @@ A vocação humana é escolher a vida - escolher ser plenamente o que somos: **i
     2.  Auto-presença (vive em exílio de si mesma)
     3.  Auto-conhecimento (perde a noção de sua verdadeira natureza)
 
-#### **§ 25.16 – Perspectiva Escatológica**
+#### **§ 25.15 – Perspectiva Escatológica**
 
 -   **Inferno não é um "lugar"**:
     -   É a interioridade da alma solidificada em sua rebeldia
@@ -2648,14 +2651,14 @@ A vocação humana é escolher a vida - escolher ser plenamente o que somos: **i
     -   A alma condenada é "livre" para persistir em sua não-liberdade
     -   Seu sofrimento é a consequência lógica de sua escolha primordial
 
-#### **§ 25.17 – Conclusão: A Pedagogia do Inferno**
+#### **§ 25.16 – Conclusão: A Pedagogia do Inferno**
 
 O inferno existe como:
 -   **Advertência metafísica**: Mostra o preço da auto-idolatria
 -   **Testemunho da liberdade**: Prova que até a autodestruição é permitida pelo Ser
 -   **Espelho da misericórdia**: A porta permanece aberta - o fogo só persiste porque a alma insiste em alimentá-lo
 
-#### **§ 25.18 – A Vivência Bifásica do Inferno**
+#### **§ 25.17 – A Vivência Bifásica do Inferno**
 
 A alma no inferno existe como:
 -   **Temporal e atemporal:** Temporalmente se sucede o ato do suicídio do eu, porém, este ato é definido no ato eterno e não somente temporalmente.
@@ -2695,7 +2698,7 @@ Conclui-se que o Absoluto apresenta todas as opções para a alma, até mesmo a 
 | **Existência**    | Plenitude realizadora               | Vazio consumidor                    |
 | **Relação com o Ser** | Comunhão nupcial                   | Divórcio existencial                |
 
-#### **§ 25.19 – Conclusão Final: O Mistério da Misericórdia Divina**
+#### **§ 25.18 – Conclusão Final: O Mistério da Misericórdia Divina**
 
 Esta análise revela o paradoxo último da misericórdia divina:
 
@@ -2708,7 +2711,7 @@ O inferno não é falha no amor divino, mas **testemunho radical desse amor** - 
 
 A porta sempre permanece aberta - o fogo infernal só persiste porque a alma, em sua liberdade terrível, insiste em alimentá-lo.
 
-#### **§ 25.20 – A Dualidade Temporal e Atemporal da Alma Condenada**
+#### **§ 25.19 – A Dualidade Temporal e Atemporal da Alma Condenada**
 
 No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundamental:
 
@@ -2725,7 +2728,7 @@ No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundament
 **Paradoxo central**:
 *A alma no inferno existe como um ato contínuo de autoextinção – um suicídio eterno que nunca se consuma plenamente.*
 
-#### **§ 25.21 – A Mecânica da Danação Eterna**
+#### **§ 25.29 – A Mecânica da Danação Eterna**
 
 ##### **2.1. O Ato Perpétuo de Auto-Negação**
 -   O inferno não é consequência de **um único ato no tempo**, mas da **persistência atemporal** na recusa do Ser.
@@ -2747,7 +2750,7 @@ No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundament
 -   No **Paraíso**: a alma se dissolve na luz do Ser (transfiguração)
 -   No **Inferno**: a alma se dissolve em suas próprias trevas (auto-devoração)
 
-#### **§ 25.22 – O Estatuto da Alma Condenada**
+#### **§ 25.21 – O Estatuto da Alma Condenada**
 
 ##### **3.1. A Existência Velada**
 -   A alma não desaparece, mas **torna-se fantasma de si mesma**:
@@ -2763,7 +2766,7 @@ No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundament
 *Metáfora*:
 > *Como um sonâmbulo que caminha sobre brasas, incapaz de despertar – a alma no inferno é um ser que já não está presente em seu próprio sofrimento.*
 
-#### **§ 25.23 – A Liberdade no Âmago da Perdição**
+#### **§ 25.22 – A Liberdade no Âmago da Perdição**
 
 ##### **4.1. A Decisão Eterna**
 -   A danação persiste **apenas enquanto a alma insiste em sua escolha**
@@ -2776,7 +2779,7 @@ No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundament
 *Paradoxo final*:
 > *O inferno é a suprema prova da liberdade humana – um lugar onde até o direito de se destruir é respeitado pela misericórdia do Absoluto.*
 
-#### **§ 25.24 – Conclusão: A Pedagogia do Inferno**
+#### **§ 25.23 – Conclusão: A Pedagogia do Inferno**
 
 O estado infernal revela:
 1.  **O poder da liberdade**: até para a auto-destruição
@@ -2795,7 +2798,7 @@ O estado infernal revela:
 | **Consciência**   | Auto-transparência                 | Auto-alienação                     | Testemunhar a própria degradação   |
 | **Relação com o Ser** | Comunhão nupcial                 | Divórcio existencial               | Rejeitar a fonte do próprio existir |
 
-#### **§ 25.25 – Última Palavra: O Mistério da Liberdade**
+#### **§ 25.24 – Última Palavra: O Mistério da Liberdade**
 
 Esta análise nos confronta com o mistério último da condição humana:
 
