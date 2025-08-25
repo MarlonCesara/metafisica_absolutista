@@ -3135,7 +3135,7 @@ Ele se entregou de braços abertos, olhando para o céu... uma entrega incompree
 
 **Jesus, totalmente voltado para a prevenção do suicídio da alma, não priorizava revelar a vida transcendental, mas sim a vida em si.** Evitou, portanto, entrar em detalhes sobre o *eros* transcendental ou discutir filosofias em excesso, concentrando-se principalmente em resgatar e dar sentido àqueles que haviam perdido seu propósito. **Assim, a trajetória de Jesus não foi marcada por debates filosóficos, mas sim pela salvação** — *"o Filho do Homem veio buscar e salvar o que estava perdido"* (Lc 19,10). Ele não se aprofundou em explicações metafísicas, mas transmitiu, por meio de simbolismos, o necessário para que o homem evitasse o mau uso de sua liberdade — usando parábolas como método pedagógico (Mt 13,34-35).
 
-Dessa forma, Jesus estabeleceu uma religião — do latim *religare* —, cujo objetivo é **religar o homem à vida**. No entanto, **não ofereceu uma visão clara e metafísica do além-vida** — *"Mas a respeito daquele dia e hora, ninguém sabe"* (Mt 24,36) — confiando rather na revelação progressiva através da Igreja.
+Dessa forma, Jesus estabeleceu uma religião — do latim *religare* —, cujo objetivo é **religar o homem à vida**. No entanto, **não ofereceu uma visão clara e metafísica do além-vida**. Não se deteve em histórias de amor entre almas, seja no mundo ou na eternidade, mas concentrou-se no essencial: a história de amor entre o homem e a própria Vida. O propósito era que o homem se unisse à Vida de tal forma que, através dessa união, conquistasse sua eternidade.
 
 ## **O pecado e a corrupção**
 
