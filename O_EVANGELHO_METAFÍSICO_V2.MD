@@ -2465,6 +2465,8 @@ O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é um
 
 #### **§ 25.1 – A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
 
+A analogia do fogo elabora uma sofisticada alusão a um elemento espiritual que se esvai, mantendo-se, contudo, fluido e cristalino. Ou seja, espelha uma dor espiritual com uma precisão inatingível por qualquer outro conceito. 
+
 O fogo do inferno é a alma do indivíduo se esgotando sem cessar mediante a um fogo espiritual. Pois todo ato é eterno e temporal, ou seja, a alma ainda existe, mas sua existência é um autoafastamento, no sentido de que há o ente se consumindo, e não um desaparecimento completo. Se a decisão do ente for eterna, seu desaparecimento será eterno; se não for, já está em si o momento em que sairá do fogo.
 
 O fogo é um apagão de identidade, no qual o ente se funde no ser, não para harmonizar-se, mas de modo a apagar sua própria essência. Lançar-se no inferno é matar-se a cada instante de um tempo eterno, e não aniquilar-se por completo. O fogo elimina o "eu" da alma, de forma que ela não mais se define por autodomínio, autopresença ou autoconhecimento.
