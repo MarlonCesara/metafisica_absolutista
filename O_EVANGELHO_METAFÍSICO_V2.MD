@@ -3083,7 +3083,7 @@ Não havia pressa, pois o tempo era agora um aliado eterno. Sabiam que diante de
 
 E assim, de mãos dadas — ou melhor, de essências unidas — começaram sua jornada definitiva: não mais como duas almas buscando-se, mas como uma única sinfonia de amor se desdobrando perante o trono do Eterno. O paraíso não era mais um lugar onde estavam, mas a própria realidade do seu amor em constante expansão.
 
-# **Pensamentos Metafísicos: Uma visão apaixonada do divino**
+# **Pensamentos Metafísicos: O amor divino**
 
 ## **A personalidade do Mestre**
 
