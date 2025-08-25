@@ -2179,7 +2179,7 @@ A jornada da alma é **da limitação conceitual para a liberdade ontológica** 
 
 A graça não é outra lei, mas **a transcendência de todas as leis** - a entrada na liberdade infinita do Ser onde a alma descobre que suas possibilidades são ilimitadas.
 
-### **CAPÍTULO 21: A DIALÉTICA TRANSCENDÊNCIA**
+### **CAPÍTULO 21: A DIALÉTICA DA TRANSCENDÊNCIA**
 #### **§ 21.1 – A Transcendência como Movimento Interno do Ser**
 
 A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma finitude, no sentido de romper um potencial expressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendência, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
