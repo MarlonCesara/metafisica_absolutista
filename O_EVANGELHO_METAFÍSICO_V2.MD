@@ -3154,6 +3154,8 @@ A tradição bíblica apresenta os anjos como presságios de *sous* — possibil
 
 Lúcifer, o portador da luz, subverteu sua natureza angélica; um terço das hostes celestes voltou-se contra o Bem que lhes dava existência. No Éden, o primeiro homem e a primeira mulher fizeram mau uso de sua autonomia, escolhendo não a vida em plenitude, mas uma ruptura relacional que levou à morte espiritual e corporal. Seu intento — tornar-se como deuses, gerando uma prole a partir de um *encontro disruptivo*, marcado pela autorreferência e não pela obediência amorosa — resultou em corrupção.  
 
+Este pessimismo fundador não se resolve numa restauração progressiva e tranquila, mas culmina na previsão de uma catástrofe final: a destruição do fim dos tempos. A narrativa não supõe uma longa vida idílica na terra, e sim um crescendo de corrupção que exigirá um juízo terminal de fogo, no qual os céus e a terra atuais serão dissolvidos para dar lugar a uma nova criação.
+
 Assim, a história da salvação apresentada nas Escrituras não é, em primeiro lugar, a elevação compulsória do homem a um patamar obrigatório de perfeição, mas sim o relato dramático de como a liberdade, mal-orientada, gera fractura e desordem — e de como, mesmo assim, Deus age para restaurar o que foi quebrado, não pela imposição, mas pela oferta de graça e pela possibilidade de redenção.  
 
 A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
