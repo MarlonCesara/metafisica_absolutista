@@ -2455,7 +2455,15 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.
 
-> Adão e Eva desejavam ser como deuses, conhecedores do bem e do mal. O relato bíblico sugere que, despidos de seus corpos, com as almas nuas, perceberam que poderiam alcançar um estado relativo — isto é, extinguir-se em um apagão temporal da unidade para consumirem-se na dualidade. Assim, buscavam atingir uma condição semelhante à de Deus, a fim de conhecer o bem e o mal, ou seja, gerar uma prole de índole imprevisível. Contudo, o amor não consumado resultou apenas na morte corporal. Ao se darem conta de que estavam nus, esconderam-se, reconheceram a transparência da alma e as consequências de uma união definitiva.
+#### **§ 24.8 – A Alma e a Transcendência na Visão Bíblica**
+
+Em sua busca primordial, Adão e Eva almejaram tornar-se como deuses, conhecedores do bem e do mal. O texto sagrado sugere que, uma vez despidos não apenas de seus corpos, mas também da ingnorância sobre sua capacidade de transcendência , suas almas — agora nuas perante si mesmas e diante do Criador — pressentiram que poderiam adentrar um *estado relativo*: extinguir-se voluntariamente em um êxtase de dissolução temporária, um apagão da unidade individual, para consumirem-se na dualidade compartilhada.  
+
+Anelavam, assim, alcançar uma condição análoga à divina, não pela obediência, mas pelo ato de gerar — de dar à luz uma prole de alma livre e imprevisível, capaz de conhecer e escolher entre o bem e o mal. Quiseram ser cocriadores não apenas da forma, mas do destino moral.  
+
+Contudo, o amor que não se consuma no tempo e no espírito — que não é fundado na entrega total e transcendente — não gera vida plena, mas morte corporal. E assim, a união que poderia tê-los elevado à semelhança divina resultou apenas na morte terrena, no exílio do Éden e na percepção abrupta de sua própria vulnerabilidade.  
+
+Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — esconderam-se da transparência de suas próprias almas, do reconhecimento íntimo do que significa estar totalmente exposto ao outro e a si mesmo. Compreenderam, demasiado tarde, que a nudez da alma precede e supera a do corpo, e que toda união definitiva carrega em si o peso glorioso e temível da eternidade.
 
 ### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
