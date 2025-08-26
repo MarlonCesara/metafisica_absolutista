@@ -906,8 +906,6 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 
 ### **Tabela 8.1: A Trindade da Autocausalidade**
 
-# Dimensões da Autocausalidade Divina
-
 | Dimensão da Autocausalidade | Pessoa Divina | Atributo Principal | Princípio |
 |-----------------------------|---------------|--------------------|-----------|
 | **Vertical (Fundamentadora)** | Deus Pai | Autoexistência | "Eu Sou" (Êxodo 3:14) |
