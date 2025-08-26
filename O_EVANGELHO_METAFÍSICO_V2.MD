@@ -3143,4 +3143,20 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 **Assim, estas alegorias metafísicas, longe de contradizerem a fé católica, iluminam-na com novas profundidades, mostrando que a eternidade não é um lugar distante, mas uma realidade que já habitamos, e que nossas escolhas presentes ecoam na eternidade sem fim.**
 
+### **O pessimismo do velho testamento**  
+
+Sendo os anjos, os pressagios de sous que ainda não foram vivificados pelo espirito em sua infinitude no relativo, o contexto biblico sempre foi pessimista dizendo que, a metade dos anjos iria se voltar contra o mal. O portador da luz, lucifer, iria se subverter. E que, no eden o homem faria mal uso de sua liberdade querendo a morte e gerar uma prole de forma que gerasse uma corrupação e tivesse que ser restaurada, a prole corrompida pela disruptura do encontro dos pais. Portanto, biblicamente se abordou o pior comprtamento esperado atraves da liberdade, como se não quisesse elevar o homem a um patamar obrigatorio de perfeição.
+
+
+**Os Anjos como Presságios: A Liberdade e Seus Riscos na Narrativa Bíblica**
+
+A tradição bíblica apresenta os anjos como presságios de *sous* — possibilidades de existência ainda não plenamente vivificadas pelo Espírito em sua manifestação relativa. Nesse contexto cosmológico, as Escrituras adotam uma perspectiva profundamente realista, senão pessimista, sobre o exercício da liberdade criatural.  
+
+Lúcifer, o portador da luz, subverteu sua natureza angélica; um terço das hostes celestes voltou-se contra o Bem que lhes dava existência. No Éden, o primeiro homem e a primeira mulher fizeram mau uso de sua autonomia, escolhendo não a vida em plenitude, mas uma ruptura relacional que levou à morte espiritual e corporal. Seu intento — tornar-se como deuses, gerando uma prole a partir de um *encontro disruptivo*, marcado pela autorreferência e não pela obediência amorosa — resultou em corrupção.  
+
+Assim, a história da salvação apresentada nas Escrituras não é, em primeiro lugar, a elevação compulsória do homem a um patamar obrigatório de perfeição, mas sim o relato dramático de como a liberdade, mal-orientada, gera fractura e desordem — e de como, mesmo assim, Deus age para restaurar o que foi quebrado, não pela imposição, mas pela oferta de graça e pela possibilidade de redenção.  
+
+A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
+
+
 
