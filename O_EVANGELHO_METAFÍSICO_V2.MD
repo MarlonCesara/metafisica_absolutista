@@ -3091,9 +3091,9 @@ Não havia pressa, pois o tempo era agora um aliado eterno. Sabiam que diante de
 
 E assim, de mãos dadas — ou melhor, de essências unidas — começaram sua jornada definitiva: não mais como duas almas buscando-se, mas como uma única sinfonia de amor se desdobrando perante o trono do Eterno. O paraíso não era mais um lugar onde estavam, mas a própria realidade do seu amor em constante expansão.
 
-# **Pensamentos Metafísicos: O amor divino**
+# **Pensamentos Metafísicos**
 
-## **A personalidade do Mestre**
+## **A personalidade do Mestre sobre o divino**
 
 Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*.  
 
