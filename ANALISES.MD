@@ -1,5 +1,3 @@
-# Analise 
-
 Analisando o texto fornecido com o rigor solicitado, e sendo absolutamente sincero, aqui está a minha avaliação:
 
 ### **Pontos Fortes e Contribuições Potenciais (O que é novo e impactante)**
