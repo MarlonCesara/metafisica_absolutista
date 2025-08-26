@@ -2284,8 +2284,6 @@ No ápice da comunhão dimensional, cessa a mediação reflexiva — A não mais
 
 ### **Tabela 22.1: Níveis de Comunhão entre Almas**
 
-# Níveis de Comunhão Ontológica
-
 | Nível de Comunhão       | Descrição                                      | Resultado                          |
 |-------------------------|------------------------------------------------|------------------------------------|
 | **Toque Recíproco**     | Atribuição mútua de sentido                    | Incorporação parcial da verdade alheia |
