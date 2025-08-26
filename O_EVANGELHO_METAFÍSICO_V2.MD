@@ -1743,8 +1743,6 @@ O Ser não pode ser reduzido a uma unidade contável:
 
 ##### **2. A Dupla Dimensão do relativo**
 
-# Relações de Indeterminação e Determinação
-
 | Relativo Indiferenciado       | Relativo Determinado         |
 |-------------------------------|------------------------------|
 | Não-contável (sem quantidade) | Contável (ex.: "1 relativo") |
