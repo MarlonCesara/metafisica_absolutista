@@ -2455,7 +2455,7 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.
 
-> Adão e Eva desejavam ser como deuses, conhecedores do bem e do mal. O relato bíblico sugere que, despidos de seus corpos, com as almas nuas, perceberam que poderiam alcançar um estado relativo — isto é, extinguir-se em um apagão da unidade para consumirem-se na dualidade. Assim, buscavam atingir uma condição semelhante à de Deus, a fim de conhecer o bem e o mal, ou seja, gerar uma prole de índole imprevisível. Contudo, o amor não consumado resultou apenas na morte corporal. Ao se darem conta de que estavam nus, esconderam-se — isto é, reconheceram a transparência da alma e as consequências de uma união eterna entre corpos.
+> Adão e Eva desejavam ser como deuses, conhecedores do bem e do mal. O relato bíblico sugere que, despidos de seus corpos, com as almas nuas, perceberam que poderiam alcançar um estado relativo — isto é, extinguir-se em um apagão temporal da unidade para consumirem-se na dualidade. Assim, buscavam atingir uma condição semelhante à de Deus, a fim de conhecer o bem e o mal, ou seja, gerar uma prole de índole imprevisível. Contudo, o amor não consumado resultou apenas na morte corporal. Ao se darem conta de que estavam nus, esconderam-se, reconheceram a transparência da alma e as consequências de uma união definitiva.
 
 ### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
