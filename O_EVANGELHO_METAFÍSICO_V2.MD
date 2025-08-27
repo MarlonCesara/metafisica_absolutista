@@ -2465,7 +2465,7 @@ Contudo, o amor que não se consuma no tempo e no espírito — que não é fund
 
 Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — esconderam-se da transparência de suas próprias almas, do reconhecimento íntimo do que significa estar totalmente exposto ao outro e a si mesmo. Compreenderam, demasiado tarde, que a nudez da alma precede e supera a do corpo, e que toda união definitiva carrega em si o peso glorioso e temível da eternidade.
 
-#### **§ 24.8 – O relativo dos anjos**
+#### **§ 24.9 – O relativo dos anjos**
 
 Ao descrever seres que não são humanos, mas possuem liberdade metafísica e funções divinas, subentende-se que a Bíblia refere-se aos sous que estão pressupostos no relativo — não revividos pelo tempo do espírito, mas existentes, suspensos no campo das possibilidades. Não há caminhos lógicos para deduzir dois tipos distintos de entes com livre-arbítrio; para além da distinção entre Deus e homem, não há sentido formal e lógico que sustente outra categoria. Por isso, a única interpretação coerente para os anjos é vê-los como o homem ainda em seu estado relativo.
 
