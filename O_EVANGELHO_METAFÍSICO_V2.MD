@@ -3149,9 +3149,8 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 **Assim, estas alegorias metafísicas, longe de contradizerem a fé católica, iluminam-na com novas profundidades, mostrando que a eternidade não é um lugar distante, mas uma realidade que já habitamos, e que nossas escolhas presentes ecoam na eternidade sem fim.**
 
-### **O pessimismo do velho testamento**  
 
-**A Liberdade e Seus Riscos na Narrativa Bíblica**
+### **A Liberdade e Seus Riscos na Narrativa Bíblica**
 
 A tradição bíblica apresenta os anjos como presságios de *sous* — possibilidades de existência ainda não plenamente vivificadas pelo Espírito em sua manifestação relativa. Nesse contexto cosmológico, as Escrituras adotam uma perspectiva profundamente realista, senão pessimista, sobre o exercício da liberdade criatural.  
 
@@ -3165,7 +3164,7 @@ A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída,
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
 
-**Uma conversa entre as pessoas da trindade**
+### **Uma conversa entre as pessoas da trindade**
 
 **E a Terra estava em grande atribulação, e a maldade dos homens multiplicava-se sobre a face do mundo.**  
 Então, as Pessoas da Eterna Trindade reuniram-se em divino conselho.  
