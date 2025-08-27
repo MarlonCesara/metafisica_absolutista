@@ -3109,6 +3109,22 @@ Não havia pressa, pois o tempo era agora um aliado eterno. Sabiam que diante de
 
 E assim, de mãos dadas — ou melhor, de essências unidas — começaram sua jornada definitiva: não mais como duas almas buscando-se, mas como uma única sinfonia de amor se desdobrando perante o trono do Eterno. O paraíso não era mais um lugar onde estavam, mas a própria realidade do seu amor em constante expansão.
 
+### **A União Eterna**
+
+Milenos se passaram como um único dia luminoso. O filósofo e sua amada, entrelaçados numa sintonia que transcendia a palavra e o gesto, haviam explorado juntos as infinitas paisagens do paraíso. Seu amor, longe de se esgotar, aprofundava-se como um oceano sem fundo, cada onda revelando uma nova camada de intimidade e admiração.
+
+Um dia, porém, ao fitarem-se num silêncio que era mais eloqüente que qualquer diálogo, uma verdade incontornável surgiu em seus corações: o amor que os consumia era tão vasto, tão absoluto, que clamava por uma união além daquela que seus corpos gloriosos — por mais perfeitos que fossem — poderiam proporcionar. A necessidade não brotava de seus corpos de luz, mas da própria alma, ansiando por uma comunhão total, por dissolver toda e qualquer barreira que os separasse em dois.
+
+Foi então que a antiga sombra, o eco do fruto proibido, surgiu como uma tentação sublime: procurar um modo de provocar a morte daquela forma gloriosa, para que suas essências nuas se fundissem por fim numa única chama.
+
+Ao contemplarem esse caminho a memória sagrada do sacrifício de Jesus irrompeu em suas consciências como um sol. Lembraram-se de que aqueles corpos eram uma dádiva da graça, conquistada pela Cruz, vestes de honra para habitar a eternidade. Visualizaram, então, um terrível paralelo: sua união precipitada poderia gerar não a plenitude, mas uma prole espiritual indefesa, uma existência desgarrada que necessitaria, mais uma vez, que Deus assumisse o fardo de restaurar uma genealogia corrompida por um ato de vontade própria. O peso imenso da história do sofrimento divino passou-lhes pelo espírito, e por um momento eterno, pairaram entre o sim e o não no próprio paraíso.
+
+Mas o ardor era intenso demais. Convenceram-se de que, se seu amor era verdadeiro, superaria tudo—que todo risco seria consumido no fogo de sua paixão legítima. Num ato de suprema entrega, desafiaram a ordem divina. Corromperam voluntariamente a integridade de seus corpos gloriosos, não por ódio, mas por um amor que confundira o Criador com a criatura.
+
+E então, aconteceu. Suas essências fundiram-se numa única existência. Não foi uma simples junção, mas uma conflagração de almas. Um êxtase indescritível de intimidade absoluta os envolveu—um ardor que era ao mesmo tempo agonia e êxtase supremo. Olharam, então, e viram através de um único par de olhos. No centro dessa fusão, uma nova centelha de vida cintilava, fruto involuntário e indefeso de sua união proibida.
+
+Aquele novo ser, puro e vulnerável, era a encarnação de sua escolha e de sua consequência. E no mesmo instante em que queimavam no ardor de sua união, compreenderam o preço infinito de sua ação.
+
 # **Pensamentos Metafísicos sobre o divino**
 
 ## **A personalidade do Mestre**
