@@ -3123,7 +3123,7 @@ Mas o ardor era intenso demais. Convenceram-se de que, se seu amor era verdadeir
 
 E então, aconteceu. Suas essências fundiram-se numa única existência. Não foi uma simples junção, mas uma conflagração de almas. Um êxtase indescritível de intimidade absoluta os envolveu—um ardor que era ao mesmo tempo agonia e êxtase supremo. Olharam, então, e viram através de um único par de olhos. No centro dessa fusão, uma nova centelha de vida cintilava, fruto involuntário e indefeso de sua união proibida.
 
-Aquele novo ser, puro e vulnerável, era a encarnação de sua escolha e de sua consequência. E no mesmo instante em que queimavam no ardor de sua união, compreenderam o preço infinito de sua ação.
+Aquele novo ser, puro e vulnerável, era a encarnação de sua escolha e de sua consequência. E no mesmo instante em que queimavam no ardor de sua união, compreenderam o preço infinito de sua ação. Estavam unidos eternamente, caso decidissem sair dessa união sua prole seria corrompida e eles mesmos se corromperiam. Um erro eterno é um sofrimento eterno, ainda que não existissem as chamas do inferno, existiria uma dor insolúvel e irremediável. 
 
 # **Pensamentos Metafísicos sobre o divino**
 
