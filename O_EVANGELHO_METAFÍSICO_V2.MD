@@ -2465,6 +2465,12 @@ Contudo, o amor que não se consuma no tempo e no espírito — que não é fund
 
 Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — esconderam-se da transparência de suas próprias almas, do reconhecimento íntimo do que significa estar totalmente exposto ao outro e a si mesmo. Compreenderam, demasiado tarde, que a nudez da alma precede e supera a do corpo, e que toda união definitiva carrega em si o peso glorioso e temível da eternidade.
 
+#### **§ 24.8 – O relativo dos anjos**
+
+Ao descrever seres que não são humanos, mas possuem liberdade metafísica e funções divinas, subentende-se que a Bíblia refere-se aos sous que estão pressupostos no relativo — não revividos pelo tempo do espírito, mas existentes, suspensos no campo das possibilidades. Não há caminhos lógicos para deduzir dois tipos distintos de entes com livre-arbítrio; para além da distinção entre Deus e homem, não há sentido formal e lógico que sustente outra categoria. Por isso, a única interpretação coerente para os anjos é vê-los como o homem ainda em seu estado relativo.
+
+Sendo assim, quando Jesus afirma que "no céu não há casamento, pois seremos como os anjos", devemos evitar uma conceção abominável do céu, entendendo-o como uma castração do potencial de transcendência e infinitude — ou seja, como um mal infinito. Pelo contrário, podemos interpretar o estado angelical como a conquista de uma indefinição da alma, resultante da união da dualidade. Dito de outro modo, o sentido mais preciso de "ser como os anjos" refere-se a duas almas que, fundidas numa união eterna, transcendem a definição individual. Portanto, Jesus, nesse sentido, foi muito além do conceito de casamento, transcendendo profundamente essa modalidade relacional.
+
 ### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
 #### **§ 25.1 – A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
