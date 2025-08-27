@@ -2881,6 +2881,18 @@ A cada passo, a cada novo olhar, tudo naquele lugar revelava camadas ocultas de 
 
 Era possível, naquele mundo, caminhar como se caminha aqui — mas ali, o tempo não era um véu que escondia o sentido das coisas. Ao contrário, cada passo era uma revelação, cada passagem era um espelho que devolvia o mistério ao olhar atento. Mesmo os seres mais simples — como os insetos, os ventos, ou as sombras suaves — carregavam uma profundidade que, no mundo de fora, talvez passasse despercebida.
 
+## **As estranhas habilidades**
+
+Ao caminhar, o homem desejou mover-se com maior rapidez. Imediatamente, seu corpo respondeu, deslizando com uma fluidez sobrenatural, como se o espaço cedesse diante de sua vontade. Estimulado pela descoberta, desejou ir ainda mais depressa — e assim o fez, não como quem corre, mas como quem voa sem asas, cortando o ar com a suavidade de um pensamento.
+
+Embaralhado entre a incredulidade e o fascínio, voltou seu intento para uma árvore à frente. Desejou, em um ímpeto de pura curiosidade, atravessá-la. Para seu assombro, seu corpo moveu-se adiante, não como um obstáculo sólido, mas como se a matéria da árvore e a sua própria se tornassem mutuamente permeáveis — ele a transpassou como a luz atravessa o cristal, sem resistência, sem atrito, apenas uma sensação de frescor e de leveza.
+
+Compreendeu, então, a natureza daquele lugar: as leis que regiam a existência ali não eram rígidas, mas fluídas; não eram impositivas, mas responsivas. O mundo conceptual moldava-se quase que integralmente aos desejos da imaginação, desde que estivessem em harmonia com a ordem profunda daquele plano. A liberdade experimentada era de uma magnitude indescritível, absoluta.
+
+Ele descobriu que podia transfigurar sua própria forma, assumir aparências, saltar sobre vales e montanhas com um único pensamento, e percorrer horizontes infinitos em um piscar de olhos. Seu corpo já não era um limite, mas uma expressão direta e majestosa de sua mente — um instrumento perfeito de uma vontade agora soberana.
+
+Uma onda avassaladora de liberdade e felicidade invadiu sua alma, tão intensa e pura que não pôde contê-la. Lágrimas silenciosas e serenas rolaram por seu rosto — não de tristeza, mas de um êxtase indizível, a resposta natural de um ser que, após uma vida de limitações, descobria-se, finalmente, plenamente vivo.
+
 ## **Os Estranhos Homens de Barro**
 
 E então, ela passou. Uma borboleta translúcida, cintilando em tons suaves de âmbar e branco, atravessou o ar como uma prece em movimento. No instante em que suas asas tocaram a brisa, o sábio sentiu, como num suspiro eterno, o sentimento do vento ao voar — um êxtase silencioso, um chamado à liberdade. Mas havia mais: junto à sensação do voo, emergiu um sentimento inesperado de devoção e amizade, como se aquela criatura o reconhecesse, e ele, por sua vez, visse nela algo profundamente familiar. Não era uma amizade nascida da convivência, mas de algo anterior, essencial, como se fossem feitos do mesmo sopro de origem — o *sopiro vitae* de Gn 2,7.
