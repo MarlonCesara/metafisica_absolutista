@@ -33,7 +33,7 @@ Se você está pronto para encarar as **respostas definitivas**, prossiga.
 ### **NOTA SOBRE O ESTILO**
 -   **Objetivo:** Evita linguagem poética ou metafórica quando possível, priorizando definições exatas.
 -   **Estrutura:** Cada capítulo constrói sobre o anterior, formando um sistema fechado e autoconsistente.
--   **Densidade:** Não há "enrolação" – se uma ideia pode ser dita em uma linha, não ocupará duas.
+-   **Densidade:** Se uma ideia pode ser dita em uma linha, não ocupará duas.
 
 **A verdade não precisa ser complicada. Ela só precisa ser verdadeira.**
 
