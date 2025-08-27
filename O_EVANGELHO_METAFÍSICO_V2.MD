@@ -3151,7 +3151,7 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 ### **O pessimismo do velho testamento**  
 
-**Os Anjos como Presságios: A Liberdade e Seus Riscos na Narrativa Bíblica**
+**A Liberdade e Seus Riscos na Narrativa Bíblica**
 
 A tradição bíblica apresenta os anjos como presságios de *sous* — possibilidades de existência ainda não plenamente vivificadas pelo Espírito em sua manifestação relativa. Nesse contexto cosmológico, as Escrituras adotam uma perspectiva profundamente realista, senão pessimista, sobre o exercício da liberdade criatural.  
 
@@ -3164,5 +3164,39 @@ Assim, a história da salvação apresentada nas Escrituras não é, em primeiro
 A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
+
+**Uma conversa entre as pessoas da trindade**
+
+**E a Terra estava em grande atribulação, e a maldade dos homens multiplicava-se sobre a face do mundo.**  
+Então, as Pessoas da Eterna Trindade reuniram-se em divino conselho.  
+
+E **Deus Pai**, Aquele que habita em luz inacessível, falou com voz que faz tremer os céus:  
+— *Destruirei toda a Terra, pois a violência encheu a minha criação. Farei vir águas das profundezas e fogo dos céus, e purgarei a impureza dos homens.*  
+
+Mas, antes que o Pai concluísse seu decreto, o **Espírito Santo**, o Santificador, interrompeu com fogo que não consome, mas ilumina:  
+— *Não, Pai. Não pela água, mas pelo fogo de teu juízo. Separarei o justo do ímpio. Cada um receberá conforme as suas obras, e a justiça será estabelecida com rigor.*  
+
+E eis que, então, **Jesus Cristo**, o Unigênito, o Cordeiro, levantou a voz — doce como o mel, forte como o trovão — e interrompeu o Espírito Santo:  
+
+— *Também não pela justiça impetuosa, ó Espírito de Verdade. A justiça sem misericórdia é condenação para todos. Eis que Eu mesmo descerei. Tomarei sobre Mim a  culpa dos homens. Serei ferido por suas transgressões, e afligido por suas iniquidades. O castigo estará sobre Mim. E pelas Minhas feridas eles serão sarados.*  
+
+E houve silêncio no céu.  
+E o Pai olhou para o Filho, e n’Ele pôs todo o seu agrado.  
+E o Espírito Santo testemunhou com poder:  
+
+— *Sim. Assim seja.*  
+
+E desde então,  
+o plano da redenção foi estabelecido  
+não só com poder, não só com justiça,  
+mas com **amor que excede todo entendimento**.  
+
+*Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna.* (João 3:16)
+
+
+
+
+
+
 
 
