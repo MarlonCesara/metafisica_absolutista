@@ -2246,7 +2246,9 @@ A vocação humana não é a auto-suficiência, mas a **comunhão** - tornar-se 
 ### **CAPÍTULO 22: EXPLORAÇÃO DA HIPÓTESE DA ALMA COMPLETA**
 #### **§ 22.1 – A Hipótese da Alma Completa**
 
-Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra.
+Exploremos a hipótese de que a alma completa (transcendente) emerge de uma dualidade - duas almas distintas que, ao interagirem, realizam plenamente a capacidade transcendente uma na outra. 
+
+-   Se o 'sou' herda a capacidade de completa transcendência apenas por meio de sua dualidade, interpreta-se que a sua completude se realiza justamente nessa dualidade. Embora possua uma identidade singular e exista em unidade, a sua plenitude de sua capacidade só se efetiva ao abranger e integrar a dimensão dual.
 
 #### **§ 22.2 – O Paradoxo da Manifestação**
 
