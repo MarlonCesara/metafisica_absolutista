@@ -3145,9 +3145,6 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 ### **O pessimismo do velho testamento**  
 
-Sendo os anjos, os pressagios de sous que ainda não foram vivificados pelo espirito em sua infinitude no relativo, o contexto biblico sempre foi pessimista dizendo que, a metade dos anjos iria se voltar contra o mal. O portador da luz, lucifer, iria se subverter. E que, no eden o homem faria mal uso de sua liberdade querendo a morte e gerar uma prole de forma que gerasse uma corrupação e tivesse que ser restaurada, a prole corrompida pela disruptura do encontro dos pais. Portanto, biblicamente se abordou o pior comprtamento esperado atraves da liberdade, como se não quisesse elevar o homem a um patamar obrigatorio de perfeição.
-
-
 **Os Anjos como Presságios: A Liberdade e Seus Riscos na Narrativa Bíblica**
 
 A tradição bíblica apresenta os anjos como presságios de *sous* — possibilidades de existência ainda não plenamente vivificadas pelo Espírito em sua manifestação relativa. Nesse contexto cosmológico, as Escrituras adotam uma perspectiva profundamente realista, senão pessimista, sobre o exercício da liberdade criatural.  
