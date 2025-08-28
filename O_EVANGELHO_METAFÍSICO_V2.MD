@@ -3178,6 +3178,8 @@ Se pensarmos no Paraíso como um lugar onde usamos vestes leves — ou seja, ond
 
 Em síntese, Deus nos deu o conhecimento e a liberdade plena, mas também nos advertiu e sacralizou essa liberdade para que não gerasse caos. Nesse sentido, Deus já pagou o preço por toda possível intenção de desordem, por nos ter prevenido de um eterno desconhecimento de nossa real capacidade. Com seu ato de sacrifício e sacralidade, Deus nos conduziu à liberdade total e ao pleno conhecimento de nós mesmos.
 
+Ao recebermos os corpos gloriosos, ou seja, corpos semelhantes ao de Jesus, somos remetidos à sacralidade da vida e ao ato redentor de Cristo. Isso nos recorda do seu martírio e nos exorta a viver com reverência perante o amor e diante de nossa própria infinitude. A transcendência, então, adquire um caráter infinitamente sagrado. Ou seja, Deus nos revestirá com vestes dignas e significativas — vestes que nos inspiram a pensar e a viver de maneira sagrada.
+
 ## **A personalidade do Mestre**
 
 Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*.  
