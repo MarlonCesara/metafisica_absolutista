@@ -3276,4 +3276,3 @@ Vendo a luta titânica de Seus filhos, Jesus desceu novamente. Não para julgar 
 
 Então, sobreveio o pranto e o ranger de dentes. As grandiosas estruturas de poder desmoronaram como castelos de areia. Todas as instituições que perpetuavam a escravidão e a iniquidade foram reduzidas a pó. Desprovidas de suas defesas e posses, as pessoas que não se arrependeram viram-se nuas perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante, que seu intento nunca foi verdadeiramente dominar ou destruir o mundo, mas sim autodestruir-se. Seu choro foi um lamento profundo e tardio, o reconhecimento amargo de que haviam desperdiçado a própria alma.
 
-
