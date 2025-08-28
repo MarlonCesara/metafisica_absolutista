@@ -3302,6 +3302,8 @@ Deus, em sua bondade, prepaparou os eleitos para o evento de forma que não tive
 
 **Então, o juízo, retido até então pela longanimidade divina, irrompeu.** Não como mera força da natureza, mas como o instrumento deliberado do Criador. Conforme anunciado desde os tempos antigos, os fundamentos da Terra tremeram, e as catástrofes previstas no Livro do Apocalipse foram liberadas sobre a criação rebelde. As janelas dos céus se abriram, e as fontes do grande abismo se romperam, lavando a impureza do mundo em um dilúvio de fogo e água. A ordem criada participava da ira do Criador contra as dominações.
 
+As milícias celestiais, composta dos eleitos, contemplavam o Armagedom, não com terror, mas compreendendo o poderoso recurso de Deus em prol da harmonia, em prol da causa, em prol da luta há milênios travada. Em seus olhos não havia medo algum, mas o reluzir da vitória. E os eleitos se entregaram num gesto de amor, num gesto de uma vitória que prevalecera para sempre. 
+
 Após os eventos todas as almas que se apresentavam na terra estavam dessa vez num estado relativo, a terra foi destruida. Então imediatamente todos estavam no juizo final. Os que amavam verdadeiramente a vida escolheram o paraíso. Os que dependiam de grandes riquezas, posições de poder e dominações para se exaltarem viram face a face o que se escondia por trás de sua falta de comoção perante a miséria, a violência e pobreza.
 
 E cada um escolheu, a partir dali, seu desfecho. 
