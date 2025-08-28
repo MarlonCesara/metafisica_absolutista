@@ -3184,6 +3184,8 @@ Ao recebermos os corpos gloriosos, ou seja, corpos semelhantes ao de Jesus, somo
 
 O ato nupcial da paixão de Jesus atribuiu um sentido, uma sacralidade às novas vestes da alma. Vestes que nos fazem sentir todo o amor de Deus, toda o sentido em uma união com a vida. Vestes que previnem qualquer forma tola ou fraca de amor poder gerar um caos apenas por orgulho e vaidade.
 
+Portanto, o gesto de Jesus não foi uma coibição ou restrição do homem a transcendência, mas o sentido de que as capacidades da alma não são brinquedos, tem um grau de seriedade absoluto. Jesus, portanto, nos vestirá com as vestes sagradas de seu próprio corpo, como símbolo de todo seu afeto e preocupação.
+
 ## **A personalidade do Mestre**
 
 Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*.  
