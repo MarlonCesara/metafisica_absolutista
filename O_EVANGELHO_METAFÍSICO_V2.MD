@@ -3162,8 +3162,13 @@ E assim, a metafísica absolutista termina: pelo começo, por Gênesis. Depois d
 
 Deus, como suma bondade e justiça, de fato não desejaria uma interrupção em nossas capacidades, pois todo o sistema que envolve o Ser é perfeito em si e tende ao infinito. Portanto, não é lógico fundamentarmos toda a narrativa bíblica como uma medida proibitiva, mas faz sentido a imaginarmos como uma medida eficaz contra o caos, contra as formas de destruição da harmonia. Como medida eficaz de conscientização de que toda a vida é sagrada.
 
+Apesar do teor de pura conscientização gênesis parece exortar o homem ao mesmo conhecimento que Adão e Eva tiveram no Paraíso. O Éden seria a Terra, e o fruto proibido traria consigo a morte, ainda que não fosse necessariamente consumido. É como se o ser humano fosse chamado a amores eternos, ao verdadeiro autoconhecimento, mesmo sem ter escolhido comer o fruto. Esse parece ser um convite à transcendência, mas também um alerta sobre os perigos da liberdade, que pode culminar em morte — reflectindo a doutrina do *felix culpa* (feliz culpa) que mereceu tão grande Redentor. Gêneses é totalmente multifacetado, carrega um tão denso de significado, que não pode ser capturado sobre apenas uma de suas faces.
 
-# **Pensamentos Metafísicos sobre o divino**
+**Interpreto que a corrupção narrada pela Bíblia, que afetou todo o cosmos, originou-se no coração de Deus como uma tristeza pela condição de estagnação espiritual do homem e que o primeiro pecado foi, essencialmente, um suicídio espiritual do ser humano primordial** — uma leitura que ressoa com a doutrina do pecado original como *"morte espiritual"* (Gn 2,17; Rm 5,12). Assim, do ponto de vista abstrato e sentimental, é possível suavizar o impacto de certos conceitos marcantes na teologia tradicional.  
+
+**Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
+
+# **Pensamentos Metafísicos**
 
 ## **A personalidade do Mestre**
 
@@ -3183,12 +3188,6 @@ Ele se entregou de braços abertos, olhando para o céu... uma entrega incompree
 
 Dessa forma, Jesus estabeleceu uma religião — do latim *religare* —, cujo objetivo é **religar o homem à vida**. No entanto, **não ofereceu uma visão clara e metafísica do além-vida**. Não se deteve em histórias de amor entre almas, seja no mundo ou na eternidade, mas concentrou-se no essencial: a história de amor entre o homem e a própria Vida. O propósito era que o homem se unisse à Vida de tal forma que, através dessa união, conquistasse sua eternidade.
 
-## **O pecado e a corrupção**
-
-**Interpreto que a corrupção narrada pela Bíblia, que afetou todo o cosmos, originou-se no coração de Deus como uma tristeza pela condição de estagnação espiritual do homem e que o primeiro pecado foi, essencialmente, um suicídio espiritual do ser humano primordial** — uma leitura que ressoa com a doutrina do pecado original como *"morte espiritual"* (Gn 2,17; Rm 5,12). Assim, do ponto de vista abstrato e sentimental, é possível suavizar o impacto de certos conceitos marcantes na teologia tradicional.  
-
-**Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
-
 ## **A salvação**
 
 Se Deus falasse diretamente ao homem, Ele diria:  
@@ -3204,10 +3203,6 @@ Esse pronunciamento resume toda a história da salvação, na qual Deus transcen
 Enquanto o indivíduo guiado pelo niilismo evita as fortes emoções, as alegrias eternas, os momentos intensos, Jesus exaltou a ousadia desse comportamento. Tudo o que Ele fazia era profundamente intenso e poético. Suas palavras carregavam um tom filosófico e profundo. Quando expulsou os vendilhões do templo (Jo 2,15), quando perguntou a Pedro três vezes se o amava (Jo 21,15-17)... Jesus nos ensinou a viver cada momento com plenitude, a valorizar com ardor o que temos de mais precioso na vida, a sentir na pele, a deixar as emoções fluírem. A enfrentar o impacto do desconhecido. A superar nossos maiores medos...  
 
 **Jesus nos ensinou a viver.** Ele foi o ser humano mais intenso que já passou por este mundo — *"Eu vim para que tenham vida, e a tenham em abundância"* (Jo 10,10).
-
-### **Gênesis**  
-
-O Gênesis parece exortar o homem ao mesmo conhecimento que Adão e Eva tiveram no Paraíso. O Éden seria a Terra, e o fruto proibido traria consigo a morte, ainda que não fosse necessariamente consumido. É como se o ser humano fosse chamado a amores eternos, ao verdadeiro autoconhecimento, mesmo sem ter escolhido comer o fruto. Esse parece ser um convite à transcendência, mas também um alerta sobre os perigos da liberdade, que pode culminar em morte — reflectindo a doutrina do *felix culpa* (feliz culpa) que mereceu tão grande Redentor.
 
 ### **A preparação da alma**  
 
