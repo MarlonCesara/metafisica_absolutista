@@ -3168,7 +3168,15 @@ Apesar do teor de pura conscientização gênesis parece exortar o homem ao mesm
 
 **Interpreto que a corrupção narrada pela Bíblia, que afetou todo o cosmos, originou-se no coração de Deus como uma tristeza pela condição de estagnação espiritual do homem e que o primeiro pecado foi, essencialmente, um suicídio espiritual do ser humano primordial** — uma leitura que ressoa com a doutrina do pecado original como *"morte espiritual"* (Gn 2,17; Rm 5,12). Assim, do ponto de vista abstrato e sentimental, é possível suavizar o impacto de certos conceitos marcantes na teologia tradicional.  
 
-**Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
+A consequência do pecado original é a morte, no sentido de que todo erro é eterno na alma. Isto é, sem o uso de um corpo efêmero, toda união essencial se torna impossível de desfazer. Ou seja, apenas a morte poderia apagá-lo.
+
+Portanto, conclui-se que, ao herdarmos a mentalidade de Adão e Eva e o ato de "comer" do fruto proibido em direção ao seu objetivo, temos também a prevenção desse mal pelo sacrifício do Ser. Dessa forma, à medida que o Ser nos exorta à transcendência, também paga o preço pela exortação acelerada a essa mesma transcendência.
+
+A história de Adão e Eva não precisou ocorrer literalmente para que tivéssemos as suas consequências; ela foi uma forma de revelação ao homem, uma maneira de atribuir-lhe o mesmo conhecimento. No entanto, ao sermos lançados em favor desse destino glorioso e exótico, somos resguardados pela seriedade atribuída ao ato de Jesus.
+
+Se pensarmos no Paraíso como um lugar onde usamos vestes leves — ou seja, onde temos um corpo não essencial, mas que nos protege da nudez da alma —, este seria um corpo mais leve, mais livre e mais sagrado do que o atual. Poderíamos comparar nosso corpo atual a um casulo de barro, enquanto o corpo glorioso seria como vestes leves. A alma, em seu estado relativo, seria o período anterior à passagem para a glorificação, isto é, antes de adentrarmos novos corpos.
+
+Em síntese, Deus nos deu o conhecimento e a liberdade plena, mas também nos advertiu e sacralizou essa liberdade para que não gerasse caos. Nesse sentido, Deus já pagou o preço por toda possível intenção de desordem, por nos ter prevenido de um eterno desconhecimento de nossa real capacidade. Com seu ato de sacrifício e sacralidade, Deus nos conduziu à liberdade total e ao pleno conhecimento de nós mesmos.
 
 ## **A personalidade do Mestre**
 
@@ -3210,6 +3218,7 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 **Assim, estas alegorias metafísicas, longe de contradizerem a fé católica, iluminam-na com novas profundidades, mostrando que a eternidade não é um lugar distante, mas uma realidade que já habitamos, e que nossas escolhas presentes ecoam na eternidade sem fim.**
 
+**Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
 
 ### **A Liberdade e Seus Riscos na Narrativa Bíblica**
 
