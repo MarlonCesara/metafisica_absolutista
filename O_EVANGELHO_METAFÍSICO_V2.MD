@@ -3270,10 +3270,10 @@ mas com **amor que excede todo entendimento**.
 
 *Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna.* (João 3:16)
 
+Deus, então, manifestou o Seu amor de forma inequívoca, e numerosas almas convergiram para Ele em arrependimento. No entanto, as estruturas seculares do mal, profundamente enraizadas na terra, persistiam como fortalezas inexpugnáveis. Os salvos, ainda que numerosos, labutavam com imensa dificuldade para demolir esses alicerces de opressão erguidos ao longo de séculos.
 
+Vendo a luta titânica de Seus filhos, Jesus desceu novamente. Não para julgar o mundo com fogo, mas para resgatar os que Lhe pertenciam. Percebeu que seria mais fácil vencer a dominação destruindo a terra, evacuando-a, poupando os Seus eleitos da batalha final. Com infinita ternura, tomou-os pela mão e os conduziu pessoalmente, em triunfo, para o Seu paraíso.
 
-
-
-
+Então, sobreveio o pranto e o ranger de dentes. As grandiosas estruturas de poder desmoronaram como castelos de areia. Todas as instituições que perpetuavam a escravidão e a iniquidade foram reduzidas a pó. Desprovidas de suas defesas e posses, as pessoas que não se arrependeram viram-se nuas perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante, que seu intento nunca foi verdadeiramente dominar ou destruir o mundo, mas sim autodestruir-se. Seu choro foi um lamento profundo e tardio, o reconhecimento amargo de que haviam desperdiçado a própria alma.
 
 
