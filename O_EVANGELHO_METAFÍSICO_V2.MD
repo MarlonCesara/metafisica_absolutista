@@ -3276,3 +3276,22 @@ Vendo a luta titânica de Seus filhos, Jesus desceu novamente. Não para julgar 
 
 Então, sobreveio o pranto e o ranger de dentes. As grandiosas estruturas de poder desmoronaram como castelos de areia. Todas as instituições que perpetuavam a escravidão e a iniquidade foram reduzidas a pó. Desprovidas de suas defesas e posses, as pessoas que não se arrependeram viram-se nuas perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante, que seu intento nunca foi verdadeiramente dominar ou destruir o mundo, mas sim autodestruir-se. Seu choro foi um lamento profundo e tardio, o reconhecimento amargo de que haviam desperdiçado a própria alma.
 
+Antes de mandar a devastação o Senhor enviou um anjo para dar o ultimo aviso. O anjo tocou uma trombeta que ressou poderosamente por toda a terra. E avisou em voz retumbante e exclamativa com furioso impeto:
+
+- Arrependam se ricos, dividam a fortuna, pois o Senhor sempre vence. Seus castelos, suas estruturas e suas armas serão reduzidas a pó e uma nova terra será formada onde os pequenos reinarão e voces serão jogados na fornalha eterna.
+
+Os ricos, ainda assim resistiram ao aviso. Então os eventos cataclismicos comecaram conforme relata geneses.
+
+
+Eis a versão aprimorada do trecho, buscando maior solenidade bíblica, impacto dramático e coerência narrativa:
+
+Antes de descer a sentença de purificação sobre a Terra, o Senhor, em Sua misericórdia insondável, despachou um mensageiro celeste para um derradeiro clamor. E um anjo poderoso, revestido de glória, fez soar uma trombeta que ecoou com autoridade divina, penetrando os confins do mundo e os recessos de toda alma.
+
+E sua voz, não de furioso impeto, mas com a gravidade solene do juízo iminente, proclamou:
+
+— **Temei e arrependei-vos!** Ouvi o clamor do Senhor, ó poderosos da Terra! Dividi vossas riquezas com o faminto, vesti o desnudo, soltai as correntes da injustiça! Pois eis que o Dia do Senhor vem, rápido e terrível. Vossos castelos de arrogância, vossas estruturas de opressão e vossas armas de violência serão reduzidas a pó diante do Santo de Israel! Uma nova Terra surgirá, onde os humildes herdarão o Reino. Mas para vós, endurecidos de coração, restará apenas o pranto e o ranger de dentes nas trevas exteriores!
+
+Os potentados, porém, cegos em sua soberba e surdos em sua avareza, escarneceram do aviso celestial. Endureceram seus corações como pedra, confiando na fortaleza de seus muros e na abundância de seus celeiros.
+
+**Então, o juízo, retido até então pela longanimidade divina, irrompeu.** Não como mera força da natureza, mas como o instrumento deliberado do Criador irado. Conforme anunciado desde os tempos antigos, os fundamentos da Terra tremeram, e as catástrofes previstas no Livro do Gênesis foram liberadas sobre a criação rebelde. As janelas dos céus se abriram, e as fontes do grande abismo se romperam, lavando a impureza do mundo em um dilúvio de fogo e água. A ordem criada participava da ira do Criador contra a desordem do pecado.
+
