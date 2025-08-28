@@ -3150,7 +3150,9 @@ A pergunta final ecoou em seus seres fundidos, não como um desespero, mas como 
 
 A eternidade que se estendia à sua frente seria a resposta.
 
-### **O resgate**
+# **Pensamentos Metafísicos**
+
+### **O resgate de gêneses**
 
 Deus, visualizando todos os possíveis destinos, morreu por nós. Antecipou todos os eventos e cuidou de tudo. Previu todo erro que poderia advir da liberdade, todo caos e confusão.
 
@@ -3167,8 +3169,6 @@ Apesar do teor de pura conscientização gênesis parece exortar o homem ao mesm
 **Interpreto que a corrupção narrada pela Bíblia, que afetou todo o cosmos, originou-se no coração de Deus como uma tristeza pela condição de estagnação espiritual do homem e que o primeiro pecado foi, essencialmente, um suicídio espiritual do ser humano primordial** — uma leitura que ressoa com a doutrina do pecado original como *"morte espiritual"* (Gn 2,17; Rm 5,12). Assim, do ponto de vista abstrato e sentimental, é possível suavizar o impacto de certos conceitos marcantes na teologia tradicional.  
 
 **Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
-
-# **Pensamentos Metafísicos**
 
 ## **A personalidade do Mestre**
 
