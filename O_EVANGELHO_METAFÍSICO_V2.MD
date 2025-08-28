@@ -3040,11 +3040,11 @@ Aquela alma não desaparecera por ódio à existência, mas por um amor que conf
 
 O filósofo, agora mais sábio, acrescentou um novo traço às almas que se perdiam:  
 
-- **O apego que nega a liberdade.** Muitas não desapareciam por rejeitarem a vida, mas por amarem de um modo que asfixiava — seja uma pessoa, um ideal ou até mesmo sua própria dor. Eram esposas que se definiam apenas pelo marido, mártires que veneravam seu sofrimento, poetas que preferiam a saudade à presença — uma distorção do *ordo amoris* (ordem do amor).
+**O apego que nega a liberdade.** Muitas não desapareciam por rejeitarem a vida, mas por amarem de um modo que asfixiava — seja uma pessoa, um ideal ou até mesmo sua própria dor. Eram esposas que se definiam apenas pelo marido, mártires que veneravam seu sofrimento, poetas que preferiam a saudade à presença — uma distorção do *ordo amoris* (ordem do amor).
 
-- **A incapacidade de se render ao mistério.** Algumas, mesmo no paraíso, insistiam em controlar o incontrolável. Quando a realidade divina lhes mostrava que seu "amor eterno" era apenas um reflexo pálido do verdadeiro amor — infinito e não possessivo —, escolhiam o nada — recusando a doutrina de que todo amor humano deve estar ordenado a Deus (S.Th., II-II, q.26, a.13).
+**A incapacidade de se render ao mistério.** Algumas, mesmo no paraíso, insistiam em controlar o incontrolável. Quando a realidade divina lhes mostrava que seu "amor eterno" era apenas um reflexo pálido do verdadeiro amor — infinito e não possessivo —, escolhiam o nada — recusando a doutrina de que todo amor humano deve estar ordenado a Deus (S.Th., II-II, q.26, a.13).
 
-- **A falsa redenção.** Havia aquelas que acreditavam que desaparecer com o amado era um ato de lealdade. Não percebiam que o paraíso não as separava — elas é que se recusavam a ver: o amor verdadeiro nunca exige sacrifício da própria luz — contrariando o ensinamento de que devemos amar o próximo *em Deus* e não *em lugar de Deus*.
+**A falsa redenção.** Havia aquelas que acreditavam que desaparecer com o amado era um ato de lealdade. Não percebiam que o paraíso não as separava — elas é que se recusavam a ver: o amor verdadeiro nunca exige sacrifício da própria luz — contrariando o ensinamento de que devemos amar o próximo *em Deus* e não *em lugar de Deus*.
 
 O filósofo olhou para as montanhas de cristal, onde outras almas dançavam livres, e entendeu o aviso silencioso do universo:  
 
@@ -3152,7 +3152,7 @@ A pergunta final ecoou em seus seres fundidos, não como um desespero, mas como 
 
 A eternidade que se estendia à sua frente seria a resposta.
 
-# **O evangelho Metafísico**
+# **Pensamentos Metafísicos**
 
 ### **O resgate de gêneses**
 
