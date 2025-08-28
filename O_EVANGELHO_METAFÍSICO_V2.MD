@@ -3192,6 +3192,8 @@ O ato nupcial da paixão de Jesus atribuiu um sentido, uma sacralidade às novas
 
 Portanto, o gesto de Jesus não foi uma coibição ou restrição do homem a transcendência, mas o sentido de que as capacidades da alma não são brinquedos, tem um grau de seriedade absoluto. Jesus, portanto, nos vestirá com as vestes sagradas de seu próprio corpo, como símbolo de todo seu afeto e preocupação.
 
+No Éden, o homem teve a escolha de continuar a criação segundo os planos e os cuidados de Deus ou iniciar uma criação aos seus cuidados, se antes de Cristo a escolha foi uma renúncia pelos plenos, depois desta história de salvação, todo o erro está selado pela paixão de Jesus. Pois, quem seria capaz de trair tamanho ato de amor? De se desfazer de tais vestes gloriosas com o intuito da iniquidade? No paraíso não a sombra de dúvida da retidão da alma em direção à paz. 
+
 ## **A personalidade do Mestre**
 
 Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*.  
