@@ -3152,7 +3152,7 @@ A pergunta final ecoou em seus seres fundidos, não como um desespero, mas como 
 
 A eternidade que se estendia à sua frente seria a resposta.
 
-# **Pensamentos Metafísicos**
+# **O evangelho Metafísico**
 
 ### **O resgate de gêneses**
 
