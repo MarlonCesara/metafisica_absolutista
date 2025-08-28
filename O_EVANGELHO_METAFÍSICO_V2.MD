@@ -3321,3 +3321,7 @@ O Senhor olhou para os que sofriam por seus exageros e disse:
 Os injustos, irados, começaram a cultuar a marca da besta e a proferir todo tipo de blasfêmia. Pois viram que as suas dominações estavam sendo abaladas com a facilidade de um sopro de Deus, e que o seu império não durou nem uma centelha de tempo perante a eternidade.
 
 E cada um escolheu, a partir dali, o seu desfecho.
+
+### **O tempo está próximo**
+
+Quero reiterar que o tempo está próximo, como tem sido anunciado ao longo de centenas de anos. Se os eventos realmente se iniciarem em breve, espero que esta obra conforte os corações e lhes ofereça um sentido para suportar todas as tribulações. Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da vida. E não fixem os olhos em seus erros, mas no amor de Deus, que supera todas as coisas.
