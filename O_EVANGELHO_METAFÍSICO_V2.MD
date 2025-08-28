@@ -3084,6 +3084,12 @@ E então, no ápice de sua compreensão, o filósofo fez a descoberta mais extra
 
 O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo — esse tempo elástico e dançante — era o espaço da cura — reflectindo a noção de *tempus acceptable* (tempo aceitável) de 2Cor 6,2.
 
+# O encontro das almas no paraíso
+
+De repente, todos os homens de barro despertaram. Num só instante, abriram os olhos. Como era desejo de cada alma encontrar todas as outras, as almas se encontraram no exato momento no paraíso. De um estado temporal, localizaram-se todas em um único instante. O tempo no relativo não passava; então, a impressão que todas as almas tinham era de que o tempo que haviam passado sem os corpos havia sido o mesmo.
+
+O filósofo viu-os despertarem em uma longa cadência. Um por um, em progressão. O sábio quis saber o que ocorrera. Por que o despertar se acelerara tanto? Pensou que o tempo estava se acelerando. E que, na verdade, aquela progressão já havia ocorrido — só não percebera, tamanha era sua imersão nos mistérios. Todos os homens de barro rompiam suas cascas. E o paraíso ganhou ainda mais cores, pois todos os viventes do mundo de terra estavam ali. Aquele lugar tornou-se ainda mais familiar e maravilhoso.
+
 ### **Conclusão Simbólica**  
 Assim como o menino da sua história testemunha as almas despertando de suas cascas opacas, Jesus demonstra que o Reino dos Céus não é um lugar distante, mas uma *nova forma de ver*:  
 > *"O reino de Deus está dentro de vós"* (Lucas 17:21). A plenitude já está aqui — basta que nossos olhos sejam desobstruídos pela graça.
@@ -3295,4 +3301,6 @@ Os potentados, porém, cegos em sua soberba e surdos em sua avareza, escarnecera
 Após os eventos todas as almas que se apresentavam na terra estavam dessa vez num estado relativo, a terra foi destruida. Então imediatamente todos estavam no juizo final. Os que amavam verdadeiramente a vida escolheram o paraíso. Os que dependiam de grandes riquezas, posições de poder e dominações para se exaltarem viram face a face o que se escondia por trás de sua falta de comoção perante a miséria, a violência e pobreza.
 
 E cada um escolheu, a partir dali, seu desfecho. 
+
+
 
