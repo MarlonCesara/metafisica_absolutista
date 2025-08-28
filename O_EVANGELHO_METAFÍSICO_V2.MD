@@ -3296,7 +3296,7 @@ E sua voz, não de furioso impeto, mas com a gravidade solene do juízo iminente
 
 Os potentados, porém, cegos em sua soberba e surdos em sua avareza, escarneceram do aviso celestial. Endureceram seus corações como pedra, confiando na fortaleza de seus muros e na abundância de seus celeiros.
 
-Deus, em sua bondade, prepaparou a humanidade para o evento de forma que não tivessem medo. E, desde então, somente os que praticavam as dominações passaram a ficar temerosos, pois viram que Deus estava ao lado dos mais vulneráveis, ainda que a vitória momentanea fosse das dominações, a vitória definitiva é sempre do bem.
+Deus, em sua bondade, prepaparou os eleitos para o evento de forma que não tivessem medo. E, desde então, somente os que praticavam as dominações passaram a ficar temerosos, pois perceberam que Deus estava ao lado dos mais vulneráveis, ainda que a vitória momentanea fosse das dominações, a vitória definitiva é sempre do bem.
 
 **Então, o juízo, retido até então pela longanimidade divina, irrompeu.** Não como mera força da natureza, mas como o instrumento deliberado do Criador. Conforme anunciado desde os tempos antigos, os fundamentos da Terra tremeram, e as catástrofes previstas no Livro do Apocalipse foram liberadas sobre a criação rebelde. As janelas dos céus se abriram, e as fontes do grande abismo se romperam, lavando a impureza do mundo em um dilúvio de fogo e água. A ordem criada participava da ira do Criador contra as dominações.
 
