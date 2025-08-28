@@ -3306,7 +3306,18 @@ As milícias celestiais, composta dos eleitos, contemplavam o Armagedom, não co
 
 Após os eventos todas as almas que se apresentavam na terra estavam dessa vez num estado relativo, a terra foi destruida. Então imediatamente todos estavam no juizo final. Os que amavam verdadeiramente a vida escolheram o paraíso. Os que dependiam de grandes riquezas, posições de poder e dominações para se exaltarem viram face a face o que se escondia por trás de sua falta de comoção perante a miséria, a violência e pobreza.
 
-E cada um escolheu, a partir dali, seu desfecho. 
+Claro, eis a versão com a correção e o aprimoramento da língua portuguesa:
 
+**Versão Corrigida e Aprimorada:**
 
+Os injustos, que escravizam o povo, suplicaram quando viram os eventos catastróficos, as estrelas caindo e os grandes acontecimentos celestes:
 
+— Senhor, tende piedade de nós, que somos indefesos, pois ainda não sabemos viver e amar. Não somos nem a favor de nós mesmos.
+
+O Senhor olhou para os que sofriam por seus exageros e disse:
+
+— Vocês pedem piedade, no entanto, não têm essa mesma piedade por aqueles que afligem com fardos pesados, para que estes mantenham os seus usos e costumes e seus luxos. Portanto, agora estes [que sofriam] herdarão o reino dos céus. Ainda há tempo, basta que se arrependam.
+
+Os injustos, irados, começaram a cultuar a marca da besta e a proferir todo tipo de blasfêmia. Pois viram que as suas dominações estavam sendo abaladas com a facilidade de um sopro de Deus, e que o seu império não durou nem uma centelha de tempo perante a eternidade.
+
+E cada um escolheu, a partir dali, o seu desfecho.
