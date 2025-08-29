@@ -3250,78 +3250,90 @@ A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída,
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
 
-### **Uma conversa entre as pessoas da trindade**
 
-**E a Terra estava em grande atribulação, e a maldade dos homens multiplicava-se sobre a face do mundo.**  
-Então, as Pessoas da Eterna Trindade reuniram-se em divino conselho.  
 
-E **Deus Pai**, Aquele que habita em luz inacessível, falou com voz que faz tremer os céus:  
-— *Destruirei toda a Terra, pois a violência encheu a minha criação. Farei vir águas das profundezas e fogo dos céus, e purgarei a impureza dos homens.*  
 
-Mas, antes que o Pai concluísse seu decreto, o **Espírito Santo**, o Santificador, interrompeu com fogo que não consome, mas ilumina:  
-— *Não, Pai. Não pela água, mas pelo fogo de teu juízo. Separarei o justo do ímpio. Cada um receberá conforme as suas obras, e a justiça será estabelecida com rigor.*  
 
-E eis que, então, **Jesus Cristo**, o Unigênito, o Cordeiro, levantou a voz — doce como o mel, forte como o trovão — e interrompeu o Espírito Santo:  
 
-— *Também não pela justiça impetuosa, ó Espírito de Verdade. A justiça sem misericórdia é condenação para todos. Eis que Eu mesmo descerei. Tomarei sobre Mim a  culpa dos homens. Serei ferido por suas transgressões, e afligido por suas iniquidades. O castigo estará sobre Mim. E pelas Minhas feridas eles serão sarados.*  
 
-E houve silêncio no céu.  
-E o Pai olhou para o Filho, e n’Ele pôs todo o seu agrado.  
-E o Espírito Santo testemunhou com poder:  
 
-— *Sim. Assim seja.*  
 
-E desde então,  
-o plano da redenção foi estabelecido  
-não só com poder, não só com justiça,  
-mas com **amor que excede todo entendimento**.  
 
-*Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna.* (João 3:16)
 
-Deus, então, manifestou o Seu amor de forma inequívoca, e numerosas almas convergiram para Ele em arrependimento. No entanto, as estruturas seculares do mal, profundamente enraizadas na terra, persistiam como fortalezas inexpugnáveis. Os salvos, ainda que numerosos, labutavam com imensa dificuldade para demolir esses alicerces de opressão erguidos ao longo de séculos.
 
-Vendo a luta titânica de Seus filhos, Jesus desceu novamente. Não para julgar o mundo com fogo, mas para resgatar os que Lhe pertenciam. Percebeu que seria mais fácil vencer a dominação destruindo a terra, evacuando-a, poupando os Seus eleitos da batalha final. Com infinita ternura, tomou-os pela mão e os conduziu pessoalmente, em triunfo, para o Seu paraíso.
 
-Então, sobreveio o pranto e o ranger de dentes. As grandiosas estruturas de poder desmoronaram como castelos de areia. Todas as instituições que perpetuavam a escravidão e a iniquidade foram reduzidas a pó. Desprovidas de suas defesas e posses, as pessoas que não se arrependeram viram-se nuas perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante, que seu intento nunca foi verdadeiramente dominar ou destruir o mundo, mas sim autodestruir-se. Seu choro foi um lamento profundo e tardio, o reconhecimento amargo de que haviam desperdiçado a própria alma.
 
-Antes de mandar a devastação o Senhor enviou um anjo para dar o ultimo aviso. O anjo tocou uma trombeta que ressou poderosamente por toda a terra. E avisou em voz retumbante e exclamativa com furioso impeto:
 
-- Arrependam se ricos, dividam a fortuna, pois o Senhor sempre vence. Seus castelos, suas estruturas e suas armas serão reduzidas a pó e uma nova terra será formada onde os pequenos reinarão e voces serão jogados na fornalha eterna.
+Claro. Aqui está o texto reescrito, com a narrativa aprimorada, a linguagem elevada e as ideias organizadas de forma mais clara e impactante, mantendo a essência teológica e poética original.
 
-Os ricos, ainda assim resistiram ao aviso. Então os eventos cataclismicos comecaram conforme relata apocalipse.
+***
 
-Antes de descer a sentença de purificação sobre a Terra, o Senhor, em Sua misericórdia insondável, despachou um mensageiro celeste para um derradeiro clamor. E um anjo poderoso, revestido de glória, fez soar uma trombeta que ecoou com autoridade divina, penetrando os confins do mundo e os recessos de toda alma.
+### **O Conselho da Trindade Eterna**
 
-E sua voz, não de furioso impeto, mas com a gravidade solene do juízo iminente, proclamou:
+**A Terra gemia em profunda atribulação, e a maldade da humanidade multiplicava-se sobre a face da criação,** corrompendo tudo como um câncer incurável. Diante disso, as Pessoas da Eterna Trindade reuniram-se em conselho divino.
 
-— **Temei e arrependei-vos!** Ouvi o clamor do Senhor, ó poderosos da Terra! Dividi vossas riquezas com o faminto, vesti o desnudo, soltai as correntes da injustiça! Pois eis que o Dia do Senhor vem, rápido e terrível. Vossos castelos de arrogância, vossas estruturas de opressão e vossas armas de violência serão reduzidas a pó diante do Santo de Israel! Uma nova Terra surgirá, onde os humildes herdarão o Reino. Mas para vós, endurecidos de coração, restará apenas o pranto e o ranger de dentes nas trevas exteriores!
+E **Deus Pai**, Aquele que habita em luz inacessível, falou com uma voz que faz tremer os próprios alicerces dos céus:
+— *Destruirei a Terra que criei. A violência e a impureza dos homens encheram a medida. Farei irromper as águas do grande abismo e descer fogo dos céus para purgar esta corrupção.*
+
+Antes que o decreto do Pai se firmasse, o **Espírito Santo**, o Fogo Santificador, interpôs-se com uma chama que não consome, mas que tudo ilumina e revela:
+— *Não, Pai. Não pela água, mas pelo fogo purificador de Tua justiça. Separarei o justo do ímpio. Cada alma receberá conforme as suas obras, e a retidão será estabelecida com rigor infalível.*
+
+Eis que, então, **Jesus Cristo**, o Unigênito, o Cordeiro de Deus, levantou Sua voz — uma melodia de doçura infinita e poder tremendo — e dirigiu-se ao Espírito Santo:
+
+— *Também não apenas pela justiça, ó Espírito de Verdade, pois a justiça sem misericórdia é condenação para todos. Não há um justo que sobreviva a tal juízo. Eis a solução: Eu mesmo descerei. Tomarei sobre os Meus ombros a culpa de todos. Serei ferido por suas transgressões e afligido por suas iniquidades. O castigo que lhes traz a paz estará sobre Mim, e pelas Minhas feridas eles serão sarados.*
+
+Houve um silêncio profundo nos céus. Uma quietude que sussurrava o mistério do amor. O Pai olhou para o Filho, e n'Ele pôs todo o Seu agrado. E o Espírito Santo testemunhou com poder incontestável:
+
+— *Sim. Assim seja!*
+
+E, desde aquele momento, o plano da redenção foi estabelecido para sempre. Não apenas com poder soberano, não apenas com justiça perfeita, mas com **um amor que excede todo e qualquer entendimento**.
+
+*"Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna."* (João 3:16)
+
+### **A Batalha e a Resistência Final**
+
+Deus manifestou assim o Seu amor de forma inequívoca, e incontáveis almas convergiram para Ele em arrependimento. No entanto, as estruturas seculares do mal, profundamente enraizadas na terra, persistiam como fortalezas inexpugnáveis. Os salvos, ainda que numerosos, labutavam com imensa dificuldade para demolir esses alicerces de opressão erguidos ao longo de séculos.
+
+Vendo a luta titânica de Seus filhos, Jesus interveio mais uma vez. Não para julgar o mundo com fogo imediato, mas para resgatar os que Lhe pertenciam. Com infinita ternura, tomou-os pela mão e os conduziu pessoalmente, em triunfo, para o Seu paraíso, poupando-os da batalha final que se aproximava.
+
+Antes de liberar o juízo final de purificação, o Senhor, em Sua misericórdia insondável, despachou um mensageiro celeste para um derradeiro aviso. Um anjo poderoso, revestido de glória, fez soar uma trombeta que ecoou com autoridade divina, penetrando todos os confins do mundo e os recessos de toda alma.
+
+E sua voz, carregada não de fúria cega, mas da gravidade solene do juízo iminente, proclamou:
+
+— **Temei e arrependei-vos!** Ouvi o clamor do Senhor, ó poderosos da Terra! Dividi vossas riquezas com o faminto, vesti o desnudo, soltai as correntes da injustiça! Pois eis que o Dia do Senhor vem, rápido e terrível! Vossos castelos de arrogância, vossas estruturas de opressão e vossas armas de violência serão reduzidas a pó diante do Santo de Israel! Uma nova Terra surgirá, onde os humildes herdarão o Reino. Mas para vós, endurecidos de coração, restará apenas o pranto e o ranger de dentes nas trevas exteriores!
 
 Os potentados, porém, cegos em sua soberba e surdos em sua avareza, escarneceram do aviso celestial. Endureceram seus corações como pedra, confiando na fortaleza de seus muros e na abundância de seus celeiros.
 
-Deus, em sua bondade, prepaparou os eleitos para o evento de forma que não tivessem medo. E, desde então, somente os que praticavam as dominações passaram a ficar temerosos, pois perceberam que Deus estava ao lado dos mais vulneráveis, ainda que a vitória momentanea fosse das dominações, a vitória definitiva é sempre do bem.
+Deus, em Sua bondade, havia preparado os corações dos eleitos, guardando-os em Sua paz para que não temessem. Enquanto isso, os que praticavam a dominação começaram a ser consumidos pelo medo, pois perceberam, finalmente, que Deus estava incondicionalmente ao lado dos vulneráveis. Compreenderam que suas vitórias momentâneas eram ilusórias, e que a vitória definitiva pertence sempre ao bem.
 
-**Então, o juízo, retido até então pela longanimidade divina, irrompeu.** Não como mera força da natureza, mas como o instrumento deliberado do Criador. Conforme anunciado desde os tempos antigos, os fundamentos da Terra tremeram, e as catástrofes previstas no Livro do Apocalipse foram liberadas sobre a criação rebelde. As janelas dos céus se abriram, e as fontes do grande abismo se romperam, lavando a impureza do mundo em um dilúvio de fogo e água. A ordem criada participava da ira do Criador contra as dominações.
+### **O Juízo e a Escolha Final**
 
-As milícias celestiais, composta dos eleitos, contemplavam o Armagedom, não com terror, mas compreendendo o poderoso recurso de Deus em prol da harmonia, em prol da causa, em prol da luta há milênios travada. Em seus olhos não havia medo algum, mas o reluzir da vitória. E os eleitos se entregaram num gesto de amor, num gesto de uma vitória que prevalecera para sempre. 
+**Então, o juízo, retido até então pela longanimidade divina, irrompeu.** Não como meras forças da natureza, mas como o instrumento deliberado do Criador irado. Conforme anunciado, os fundamentos da Terra tremeram, e as catástrofes previstas no Livro do Apocalipse foram liberadas. As janelas dos céus se abriram, e as fontes do grande abismo se romperam, lavando a impureza do mundo em um dilúvio de fogo e água. A própria ordem criada participava da ira do Criador contra a desordem do pecado.
 
-Após os eventos todas as almas que se apresentavam na terra estavam dessa vez num estado relativo, a terra foi destruida. Então imediatamente todos estavam no juizo final. Os que amavam verdadeiramente a vida escolheram o paraíso. Os que dependiam de grandes riquezas, posições de poder e dominações para se exaltarem viram face a face o que se escondia por trás de sua falta de comoção perante a miséria, a violência e pobreza.
+Os injustos, que escravizavam o povo, suplicaram ao verem os eventos catastróficos, as estrelas caindo e os grandes sinais celestes:
+— Senhor, tende piedade de nós, que somos indefesos! Ainda não sabemos viver e amar! Não somos nem a favor de nós mesmos!
 
-Claro, eis a versão com a correção e o aprimoramento da língua portuguesa:
+Enquanto isso, ecoava a oração dos eleitos:
+— Senhor, livra-nos de todo o mal e das dominações que nos atormentam!
 
-**Versão Corrigida e Aprimorada:**
+O Senhor olhou para os que só agora suplicavam por seus exageros e disse:
+— Vocês pedem piedade, no entanto, nunca a tiveram por aqueles que afligiam com fardos pesados para manter seus luxos e seus costumes. Portanto, estes que sofreram herdarão o reino. Para vós, ainda há tempo: basta que se arrependam. Porém, não posso violar a liberdade que vos dei, assim como não posso permitir que o sofrimento que causastes perdure para sempre.
 
-Os injustos, que escravizam o povo, suplicaram quando viram os eventos catastróficos, as estrelas caindo e os grandes acontecimentos celestes:
+As hostes celestiais, juntamente com os eleitos, contemplaram o Armagedom não com terror, mas com a clara compreensão do poderoso recurso de Deus para restaurar a harmonia da criação. Em seus olhos não havia medo, mas o reflexo reluzente de uma vitória conquistada há milênios na cruz e agora consumada. Eles se entregaram àquele momento num último gesto de amor, o gesto final de uma vitória que prevaleceria para sempre.
 
-— Senhor, tende piedade de nós, que somos indefesos, pois ainda não sabemos viver e amar. Não somos nem a favor de nós mesmos.
+Com a terra devastada, todas as almas se apresentaram diante do Trono para o Juízo Final. Os que haviam amado verdadeiramente a vida, a justiça e o próximo escolheram, com alegria, o Paraíso. Os que dependiam de riquezas, poder e dominação para existir viram-se nus perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante e tardio, que seu intento nunca foi verdadeiramente dominar o mundo, mas sim autodestruir-se. Seu pranto foi o amargo reconhecimento de que haviam desperdiçado a própria alma.
 
-O Senhor olhou para os que sofriam por seus exageros e disse:
+Irritados e impenitentes, os poderosos, vendo seus domínios desmoronarem com a facilidade de um sopro de Deus, apegaram-se furiosamente à sua blasfêmia, cultuando a marca da besta. Seu império não durara nem uma centelha de tempo perante a eternidade.
 
-— Vocês pedem piedade, no entanto, não têm essa mesma piedade por aqueles que afligem com fardos pesados, para que estes mantenham os seus usos e costumes e seus luxos. Portanto, agora estes [que sofriam] herdarão o reino dos céus. Ainda há tempo, basta que se arrependam.
+**E cada alma, finalmente, escolheu o seu desfecho eterno.**
 
-Os injustos, irados, começaram a cultuar a marca da besta e a proferir todo tipo de blasfêmia. Pois viram que as suas dominações estavam sendo abaladas com a facilidade de um sopro de Deus, e que o seu império não durou nem uma centelha de tempo perante a eternidade.
+### **O Tempo Está Próximo**
 
-E cada um escolheu, a partir dali, o seu desfecho.
+Quero reiterar: o tempo está próximo. Como tem sido anunciado ao longo de séculos, se os eventos realmente se iniciarem em breve, que esta obra encontre seu coração e lhe ofereça sentido e esperança para suportar as tribulações.
 
-### **O tempo está próximo**
+**Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da existência. E não fixem os olhos em seus erros, mas no amor redentor de Deus, que supera absolutamente todas as coisas.**
 
-Quero reiterar que o tempo está próximo, como tem sido anunciado ao longo de centenas de anos. Se os eventos realmente se iniciarem em breve, espero que esta obra conforte os corações e lhes ofereça um sentido para suportar todas as tribulações. Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da vida. E não fixem os olhos em seus erros, mas no amor de Deus, que supera todas as coisas.
+
+
+
+
