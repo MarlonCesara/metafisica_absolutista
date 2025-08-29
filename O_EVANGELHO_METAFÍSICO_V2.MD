@@ -3141,6 +3141,8 @@ Naquele momento, eles compreenderam as Escrituras. O amor que geraram fomentou a
 
 Nos olhos de sua amada o filósofo viu a morte e a vida. Viu um fogo de amor, no qual poderia se perder para sempre. Uma tentação sublime, a mais mordaz das possibilidades. Até mesmo dos infernos é possível sair, porém, aquela união era indissolúvel. Os olhos da sua amada eram como labaredas incendiadas, pulsando um amor profundo e verdadeiro, e seus olhos completamente hipnotizados nos dela. Sua amada, seu céu e sua perdição. Sublime como o céu e quente como os infernos que queimam em ardor continuo. 
 
+Estavam num êxtase transcendente, literalmente saindo do próprio corpo em direção a uma nova vida. Desintegrando num fogo que não corrói num êxtase inexpressável e inarrável. 
+
 ### **As consequencias**
 
 Esse ato trouxe consigo consequências fundamentais: agora eles precisavam trabalhar trabalhar e suportar dores de parto. Essa linguagem figurada significa que, a partir de então, deveriam zelar pela moral e pelos ensinamentos do novo ser, além de enfrentar, se necessário, o peso da liberdade desse novo ser — representada pela sua decisão de partir. Ou seja, agora teriam de suportar as dores da despedida e assumir um compromisso que antes não existia.
