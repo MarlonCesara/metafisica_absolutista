@@ -3302,11 +3302,11 @@ Enquanto isso, ecoava a oração dos eleitos:
 O Senhor olhou para os que só agora suplicavam por seus exageros e disse:
 — Vocês pedem piedade, no entanto, nunca a tiveram por aqueles que afligiam com fardos pesados para manter seus luxos e seus costumes. Portanto, estes que sofreram herdarão o reino. Para vós, ainda há tempo: basta que se arrependam. Porém, não posso violar a liberdade que vos dei, assim como não posso permitir que o sofrimento que causastes perdure para sempre.
 
-As hostes celestiais, juntamente com os eleitos, contemplaram o Armagedom não com terror, mas com a clara compreensão do poderoso recurso de Deus para restaurar a harmonia da criação. Em seus olhos não havia medo, mas o reflexo reluzente de uma vitória conquistada há milênios na cruz e agora consumada. Eles se entregaram àquele momento num último gesto de amor, o gesto final de uma vitória que prevaleceria para sempre.
-
-Com a terra devastada, todas as almas se apresentaram diante do Trono para o Juízo Final. Os que haviam amado verdadeiramente a vida, a justiça e o próximo escolheram, com alegria, o Paraíso. Os que dependiam de riquezas, poder e dominação para existir viram-se nus perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante e tardio, que seu intento nunca foi verdadeiramente dominar o mundo, mas sim autodestruir-se. Seu pranto foi o amargo reconhecimento de que haviam desperdiçado a própria alma.
-
 Irritados e impenitentes, os poderosos, vendo seus domínios desmoronarem com a facilidade de um sopro de Deus, apegaram-se furiosamente à sua blasfêmia, cultuando a marca da besta. Seu império não durara nem uma centelha de tempo perante a eternidade.
+
+As hostes celestiais, juntamente com os eleitos, contemplaram o fim dos tempos não com terror, mas com a clara compreensão e confiança. Em seus olhos não havia medo, mas o reflexo reluzente de uma vitória conquistada há milênios na cruz e agora consumada. Eles se entregaram àquele momento num último gesto de amor, o gesto final de uma vitória que prevaleceria para sempre.
+
+Com a terra devastada, todas as almas se apresentaram diante do Trono para o Juízo Final. Os que haviam amado verdadeiramente a vida, a justiça e o próximo escolheram, com alegria, o paraíso. Os que dependiam de riquezas, poder e dominação para existir viram-se nus perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante e tardio, que seu intento nunca foi verdadeiramente dominar o mundo, mas sim autodestruir-se. Seu pranto foi o amargo reconhecimento de que haviam desperdiçado a própria alma.
 
 **E cada alma, finalmente, escolheu o seu desfecho eterno.**
 
