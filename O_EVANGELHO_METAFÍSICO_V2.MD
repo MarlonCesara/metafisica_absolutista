@@ -3316,7 +3316,15 @@ Quero reiterar: o tempo está próximo. Como tem sido anunciado ao longo de séc
 
 **Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da existência. E não fixem os olhos em seus erros, mas no amor redentor de Deus, que supera absolutamente todas as coisas.**
 
+### **Deus e a liberdade**
 
+Porque Deus permitiria o apocalipse? A resposta é muito simples, Deus não pode bloquear o potencial do homem, da alma. O retrocesso da alma é visto por Deus como o fruto da liberdade do homem, ou mais precisamente, como a ausencia de frutos segundo o contexto biblico. Portanto, prolongar o sofrimento dos bons em prol de bloquear a liberdade não justifica um Deus de amor, mas um Deus proibitivo, que restringe as tendencias e a liberdade humana. Por isto, é lógicamente aceitável que os sofrimento dos bons como medida de combate ao mal da alma um dia teria seu termino.
+
+E este termino se configura como a destruição da humanidade em sem contexto de barro, no qual foi edificado estruturas cujo desmoronamento envolve uma luta agressiva, não racional mas impositiva. Os ricos, ao partirem para uma luta irracional, onde não pensam em si mesmos e nem mesmo de forma empatica, padecem do mal que fazem padecer, padecem da irracinalidade; destroem o próprio barro que os edificaria e os conservaria. E desta ação destruidora Deus pode adiar mas não impedir.
+
+Portanto, a realidade do retrocesso sofre intervenção, adiação, mas não pode sofrer impedimento conforme o amor imutável de Deus, que criou o homem livre em suas ações e reponsável pelo seu destino. 
+
+A humanidade é convidada a levantar a sua cruz e morrer como cristo, a ir alem do tempo, a participar do mistério transcendente em direção ao inimaginável, ao inarravel, ao indizivel, ao paraíso.
 
 
 
