@@ -3137,8 +3137,9 @@ E então, aconteceu. Suas essências fundiram-se numa única existência. Não f
 
 Aquele novo ser, puro e vulnerável, era a encarnação de sua escolha e de sua consequência. E no mesmo instante em que queimavam no ardor de sua união, compreenderam o preço infinito de sua ação. Estavam unidos eternamente, caso decidissem sair dessa união sua prole seria corrompida e eles mesmos se corromperiam. Um erro eterno é um sofrimento eterno, ainda que não existissem as chamas do inferno, existiria uma dor insolúvel e irremediável. 
 
-Naquele momento, eles compreenderam as Escrituras. O amor que geraram fomentou algo igual ao amor de Deus – um ser único e livre. Então, conheceriam o bem e o mal. E tinham o dever de zelar por essa vida, assim como Deus zelara, para que o peso esmagador da culpa não fosse o resultado de seu descuido. Foi assim que perceberam que, no fundo, desejaram ser como deuses. Atingiram um potencial divino e, a partir de então, teriam de ser perfeitos como Ele.
+Naquele momento, eles compreenderam as Escrituras. O amor que geraram fomentou algo igual ao amor de Deus – um ser único e livre. Então, conheceriam o bem e o mal. E tinham o dever de zelar por essa vida, assim como Deus zelara, para que o peso esmagador da culpa não fosse o resultado de seu descuido. Foi assim que perceberam que, no fundo, desejaram ser como deuses. Atingiram um potencial divino e, a partir de então, teriam de ser perfeitos como Ele. Qualquer erro no amor deste amor, dali em diante teria efeitos somente apagados pela morte eterna. Eram como deuses, o amor, uma prisão eterna e uma liberdade de escolha. Tornaram-se completos, relativos, tal como os anjos. Eram um só. Transcendiam sua unidade em uma forma relativa. 
 
+Nos olhos de sua amada o filósofo viu a morte e a vida. Viu um fogo de amor, no qual poderia se perder para sempre. Uma tentação sublime, a mais mordaz das possibilidades. Até mesmo dos infernos é possível sair, porém, aquela união era indissolúvel. Os olhos da sua amada eram como labaredas incendiadas, pulsando um amor profundo e verdadeiro, e seus olhos completamente hipnotizados nos dela. 
 
 ### **As consequencias**
 
