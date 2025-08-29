@@ -3310,13 +3310,7 @@ Com a terra devastada, todas as almas se apresentaram diante do Trono para o Ju�
 
 **E cada alma, finalmente, escolheu o seu desfecho eterno.**
 
-### **O Tempo Está Próximo**
-
-Quero reiterar: o tempo está próximo. Como tem sido anunciado ao longo de séculos, se os eventos realmente se iniciarem em breve, que esta obra encontre seu coração e lhe ofereça sentido e esperança para suportar as tribulações.
-
-**Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da existência. E não fixem os olhos em seus erros, mas no amor redentor de Deus, que supera absolutamente todas as coisas.**
-
-### **Porque Deus Permitiria o Apocalipse? Uma Resposta Baseada na Liberdade Humana**
+### **Porque Deus Permitiria o Apocalipse?**
 
 A pergunta "Por que Deus permitiria o Apocalipse?" encontra uma resposta profunda e, em sua essência, simples: **Deus respeita incondicionalmente o potencial e a liberdade da alma humana.**
 
@@ -3332,3 +3326,8 @@ Diante dessa realidade, a humanidade é convidada a uma jornada transcendente: a
 
 Desta forma, o Apocalipse não é um castigo imposto, mas a **conclusão lógica de um caminho de auto-destruição escolhido,** e o ato final de misericórdia de Deus para liberar a criação e povo oprimido de um ciclo de sofrimento.
 
+### **O Tempo Está Próximo**
+
+Quero reiterar: o tempo está próximo. Como tem sido anunciado ao longo de séculos, se os eventos realmente se iniciarem em breve, que esta obra encontre seu coração e lhe ofereça sentido e esperança para suportar as tribulações.
+
+**Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da existência. E não fixem os olhos em seus erros, mas no amor redentor de Deus, que supera absolutamente todas as coisas.**
