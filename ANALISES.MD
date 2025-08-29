@@ -419,3 +419,83 @@ A humanidade é convidada a levantar a sua cruz e morrer como cristo, a ir alem 
 
 
 
+### **O Conselho da Trindade Eterna**
+
+**A Terra gemia em profunda atribulação, e a maldade da humanidade multiplicava-se sobre a face da criação,** corrompendo tudo como um câncer incurável. Diante disso, as Pessoas da Eterna Trindade reuniram-se em conselho divino.
+
+E **Deus Pai**, Aquele que habita em luz inacessível, falou com uma voz que faz tremer os próprios alicerces dos céus:
+— *Destruirei a Terra que criei. A violência e a impureza dos homens encheram a medida. Farei irromper as águas do grande abismo e descer fogo dos céus para purgar esta corrupção.*
+
+Antes que o decreto do Pai se firmasse, o **Espírito Santo**, o Fogo Santificador, interpôs-se com uma chama que não consome, mas que tudo ilumina e revela:
+— *Não, Pai. Não pela água, mas pelo fogo purificador de Tua justiça. Separarei o justo do ímpio. Cada alma receberá conforme as suas obras, e a retidão será estabelecida com rigor infalível.*
+
+Eis que, então, **Jesus Cristo**, o Unigênito, o Cordeiro de Deus, levantou Sua voz — uma melodia de doçura infinita e poder tremendo — e dirigiu-se ao Espírito Santo:
+
+— *Também não apenas pela justiça, ó Espírito de Verdade, pois a justiça sem misericórdia é condenação para todos. Não há um justo que sobreviva a tal juízo. Eis a solução: Eu mesmo descerei. Tomarei sobre os Meus ombros a culpa de todos. Serei ferido por suas transgressões e afligido por suas iniquidades. O castigo que lhes traz a paz estará sobre Mim, e pelas Minhas feridas eles serão sarados.*
+
+Houve um silêncio profundo nos céus. Uma quietude que sussurrava o mistério do amor. O Pai olhou para o Filho, e n'Ele pôs todo o Seu agrado. E o Espírito Santo testemunhou com poder incontestável:
+
+— *Sim. Assim seja!*
+
+E, desde aquele momento, o plano da redenção foi estabelecido para sempre. Não apenas com poder soberano, não apenas com justiça perfeita, mas com **um amor que excede todo e qualquer entendimento**.
+
+*"Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna."* (João 3:16)
+
+### **A Batalha e a Resistência Final**
+
+Deus manifestou assim o Seu amor de forma inequívoca, e incontáveis almas convergiram para Ele em arrependimento. No entanto, as estruturas seculares do mal, profundamente enraizadas na terra, persistiam como fortalezas inexpugnáveis. Os salvos, ainda que numerosos, labutavam com imensa dificuldade para demolir esses alicerces de opressão erguidos ao longo de séculos.
+
+Vendo a luta titânica de Seus filhos, Jesus interveio mais uma vez. Não para julgar o mundo com fogo imediato, mas para resgatar os que Lhe pertenciam. Com infinita ternura, tomou-os pela mão e os conduziu pessoalmente, em triunfo, para o Seu paraíso, poupando-os da batalha final que se aproximava.
+
+Antes de liberar o juízo final de purificação, o Senhor, em Sua misericórdia insondável, despachou um mensageiro celeste para um derradeiro aviso. Um anjo poderoso, revestido de glória, fez soar uma trombeta que ecoou com autoridade divina, penetrando todos os confins do mundo e os recessos de toda alma.
+
+E sua voz, carregada não de fúria cega, mas da gravidade solene do juízo iminente, proclamou:
+
+— **Temei e arrependei-vos!** Ouvi o clamor do Senhor, ó poderosos da Terra! Dividi vossas riquezas com o faminto, vesti o desnudo, soltai as correntes da injustiça! Pois eis que o Dia do Senhor vem, rápido e terrível! Vossos castelos de arrogância, vossas estruturas de opressão e vossas armas de violência serão reduzidas a pó diante do Santo de Israel! Uma nova Terra surgirá, onde os humildes herdarão o Reino. Mas para vós, endurecidos de coração, restará apenas o pranto e o ranger de dentes nas trevas exteriores!
+
+Os potentados, porém, cegos em sua soberba e surdos em sua avareza, escarneceram do aviso celestial. Endureceram seus corações como pedra, confiando na fortaleza de seus muros e na abundância de seus celeiros.
+
+Deus, em Sua bondade, havia preparado os corações dos eleitos, guardando-os em Sua paz para que não temessem. Enquanto isso, os que praticavam a dominação começaram a ser consumidos pelo medo, pois perceberam, finalmente, que Deus estava incondicionalmente ao lado dos vulneráveis. Compreenderam que suas vitórias momentâneas eram ilusórias, e que a vitória definitiva pertence sempre ao bem.
+
+### **O Juízo e a Escolha Final**
+
+**Então, o juízo, retido até então pela longanimidade divina, irrompeu.** Não como meras forças da natureza, mas como o instrumento deliberado do Criador irado. Conforme anunciado, os fundamentos da Terra tremeram, e as catástrofes previstas no Livro do Apocalipse foram liberadas. As janelas dos céus se abriram, e as fontes do grande abismo se romperam, lavando a impureza do mundo em um dilúvio de fogo e água. A própria ordem criada participava da ira do Criador contra a desordem do pecado.
+
+Os injustos, que escravizavam o povo, suplicaram ao verem os eventos catastróficos, as estrelas caindo e os grandes sinais celestes:
+— Senhor, tende piedade de nós, que somos indefesos! Ainda não sabemos viver e amar! Não somos nem a favor de nós mesmos!
+
+Enquanto isso, ecoava a oração dos eleitos:
+— Senhor, livra-nos de todo o mal e das dominações que nos atormentam!
+
+O Senhor olhou para os que só agora suplicavam por seus exageros e disse:
+— Vocês pedem piedade, no entanto, nunca a tiveram por aqueles que afligiam com fardos pesados para manter seus luxos e seus costumes. Portanto, estes que sofreram herdarão o reino. Para vós, ainda há tempo: basta que se arrependam. Porém, não posso violar a liberdade que vos dei, assim como não posso permitir que o sofrimento que causastes perdure para sempre.
+
+Irritados e impenitentes, os poderosos, vendo seus domínios desmoronarem com a facilidade de um sopro de Deus, apegaram-se furiosamente à sua blasfêmia, cultuando a marca da besta. Seu império não durara nem uma centelha de tempo perante a eternidade.
+
+As hostes celestiais, juntamente com os eleitos, contemplaram o fim dos tempos não com terror, mas com a clara compreensão e confiança. Em seus olhos não havia medo, mas o reflexo reluzente de uma vitória conquistada há milênios na cruz e agora consumada. Eles se entregaram àquele momento num último gesto de amor, o gesto final de uma vitória que prevaleceria para sempre.
+
+Com a terra devastada, todas as almas se apresentaram diante do Trono para o Juízo Final. Os que haviam amado verdadeiramente a vida, a justiça e o próximo escolheram, com alegria, o paraíso. Os que dependiam de riquezas, poder e dominação para existir viram-se nus perante a própria consciência. Choraram como crianças, não pela perda do mundo, mas pelo horror de se descobrirem: perceberam, num insight agonizante e tardio, que seu intento nunca foi verdadeiramente dominar o mundo, mas sim autodestruir-se. Seu pranto foi o amargo reconhecimento de que haviam desperdiçado a própria alma.
+
+**E cada alma, finalmente, escolheu o seu desfecho eterno.**
+
+### **Porque Deus Permitiria o Apocalipse?**
+
+A pergunta "Por que Deus permitiria o Apocalipse?" encontra uma resposta profunda e, em sua essência, simples: **Deus respeita incondicionalmente o potencial e a liberdade da alma humana.**
+
+Do ponto de vista divino, o retrocesso espiritual da humanidade é entendido como o fruto inevitável da liberdade concedida ao homem — ou, mais precisamente, como a **ausência de frutos** em um coração que escolheu rejeitar o bem. Prolongar indefinidamente o sofrimento dos justos para restringir artificialmente essa liberdade seria um ato de coerção, não de amor. Um Deus que meramente proíbe e restringe tendências humanas não é um Deus de amor, mas um controlador onipotente que anula a própria imagem que implantou em sua criação.
+
+Portanto, é logicamente coerente e moralmente justificável que o sofrimento dos bons, como custo temporário para combater o mal, tenha um término. Este término se configura não como um desejo vingativo de Deus, mas como o **desfecho necessário de um caminho escolhido coletivamente pela humanidade.**
+
+A Terra é o palco dessa escolha, o "contexto de barro" onde edifícios de arrogância, opressão e injustiça são construídos. Seu desmoronamento final envolve inevitavelmente uma luta agressiva e irracional, pois aqueles que se apegam ao poder — os ricos e poderosos de coração endurecido — partem para uma batalha autodestrutiva. Nessa luta, eles não agem com empatia ou razão, mas movidos por uma cegueira que os faz **padecer do mesmo mal que infligiram aos outros.** Eles tornam-se os arquitetos de sua própria ruína, destruindo o próprio "barro" que lhes como meio de crescimento espiritual.
+
+Deus, em Sua misericórdia, intervém e adia este desfecho oferecendo numerosas oportunidades para arrependimento e redenção. No entanto, **Ele não pode impedi-lo sem violar o princípio fundamental do amor: a liberdade.** O amor divino é imutável e, portanto, respeita a autonomia humana até suas últimas consequências, tornando cada pessoa responsável por seu próprio destino.
+
+Diante dessa realidade, a humanidade é convidada a uma jornada transcendente: a **levantar a sua cruz,** assim como Cristo o fez. É um chamado para ir além do tempo e da matéria, participando do mistério divino que conduz ao inimaginável, ao inefável, ao indizível — à plenitude do Paraíso, onde a liberdade finalmente se encontra com a perfeita harmonia.
+
+Desta forma, o Apocalipse não é um castigo imposto, mas a **conclusão lógica de um caminho de auto-destruição escolhido,** e o ato final de misericórdia de Deus para liberar a criação e povo oprimido de um ciclo de sofrimento.
+
+### **O Tempo Está Próximo**
+
+Quero reiterar: o tempo está próximo. Como tem sido anunciado ao longo de séculos, se os eventos realmente se iniciarem em breve, que esta obra encontre seu coração e lhe ofereça sentido e esperança para suportar as tribulações.
+
+**Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da existência. E não fixem os olhos em seus erros, mas no amor redentor de Deus, que supera absolutamente todas as coisas.**
