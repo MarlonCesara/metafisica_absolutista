@@ -3236,20 +3236,6 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 **Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
 
-### **A Liberdade e Seus Riscos na Narrativa Bíblica**
-
-A tradição bíblica apresenta os anjos como presságios de *sous* — possibilidades de existência ainda não plenamente vivificadas pelo Espírito em sua manifestação relativa. Nesse contexto cosmológico, as Escrituras adotam uma perspectiva profundamente realista, senão pessimista, sobre o exercício da liberdade criatural.  
-
-Lúcifer, o portador da luz, subverteu sua natureza angélica; um terço das hostes celestes voltou-se contra o Bem que lhes dava existência. No Éden, o primeiro homem e a primeira mulher fizeram mau uso de sua autonomia, escolhendo não a vida em plenitude, mas uma ruptura relacional que levou à morte espiritual e corporal. Seu intento — tornar-se como deuses, gerando uma prole a partir de um *encontro disruptivo*, marcado pela autorreferência e não pela obediência amorosa — resultou em corrupção.  
-
-Este pessimismo fundador não se resolve numa restauração progressiva e tranquila, mas culmina na previsão de uma catástrofe final: a destruição do fim dos tempos. A narrativa não supõe uma longa vida idílica na terra, e sim um crescendo de corrupção que exigirá um juízo terminal de fogo, no qual os céus e a terra atuais serão dissolvidos para dar lugar a uma nova criação.
-
-Assim, a história da salvação apresentada nas Escrituras não é, em primeiro lugar, a elevação compulsória do homem a um patamar obrigatório de perfeição, mas sim o relato dramático de como a liberdade, mal-orientada, gera fractura e desordem — e de como, mesmo assim, Deus age para restaurar o que foi quebrado, não pela imposição, mas pela oferta de graça e pela possibilidade de redenção.  
-
-A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
-
-Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
-
 ### **Porque Deus Permitiria o Apocalipse?**
 
 A pergunta "Por que Deus permitiria o Apocalipse?" encontra uma resposta profunda e, em sua essência, simples: **Deus respeita incondicionalmente o potencial e a liberdade da alma humana.**
@@ -3266,4 +3252,18 @@ Deus, em Sua misericórdia, intervém e adia este desfecho oferecendo numerosas 
 
 Diante dessa realidade, a humanidade é convidada a uma jornada transcendente: a **levantar a sua cruz,** assim como Cristo o fez. E isto quer dizer ter a certeza que, apesar do sofrimento, a batalha está, de toda forma, vencida. Ter a certeza que a ação do mal não é planejada, mas é caótica e por isto termina em autodestruição. O mal pode edificar seus castelos, porém são sobre areia móvel, não edificam a alma perante a eternidade, e Jesus afirma isso quando diz que é mais fácil o camelo passar no buraco de uma agulha que os ricos entrarem no reino dos céus.
 
-Desta forma, o Apocalipse não é um castigo imposto, mas a **conclusão lógica de um caminho de autodestruição escolhido,** e o ato final da libertação do ciclo de sofrimento da escravidão moderna. E é também uma visão pessimista do desfecho da liberdade humana que mais uma vez é acolhida com zelo e misericórdia pela visão de Cristo.
+Desta forma, o Apocalipse não é um castigo imposto, mas a **conclusão lógica de um caminho de autodestruição escolhido,** e o ato final da libertação do ciclo de sofrimento da escravidão moderna. 
+
+### **A Liberdade e Seus Riscos na Narrativa Bíblica**
+
+A tradição bíblica apresenta os anjos como presságios de *sous* — possibilidades de existência ainda não plenamente vivificadas pelo Espírito em sua manifestação relativa. Nesse contexto cosmológico, as Escrituras adotam uma perspectiva profundamente realista, senão pessimista, sobre o exercício da liberdade criatural.  
+
+Lúcifer, o portador da luz, subverteu sua natureza angélica; um terço das hostes celestes voltou-se contra o Bem que lhes dava existência. No Éden, o primeiro homem e a primeira mulher fizeram mau uso de sua autonomia, escolhendo não a vida em plenitude, mas uma ruptura relacional que levou à morte espiritual e corporal. Seu intento — tornar-se como deuses, gerando uma prole a partir de um *encontro disruptivo*, marcado pela autorreferência e não pela obediência amorosa — resultou em corrupção.  
+
+Este pessimismo fundador não se resolve numa restauração progressiva e tranquila, mas culmina na previsão de uma catástrofe final: a destruição do fim dos tempos. A narrativa não supõe uma longa vida idílica na terra, e sim um crescendo de corrupção que exigirá um juízo terminal de fogo, no qual os céus e a terra atuais serão dissolvidos para dar lugar a uma nova criação.
+
+Assim, a história da salvação apresentada nas Escrituras não é, em primeiro lugar, a elevação compulsória do homem a um patamar obrigatório de perfeição, mas sim o relato dramático de como a liberdade, mal-orientada, gera fractura e desordem — e de como, mesmo assim, Deus age para restaurar o que foi quebrado, não pela imposição, mas pela oferta de graça e pela possibilidade de redenção.  
+
+A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
+
+Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
