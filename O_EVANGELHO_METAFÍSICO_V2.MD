@@ -3251,23 +3251,6 @@ A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída,
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-Claro. Aqui está o texto reescrito, com a narrativa aprimorada, a linguagem elevada e as ideias organizadas de forma mais clara e impactante, mantendo a essência teológica e poética original.
-
-***
-
 ### **O Conselho da Trindade Eterna**
 
 **A Terra gemia em profunda atribulação, e a maldade da humanidade multiplicava-se sobre a face da criação,** corrompendo tudo como um câncer incurável. Diante disso, as Pessoas da Eterna Trindade reuniram-se em conselho divino.
