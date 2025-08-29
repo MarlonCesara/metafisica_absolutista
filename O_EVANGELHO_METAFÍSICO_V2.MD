@@ -3316,15 +3316,19 @@ Quero reiterar: o tempo está próximo. Como tem sido anunciado ao longo de séc
 
 **Permaneçam em Deus. Amem a vida com fervor. Louvem a cada dia pelo dom da existência. E não fixem os olhos em seus erros, mas no amor redentor de Deus, que supera absolutamente todas as coisas.**
 
-### **Deus e a liberdade**
+### **Porque Deus Permitiria o Apocalipse? Uma Resposta Baseada na Liberdade Humana**
 
-Porque Deus permitiria o apocalipse? A resposta é muito simples, Deus não pode bloquear o potencial do homem, da alma. O retrocesso da alma é visto por Deus como o fruto da liberdade do homem, ou mais precisamente, como a ausencia de frutos segundo o contexto biblico. Portanto, prolongar o sofrimento dos bons em prol de bloquear a liberdade não justifica um Deus de amor, mas um Deus proibitivo, que restringe as tendencias e a liberdade humana. Por isto, é lógicamente aceitável que os sofrimento dos bons como medida de combate ao mal da alma um dia teria seu termino.
+A pergunta "Por que Deus permitiria o Apocalipse?" encontra uma resposta profunda e, em sua essência, simples: **Deus respeita incondicionalmente o potencial e a liberdade da alma humana.**
 
-E este termino se configura como a destruição da humanidade em sem contexto de barro, no qual foi edificado estruturas cujo desmoronamento envolve uma luta agressiva, não racional mas impositiva. Os ricos, ao partirem para uma luta irracional, onde não pensam em si mesmos e nem mesmo de forma empatica, padecem do mal que fazem padecer, padecem da irracinalidade; destroem o próprio barro que os edificaria e os conservaria. E desta ação destruidora Deus pode adiar mas não impedir.
+Do ponto de vista divino, o retrocesso espiritual da humanidade é entendido como o fruto inevitável da liberdade concedida ao homem — ou, mais precisamente, como a **ausência de frutos** em um coração que escolheu rejeitar o bem. Prolongar indefinidamente o sofrimento dos justos para restringir artificialmente essa liberdade seria um ato de coerção, não de amor. Um Deus que meramente proíbe e restringe tendências humanas não é um Deus de amor, mas um controlador onipotente que anula a própria imagem que implantou em sua criação.
 
-Portanto, a realidade do retrocesso sofre intervenção, adiação, mas não pode sofrer impedimento conforme o amor imutável de Deus, que criou o homem livre em suas ações e reponsável pelo seu destino. 
+Portanto, é logicamente coerente e moralmente justificável que o sofrimento dos bons, como custo temporário para combater o mal, tenha um término. Este término se configura não como um desejo vingativo de Deus, mas como o **desfecho necessário de um caminho escolhido coletivamente pela humanidade.**
 
-A humanidade é convidada a levantar a sua cruz e morrer como cristo, a ir alem do tempo, a participar do mistério transcendente em direção ao inimaginável, ao inarravel, ao indizivel, ao paraíso.
+A Terra é o palco dessa escolha, o "contexto de barro" onde edifícios de arrogância, opressão e injustiça são construídos. Seu desmoronamento final envolve inevitavelmente uma luta agressiva e irracional, pois aqueles que se apegam ao poder — os ricos e poderosos de coração endurecido — partem para uma batalha autodestrutiva. Nessa luta, eles não agem com empatia ou razão, mas movidos por uma cegueira que os faz **padecer do mesmo mal que infligiram aos outros.** Eles tornam-se os arquitetos de sua própria ruína, destruindo o próprio "barro" que lhes como meio de crescimento espiritual.
 
+Deus, em Sua misericórdia, intervém e adia este desfecho oferecendo numerosas oportunidades para arrependimento e redenção. No entanto, **Ele não pode impedi-lo sem violar o princípio fundamental do amor: a liberdade.** O amor divino é imutável e, portanto, respeita a autonomia humana até suas últimas consequências, tornando cada pessoa responsável por seu próprio destino.
 
+Diante dessa realidade, a humanidade é convidada a uma jornada transcendente: a **levantar a sua cruz,** assim como Cristo o fez. É um chamado para ir além do tempo e da matéria, participando do mistério divino que conduz ao inimaginável, ao inefável, ao indizível — à plenitude do Paraíso, onde a liberdade finalmente se encontra com a perfeita harmonia.
+
+Desta forma, o Apocalipse não é um castigo imposto, mas a **conclusão lógica de um caminho de auto-destruição escolhido,** e o ato final de misericórdia de Deus para liberar a criação e povo oprimido de um ciclo de sofrimento.
 
