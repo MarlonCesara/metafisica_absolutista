@@ -3033,7 +3033,9 @@ Quando o niilista é forçado a encarar a verdade de sua negação, a primeira r
 
 O niilista é um ser em conflito, tudo que vê e acredita se conflita em sua decisão interior. O niilista vive num caos mental. Numa incerteza constante. Numa ameaça interminável que parte de si. Sente viver com uma arma apontada em sua cabeça, com um algoz que nunca o abandona, pois é ele mesmo. Seus olhos grandes diante do terror da desconhecida escuridão. O niilista não deseja uma purificação, não deseja provocar sofrimento em si, ou um distanciamento da vida temporário. O niilista quer se findar sem fim. Quer apagar de si qualquer resquício, provocar a morte não no tempo, mas uma morte infinita, caso contrário não seria necessário tanto medo.
 
-O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue deixar de sentir dor, de sentir o auto abandono, de chorar pela auto negação, não consegue esconder seu infortúnio.
+O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue deixar de sentir dor, de sentir o auto abandono, de chorar pela auto negação, não consegue esconder seu infortúnio. Não consegue deixar de escancarar claramente seu mal para a sociedade, não deixe de gritar aos sete ventos seu triste desfecho. Toda a sua luxúria, seus excessos, sua dureza de coração, seu comportamento animal, tudo isso demonstra sua fraqueza. Sua falta de amor. Um simples gesto de compreensão, de perdão, poderia aplacar todo esse problema, qualquer centelha de amor é um convite a vida eterna. O niilismo precisa ser sempre espalhafatoso, pois o individuo está desesperado. Necessita de companhia para sua decisão. Necessita que alguém o recrimine ou que o aprove. 
+
+Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. 
 
 > Declarou-lhe Jesus: Eu sou a ressurreição e a vida; quem crê em mim, ainda que morra, viverá; (Jo 11,25)
 
