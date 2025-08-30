@@ -3093,7 +3093,7 @@ O **Evangelho metafísico** nos revela essa verdade com clareza: **somos partici
 
 Assim, compreendemos que **não seremos julgados por um tribunal distante, mas pela luz da própria consciência**, que revelará, sem véus, quem verdadeiramente nos tornamos. **A eternidade não começa após a morte — ela se desdobra em cada instante**, e somos nós quem decidimos, hoje, como desejamos nela habitar.  
 
-### **Um Encontro na Eternidade**
+### **Um amor na Eternidade**
 
 Em sua jornada através das dimensões celestiais, o filósofo deparou-se com uma alma que irradiava uma familiaridade transcendente. Era um amor de outras eras, uma presença que ecoava em seu próprio ser como uma melodia há muito adormecida. Seu coração, agora um centro luminoso de consciência, reconheceu-a não por features ou lembranças específicas, mas por uma ressonância essencial — como duas notas da mesma sinfonia cósmica finalmente se reencontrando.
 
