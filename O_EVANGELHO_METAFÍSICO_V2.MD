@@ -3035,6 +3035,8 @@ O niilista é um ser em conflito, tudo que vê e acredita se conflita em sua dec
 
 O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue deixar de sentir dor, de sentir o auto abandono, de chorar pela auto negação, não consegue esconder seu infortúnio. Não consegue deixar de escancarar claramente seu mal para a sociedade, não deixe de gritar aos sete ventos seu triste desfecho. Toda a sua luxúria, seus excessos, sua dureza de coração, seu comportamento animal, tudo isso demonstra sua fraqueza. Sua falta de amor. Um simples gesto de compreensão, de perdão, poderia aplacar todo esse problema, qualquer centelha de amor é um convite a vida eterna. O niilismo precisa ser sempre espalhafatoso, pois o individuo está desesperado. Necessita de companhia para sua decisão. Necessita que alguém o recrimine ou que o aprove. 
 
+O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar.
+
 Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. 
 
 > Declarou-lhe Jesus: Eu sou a ressurreição e a vida; quem crê em mim, ainda que morra, viverá; (Jo 11,25)
