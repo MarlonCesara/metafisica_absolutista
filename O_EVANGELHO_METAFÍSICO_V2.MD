@@ -827,10 +827,6 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 2.  **Como Plenificador,** Deus é o **Filho/Logos** - razão e sabedoria que estrutura a realidade.
 3.  **Como Personalizador,** Deus é o **Espírito Santo** - amor pessoal e dom que personaliza a relação.
 
-> _"Portanto, ide e fazei discípulos de todas as nações, batizando-os em nome do Pai, e do Filho, e do Espírito Santo."_
-> _— Mateus 28:19_
-
-
 ### **CAPÍTULO 8: AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 #### **§ 8.1 – As Personas da Autocausalidade Divina**
 
@@ -1339,7 +1335,6 @@ Esta análise revela que o relativo não é uma realidade independente, mas uma 
 > _— Romanos 11:36_
 
 O relativo é, em última análise, **o modo pelo qual o Absoluto se relaciona consigo mesmo** - a dança eterna da autoexpressão divina.
-
 
 ### **CAPÍTULO 12: A ESTRUTURA DO POSSÍVEL E DO IMPOSSÍVEL**
 #### **§ 12.1 – Dissolução entre Possibilidade e Impossibilidade**
@@ -2988,6 +2983,8 @@ Em síntese, o niilista é aquele que carrega uma depressão da alma, não do co
 O niilista tenta de todas as formas esconder sua decisão, mascara-se por requinte, por viciado, por um animal, são artifícios tolos e fúteis. Toda materialidade excessiva e todo comportamento de fuga é a loucura diante do absurdo de uma alma revolta, sem controle, desesperada. Todos os comportamentos do niilista são um pedido de socorro, um grito silencioso e interno de ajuda que ele mesmo não ouve. Uma boca que não pode se abrir para proclamar o clamor, o louvor, a vida. O niilista é um ser em voz, uma alma isolada em si. A medida que seus palácios desmoronam, que seu mascaramento cai com a luta social, se vê um ser humano em estado fetal, inconformado e frustrado com a própria condição de renúncia a tudo que mais ama, com a renúncia de si. Os ricos em seus escritórios, cheios de razão e certeza de si, são, na verdade, pessoas que esperam que aquela porta se abra, e alguém os abrace e os salve da infindável escuridão que os espera. Sentem um demônio faminto com sede de sangue a sua espreita o tempo todo. 
 
 Quando o niilista é forçado a encarar a verdade de sua negação, a primeira reação é uma terrível ansiedade, um abominável desconsolo. E, quando suas estruturas de auto defesa mental de sua verdade são destruídas definitivamente, não somente afastadas, o niilista parte para formas menos refinadas de mascaramento como mendicância, abuso de drogas ou violência não refinada, que é quando formas não puníveis de violência tornam-se formas puníveis. Por exemplo, quando o niilista, dono de uma grande empresa, percebe-se falido, pois a cultura de sua empresa era sustentada pelo escravismo, então passa a investir em roubos de carro, sequestros, entre outras formas não formalizadas de violência. O aparente refinamento, que passa a ser considerado criminoso, converge-se em um ato declaradamente criminoso.
+
+O niilista, que acredita apenas na vida material, adota o mesmo comportamento da vida selvagem. Torna-se territorial, extremamente competitivo e acumulador, vivendo como se o futuro não existisse. Em sua empreitada profissional, age de forma competitiva, buscando reinar como um leão. Em seu ódio, assemelha-se a um corvo, que nunca esquece uma ofensa. É austero e segue friamente seus instintos, pois encontra seu sentido na materialidade pura. Acredita que nada transcende a lógica animal. Tudo o que almeja está estritamente ligado à materialidade, à acumulação de bens e ao status social – como se, na selva, precisasse se destacar como o animal mais violento da manada. Como aquele que está no topo, tentando rugir mais alto para afugentar todos os outros.
 
 O niilista é um ser em conflito, tudo que vê e acredita se conflita em sua decisão interior. O niilista vive num caos mental. Numa incerteza constante. Numa ameaça interminável que parte de si. Sente viver com uma arma apontada em sua cabeça, com um algoz que nunca o abandona, pois é ele mesmo. Seus olhos grandes diante do terror da desconhecida escuridão. O niilista não deseja uma purificação, não deseja provocar sofrimento em si, ou um distanciamento da vida temporário. O niilista quer se findar sem fim. Quer apagar de si qualquer resquício, provocar a morte não no tempo, mas uma morte infinita, caso contrário não seria necessário tanto medo.
 
