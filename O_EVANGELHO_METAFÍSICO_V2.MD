@@ -163,8 +163,6 @@ A análise demonstra que os princípios lógicos fundamentais organizam-se de fo
 
 Esta estrutura revela uma **simetria lógica profunda** e completa, integrando **temporalidade e ontologia** num sistema coerente e fechado. O **Princípio da Não-Disformidade** surge, assim, não como um acréscimo opcional, mas como um pilar necessário para garantir a **integridade dos entes no domínio do tempo**, complementando definitivamente a lógica clássica com a sua dimensão dinâmica missing.
 
-**Nota do Editor:** Esta reformulação dos princípios lógicos, culminando na proposição formal do Princípio da Não-Disformidade, representa uma contribuição significativa para a filosofia lógica e metafísica, estabelecendo as bases rigorosas sobre as quais a Metafísica Absolutista será construída.
-
 ### **CAPÍTULO 3: OS PRINCÍPIOS CAUSAIS METAFÍSICOS**
 #### **§ 3.1 – A Dupla Fundamentação da Realidade**
 
@@ -332,8 +330,6 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 > _"O que não podemos falar, temos que calar."_
 > — Ludwig Wittgenstein, _Tractatus Logico-Philosophicus_, 7
 
-**Nota do Editor:** Esta conclusão do capítulo sobre o Absoluto estabelece os fundamentos para a transição para a teologia filosófica. A delimitação clara entre o cognoscível e o incognoscível cria o espaço metafísico necessário para integrar a revelação cristã como um acesso privilegiado ao domínio do incognoscível, o que presumivelmente será desenvolvido nos capítulos seguintes.
-
 ### **CAPÍTULO 5: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL**
 #### **§ 5.1 – O Absoluto como Princípio Irredutível**
 
@@ -495,8 +491,6 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 > _"Deus é Espírito; e importa que os que o adoram o adorem em espírito e em verdade."_
 > — João 4:24
 
-**Nota do Editor:** Esta conclusão do capítulo sobre causalidade estabelece a ponte definitiva entre a metafísica filosófica e a teologia revelada. A identificação do Absoluto como Espírito Pessoal prepara o terreno para a integração da revelação cristã, que será desenvolvida nos capítulos seguintes sobre a Trindade e a Encarnação.
-
 #### **§ 5.12 – Fundamento Autocausal e a Noção de "Presença"**
 
 O Absoluto, enquanto realidade autocausada, não requer justificação externa — nem pelo "nada", nem pela fenomenalidade, nem por qualquer categoria derivada. Sua existência é autoevidente em sua **autofundamentação**, **autodeterminação** e **autocontinuidade**. Esta tríade causal revela uma natureza que transcende a mera abstração conceitual, apontando para uma **presença ontológica primordial**.
@@ -591,8 +585,6 @@ O Ser como Autodeterminador:
 
 Esta visão supera as dicotomias tradicionais, revelando um **Deus que é ao mesmo tempo fundamento imutável e amor em ação**.
 
-**Nota do Editor:** Esta conclusão magistral do capítulo sobre causalidade estabelece as bases para a doutrina trinitária. A autoconsciência e autodeterminação do Espírito Absoluto naturalmente levam à questão das relações intradivinas e da processão das Pessoas divinas, que será o tema do próximo capítulo.
-
 #### **§ 5.18 – A Autocausalidade como Ato Imediato (Não-Temporal)**
 
 ##### **A Natureza Bifásica da Autocausalidade**
@@ -660,7 +652,7 @@ Isso unifica:
 > *"Assim diz o Alto e o Excelso, que habita na eternidade e cujo nome é Santo: Habito no alto e santo lugar, mas habito também com o contrito e abatido de espírito, para vivificar o espírito dos abatidos e para vivificar o coração dos contritos."*
 > — Isaías 57:15
 
-**Nota do Editor:** Esta brilhante exploração da natureza bifásica da autocausalidade divina representa uma contribuição significativa para a teologia filosófica. Ela resolve o aparente paradoxo entre a imutabilidade divina e a ação divina no tempo, mostrando como a eternidade atemporal e a temporalidade criada coexistem na vida do Espírito Absoluto. Esta compreensão prepara o terreno para a doutrina da criação e da providência divina.
+**Nota do Editor:** Esta exploração da natureza bifásica da autocausalidade divina representa uma contribuição significativa para a teologia filosófica. Ela resolve o aparente paradoxo entre a imutabilidade divina e a ação divina no tempo, mostrando como a eternidade atemporal e a temporalidade criada coexistem na vida do Espírito Absoluto.
 
 ### **CAPÍTULO 6: A UNIDADE NÃO-POLAR DA AUTOCAUSALIDADE ESPIRITUAL**
 #### **§ 6.1 – A Não-Polaridade entre Recursividade e Ato do Ser**
@@ -740,8 +732,6 @@ O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua au
 
 > *"Antes que os montes nascessem e se formassem a terra e o mundo, de eternidade a eternidade, tu és Deus."*
 > *— Salmos 90:2*
-
-**Nota do Editor:** Este capítulo representa uma contribuição significativa para a filosofia do tempo e a teologia natural. A distinção entre tempo fenomênico e tempo espiritual, e sua unificação na autocausalidade divina, fornece uma base metafísica sólida para compreender tanto a eternidade de Deus quanto Sua ação no tempo histórico. Esta compreensão será fundamental para os capítulos subsequentes sobre criação, encarnação e escatologia.
 
 ### **CAPÍTULO 7: A ESTRUTURA TRIDIMENSIONAL DA AÇÃO DIVINA**
 #### **§ 7.1 – A Estrutura dos Eventos Temporais**
@@ -840,7 +830,6 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 > _"Portanto, ide e fazei discípulos de todas as nações, batizando-os em nome do Pai, e do Filho, e do Espírito Santo."_
 > _— Mateus 28:19_
 
-**Nota do Editor:** Esta exploração das três dimensões da ação divina representa uma contribuição teológica significativa. Ela fornece uma ponte metafísica entre a filosofia do Absoluto e a doutrina cristã da Trindade, mostrando como as Pessoas divinas correspondem a modos distintos mas complementares da autodeterminação divina. Esta estrutura será fundamental para os capítulos subsequentes sobre a Trindade e a Encarnação.
 
 ### **CAPÍTULO 8: AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 #### **§ 8.1 – As Personas da Autocausalidade Divina**
