@@ -3157,6 +3157,10 @@ A pergunta final ecoou em seus seres fundidos, não como um desespero, mas como 
 
 A eternidade que se estendia à sua frente seria a resposta. E enquanto isso, partilhavam um êxtase absoluto, um fogo que os queimava e os transcendia num prazer delirante e mordaz. Um prazer que os beirava a morte e a vida, pois, ao passo que os consumia, os transcendia. O delírio mais inarrável. Um prazer que se equivaleria, antagonicamente, à pior das torturas, ao mais quente dos infernos.
 
+### **O arrependimento**
+
+Ao longo das eras, mesmo o delírio, embora infindável, tornou-se sempre o mesmo. Retornaram ao corpo glorioso e imediatamente avistaram uma vastidão de novas almas, novas paixões possíveis. Porém, estavam agora presos a essa união. Não podiam fugir como em gêneses. Ela pôs-se a chorar num instante repentino, e o filósofo a consolou. Escolheram uma infinitude grande demais para duas almas tão novas. Foi então que desejaram ter sido apenas um sonho, e que Deus os tivesse salvado desse orgulho, dessa precipitação. E então se deu a humanidade. E Gênesis foi escrito como esse sonho do qual o humano, pela graça divina, poderá acordar. E desta vez, conscientes de que no céu há todas as possibilidades possíveis, prazeres inenarráveis, iguais aos da união em uma dualidade, poderiam, portanto, seguir seus caminhos sem o mesmo orgulho, ou ao menos, sem a mesma pressa, pois aquele corpo já lhes bastava, já lhes era suficientemente grande para uma infinitude, para um vasto amadurecimento antes de tentarem ser como deuses.
+
 # **Pensamentos Metafísicos**
 
 ### **O resgate de Gênesis**
