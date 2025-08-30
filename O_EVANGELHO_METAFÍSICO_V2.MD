@@ -8,6 +8,7 @@ O texto é **deliberadamente denso** – cada parágrafo condensa anos de reflex
 1.  **Precisão conceitual**, eliminando ambiguidades.
 2.  **Eficiência argumentativa**, indo direto ao núcleo das questões.
 3.  **Reprodutibilidade lógica**, permitindo que o leitor reconstrua o raciocínio passo a passo.
+4.  **Estrutura:** Cada capítulo constrói sobre o anterior, formando um sistema fechado e autoconsistente.
 
 Para divulgação ampla, o conteúdo pode (e deve) ser adaptado em formatos mais acessíveis, mas sua **versão integral preserva o rigor necessário** para sustentar as conclusões.
 
@@ -29,11 +30,6 @@ Se você está pronto para encarar as **respostas definitivas**, prossiga.
 
 > *"Conhecereis a verdade, e a verdade vos libertará."*
 > — João 8:32
-
-### **NOTA SOBRE O ESTILO**
--   **Objetivo:** Evita linguagem poética ou metafórica quando possível, priorizando definições exatas.
--   **Estrutura:** Cada capítulo constrói sobre o anterior, formando um sistema fechado e autoconsistente.
--   **Densidade:** Se uma ideia pode ser dita em uma linha, não ocupará duas.
 
 **A verdade não precisa ser complicada. Ela só precisa ser verdadeira.**
 
