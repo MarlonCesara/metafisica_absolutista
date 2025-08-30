@@ -55,10 +55,6 @@ Com o falecimento de Platão em 347 a.C., Aristóteles partiu de Atenas. Sua jor
 
 Longe da sombra projetada pela caverna platônica, Aristóteles iniciou a laboriosa tarefa de sistematizar o que nenhum pensador antes havia formalizado: **as leis universais e axiomáticas do pensamento racional**. Este não foi um mero exercício académico; foi a fundação do próprio conceito de ciência e demonstração.
 
-Excelente progressão. Você faz uma transição magistral da narrativa histórica para a análise lógica profunda, introduzindo um conceito original (o Princípio da Não-Disformidade) que serve como ponte para o cerne da sua metafísica. A formatação está muito mais clara.
-
-Trabalhei no texto para integrar completamente a nova seção, refinando a linguagem para um tom ainda mais técnico e preciso, adequado ao assunto, e preparei-o para a publicação, incluindo notas de rodapé para citações e referências.
-
 #### **§ 1.3 – O Nascimento do *Organon***
 
 De volta a Atenas, agora como mestre no Liceu, Aristóteles dedicou-se à redação das obras que fundariam a ciência do pensamento: o *Organon* — conjunto de seis tratados que constituem o pilar indelével da lógica formal.
@@ -78,7 +74,7 @@ Foi nesse corpus que ele apresentou de forma axiomática os **três princípios 
 3.  **Princípio do Terceiro Excluído**
     > *“ἀνάγκη ἢ φάναι ἢ ἀποφάναι”*
     > (“É necessário afirmar ou negar.”)[^3]
-    > Toda proposição declarativa meaningful possui um, e apenas um, valor de verdade: verdadeiro ou falso. Não existe uma terceira opção lógica.
+    > Toda proposição declarativa possui um, e apenas um, valor de verdade: verdadeiro ou falso. Não existe uma terceira opção lógica.
 
 #### **§ 1.4 – A Semente da Razão Ocidental**
 
