@@ -41,6 +41,8 @@ Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas
 
 ## **O Relativo da Alma: O Juízo Particular**
 
+Era um filósofo de presença silenciosa, mais conhecido por seus olhos contemplativos que pareciam ver além das formas. Vestindo sempre um manto simples, ele vivia imerso em seus pensamentos, estudando a natureza da alma e da existência. Nascido no século XIX, ele carregava consigo a gravidade e a profundidade de uma era que já se findava quando seu pensamento começou a florescer. Sua vida foi um constante exame da condição humana, uma busca pela essência por trás da realidade aparente. Ele morreu de forma serena e solitária em seu modesto aposento, durante o sono. 
+
 Num imediato instante após a morte do filósofo, sua alma adentrou um estado de quietude absoluta — o que a teologia chama de "particular juízo" (Hb 9,27). Apenas a voz do pensamento permanecia. Ao seu redor, estendia-se um mar infinito de espelhos — reflexos de memórias, experiências e possibilidades. Uma indefinição que abraçava o mais perfeito silêncio. Era como um palácio de cristais e luz, delicado e translúcido, iluminado por uma claridade divina. Luzes distantes cintilavam, e cada transparência reverberava um eco de infinito. Era como uma meditação infinita e etérea, na qual havia uma paz absoluta, nada ali incomodava. Era a mais sublime paz. Aquele lugar estava além do tempo, porém, no tempo, estavam os desejos do coração.
 
 Seu primeiro impulso foi o desejo de conhecer. Saber onde estava e o que lhe cabia dali em diante. Então, gritou ao vazio:
