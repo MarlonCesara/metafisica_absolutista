@@ -11,7 +11,7 @@ O tempo, sendo dualístico, na esfera do cosmo do Ser, é determinado por Deus, 
 **Premissa 3: A Inefabilidade da Plenitude Futura**
 Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas mais fantásticas de vida, as experiências mais inefáveis e extraordinárias, podemos esperar o êxtase, o incrível, o indizível, conforme revelado em 1 Cor 2,9: *"nem os olhos viram, nem os ouvidos ouviram, nem jamais penetrou em coração humano o que Deus preparou para aqueles que o amam"*.
 
-## **O Relativo da Alma: O Juízo Particular e o Deseiro como Realidade**
+## **O Relativo da Alma: O Juízo Particular**
 
 Num imediato instante após a morte do filósofo, sua alma adentrou um estado de quietude absoluta — o que a teologia chama de "particular juízo" (Hb 9,27). Apenas a voz do pensamento permanecia. Ao seu redor, estendia-se um mar infinito de espelhos — reflexos de memórias, experiências e possibilidades. Uma indefinição que abraçava o mais perfeito silêncio. Era como um palácio de cristais e luz, delicado e translúcido, iluminado por uma claridade divina. Luzes distantes cintilavam, e cada transparência reverberava um eco de infinito. Era como uma meditação infinita e etérea, na qual havia uma paz absoluta, nada ali incomodava. Era a mais sublime paz. Aquele lugar estava além do tempo, porém, no tempo, estavam os desejos do coração.
 
