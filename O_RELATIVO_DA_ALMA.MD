@@ -1,4 +1,4 @@
-# **O Relativo da Alma: Uma Jornada pelo Juízo, o Paraíso e os confins da Liberdade**
+## **O Relativo da Alma: Uma Jornada pelo Juízo, o Paraíso e os confins da Liberdade**
 
 ### **Síntese da Obra**
 
