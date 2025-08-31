@@ -403,7 +403,7 @@ Não havia pressa ou ansiedade nesse processo, pois o tempo era, doravante, um a
 
 E assim, de mãos dadas — ou melhor, de essências plenamente unidas e sintonizadas —, iniciaram sua jornada definitiva rumo à consumação: não mais como duas almas isoladas buscando-se mutuamente, mas como uma única e complexa sinfonia de amor se desdobrando e se expandindo perpetuamente perante o trono do Eterno. O paraíso, compreenderam então, não era mais um lugar externo onde simplesmente estavam, mas havia-se tornado a própria realidade intrínseca e dinâmica do seu amor em constante e eterna expansão.
 
-# **De Volta a Gêneses: A Tentação no Paraíso e a Queda Restaurada**
+## **De Volta a Gêneses: A Tentação no Paraíso e a Queda Restaurada**
 
 Milênios se passaram como um único dia luminoso. O filósofo e sua amada, entrelaçados numa sintonia que transcendia a palavra e o gesto, haviam explorado juntos as infinitas paisagens do paraíso. Seu amor, longe de se esgotar, aprofundava-se como um oceano sem fundo, cada onda revelando uma nova camada de intimidade e admiração, reflectindo a perfeita caridade que nunca acabará (1 Cor 13,8).
 
