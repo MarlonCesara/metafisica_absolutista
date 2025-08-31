@@ -3053,6 +3053,12 @@ A alma descreveu o tempo em que esteve morta como um completo apagão. Se havia 
 
 > O fogo do inferno é o processo de consumação da alma que se estende por tempo infinito, pois o consumir-se no momento presente não esgota o conteúdo da alma que é infinito. Desta forma, temos o fogo eterno, um processo de auto destruição que não encontra seu fim — uma interpretação que ressoa com a doutrina do fogo eterno como consequência intrínseca do pecado (Mc 9,48).
 
+O filósofo concluiu que o inferno não são labaredas que queimam a carne viva, pois nem a dignidade de sentir existe lá. É, simplesmente, a completa ausência de qualquer sensação ou consciência de si. Não há a observação da escuridão; muito pior que isso, há a cegueira até mesmo para o escuro. Todos os terrores e imagens torturantes não servem para descrever a danação, pois esta é tão vazia que nem mesmo resquícios de vida, como o sofrimento, existem nela. É o completo nada, o nada absoluto.
+
+As almas no inferno têm uma dureza de coração tão grande que nem mesmo mensuram a dimensão do castigo que impuseram a si mesmas; são completamente desprovidas de esperança. O ódio torna-se uma barreira trancada por dentro. Muito pior do que viver em um cubículo apertado, em um tormento físico eterno, em uma carne queimada viva, é viver sem verdadeiramente viver. É defrontar o nada em um esquecimento sem fim.
+
+Esta é a visão mais aproximada do tormento. Não é o sofrimento, mas a falta do próprio sofrer e de qualquer coisa que traga ao indivíduo um lampejo de lembrança de si mesmo. É o completo não sentir, o completo autoesquecimento.
+
 ### **A Mudança das Almas**
 
 Num insight tão claro quanto as águas do rio celestial, o filósofo entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
@@ -3267,3 +3273,4 @@ Assim, a história da salvação apresentada nas Escrituras não é, em primeiro
 A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
+
