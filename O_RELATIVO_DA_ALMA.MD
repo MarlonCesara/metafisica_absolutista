@@ -616,5 +616,5 @@ Portanto, a crença colonial não era sobre o escravo ou o indígena. Era sobre 
 
 A célebre frase de São Paulo, "O salário do pecado é a morte" (Rm 6:23), encontra aqui uma expressão histórica terrível: o pecado niilista do colonizador gerava a morte espiritual *primeiro nele mesmo*, e só depois se manifestava como morte física e social nas vítimas de sua projeção desesperada.
 
-
+O niilista busca antecipar sua autopunição através de um completo esquecimento de si mesmo e de suas faculdades espirituais. Lança-se em uma existência puramente carnal, convence-se de sua própria falta de significado e isola seu pensamento de qualquer questão transcendente que possa elevá-lo acima da condição animal.
 
