@@ -618,3 +618,5 @@ A célebre frase de São Paulo, "O salário do pecado é a morte" (Rm 6:23), enc
 
 O niilista busca antecipar sua autopunição através de um completo esquecimento de si mesmo e de suas faculdades espirituais. Lança-se em uma existência puramente carnal, convence-se de sua própria falta de significado e isola seu pensamento de qualquer questão transcendente que possa elevá-lo acima da condição animal.
 
+O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
+
