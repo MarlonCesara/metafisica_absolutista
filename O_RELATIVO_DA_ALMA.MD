@@ -278,6 +278,12 @@ Quando o niilista é forçado a encarar a verdade de sua negação, a primeira r
 #### **22. A Redução ao Comportamento Animal**
 O niilista, que acredita apenas na vida material, adota o mesmo comportamento da vida selvagem. Torna-se territorial, extremamente competitivo e acumulador, vivendo como se o futuro não existisse. Em sua empreitada profissional, age de forma competitiva, buscando reinar como um leão. Em seu ódio, assemelha-se a um corvo, que nunca esquece uma ofensa. É austero e segue friamente seus instintos, pois encontra seu sentido na materialidade pura. Acredita que nada transcende a lógica animal. Tudo o que almeja está estritamente ligado à materialidade, à acumulação de bens e ao status social – como se, na selva, precisasse se destacar como o animal mais violento da manada. Como aquele que está no topo, tentando rugir mais alto para afugentar todos os outros.
 
+As almas mais decididas, firmes em sua escolha pelo inferno, abandonavam por completo qualquer resquício de moralidade. Sua falta de amor era tão profunda que não restava nelas a mínima consideração por algo além da materialidade. Assim, viviam como se estivessem embasadas unicamente no método científico empírico: se não viam a alma, concluíam que só existia o corpo biológico.
+
+Dessa forma, não cultivavam sequer a menor noção de moral. Consideravam a compaixão apenas uma fraqueza humana que impedia o progresso e a conquista de seus objetivos. Vi­am a si mesmas e aos outros como animais em uma savana; e, se a lógica da selva é devorar o outro, acreditavam que o ser humano também não precisava ser diferente — já que, sendo animal, deveria seguir a lógica animal.
+
+Essa é a mentalidade dos super-ricos, dos traficantes, dos assassinos e de todos aqueles que escravizam ou praticam o mal sem pudor, sem comoção e sem consideração. São pessoas que descreem completamente tanto de si mesmas quanto do próximo. Pessoas que se enxergam apenas como fruto de uma evolução animal, incapazes de se comover justamente por não acreditarem em Deus, na própria liberdade ou na eternidade.
+
 #### **22. O Conflito e o Caos Interno**
 O niilista é um ser em conflito constante; tudo que vê e em que acredita se conflita com sua decisão interior fundamental. O niilista vive num caos mental. Numa incerteza constante. Numa ameaça interminável que parte de si mesmo. Sente viver com uma arma apontada em sua cabeça, com um algoz que nunca o abandona, pois é ele mesmo. Seus olhos estão sempre arregalados diante do terror da desconhecida escuridão que ele mesmo escolheu. O niilista não deseja uma purificação, não deseja provocar sofrimento em si como meio de crescimento, ou um distanciamento temporário da vida. O niilista quer se findar sem fim. Quer apagar de si qualquer resquício, provocar a morte não no tempo, mas uma morte infinita, caso contrário não seria necessário tanto medo.
 
@@ -288,6 +294,10 @@ O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue d
 
 O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar. Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
 E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
+
+#### **25. Reflexões sobre o niilismo**
+
+O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
 Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
 
@@ -494,6 +504,10 @@ Portanto, não se trata de uma proibição divina quanto à procriação, mas de
 
 Ao contemplarmos a imensa bondade e suavidade do Mestre, podemos interpretar o Gênesis não como uma narrativa de proibição, mas como um despertar de consciência positiva diante da aspiração humana. Não se trata de restringir, mas de esclarecer as consequências das escolhas e de mostrar que o Ser nos concede um corpo maleável justamente em vista dessa aspiração. A intensidade do ensinamento de Jesus estaria, então, em nos conduzir a cativar um amor verdadeiro e a buscar a perfeição no amor. A imagem de um Deus que nos priva de recursos ou possibilidades não se harmoniza plenamente com a lógica do amor. Talvez a questão fundamental seja esta: uma almogênese transformaria a existência para melhor? Talvez tudo se concentre, em última instância, nessa decisão individual.
 
+Ao considerarmos que o ser humano herdou a mentalidade de Adão e Eva — assim como herdou o próprio ato do consumo do fruto proibido e a inclinação para os mesmos objetivos —, sem que tivéssemos escolhido, compreendemos que a solução deste estado, segundo a vontade de Deus, foi aprimorar o mundo e a realidade de modo a corresponder à aspiração humana. Ao mesmo tempo, Deus protegeu o homem, orientando-o para que tivesse as melhores aspirações, como é o caso de evitar o pensamento niilista.
+
+Assim, percebemos que o mundo se encontra em preparação para o objetivo do amor transcendente. Aprendemos a lidar com o mal, de modo a alcançar o conhecimento que Adão e Eva supostamente obteriam a partir daquele ato. Também aprendemos a amar intensamente, como Jesus amou, a cultivar amores verdadeiros, a entregar a vida pelo outro e a buscar a perfeição do amor.
+
 ## **Um encontro com o Mestre**
 
 Um sorriso que revelava a verdade mais íntima de cada pessoa. Seu sorriso dissolvia toda hesitação, todo medo, toda dúvida residual. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*. 
@@ -569,5 +583,10 @@ Assim, a história da salvação apresentada nas Escrituras não é, em primeiro
 A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída, não por desacreditar da humanidade, mas por revelar a profundidade de sua queda e a magnitude ainda maior do resgate divino.
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
+
+
+
+
+
 
 
