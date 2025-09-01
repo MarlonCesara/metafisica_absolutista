@@ -17,8 +17,8 @@ A história segue um **filósofo** que, após a morte, adentra o "relativo" – 
 
 3.  **A Alegoria dos Homens de Barro e a Ciência das Almas:** O núcleo profético da obra. Guiado por uma borboleta translúcida (símbolo do *spiraculum vitae*), o filósofo encontra um planeta suspenso onde figuras de barro (almas não plenamente despertas) repetem gestos vazios, presas num reflexo pálido do paraíso, simbolizando o estado decaído ou de purificação. Ele testemunha então o "despertar" dessas almas, que se dividem em três categorias de vibração espiritual:
     *   **As Almas Leves:** Os justos que mergulham no paraíso com naturalidade. Sua luz é consequência de uma vida de entrega, kenosis e caridade, vivida como um diálogo contínuo com o divino.
-    *   **As Almas Pesadas:** Aquelas que despertam com luminosidade opaca, presas a gestos e rancores do passado. Representam as almas no Purgatório, que carregam o peso de seus apegos e experimentam predominantemente a *poena damni* (a dor da perda da visão de Deus).
-    *   **As Almas que Desaparecem:** A tragédia máxima. Almas que, movidas por um ódio primordial e uma decisão radical de auto-aniquilação (niilismo existencial), recusam a eternidade e se dissolvem no nada. A obra traça um perfil detalhado do "niilista", cujas características incluem autoengano, ódio, desejo de contaminar o outro, competição desenfreada e a glorificação da matéria. Seu desaparecimento não é um castigo imposto, mas a consumação de sua livre escolha contra o Ser.
+    *   **As Almas Pesadas:** Aquelas que despertam com luminosidade opaca, presas a gestos e rancores do passado. Representam as almas que carecem de luminosidade. Carregam o peso de seus apegos.
+    *   **As Almas que Desaparecem:** A tragédia máxima. Almas que, movidas por um ódio primordial, uma completa ausência de amor próprio e uma decisão radical de auto-aniquilação (niilismo existencial), recusam a eternidade e se dissolvem no nada. A obra traça um perfil detalhado do "niilista", cujas características incluem autoengano, ódio, desejo de contaminar o outro, competição desenfreada e a glorificação da matéria. Seu desaparecimento não é um castigo imposto, mas a consumação de sua livre escolha contra o Ser.
 
 A narrativa prossegue explorando temas complexos como o amor idolátrico que leva almas a desaparecerem juntas, a natureza do inferno como "morte eterna" (um estado de auto-exclusão permanente), a dinâmica do purgatório como processo interior e, finalmente, um reencontro cósmico onde todas as almas, no *pleroma* dos tempos, despertam juntas para a vida eterna.
 
@@ -286,21 +286,12 @@ O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue d
 
 #### **24. A Resposta Simples por Trás da Complexidade**
 
-O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar.
-
-Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. 
-
-> Declarou-lhe Jesus: Eu sou a ressurreição e a vida; quem crê em mim, ainda que morra, viverá; (Jo 11,25)
-
-Para o filósofo, era incompreensível. Ele via suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam.  
-
-Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
-
+O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar. Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
 E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
 
-O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado.  
+Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
 
-Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
+> Declarou-lhe Jesus: Eu sou a ressurreição e a vida; quem crê em mim, ainda que morra, viverá; (Jo 11,25)
 
 ## **As Almas que Desapareciam Juntas: O Amor Idolátrico e suas Consequências**
 
@@ -497,9 +488,13 @@ Portanto, o gesto de Jesus não foi uma coibição ou restrição do homem à tr
 
 No Éden, o homem teve a escolha de continuar a criação segundo os planos e os cuidados de Deus ou iniciar uma criação sob seus próprios cuidados. Se antes de Cristo a escolha foi uma renúncia pelos planos divinos, depois dessa história de salvação, todo o erro está selado pela paixão de Jesus. Pois quem seria capaz de trair tamanho ato de amor? De se desfazer de tais vestes gloriosas com o intuito da iniquidade? No paraíso, não há sombra de dúvida quanto à retidão da alma em direção à paz.
 
+Enfim, permanece no ar a dúvida dualística: o Ser é orientado para a vida em plenitude, para o crescimento, para a expansão; contudo, essa mesma expansão pode tornar-se perigosa para a alma, que corre o risco de se ver aprisionado em uma decisão ou na aceitação de algo que já não deseja. A questão final não é se, no paraíso, haverá ou não almogênese; a pergunta fundamental é: existirá um amor tão grande que possa reverberar suavemente por toda a eternidade? Esse amor seria necessário para que as almas não fugissem de si mesmas ao perceberem que estão nuas, que podem transcender, que são plenamente solúveis uma na outra. Pois, ao estarem nuas, percebem o peso da decisão: o caminho interminável que percorreram unidas, sem jamais poderem se separar.
+
+Portanto, não se trata de uma proibição divina quanto à procriação, mas de uma disposição que precisaria habitar o próprio homem: um amor tão verdadeiro que, mesmo diante de todas as possibilidades e prazeres absolutos, se entrega a uma condição que não está vinculada apenas ao prazer, mas a uma necessidade que transcende o entendimento.
+
 ## **Um encontro com o Mestre**
 
-Um sorriso que revelava a verdade mais íntima de cada pessoa. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*. 
+Um sorriso que revelava a verdade mais íntima de cada pessoa. Seu sorriso dissolvia toda hesitação, todo medo, toda dúvida residual. Ele tinha um interesse genuíno por todos e por seus sonhos. Todos O conheciam não apenas por ser Deus, mas por ser **o melhor dos seres humanos** — o mais sonhador, o mais sincero, aquele que mais acreditava no impossível. Todos os Seus milagres se baseavam em **mostrar ao homem que o impossível pode ser realizado**. Como acalmar a tempestade — símbolo de **acalmar o coração humano**, segurando sua mão em meio à crise existencial, quando um indivíduo dúvida de si mesmo e de sua permanência na vida — realizando Is 43,2: *"Quando passares pelas águas, eu estarei contigo"*. 
 
 Jesus Se declarava apaixonadamente. **Ele nos pediu em casamento, numa união eterna** — a imagem nupcial de Cristo e a Igreja (Ef 5,25-27). Se um coração diz *"sim"* a esse amor, como outro poderia dizer *"não"*? Essa é a pergunta que Ele quis deixar para a humanidade. Sua entrega e Sua profecia — **a promessa de que todos nos fundiremos a Ele** — são um pedido de casamento. E essa união não terá fim, dizia Ele — cumprindo a promessa de Ap 21,2: *"Vi também a cidade santa, a nova Jerusalém, que descia do céu, da parte de Deus, adornada como uma noiva ataviada para o seu noivo"*.  
 
