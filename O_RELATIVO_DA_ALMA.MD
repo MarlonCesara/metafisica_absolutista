@@ -290,12 +290,16 @@ O niilista é um ser em conflito constante; tudo que vê e em que acredita se co
 #### **23. A Fraqueza por Trás da Fachada de Força**
 O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue deixar de sentir dor, de sentir o autoabandono, de chorar pela auto negação, não consegue esconder seu infortúnio. Não consegue deixar de escancarar claramente seu mal para a sociedade, não deixa de gritar aos sete ventos seu triste desfecho. Toda a sua luxúria, seus excessos, sua dureza de coração, seu comportamento animal, tudo isso demonstra sua fraqueza fundamental. Sua falta de amor. Um simples gesto de compreensão, de perdão, poderia aplacar todo esse problema; qualquer centelha de amor é um convite à vida eterna. O niilismo precisa ser sempre espalhafatoso, pois o indivíduo está desesperado. Necessita de companhia para sua decisão. Necessita que alguém o recrimine ou que o aprove. Necessita de uma imparável consolação constante, pois, no inferno, não há nada; nem mesmo a dor. Se ao menos houvesse a dor, não seria mais o inferno. O inferno ultrapassa o conceito de sofrimento de tal forma que ali, nem mesmo a honra do sofrimento é permitida. O inferno é o completo tédio, o vazio absoluto. O indivíduo não contempla mais a luz do sol, e nem mesmo a auto presença. Nunca mais vê ninguém nem a si. O inferno é como um veneno oferecido e só espalhado no corpo pela decisão definitiva do coração.
 
-#### **24. A Resposta Simples por Trás da Complexidade**
+#### **24. O espelhamento niilista**
+
+O niilista escraviza porque deseja expor o algoz que habita dentro de si, voltado contra si mesmo. Provoca miséria e fome para revelar, em vestes rasgadas, o estado de seu emocional, e em sua carência vital, a fome de espírito que o consome e o arrasta lentamente ao esquecimento. Mata para manifestar sua própria índole sobre sua própria vida. Engana para exibir a vida de mentiras que construiu. O medo diante de sua condição opressora faz com que sua expressão em sociedade se torne desmedida, violenta e absurda. 
+
+#### **25. A Resposta Simples por Trás da Complexidade**
 
 O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar. Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
 E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
 
-#### **25. O absurdo da indiferença e a vergonha da compreensão**
+#### **26. O absurdo da indiferença e a vergonha da compreensão**
 
 Quando o niilista percebe que o outro o compreendeu — que penetrou em seus objetivos internos —, a máscara de sua impetuosidade e animosidade cai, deixando-o mergulhado em uma profunda baixa autoestima. A posição de poder que julgava possuir se dissolve, dando lugar a um coitadismo implícito, a uma pobreza estampada em cada olhar que o denuncia como niilista. A piedade da sociedade, em vez de consolá-lo, desperta nele humilhação, mágoa e angústia.
 
@@ -305,7 +309,7 @@ Contudo, quando percebe que o outro se mantém absolutamente indiferente à sua 
 
 Os niilistas ricos forçam risadas, forçam o sorriso, forçam conversas alegres — tudo encoberto pelo desespero que corrói suas almas, submetidas a um senhorio cruel que exercem sobre si mesmos. São escravos de si. São algozes de si mesmos. Onde estão, não há tranquilidade: apenas barulho, distrações e descargas de frustração despejadas sobre os mais frágeis, sobre os inocentes, como reflexo do tormento que carregam dentro de si.
 
-#### **26. Reflexões sobre o niilismo**
+#### **27. Reflexões sobre o niilismo**
 
 O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
@@ -313,7 +317,7 @@ O niilista busca antecipar sua autopunição através de um completo esqueciment
 
 O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
 
-#### **27. A opressão histórica no mundo de barro**
+#### **28. A opressão histórica no mundo de barro**
 
 A descrição do niilista oferece uma visão profundíssima para compreender a mentalidade colonial. A crença de que escravizados e indígenas "não tinham alma" não era um simples erro de observação; era a *projeção* de um niilismo prático e de uma autodestruição espiritual por parte do colonizador.
 
