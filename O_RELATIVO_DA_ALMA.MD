@@ -4,7 +4,7 @@
 
 "O Relativo da Alma" é uma grandiosa narrativa filosófico-teológica que explora o estado da alma humana após a morte, sua confrontação com a eternidade e as consequências últimas de suas escolhas livres. Através de uma alegoria profundamente enraizada na tradição católica e no pensamento tomista, a obra constrói uma visão unificada do ser, da graça, do juízo e da destinação final.
 
-A história segue um **filósofo** que, após a morte, adentra o "relativo" – um estado de juízo particular onde a alma se vê a si mesma refletida num infinito mar de espelhos (suas memórias, possibilidades e essência). Guiado por uma voz transcendente, ele aprende que neste estado o desejo, harmonizado com a ordem do Ser, molda instantaneamente a sua realidade.
+A história segue um **filósofo** que, após a morte, adentra o "relativo" – um estado de juízo particular onde a alma se vê a si mesma refletida num infinito mar de espelhos (suas memórias, possibilidades e essência). Guiado por uma voz transcendente, ele aprende que neste estado o desejo, harmonizado coma o campo das possibilidades, molda instantaneamente a sua realidade.
 
 **A Jornada Desdobra-se em Três Atos Principais:**
 
