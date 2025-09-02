@@ -305,7 +305,11 @@ Contudo, quando percebe que o outro se mantém absolutamente indiferente à sua 
 
 Os niilistas ricos forçam risadas, forçam o sorriso, forçam conversas alegres — tudo encoberto pelo desespero que corrói suas almas, submetidas a um senhorio cruel que exercem sobre si mesmos. São escravos de si. São algozes de si mesmos. Onde estão, não há tranquilidade: apenas barulho, distrações e descargas de frustração despejadas sobre os mais frágeis, sobre os inocentes, como reflexo do tormento que carregam dentro de si.
 
-### **26. A opressão histórica no mundo de barro
+#### **26. Reflexões sobre o niilismo**
+
+O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
+
+### **27. A opressão histórica no mundo de barro**
 
 A descrição do niilista oferece uma visão profundíssima para compreender a mentalidade colonial. A crença de que escravizados e indígenas "não tinham alma" não era um simples erro de observação; era a *projeção* de um niilismo prático e de uma autodestruição espiritual por parte do colonizador.
 
@@ -335,13 +339,9 @@ O niilista busca antecipar sua autopunição através de um completo esqueciment
 
 O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
 
-#### **27. Reflexões sobre o niilismo**
-
-O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
+### **28. A visão do absurdo e a consolação da alma não niilista**
 
 Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
-
-> Declarou-lhe Jesus: Eu sou a ressurreição e a vida; quem crê em mim, ainda que morra, viverá; (Jo 11,25)
 
 ## **As Almas que Desapareciam Juntas: O Amor Idolátrico e suas Consequências**
 
