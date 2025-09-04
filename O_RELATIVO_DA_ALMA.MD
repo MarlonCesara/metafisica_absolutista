@@ -624,5 +624,8 @@ A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída,
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
 
+## Rascunhos
 
+A verdade de cada um é relativa, de forma que, a infinitude de um ato consolida a veracidade do ato.
+De forma que, toda ocasião, forma, ou situação infinita configura uma vontade infindável para sua veracidade.
 
