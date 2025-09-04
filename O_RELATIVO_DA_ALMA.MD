@@ -626,6 +626,5 @@ Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiv
 
 ## Rascunhos
 
-A verdade de cada um é relativa, de forma que, a infinitude de um ato consolida a veracidade do ato.
-De forma que, toda ocasião, forma, ou situação infinita configura uma vontade infindável para sua veracidade.
+O primeiro pensamento cristão, voltado para a vida, é a consciência de si, a atenção à própria autoconsciência. O indivíduo totalmente materialista permanece imerso no mundo animal: a mulher materialista é guiada unicamente pela segurança financeira, enquanto o homem materialista é conduzido pela ira e pelo instinto de territorialidade e de dominação.
 
