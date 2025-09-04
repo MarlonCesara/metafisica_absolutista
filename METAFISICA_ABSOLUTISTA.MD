@@ -2762,11 +2762,3 @@ Esta análise nos confronta com o mistério último da condição humana:
 > **Deus nos ama tanto que prefere nosso inferno auto-escolhido à nossa felicidade forçada** - respeita nossa liberdade até as últimas e mais terríveis consequências.
 
 O céu e o inferno não são lugares, mas **estados de relação** - modos de ser em relação ao Ser que nos fundamenta e sustenta.
-
-> _"E eis que estou convosco todos os dias até a consumação dos séculos."_
-> _— Mateus 28:20_
-
-> _"Apartai-vos de mim, malditos, para o fogo eterno, preparado para o diabo e seus anjos."_
-> _— Mateus 25:41_
-
-A mesma presença divina que é paraíso para os que amam é inferno para os que odeiam - não porque Deus mude, mas porque **nós mudamos nossa capacidade de receber Seu amor**.
