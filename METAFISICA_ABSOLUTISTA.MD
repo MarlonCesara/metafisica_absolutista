@@ -2755,10 +2755,17 @@ O estado infernal revela:
 | **Consciência**   | Auto-transparência                 | Auto-alienação                     | Testemunhar a própria degradação   |
 | **Relação com o Ser** | Comunhão nupcial                 | Divórcio existencial               | Rejeitar a fonte do próprio existir |
 
-#### **§ 25.24 – Última Palavra: O Mistério da Liberdade**
-
-Esta análise nos confronta com o mistério último da condição humana:
+#### **§ 25.24 – O Mistério da Liberdade**
 
 > **Deus nos ama tanto que prefere nosso inferno auto-escolhido à nossa felicidade forçada** - respeita nossa liberdade até as últimas e mais terríveis consequências.
 
-O céu e o inferno não são lugares, mas **estados de relação** - modos de ser em relação ao Ser que nos fundamenta e sustenta.
+Céu e inferno não são lugares, mas **estados relacionais** — modos de ser-em-relação ao Ser que nos fundamenta e sustenta. Surge então uma questão decisiva: se o *sou* é livre, mas não pode exaurir seu próprio infinito, seria ele verdadeiramente livre para escolher a morte? Se a morte definitiva não é uma possibilidade ontológica para o *sou*, então a corrupção total também não o seria, o que pareceria limitar a própria liberdade.
+
+Aqui, contudo, opera-se uma dialética profunda: a **verdade de cada *sou* é relativa ao seu compromisso existencial**. A infinitude de um ato — ou seja, sua perpetuação intencional no tempo — consolida sua veracidade. Toda ocasião, forma ou situação infinita configura uma **vontade inesgotável** orientada para a sua própria autenticação. Essa vontade, perpetuamente reafirmada, constitui sua verdade última.
+
+Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se distingue da aniquilação definitiva, pois o *sou* que assim persiste — ainda que residualmente — já não vive a partir de si mesmo, mas apenas como vestígio de seu próprio processo de extinção. Ele não retorna à vida; não habita verdadeiramente a existência. Esse resíduo ontológico converte-se num **relativo inviolável**, que se define eternamente fora do campo das possibilidades do Ser — um existir que escolheu, para sempre, não-ser.
+
+Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
+
+
+
