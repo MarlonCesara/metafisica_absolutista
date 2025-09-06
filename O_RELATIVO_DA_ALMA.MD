@@ -317,6 +317,8 @@ Morrer para o corpo, segundo um contexto bíblico, significa morrer para uma vid
 
 Portanto, não são apenas indivíduos fortemente suicidas que revelam o niilismo, mas também aqueles que apresentam uma tendência a “morrer” para situações, sentimentos ou pensamentos ligados ao espírito humano, como relações humanas, vínculos verdadeiros, entre outros.
 
+Isto é, o indivíduo antecipa sua morte por meio de uma atitude de completo abandono de sua liberdade; não no sentido de realmente abandoná-la, pois o corpo de barro não possui tal possibilidade, mas sim de antecipar o comportamento. O suicídio ocorre, portanto, pela espera e pela inoperância do self. O indivíduo, assim, não intenciona a morte por meio de suas ações, mas pelo esperar. Sua vida torna-se uma encenação de uma entidade viva. Escarnece de si mesmo. Entra em um teatro mórbido, no qual é um animal conduzido pelos instintos, incapaz de sensibilizar-se pelo outro ou de humanizar-se. Imita fielmente um instinto primitivo, um modelo primitivo de comportamento que envolve dominação e conquista violenta do outro — ou qualquer outro modelo que se assemelhe ao comportamento selvagem, como seria também o caso da prostituição, na qual o indivíduo retira de si as propriedades espirituais e passa a considerar-se um ser objetal.
+
 #### **28. A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
