@@ -309,7 +309,15 @@ Contudo, quando percebe que o outro se mantém absolutamente indiferente à sua 
 
 Os niilistas ricos forçam risadas, forçam o sorriso, forçam conversas alegres — tudo encoberto pelo desespero que corrói suas almas, submetidas a um senhorio cruel que exercem sobre si mesmos. São escravos de si. São algozes de si mesmos. Onde estão, não há tranquilidade: apenas barulho, distrações e descargas de frustração despejadas sobre os mais frágeis, sobre os inocentes, como reflexo do tormento que carregam dentro de si.
 
-#### **26. A conversão dos niilistas**
+#### **27. A morte antecipada**
+
+O desejo do niilista pode ser ainda mais imediatista do que sua própria morte iminente; ele pode se manifestar no abandono do intelecto no que tange à alma. O indivíduo simplesmente renuncia à percepção de sua liberdade e do seu “eu”, buscando uma vida inteiramente pautada em sua esfera biológica. As atividades cotidianas que envolvem autoconsciência são deixadas de lado, de modo que o indivíduo incorpore um corpo sem alma. Ou seja, o abandono do “eu” torna-se semelhante ao abandono físico. O indivíduo passa a viver na ilusão de estar morrendo para o corpo, assumindo a postura de alguém aniquilado, sem que seja necessário experimentar a morte física.
+
+Morrer para o corpo, segundo um contexto bíblico, significa morrer para uma vida puramente biológica. Sob outro ângulo, podemos falar também do morrer para a alma, quando o indivíduo se entrega aos instintos, escarnecendo ou evitando qualquer contato com situações ou pensamentos que lhe atribuam o valor de um espírito livre, dotado de tendências morais e éticas.
+
+Portanto, não são apenas indivíduos fortemente suicidas que revelam o niilismo, mas também aqueles que apresentam uma tendência a “morrer” para situações, sentimentos ou pensamentos ligados ao espírito humano, como relações humanas, vínculos verdadeiros, entre outros.
+
+#### **28. A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
 
@@ -319,7 +327,7 @@ O afastamento desse vácuo existencial se inicia com um sutil mas crucial retorn
 
 Esse reavivar da subjetividade é a semente da moralidade. Ao se reconhecer como um ser dotado de valor intrínseco, de desejos e de uma história singular, o indivíduo torna-se capaz de **enxergar no outro a mesma complexidade e dignidade** que descobre em si. Ele deixa de ver os outros como organismos de manobra ou obstáculos em um jogo biológico e passa a reconhecê-los como **almas** — seres relacionais, portadores de uma humanidade compartilhada. Assim, a autorrealização e o reconhecimento do outro surgem como dois lados do mesmo movimento: o retorno à vida a partir do interior.
 
-#### **27. Reflexões sobre o niilismo**
+#### **29. Reflexões sobre o niilismo**
 
 O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
@@ -327,7 +335,7 @@ O niilista busca antecipar sua autopunição através de um completo esqueciment
 
 O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
 
-#### **28. A opressão histórica no mundo de barro**
+#### **30. A opressão histórica no mundo de barro**
 
 A descrição do niilista oferece uma visão profundíssima para compreender a mentalidade colonial. A crença de que escravizados e indígenas "não tinham alma" não era um simples erro de observação; era a *projeção* de um niilismo prático e de uma autodestruição espiritual por parte do colonizador.
 
