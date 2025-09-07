@@ -426,6 +426,10 @@ Além do autoesquecimento, a alma do inferno deixava como resquício de sua mem�
 
 Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
 
+## **A origem do niilismo**
+
+O niilismo tem apenas uma origem: a falta de amor. O indivíduo pode criar inúmeros pretextos para cultivar ódio e rancor diante de situações, pessoas ou acontecimentos de sua vida. Contudo, nada disso encontra cura no próprio acontecimento em si — este pode, no máximo, oferecer um alívio psicológico. O que realmente aplaca e regenera é o amor, capaz de regar as folhas murchas que se acumularam ao longo da existência: os sorrisos que não floresceram, as desventuras e as dores guardadas. Somente o amor é capaz de superar tudo.
+
 ## **A Mudança das Almas: O Processo Contínuo de Purificação e a Dinâmica do Juízo**
 
 Num insight tão claro quanto as águas do rio celestial, o filósofo entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
