@@ -294,12 +294,7 @@ O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue d
 
 O niilista escraviza porque deseja expor o algoz que habita dentro de si, voltado contra si mesmo. Provoca miséria e fome para revelar, em vestes rasgadas, o estado de seu emocional, e em sua carência vital, a fome de espírito que o consome e o arrasta lentamente ao esquecimento. Mata para manifestar sua própria índole sobre sua própria vida. Engana para exibir a vida de mentiras que construiu. O medo diante de sua condição opressora faz com que sua expressão em sociedade se torne desmedida, violenta e absurda. 
 
-#### **25. A Resposta Simples por Trás da Complexidade**
-
-O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar. Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
-E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
-
-#### **26. O absurdo da indiferença e a vergonha da compreensão**
+#### **25. O absurdo da indiferença e a vergonha da compreensão**
 
 Quando o niilista percebe que o outro o compreendeu — que penetrou em seus objetivos internos —, a máscara de sua impetuosidade e animosidade cai, deixando-o mergulhado em uma profunda baixa autoestima. A posição de poder que julgava possuir se dissolve, dando lugar a um coitadismo implícito, a uma pobreza estampada em cada olhar que o denuncia como niilista. A piedade da sociedade, em vez de consolá-lo, desperta nele humilhação, mágoa e angústia.
 
@@ -309,7 +304,7 @@ Contudo, quando percebe que o outro se mantém absolutamente indiferente à sua 
 
 Os niilistas ricos forçam risadas, forçam o sorriso, forçam conversas alegres — tudo encoberto pelo desespero que corrói suas almas, submetidas a um senhorio cruel que exercem sobre si mesmos. São escravos de si. São algozes de si mesmos. Onde estão, não há tranquilidade: apenas barulho, distrações e descargas de frustração despejadas sobre os mais frágeis, sobre os inocentes, como reflexo do tormento que carregam dentro de si.
 
-#### **27. A morte antecipada**
+#### **26. A morte antecipada**
 
 O desejo do niilista pode ser ainda mais imediatista do que sua própria morte iminente; ele pode se manifestar no abandono do intelecto no que tange à alma. O indivíduo simplesmente renuncia à percepção de sua liberdade e do seu “eu”, buscando uma vida inteiramente pautada em sua esfera biológica. As atividades cotidianas que envolvem autoconsciência são deixadas de lado, de modo que o indivíduo incorpore um corpo sem alma. Ou seja, o abandono do “eu” torna-se semelhante ao abandono físico. O indivíduo passa a viver na ilusão de estar morrendo para o corpo, assumindo a postura de alguém aniquilado, sem que seja necessário experimentar a morte física.
 
@@ -331,7 +326,7 @@ O niilista passivo compartilha a lógica do animal: acredita que deve viver segu
 
 Ao assassinar alguém, o niilista certamente não se sente bem; no entanto, tal ação contribui para reforçar seu pensamento interior de que a vida não possui significado ou propósito, e que sua atitude é apenas um processo biológico. O niilista lava as mãos na própria descrença. Suas ações, porém, não lhe proporcionam prazer moral — aquele ligado a ter feito o bem ou a conquistar um destino virtuoso —, mas sim o reforço de sua própria descrença. Portanto, suas atitudes não buscam estritamente o prazer, mas sim consolidar sua visão de que nada tem sentido. A postura niilista passiva consiste justamente no reforço da descrença por meio da ação. Enquanto o niilista ativo busca destruir o corpo na tentativa de concretizar seus pensamentos espiritualmente suicidas, vendo-se simultaneamente livre deles, o niilista passivo permite-se ser dominado por esses mesmos pensamentos, reforçando, por meio de suas ações, aquilo que eles simbolizam.
 
-#### **28. A conversão dos niilistas**
+#### **27. A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
 
@@ -341,7 +336,7 @@ O afastamento desse vácuo existencial se inicia com um sutil mas crucial retorn
 
 Esse reavivar da subjetividade é a semente da moralidade. Ao se reconhecer como um ser dotado de valor intrínseco, de desejos e de uma história singular, o indivíduo torna-se capaz de **enxergar no outro a mesma complexidade e dignidade** que descobre em si. Ele deixa de ver os outros como organismos de manobra ou obstáculos em um jogo biológico e passa a reconhecê-los como **almas** — seres relacionais, portadores de uma humanidade compartilhada. Assim, a autorrealização e o reconhecimento do outro surgem como dois lados do mesmo movimento: o retorno à vida a partir do interior.
 
-#### **29. Reflexões sobre o niilismo**
+#### **28. Reflexões sobre o niilismo**
 
 O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
@@ -349,7 +344,7 @@ O niilista busca antecipar sua autopunição através de um completo esqueciment
 
 O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
 
-#### **30. A opressão histórica no mundo de barro**
+#### **29. A opressão histórica no mundo de barro**
 
 A descrição do niilista oferece uma visão profundíssima para compreender a mentalidade colonial. A crença de que escravizados e indígenas "não tinham alma" não era um simples erro de observação; era a *projeção* de um niilismo prático e de uma autodestruição espiritual por parte do colonizador.
 
@@ -426,9 +421,14 @@ Além do autoesquecimento, a alma do inferno deixava como resquício de sua mem�
 
 Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
 
+A frase 'Deixe que os mortos enterrem seus mortos' reflete a visão do absurdo, na qual o indivíduo já se considera morto ainda em vida, tornando a morte meramente um processo de descarte daquele que nunca viveu de verdade ou nunca se animou para a vida. Ela enfatiza que não há por que chorar por quem nunca existiu de fato; pois a vida começa também na decisão por ela, no querer-viver. Nenhum motivo tolo, fútil ou risível poderia justificar o niilismo, que é a ausência total de amor no indivíduo. Nenhuma ação, acontecimento, notícia ou fato justifica a imposição de um castigo eterno, já que nenhum erro é eterno. Assim, tentar especular alternativas para a alma niilista muitas vezes parece desgastante e cansativo. Resta, portanto, apenas a explicação mais óbvia e que muitas vezes evitamos enxergar: a falta de amor.
+
 ## **A origem do niilismo**
 
 O niilismo tem apenas uma origem: a falta de amor. O indivíduo pode criar inúmeros pretextos para cultivar ódio e rancor diante de situações, pessoas ou acontecimentos de sua vida. Contudo, nada disso encontra cura no próprio acontecimento em si — este pode, no máximo, oferecer um alívio psicológico. O que realmente aplaca e regenera é o amor, capaz de regar as folhas murchas que se acumularam ao longo da existência: os sorrisos que não floresceram, as desventuras e as dores guardadas. Somente o amor é capaz de superar tudo.
+
+O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar. Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  
+E quando, enfim, chegavam ao paraíso e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
 
 ## **A Mudança das Almas: O Processo Contínuo de Purificação e a Dinâmica do Juízo**
 
