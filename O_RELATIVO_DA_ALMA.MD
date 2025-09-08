@@ -326,7 +326,19 @@ O niilista passivo compartilha a lógica do animal: acredita que deve viver segu
 
 Ao assassinar alguém, o niilista certamente não se sente bem; no entanto, tal ação contribui para reforçar seu pensamento interior de que a vida não possui significado ou propósito, e que sua atitude é apenas um processo biológico. O niilista lava as mãos na própria descrença. Suas ações, porém, não lhe proporcionam prazer moral — aquele ligado a ter feito o bem ou a conquistar um destino virtuoso —, mas sim o reforço de sua própria descrença. Portanto, suas atitudes não buscam estritamente o prazer, mas sim consolidar sua visão de que nada tem sentido. A postura niilista passiva consiste justamente no reforço da descrença por meio da ação. Enquanto o niilista ativo busca destruir o corpo na tentativa de concretizar seus pensamentos espiritualmente suicidas, vendo-se simultaneamente livre deles, o niilista passivo permite-se ser dominado por esses mesmos pensamentos, reforçando, por meio de suas ações, aquilo que eles simbolizam.
 
-#### **27. A conversão dos niilistas**
+
+#### **27.  O engano do Ordinário**
+
+O niilista reduz intencionalmente sua percepção do mundo à banalidade e à mediocridade. Envolve sua visão em um casulo estreito, aniquilando a riqueza conceitual de seu vocabulário e de seu pensamento. Ele trata a matéria como algo comum e desprovido de mistério, elevando os órgãos sensoriais ao status de fundamento último de sua existência.
+
+Descarta fenômenos extraordinários — como a própria manutenção da vida, a natureza da energia e seu funcionamento misterioso — atribuindo-lhes uma ordinariedade cinzenta. Esvazia de magia o inexplicável, tentando reduzir toda a complexidade do real a explicações fúteis e rasas. Não acredita em milagres, precisamente porque, para ele, nada é milagroso; é incapaz de enxergar que o simples fato de existir algo em vez de nada já é a maior maravilha de todas.
+
+Restringe todo o significado de suas ações ao plano terreno e material. Evita meticulosamente qualquer encantamento frente ao extraordinário, fechando-se à beleza, ao assombro e ao sublime. O mundo do niilista é, portanto, um mundo esvaziado de liberdade e profundidade, onde a matéria é vista em seu significado mais raso e utilitário. Ele é cego para a amplitude da auto-determinação humana e para o teor espiritual que permeia a vida.
+
+Essa visão de mundo, que sistematicamente evita considerar a liberdade humana, a dimensão do espírito e as pequenas sincronicidades que tecem significado em nosso propósito diário, é reduzida pelo niilista a pó. Sua percepção está morta para o encantamento, para as ilusões salutares, para o extraordinário e, em última análise, para a própria magia da existência.
+
+
+#### **28. A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
 
@@ -336,7 +348,7 @@ O afastamento desse vácuo existencial se inicia com um sutil mas crucial retorn
 
 Esse reavivar da subjetividade é a semente da moralidade. Ao se reconhecer como um ser dotado de valor intrínseco, de desejos e de uma história singular, o indivíduo torna-se capaz de **enxergar no outro a mesma complexidade e dignidade** que descobre em si. Ele deixa de ver os outros como organismos de manobra ou obstáculos em um jogo biológico e passa a reconhecê-los como **almas** — seres relacionais, portadores de uma humanidade compartilhada. Assim, a autorrealização e o reconhecimento do outro surgem como dois lados do mesmo movimento: o retorno à vida a partir do interior.
 
-#### **28. Reflexões sobre o niilismo**
+#### **29. Reflexões sobre o niilismo**
 
 O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
