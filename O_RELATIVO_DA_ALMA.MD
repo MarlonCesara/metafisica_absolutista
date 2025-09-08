@@ -327,7 +327,7 @@ O niilista passivo compartilha a lógica do animal: acredita que deve viver segu
 Ao assassinar alguém, o niilista certamente não se sente bem; no entanto, tal ação contribui para reforçar seu pensamento interior de que a vida não possui significado ou propósito, e que sua atitude é apenas um processo biológico. O niilista lava as mãos na própria descrença. Suas ações, porém, não lhe proporcionam prazer moral — aquele ligado a ter feito o bem ou a conquistar um destino virtuoso —, mas sim o reforço de sua própria descrença. Portanto, suas atitudes não buscam estritamente o prazer, mas sim consolidar sua visão de que nada tem sentido. A postura niilista passiva consiste justamente no reforço da descrença por meio da ação. Enquanto o niilista ativo busca destruir o corpo na tentativa de concretizar seus pensamentos espiritualmente suicidas, vendo-se simultaneamente livre deles, o niilista passivo permite-se ser dominado por esses mesmos pensamentos, reforçando, por meio de suas ações, aquilo que eles simbolizam.
 
 
-#### **27.  O engano do Ordinário**
+#### **27.  O engano do ordinário**
 
 O niilista reduz intencionalmente sua percepção do mundo à banalidade e à mediocridade. Envolve sua visão em um casulo estreito, aniquilando a riqueza conceitual de seu vocabulário e de seu pensamento. Ele trata a matéria como algo comum e desprovido de mistério, elevando os órgãos sensoriais ao status de fundamento último de sua existência.
 
