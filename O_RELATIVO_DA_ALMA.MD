@@ -678,14 +678,24 @@ A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída,
 
 Em síntese, Adão e Eva malograram o paraíso, transgrediram na dualidade e tiveram uma prole corrompida, pois se esquivaram um do outro numa corrupção da dualidade. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
 
+### **A história dos anjos**
 
+Ao considerar que o Gênesis começa por narrar o homem em seu estado anterior, angelical à sua vivificação, temos um cenário onde esses anjos lutavam no céu contra os anjos corrompidos. Isto é, temos até mesmo o campo das possibilidades pressuposto na corrupção angelical. E não somente os anjos, a corrupção e a transcendência dos anjos pressupostas nos textos sagrados, mas temos também até mesmo a ação humana do mundo remontada mais uma vez na horda celeste anterior à criação dos céus e da terra. A luta entre o bem e o mal foi também arquitetada no mundo angelical, premeditada; porém, de uma forma um pouco catastrófica.
 
+Ao pensar que o anjo da mais alta hierarquia se corrompeu e convenceu Adão e Eva a não coagir com o plano de Deus de povoar a terra, temos a figura de um anjo de grande conhecimento, que soube das possibilidades metafísicas com o intuito de usar sua inteligência para a destruição. Então, a Bíblia pressupõe um ser humano com um conhecimento metafísico transcendente. E que teria uma inteligência tão grande que poderia causar um grande caos.
 
+Lúcifer revelou coisas transcendentais, e que poderiam convencer o homem ao suicídio. E este suicídio não coagia com o plano de Deus, que era encher de cores o mundo, encher de almas, de amores, de opções, de personalidades, de vida. Lúcifer não ensinou o homem, mas usou do conhecimento para destruir, usou sua influência como forma de esvaziar o mundo. Teve um ato niilista. Porém, o contexto bíblico considera as opções mais catastróficas não somente como base da premeditação da misericórdia de Deus, que seria necessária. Então, no contexto bíblico, Lúcifer se corrompeu. Tal como o homem destruiu a terra. Se Lúcifer tivesse revelado um conhecimento apenas com o intuito de ensinar, não teria sido um ato niilista, mas revelou com o intuito de destruir.
 
+Um fato curioso é que Lúcifer era tão importante que sua saída não teria sido insignificante, mas levou um terço da horda celestial consigo; por isso, a possibilidade do uso errôneo de sua liberdade foi levada em consideração.
 
+O homem, portanto, foi criado. A partir da ótica da expulsão do Éden, foi premeditado com a queda, como se tivesse sucedido a tentação; mas a tentação só sucedeu porque Lúcifer lhe mostrou um caminho errôneo para a sua realização pessoal. Porém, a possibilidade de transcendência estava na mente de Adão e Eva. Só lhes foi apontado o caminho errado; pois Lúcifer era justamente o líder da horda celestial e teve uma influência negativa.
 
+O homem, moldado conforme a premeditação do seu pensamento de transcendência, foi feito para a ação que é levada por esse intuito inevitável, que é o despir da alma. A definição mais exata da morte é o desnudar da alma. E o desnudar da alma só faz sentido se há um propósito para tal, que é o encontro com o outro. Mediante o propósito de desnudar, seria necessário um corpo "móvel", no sentido de que seja meio espírito e meio corporal; isso evitaria a morte. Não há morte se a alma controla plenamente o corpo.
 
+Em Adão e Eva, não haveria o desnudar da alma se não pelo fruto proibido; não haveria morte se não pelo ato voluntário. E o homem já tem a consequência desse ato sem precisar praticá-lo. Isso significa que o homem foi criado segundo seu desejo de transcender. E isto é, com toda a certeza, melhor do que se tivesse sido criado de forma imortal e precisasse lançar-se sobre a insegurança da morte física para desnudar-se.
 
+Da mesma forma, o ser humano foi criado de modo a não poder ser corrompido por Lúcifer, pois a evolução possibilitou um sistema quase infalível. Se o primeiro homem com alma fosse corrompido, a evolução poderia sanar essa falta, já que as espécies evoluem de forma gradativa e não é criado um único exemplar de cada vez, de modo que, se um padece, todo o restante se perda.
 
+O homem foi criado de forma a ter diante de si não apenas seu caminho para a transcendência, mas também de participar do mistério dos nascimentos e da criação das almas, assim como de tomar parte nas lutas sociais, de modo a aprender o que é a ação niilista — potencial presente em sua própria prole.
 
 
