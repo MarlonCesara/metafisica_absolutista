@@ -698,4 +698,5 @@ Da mesma forma, o ser humano foi criado de modo a não poder ser corrompido por 
 
 O homem foi criado de forma a ter diante de si não apenas seu caminho para a transcendência, mas também de participar do mistério dos nascimentos e da criação das almas, assim como de tomar parte nas lutas sociais, de modo a aprender o que é a ação niilista — potencial presente em sua própria prole.
 
+E isto é profundamente poético e intenso, iremos morrer para encontrar, de forma definitiva, nosso verdadeiro amor. Uma prova de que todo amor deve ser intenso e verdadeiro, digno de tal ato. Digno da insegurança de poder estar renunciando à eternidade em troca de um olhar, de um toque verdadeiro, de uma união completa com o outro. Somente um amor que o fizesse poderia realmente transcender, teria a força da união sem pudor. Qualquer amor que não tivesse essa audácia certamente fugiria um do outro ao perceber que o ato de seu encontro reverberaria por toda a eternidade. A vida, ao passo que aparenta querer levar o homem ao seu máximo potencial, lhe adverte das consequências. Faz ambas as coisas de forma simultânea, de modo a mostrar o melhor e evitar todo o mal.
 
