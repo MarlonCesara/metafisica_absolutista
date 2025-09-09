@@ -337,7 +337,6 @@ Restringe todo o significado de suas ações ao plano terreno e material. Evita 
 
 Essa visão de mundo, que sistematicamente evita considerar a liberdade humana, a dimensão do espírito e as pequenas sincronicidades que tecem significado em nosso propósito diário, é reduzida pelo niilista a pó. Sua percepção está morta para o encantamento, para as ilusões salutares, para o extraordinário e, em última análise, para a própria magia da existência.
 
-
 #### **28. A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
@@ -348,7 +347,13 @@ O afastamento desse vácuo existencial se inicia com um sutil mas crucial retorn
 
 Esse reavivar da subjetividade é a semente da moralidade. Ao se reconhecer como um ser dotado de valor intrínseco, de desejos e de uma história singular, o indivíduo torna-se capaz de **enxergar no outro a mesma complexidade e dignidade** que descobre em si. Ele deixa de ver os outros como organismos de manobra ou obstáculos em um jogo biológico e passa a reconhecê-los como **almas** — seres relacionais, portadores de uma humanidade compartilhada. Assim, a autorrealização e o reconhecimento do outro surgem como dois lados do mesmo movimento: o retorno à vida a partir do interior.
 
-#### **29. Reflexões sobre o niilismo**
+#### **29. O niilista e a transcendência**
+
+O niilista atenta contra as formas de transcendência da alma, assumindo uma posição contrária a qualquer movimento que ultrapasse a mera condição material. Seja por meio da automutilação ou da adoção de comportamentos autodestrutivos, ele nega ativamente tudo que poderia favorecer sua própria transcendência.
+
+Na "vida de barro" — essa existência puramente terrena —, tais indivíduos buscavam interpretar o ser humano como uma unidade fechada, desprovida de transcendência, finita tanto no tempo quanto em sua essência. Seu objetivo era concretizar essa visão através de práticas e modelos de vida que interrompessem qualquer possibilidade de elevação espiritual. Essa negação não surge por vocação filosófica, mas sim a partir de um profundo ódio de si mesmos.
+
+#### **30. Reflexões sobre o niilismo**
 
 O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
@@ -356,7 +361,7 @@ O niilista busca antecipar sua autopunição através de um completo esqueciment
 
 O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
 
-#### **29. A opressão histórica no mundo de barro**
+#### **31. A opressão histórica no mundo de barro**
 
 A descrição do niilista oferece uma visão profundíssima para compreender a mentalidade colonial. A crença de que escravizados e indígenas "não tinham alma" não era um simples erro de observação; era a *projeção* de um niilismo prático e de uma autodestruição espiritual por parte do colonizador.
 
