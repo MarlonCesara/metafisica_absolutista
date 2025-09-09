@@ -349,9 +349,11 @@ Esse reavivar da subjetividade é a semente da moralidade. Ao se reconhecer como
 
 #### **29. O niilista e a transcendência**
 
-O niilista atenta contra as formas de transcendência da alma, assumindo uma posição contrária a qualquer movimento que ultrapasse a mera condição material. Seja por meio da automutilação ou da adoção de comportamentos autodestrutivos, ele nega ativamente tudo que poderia favorecer sua própria transcendência.
+O niilista atenta contra as formas de transcendência da alma, assumindo uma posição contrária a qualquer movimento que eleve o valor do ser humano e resignifique sua existência a partir da infinitude individual. O niilista o faz por meio da automutilação ou da adoção de comportamentos autodestrutivos, negando ativamente tudo que poderia favorecer sua própria transcendência.
 
-Na "vida de barro" — essa existência puramente terrena —, tais indivíduos buscavam interpretar o ser humano como uma unidade fechada, desprovida de transcendência, finita tanto no tempo quanto em sua essência. Seu objetivo era concretizar essa visão através de práticas e modelos de vida que interrompessem qualquer possibilidade de elevação espiritual. Essa negação não surge por vocação filosófica, mas sim a partir de um profundo ódio de si mesmos.
+Na “vida de barro” — essa existência puramente terrena —, tais indivíduos buscavam interpretar o ser humano como uma unidade fechada, desprovida de transcendência, finita tanto no tempo quanto em sua essência. Objetivavam concretizar essa visão por meio de práticas e modelos de vida que interrompessem qualquer possibilidade de transcendência. Essa negação não surgia por vocação ou por uma causa maior, mas sim a partir de um ódio profundo de si mesmos.
+
+Também incentivavam formas degradantes de concepção, que esvaziavam o significado de família e despojavam a sexualidade de qualquer significado como ato de união, transcendência e amor.
 
 #### **30. Reflexões sobre o niilismo**
 
