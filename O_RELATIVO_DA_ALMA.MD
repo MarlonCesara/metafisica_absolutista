@@ -728,3 +728,7 @@ São manifestações de um conflito interior projetado para fora, um grito de ab
 
 Enriquecer com base na opressão não revela uma estratégia genuinamente inteligente, mas sim um clamor para ser reconhecido em meio à própria fraqueza interior — um reflexo da escassez de qualquer brilho capaz de manter acesa a chama da vida.
 
+O emocional do niilista padece como o de uma criança que necessita de amparo. Seu comportamento se assemelha ao de uma criança birrenta e insatisfeita, pois sua intenção interior lhe causa profundo espanto e inquietude, exigindo constantemente consolo. As formas de opressão que pratica, como respostas emocionais, não se sustentam por muito tempo; basta que suas motivações sejam reveladas para que seus métodos desmoronem. Em outras palavras, a complexidade das formas de opressão não está nelas mesmas, mas sim na compreensão do que é o niilismo.
+
+Não é difícil compreender que o rico retém fortunas para si e que esse dinheiro faz falta à sociedade. O que é difícil de entender é a verdadeira motivação desse acúmulo. O rico procura revestir esse ato de um valor social, apresentando-o como construção, progresso ou acúmulo de reservas para investimento. Assim, faz o povo acreditar que esta é a única forma de crescimento social — quando, na realidade, não é a única, e muito menos a melhor. Esse acúmulo está inteiramente enraizado na vida emocional do rico, que, como já dito, depende de uma riqueza exterior para confortar sua obsessão niilista e seu vazio espiritual.
+
