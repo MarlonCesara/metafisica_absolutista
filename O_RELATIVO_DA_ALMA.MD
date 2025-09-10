@@ -703,3 +703,19 @@ E isto é profundamente poético e intenso, iremos morrer para encontrar, de for
 Assim como a morte das vestes da alma possibilita o encontro, também possibilita a morte definitiva, que é o inferno. E essa ambiguidade ficou explícita em Gênesis. Livrar-se do corpo de barro ou assumir uma forma móvel, como o corpo espiritual da glorificação, concede ao homem o acesso à transcendência ou à re-troscendência. O corpo de Adão e Eva tinha uma proteção especial contra o pecado, que era a forma. Mas a alma, no estado relativo, está livre até mesmo do medo da morte, pois o medo é natural do corpo humano e de seu instinto de sobrevivência.
 
 Portanto, o desejo pela liberdade, sob o qual a natureza circundante foi deduzida para nós, nos deu grandes benefícios, mas também grandes responsabilidades.
+
+### **O Fim dos Tempos**
+
+Será o momento em que as lutas sociais atingirem seu êxito final. Quando os poderosos caírem de seus tronos. Quando todas as formas de opressão desmoronarem e não restar qualquer resquício de desigualdade estrutural. Quando o patamar sobre o qual o niilismo se escondia — camuflado pela normalidade da ordem social injusta — for removido.
+
+Cada niilista será então obrigado a encarar a si mesmo, sem o subterfúgio das castas sociais, do poderio econômico ou da dominação sobre o outro. O ser humano, finalmente visto de igual para igual, olho no olho. Então, será revelado de forma crua e inevitável o que verdadeiramente habita no interior de cada um. A posição existencial, a saúde emocional e espiritual de cada alma será desvelada para todos.
+
+O rico, desprovido de suas riquezas, que índole terá? Que ânimo restará? Terá ainda sonhos, ou terá apenas um vazio? Será capaz de encontrar riqueza no simples amor à vida, agora que suas estruturas de dominação ruíram? Então, a verdade essencial de cada um virá à tona.
+
+O poderoso chorará como uma criança, pois, vendo sua fortuna em ruínas, o que se revelará em seu coração? Estará lá a verdadeira riqueza da vida, que é o desejo de continuar, de eternizar-se? Ou se encontrará um vazio imenso, o niilismo outrora mascarado, agora desvelado às claras em sua ruína existencial?
+
+O rico, a que recorrerá? As máscaras cairão por completo. E então, o que restará para ele, senão choro e ranger de dentes diante da própria pobreza interior que sempre negou?
+
+
+
+
