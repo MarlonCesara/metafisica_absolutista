@@ -744,3 +744,17 @@ De diversas formas o niilista tenta tornar-se visível. Imerso em seu conflito, 
 
 Assim, as formas de expressão niilistas não são necessariamente pedidos de resgate, mas repetições de uma crise existencial que se projeta em ação e em rejeição ao próprio estado interior. O niilista, ao desejar a destruição, deseja também o fim de seu conflito, pois seu corpo rejeita seus próprios pensamentos. Esse rejeitar de um estado interior, no âmbito humano, se traduz na tentativa de mostrar ou confidenciar sua condição ao outro. É um estado de alerta natural que é ligado no comportamento humano quando algo não está indo bem. Em síntese, o niilista se exibe interiormente, mas não necessariamente este exibir de sua verdade objetiva sua melhora.
 
+
+Enfim, o assassino clama pela vida.
+O bandido sonha com a redenção.
+O corrupto busca a ordem interior.
+O terrorista implora pela paz da alma.
+
+As atitudes que se voltam para a destruição acabam por violar até mesmo a essência humana da autopreservação, conduzindo a um conflito espiritual evidente.
+Diante do niilismo interior, o homem perde o sentido de ser humano e se lança numa busca desesperada e irracional por estabilidade emocional frente à medonha condição de sua própria interioridade.
+
+
+
+
+
+
