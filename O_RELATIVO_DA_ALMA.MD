@@ -720,3 +720,11 @@ Não me refiro apenas aos poderosos, mas também às classes mais baixas: aos ch
 
 Todos os que se mantinham em um patamar de orgulho, de tirania, de opressão — os frios e calculistas, os precursores do sistema opressivo, os colaboradores na periferia da casta mais rica, usufruindo das sobras da tirania. Pessoas que se apropriaram da índole dos ricos e servem ao mesmo propósito em troca de se sobressair um pouco acima da classe oprimida. Todas essas pessoas terão suas máscaras arrancadas e atiradas ao chão.
 
+Todos esses comportamentos não são simples erros, nem meras faltas de sabedoria ou moralidade; têm como pano de fundo a intenção deliberada de destruir a sociedade. Não se tratam de pessoas em busca de aprimoramento diante de suas fraquezas, mas de indivíduos decididos a promover a ruína social.
+
+Eles reproduzem o mesmo raciocínio do interior para o exterior: grandes opressores que agem pelo poder econômico e pequenos opressores que, subordinados a esse poder, apropriam-se da ideologia dos ricos — não por vantagem pessoal, mas por plena concordância com essa visão de mundo.
+
+São manifestações de um conflito interior projetado para fora, um grito de absurdo diante da inoperância da sociedade frente a esse problema. O niilista, em silêncio, tenta expressar ao mundo seu desânimo e seu desespero. Muitas vezes, esse grito é confundido com inteligência, quando na verdade se trata de um equívoco de compreensão.
+
+Enriquecer com base na opressão não revela uma estratégia genuinamente inteligente, mas sim um clamor para ser reconhecido em meio à própria fraqueza interior — um reflexo da escassez de qualquer brilho capaz de manter acesa a chama da vida.
+
