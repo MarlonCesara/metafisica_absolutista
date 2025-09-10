@@ -738,7 +738,4 @@ Nada disso se resume a uma ganância comum, a um defeito banal, a um deslize mor
 
 O niilista deseja que o outro carregue o fardo de sua decisão interior. Seu objetivo é enclausurar-se em si mesmo, impor-se o peso de um castigo eterno que, em sua visão, não merece. Contudo, tal fardo é demasiado pesado para ser suportado sozinho; por isso, busca colocá-lo sobre a sociedade. Mas esta, por sua vez, não pode violar a liberdade do indivíduo.
 
-
-
-
-
+Há diversas formas de expressão niilista, que se manifestam nas mais variadas esferas, como a arte, as opiniões, o ativismo ideológico e diferentes comportamentos. No entanto, o que mais prejudica a sociedade é a soberba: o acúmulo de riquezas que a priva dos recursos necessários para enfrentar essas expressões. Afinal, retirar da sociedade os meios que poderiam fortalecer o bem comum enfraquece o combate a toda a estrutura comportamental niilista.
