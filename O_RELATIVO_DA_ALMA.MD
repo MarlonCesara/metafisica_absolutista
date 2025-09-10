@@ -716,6 +716,7 @@ O poderoso chorará como uma criança, pois, vendo sua fortuna em ruínas, o que
 
 O rico, a que recorrerá? As máscaras cairão por completo. E então, o que restará para ele, senão choro e ranger de dentes diante da própria pobreza interior que sempre negou?
 
+Não me refiro apenas aos poderosos, mas também às classes mais baixas: aos chefes opressores, aos líderes omissos, aos pequenos coordenadores tirânicos. E vou além: incluo todos aqueles que se utilizam da opressão do mais vulnerável numa tentativa de parecer vigorosos, valendo-se de uma suposta força interior que, na verdade, é tão frágil que não consegue sequer sustentar sua própria luz por meio da vontade.
 
-
+Todos os que se mantinham em um patamar de orgulho, de tirania, de opressão — os frios e calculistas, os precursores do sistema opressivo, os colaboradores na periferia da casta mais rica, usufruindo das sobras da tirania. Pessoas que se apropriaram da índole dos ricos e servem ao mesmo propósito em troca de se sobressair um pouco acima da classe oprimida. Todas essas pessoas terão suas máscaras arrancadas e atiradas ao chão.
 
