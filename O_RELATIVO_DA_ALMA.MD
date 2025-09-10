@@ -732,3 +732,13 @@ O emocional do niilista padece como o de uma criança que necessita de amparo. S
 
 Não é difícil compreender que o rico retém fortunas para si e que esse dinheiro faz falta à sociedade. O que é difícil de entender é a verdadeira motivação desse acúmulo. O rico procura revestir esse ato de um valor social, apresentando-o como construção, progresso ou acúmulo de reservas para investimento. Assim, faz o povo acreditar que esta é a única forma de crescimento social — quando, na realidade, não é a única, e muito menos a melhor. Esse acúmulo está inteiramente enraizado na vida emocional do rico, que, como já dito, depende de uma riqueza exterior para confortar sua obsessão niilista e seu vazio espiritual.
 
+O niilismo possui seu movimento ideológico, expresso no crime organizado, nas engrenagens da opressão instauradas nas grandes empresas, nos governos tirânicos e nos que fomentam a guerra. Todos estes são a bandeira do niilismo erguida: uma força que deseja oprimir e, ao mesmo tempo, ser sanada. O niilista é ambíguo: quer a destruição, mas também o amparo. Deseja permanecer oculto e desaparecer, mas igualmente anseia se exibir às claras em luxos e excessos, como quem escracha e denuncia, de modo vibrante, sua cruel verdade interior.
+
+Nada disso se resume a uma ganância comum, a um defeito banal, a um deslize moral de raiva ou de competição; trata-se, antes, de um desespero nascido da percepção de sua própria intenção — da tirania que exerce sobre si mesmo. Quando a sociedade repudia toda forma de opressão, repudia também a expressão do niilismo, obrigando o niilista a confrontar a si próprio, a lidar com sua própria liberdade, cujo peso insuportável tenta lançar sobre o outro.
+
+O niilista deseja que o outro carregue o fardo de sua decisão interior. Seu objetivo é enclausurar-se em si mesmo, impor-se o peso de um castigo eterno que, em sua visão, não merece. Contudo, tal fardo é demasiado pesado para ser suportado sozinho; por isso, busca colocá-lo sobre a sociedade. Mas esta, por sua vez, não pode violar a liberdade do indivíduo.
+
+
+
+
+
