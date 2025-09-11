@@ -758,5 +758,11 @@ O corpo do niilista está em constante estado de fuga, de forma a não aceitar a
 
 O humano, em sua aparente desumanidade, muitas vezes está querendo justamente recuperar o seu âmbito humano também em seu espírito. Não basta ao humano ter atitudes humanas; sua posição interior deve ser direcionada à vida.
 
+O niilista muito histérico pode ter suas tentativas de suicídio malogradas pelas coincidências da vida. Há também o niilista que está em plena decisão, esboçando um alto nível de maquiavelismo e violência.
 
+Os niilistas não formam motins no sentido de união, mas no de identificar na ação do outro um espelhamento de sua própria ação. Isto é, não se organizam em prol de uma causa, como se fossem um time; se estão reunidos, é porque encontraram uma causa mútua que corresponde à necessidade de expressar o que sentem.
+
+O niilista não deixa de ser humano: a própria expressão niilista é a prova disso, pois escracha e repudia o próprio niilismo com uma manifestação desesperada, uma expressão que escancara a distorção existente dentro de si. 
+
+O niilista tem noção do absurdo, da completa loucura de si mesmo, e essa noção é fruto de sua humanidade; caso contrário, o ato niilista seria totalmente desprovido de maquiavelismo, tirania ou qualquer tipo de maldade. O niilismo se direciona à ausência, até mesmo da ação. As distorções ao longo do caminho que o indivíduo enfrenta não constituem o niilismo consumado, mas sim a tentativa biológica do corpo de se adaptar ao conteúdo de sua alma.
 
