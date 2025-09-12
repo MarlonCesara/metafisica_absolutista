@@ -778,6 +778,4 @@ A soberba não é uma vaidade, não é um tipo de cultura e muito menos advém d
 
 O niilista trocaria sua fortuna por sonhar. Trocaria todos os seus excessos pela simplicidade. Trocaria todo o mal que faz por boas atitudes. Mas não pode o fazer, pois sua posição interior exige um grande gasto de energia, exige um posicionamento desnecessário, duro, desonesto consigo mesmo e com o outro. A máscara do niilismo é dura de ser sustentada, é pesada e muitas vezes se passa por ideal de comportamento. A riqueza não é acumulada pelos ricos por inteligência, mas por uma disposição de fazer qualquer coisa por dinheiro – inclusive o mal. Da mesma forma, a prostituição não brota de mentes desapegadas, mas daquelas que desejam fugir de si mesmas, de esquecer que têm uma alma.
 
-
-
-
+Nem todo mau comportamento está associado ao niilismo, mas a característica principal do niilismo não é a falsidade. O erro que advém de uma tentação é diferente do que nasce de uma falsidade interior, da tentativa de mascarar a fraqueza com artifícios, distorcendo a natureza humana e transfigurando-a em atitudes desconexas ao humano. Portanto, distinguimos um comportamento de mascaramento do niilismo do erro natural. Um não-niilista erra por sua baixa sabedoria, evolução ou aprendizado; já o niilista erra por mascaramento de sua temível decisão, tentando enganar a sociedade e a si mesmo quanto ao seu conflito.
