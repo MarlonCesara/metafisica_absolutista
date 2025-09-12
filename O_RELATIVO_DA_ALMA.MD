@@ -776,8 +776,7 @@ A soberba é a máscara da insegurança interior. O soberbo olha para a vida e s
 
 A soberba não é uma vaidade, não é um tipo de cultura e muito menos advém de uma personalidade inteligente. A soberba advém da mais escrachada covardia perante a vida, da quase total ausência do amor, da capacidade de perdoar, relevar, amar e sorrir. Ser soberbo está a uma distância infinita de saber selecionar companhias, de apreciar coisas boas; a soberba advém da mais vergonhosa fraqueza, da mais temível decisão interior, que o indivíduo esconde devido a tamanho absurdo. A soberba nasce no indivíduo que pede socorro, que pede esmolas para um interior tão fraco que nem mesmo quer se sustentar. A soberba não advém da força e do requinte, advém da fraqueza do niilismo mascarada por trás de riquezas materiais e poder.
 
-O niilista trocaria sua fortuna por sonhar. Trocaria todos os seus excessos pela simplicidade. Trocaria todo o mal que faz por boas atitudes. Mas não pode o fazer, pois sua posição interior exige um grande gasto de energia, exige um posicionamento desnecessário, duro, desonesto consigo mesmo e com o outro. A máscara do niilismo é dura de ser sustentada, é pesada e muitas vezes se passa por ideal de comportamento.
-
+O niilista trocaria sua fortuna por sonhar. Trocaria todos os seus excessos pela simplicidade. Trocaria todo o mal que faz por boas atitudes. Mas não pode o fazer, pois sua posição interior exige um grande gasto de energia, exige um posicionamento desnecessário, duro, desonesto consigo mesmo e com o outro. A máscara do niilismo é dura de ser sustentada, é pesada e muitas vezes se passa por ideal de comportamento. A riqueza não é acumulada pelos ricos por inteligência, mas por uma disposição de fazer qualquer coisa por dinheiro – inclusive o mal. Da mesma forma, a prostituição não brota de mentes desapegadas, mas daquelas que desejam fugir de si mesmas, de esquecer que têm uma alma.
 
 
 
