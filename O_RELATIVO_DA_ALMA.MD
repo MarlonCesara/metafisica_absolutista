@@ -767,3 +767,10 @@ O niilista não deixa de ser humano: a própria expressão niilista é a prova d
 O niilista tem noção do absurdo, da completa loucura de si mesmo, e essa noção é fruto de sua humanidade; caso contrário, o ato niilista seria totalmente desprovido de maquiavelismo, tirania ou qualquer tipo de maldade. O niilismo se direciona à ausência, até mesmo da ação. As distorções ao longo do caminho que o indivíduo enfrenta não constituem o niilismo consumado, mas sim a tentativa biológica do corpo de se adaptar ao conteúdo de sua alma.
 
 O niilista não consegue se manter frio, implacável, insensível ou impassível diante de sua posição interior, pois isso está distante do senso comum humano, longe da própria humanidade. A maior maldade do niilista seria permanecer oculto, insensível, sorrateiro e desaparecer da existência sem dar nenhum sinal de alerta. O âmbito humano do niilista torna-se perceptível em sua revolta, em sua inadequação social.
+
+A sintomática do niilista, a princípio, parece uma arma em favor dele; mas, compreendido o mecanismo do niilismo, torna-se uma arma em prol da sociedade, permitindo identificar tais pessoas por seu posicionamento interior. O que está oculto, por meio da manifestação sintomática do comportamento niilista, revela-se de forma clara e torna-se compreensível. O niilismo, portanto, quando manifestado no humano, não passa impassível pelo filtro do bom senso do corpo, que o expõe escancaradamente à sociedade. Só não é revelado quando o comportamento do niilista ainda se encontra de forma difusa no entendimento das ciências psicológicas e metafísicas. 
+
+
+
+
+
