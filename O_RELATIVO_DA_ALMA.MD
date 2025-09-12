@@ -770,7 +770,7 @@ O niilista não consegue se manter frio, implacável, insensível ou impassível
 
 A sintomática do niilista, a princípio, parece uma arma em favor dele; mas, compreendido o mecanismo do niilismo, torna-se uma arma em prol da sociedade, permitindo identificar tais pessoas por seu posicionamento interior. O que está oculto, por meio da manifestação sintomática do comportamento niilista, revela-se de forma clara e torna-se compreensível. O niilismo, portanto, quando manifestado no humano, não passa impassível pelo filtro do bom senso do corpo, que o expõe escancaradamente à sociedade. Só não é revelado quando o comportamento do niilista ainda se encontra de forma difusa no entendimento das ciências psicológicas e metafísicas. 
 
-### **A insegurança do soberbo*
+### **A insegurança do soberbo**
 
 A soberba é a máscara da insegurança interior. O soberbo olha para a vida e se sente inseguro, sem chão, sem seu autossuporte. A liberdade deveria ser espetacular para ele; o soberbo olha as estrelas não com alegria, mas com saudade da sua despedida interior. O soberbo disfarça sua insegurança no acúmulo, na exclusão do seu próximo, na sua vida de excessos, mas na verdade nada disso lhe importa. O que o soberbo realmente queria era descansar em paz no seu travesseiro. Com a mesma paz que vê no trabalhador, queria ter o mesmo sorriso do humilde com o pouco que o sustenta. Precisa oprimir, escravizar, enganar porque está distante de estar humanizado; ser humano significa se encarar, olhar a própria verdade, olhar direto nos olhos dos céus e sorrir de gratidão pela vida. Ser humano representa uma atitude de coragem interior. Uma atitude de firmeza da alma. Quem sabe ser humano tem um porto seguro, tem um amigo interior para a eternidade.
 
