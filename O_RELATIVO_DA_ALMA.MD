@@ -447,13 +447,11 @@ As almas no inferno têm uma dureza de coração tão grande que nem mesmo mensu
 
 Além do autoesquecimento, a alma do inferno deixava como resquício de sua memória um fogo flamejante. O eu da alma não era mais sensível a ela, mas seu potencial de infinitude ainda a realimentava de si mesma, ao mesmo tempo em que era imediatamente consumido pelo fogo que ela própria adentrara, que ela mesma criara por sua contínua decisão. O corpo flamejante era um corpo de olhos vazios, sem um eu. Não possuía uma personalidade, mas guardava uma certa semelhança com a alma que nele queimava. Assemelhava-se a um fantasma da alma consumida, que chorava incessantemente por seu eu esquecido, em um desespero incalculável e incompreensível. Os corpos flamejantes partiam para lugares distantes em busca de seu eu. Não interagiam, não conversavam, somente choravam e rangiam os dentes num pranto interminável — uma imagem que evoca o *"lá haverá choro e ranger de dentes"* (Mt 13,42) e a doutrina da *poena damni* (pena de dano), a privação da visão beatífica.
 
-## **A visão do absurdo e a consolação da alma não niilista**
+## **A origem do niilismo e a consolação da alma não niilista**
 
 Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
 
 A frase 'Deixe que os mortos enterrem seus mortos' reflete a visão do absurdo, na qual o indivíduo já se considera morto ainda em vida, tornando a morte meramente um processo de descarte daquele que nunca viveu de verdade ou nunca se animou para a vida. Ela enfatiza que não há por que chorar por quem nunca existiu de fato; pois a vida começa também na decisão por ela, no querer-viver. Nenhum motivo tolo, fútil ou risível poderia justificar o niilismo, que é a ausência total de amor no indivíduo. Nenhuma ação, acontecimento, notícia ou fato justifica a imposição de um castigo eterno, já que nenhum erro é eterno. Assim, tentar especular alternativas para a alma niilista muitas vezes parece desgastante e cansativo. Resta, portanto, apenas a explicação mais óbvia e que muitas vezes evitamos enxergar: a falta de amor.
-
-## **A origem do niilismo**
 
 O niilismo tem apenas uma origem: a falta de amor. O indivíduo pode criar inúmeros pretextos para cultivar ódio e rancor diante de situações, pessoas ou acontecimentos de sua vida. Contudo, nada disso encontra cura no próprio acontecimento em si — este pode, no máximo, oferecer um alívio psicológico. O que realmente aplaca e regenera é o amor, capaz de regar as folhas murchas que se acumularam ao longo da existência: os sorrisos que não floresceram, as desventuras e as dores guardadas. Somente o amor é capaz de superar tudo.
 
@@ -463,8 +461,8 @@ O individuo, se forçado a refletir sobre sua dura posição, não encontra a re
 
 Num insight tão claro quanto as águas do rio celestial, o filósofo entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
 
-- As **Almas Leves** haviam praticado o desapego e encontravam-se livres, realizando a bem-aventurança dos pobres em espírito (Mt 5,3);
-- As **Almas Pesadas** haviam cultivado obsessões e agora as reviviam, experimentando o peso de seus próprios apegos desordenados;
+- As **Almas brilhantes** haviam praticado o desapego e encontravam-se livres, realizando a bem-aventurança dos pobres em espírito (Mt 5,3);
+- As **Almas opacas** haviam cultivado obsessões e agora as reviviam, experimentando o peso de seus próprios apegos desordenados;
 - As **Almas que se Dissolviam** haviam negado seu próprio direito à existência e consumavam essa negação, actualizando o pecado contra o Espírito Santo (Mc 3,29);
 - As **Almas que se Dissolviam e retornavam** representavam aquelas cuja intenção pelo apagão não foi eterna, onde uma centelha de arrependimento ou aceitação permitia o retorno — manifestando a misericórdia divina que não quer a morte do pecador, mas que se converta e viva (Ez 33,11).
 
