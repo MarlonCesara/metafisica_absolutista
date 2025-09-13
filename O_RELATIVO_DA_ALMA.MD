@@ -173,7 +173,7 @@ O filósofo, movido por uma sede insaciável de compreensão, dedicou-se a estud
 
 Notou que as almas despertas dividiam-se em três categorias, não por hierarquia, mas por vibração, como notas distintas de uma mesma melodia cósmica — reflectindo a diversidade de graus de glória na visão beatífica (1 Cor 15,41-42) e a variedade de carismas e vocações na unidade do Corpo Místico de Cristo.
 
-### **As Almas Leves: Os Justos que Brilham como o Sol**
+### **As Almas brilhantes: Os Justos que Brilham como o Sol**
 
 Cerca de metade das que despertavam — emergiam como pétalas ao vento, prontas para dançar. Seus corpos luminosos irradiavam cores suaves, mutáveis, como auroras boreais brincando com o crepúsculo. Essas almas não perguntavam, não duvidavam — mergulhavam no paraíso com a naturalidade de quem retorna a um lar há muito esperado. Tocavam as flores de cristal, banhavam-se nos rios de luz, e seu riso ecoava como sinos de prata nas colinas eternas.
 
@@ -181,7 +181,7 @@ Ao conversar com elas, o filósofo descobria histórias de vidas terrenas marcad
 
 Ao conversar com elas, o filósofo descobria histórias de vidas tecidas em devoção silenciosa. Não eram apenas fiéis, padres ou devotos, mas almas que respiravam o sagrado no cotidiano: mulheres que transformavam pães em bênçãos, men que cujas orações eram tão naturais quanto o bater do coração, crianças que ofertavam sorrisos como se fossem preces. Sua espiritualidade não se limitava a templos ou ritos — era um fio dourado que costurava cada ato, cada pensamento. A caridade não era dever, mas linguagem; a prece, não súplica, mas diálogo sereno com o divino. E assim, sem alarde, haviam polido seus espíritos como se lapidam pérolas no fundo do mar, até que toda resistência se dissolvesse e só restasse a luz — suave, íntima e infinita como o abraço de Deus — imagem dos "justos" que brilharão como o sol no Reino do Pai (Mt 13,43).
 
-### **As Almas Pesadas: A Prisão do Ego e a Dor da Perda**
+### **As Almas Opacas: A Prisão do Ego e a Dor da Perda**
 
 Elas formavam a outra metade — aquelas que despertavam com um estremecimento abrupto, como quem é arrancado de um pesadelo. Sua luminosidade era opaca e intermitente, frequentemente manchada por veias de sombra que pulsavam em sintonia com seus pensamentos mais perturbadores. Algumas gritavam acusações ao vazio, outras repetiam, incansavelmente, gestos inúteis e automatizados — apertar mãos fantasmas, contar moedas imaginárias. Uma mulher de luz turva insistia em arrumar vestidos que não existiam mais; um homem de contornos nebulosos recitava discursos para multidões ausentes.
 
