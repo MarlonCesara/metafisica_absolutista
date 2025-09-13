@@ -106,7 +106,9 @@ Aquele novo corpo que ele ganhara possuía muitos outros dons. Servia-lhe tanto 
 
 O novo corpo possuía todas as habilidades do antigo, porém, acrescidas de um potencial infinito. Conferia ao seu portador uma liberdade imensa. O corpo sucumbia ao pensamento de uma forma extraordinária. Se o corpo anterior praticamente comandava a alma, este era agora quase que inteiramente conduzido por ela. As experiências nele vividas eram indescritíveis, prefigurando as propriedades do *corpo glorioso* descrito por São Paulo em 1 Coríntios 15:42-44 — impassível, sutil, ágil e claro.
 
-## **Os Estranhos Homens de Barro: Uma Alegoria da Condição Decaída**
+O corpo se submetia inteiramente à vontade da alma, chegando até mesmo a irradiar uma essência interior proveniente do espírito. Esse novo corpo possuía as mesmas propriedades do corpo terreno, porém ampliadas em suas possibilidades, moldadas pela criatividade da alma. Podia, portanto, desfazer-se e reintegrar-se, sendo assim imortal. Não havia como aniquilá-lo, pois, ao simples querer da alma, ele se reconstituía. Tratava-se de um corpo plenamente dinâmico, que transcendia as leis ordinárias da matéria e permitia à alma controlá-lo de maneira extraordinária.
+
+## **Os Estranhos Homens de Barro: A Condição terrena da alma**
 
 E então, ela passou. Uma borboleta translúcida, cintilando em tons suaves de âmbar e branco, atravessou o ar como uma prece em movimento. No instante em que suas asas tocaram a brisa, o sábio sentiu, como num suspiro eterno, o sentimento do vento ao voar — um êxtase silencioso, um chamado à liberdade. Mas havia mais: junto à sensação do voo, emergiu um sentimento inesperado de devoção e amizade, como se aquela criatura o reconhecesse, e ele, por sua vez, visse nela algo profundamente familiar. Não era uma amizade nascida da convivência, mas de algo anterior, essencial, como se fossem feitos do mesmo sopro de origem — o *spiraculum vitae* de Gn 2,7.
 
