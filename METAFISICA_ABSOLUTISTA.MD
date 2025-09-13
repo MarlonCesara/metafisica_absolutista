@@ -2778,4 +2778,7 @@ Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
 
 
+## Perguntas e respostas
 
+Como a alma pode decidir estando em seu estado relativo?
+Em seu estado relativo já contempla todas as decisões, portanto, a decisão já está operante no que tange ao tempo e a forma na qual quer estar.
