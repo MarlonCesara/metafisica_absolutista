@@ -793,18 +793,10 @@ O niilista é como uma criança insegura escondida por trás de grandes castelos
 
 ### **Traços de niilismo**
 
-O niilismo pode estar enraizado de forma amena num individuo que as vezes cre e as vezes descre da vida. De forma que, manifeste apenas seus primeiros traços. Quando a falta de perdão provoca o rancor, e isto vai se enraizando no coração humano, pode culminar algumas raizes na esfera mais intima do ser humano, que é sua decisão de viver, sua auto-sustentação. Um ódio não tratado começa a se enraizar aos poucos até permear sobre a total perca do juizo pessoal, quando o ser humano vive pelo ódio de forma que não se importa nem mais consigo mesmo. 
+O niilismo pode estar enraizado de forma amena em um indivíduo que às vezes crê e às vezes descrê da vida. Dessa forma, manifesta apenas seus primeiros traços. Quando a falta de perdão provoca o rancor, e isto vai se enraizando no coração humano, pode culminar em algumas raízes na esfera mais íntima do ser humano, que é sua decisão de viver, sua auto-sustentação. Um ódio não tratado começa a se enraizar aos poucos até permear a total perda do juízo pessoal, quando o ser humano vive pelo ódio de tal forma que já não se importa nem mais consigo mesmo.
 
-O começo do ódio tem relação com a apropriação de comportamamentos de controle do outro, apropriaçãoes da direita politica para si que defende as estruturas de controle, o inicio de consumo de substancias cancerigenas ou nocivas a saude, entre outros; o niilismo começa sorrateiramente pelo excesso de vantagem sobre o outor, o excesso de posses para exibiciosnimo, tudo isso é indicio de uma animosidade que se manifesta lentamente.
+O começo do ódio tem relação com a apropriação de comportamentos de controle do outro, apropriações da direita política para si que defende as estruturas de controle, o início do consumo de substâncias cancerígenas ou nocivas à saúde, entre outros. O niilismo começa sorrateiramente pelo excesso de vantagem sobre o outro, pelo excesso de posses para exibicionismo; tudo isso é indício de uma animosidade que se manifesta lentamente.
 
-O niilista em estagio inicial já não quer se igualar as outras pessoas, o ódio lhe consumiu de tal forma que precisa ter sempre mais que o outro, na tentativa de fazer valer sua vida nas coisas materiais. O apego demasiado ao material é um dos indicios mais claro do niilismo, quando o individuo começa a deslumbrar as posses, a sua posição social perante ao imaginario pensamento do outro em sua cabeça, quando começa a espelhar seu valor no seu bem material ou no que o outro pensa de si. Pois não encontra mais um valor em sua vida que passa a se tornar um item de descarte.
+O niilista, em estágio inicial, já não quer se igualar às outras pessoas; o ódio o consumiu de tal forma que precisa ter sempre mais que o outro, na tentativa de fazer valer sua vida nas coisas materiais. O apego demasiado ao material é um dos indícios mais claros do niilismo: quando o indivíduo começa a se deslumbrar com as posses, com sua posição social perante o imaginário pensamento do outro em sua cabeça, quando começa a espelhar seu valor em seus bens materiais ou no que o outro pensa de si. Pois já não encontra mais um valor em sua vida, que passa a se tornar um item de descarte.
 
-O acumulo é um choro retido no individuo por si mesmo, é quando o individuo se desvaloriza ou odeia ao ponto da auto-rejeição. O acumulo é o próprio esquecimento de si manifestado materialmente; a auto consciencia dá lugar a consciencia do outro sobre si - competição social- e a posse excessiva de bens substitui a sua estadia na vida.
-
-
-
-
-
-
-
-
+O acúmulo é um choro retido no indivíduo por si mesmo; é quando ele se desvaloriza ou se odeia a ponto da auto-rejeição. O acúmulo é o próprio esquecimento de si manifestado materialmente; a autoconsciência dá lugar à consciência do outro sobre si — a competição social — e a posse excessiva de bens substitui sua própria estadia na vida.
