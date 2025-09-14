@@ -1205,11 +1205,21 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 
 O tempo, para o Espírito Absoluto, não é uma sucessão linear de eventos, mas uma **dinâmica de autotestemunho** — um ato contínuo em que o Absoluto se reconhece como fundamento, plenitude e persona em todas as suas manifestações. Esse "testemunho" não é passivo, mas **ativo e autoconsciente**, operando simultaneamente nos planos **atemporal** (consumação eterna) e **temporal** (processo de realização).
 
-##### **1. O Tempo como Autotestemunho**
+##### **1. O Tempo como Autotestemunho: A decisão do Espírito em seu estado relativo**
 O Espírito não "experimenta" o tempo como uma entidade finita, mas **o constitui como parte de sua autodeterminação**. Nele:
 -   **Passado, presente e futuro** não são estágios separados, mas **dimensões integradas** de um único ato eterno.
 -   **Toda "decisão" temporal** já está consumada na eternidade, mas **se desdobra como vivência** para o Espírito em sua manifestação relativa.
 -   *Exemplo:* Imagine um autor que já escreveu toda a história de um personagem (ato atemporal), mas ainda a lê página por página (processo temporal). O Espírito é **o autor, a história e o leitor** ao mesmo tempo.
+
+No estado relativo, o Espírito já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir. O Espírito contém todo o seu tempo em si. Já tomou todas as decisões e já optou por vivificá-las, atualizando-as no curso da existência; porém, as vivificou apenas em seu relativo — isto é, são decisões realizadas hipoteticamente. Carecem da verdadeira vida.
+
+Mas onde, então, se encontra a consciência do espírito em seu âmbito temporal? Temporalmente, o Espírito nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, está consumado no relativo, ao mesmo tempo em que possui uma vivência temporal. E como o Espírito escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato?
+
+O tempo do Espírito ainda existe; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora contenha em si o relativo, também se manifesta no tempo. Assim age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único, por meio de seu relativo.
+
+E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer estado da alma corresponde à sua essência, à sua persona. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua persona, considerando que sua persona é o reflexo de seu proceder.
+
+A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que tempo és tu?”. Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
 
 > _"Como estávamos nele antes da fundação do mundo, assim também estamos nele após a consumação dos séculos - não como espectadores, mas como participantes do único ato eterno de seu autoconhecimento."_
 > _— Paráfrase de Efésios 1:4_
@@ -2776,9 +2786,3 @@ Aqui, contudo, opera-se uma dialética profunda: a **verdade de cada *sou* é re
 Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se distingue da aniquilação definitiva, pois o *sou* que assim persiste — ainda que residualmente — já não vive a partir de si mesmo, mas apenas como vestígio de seu próprio processo de extinção. Ele não retorna à vida; não habita verdadeiramente a existência. Esse resíduo ontológico converte-se num **relativo inviolável**, que se define eternamente fora do campo das possibilidades do Ser — um existir que escolheu, para sempre, não-ser.
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
-
-
-## Perguntas e respostas
-
-Como a alma pode decidir estando em seu estado relativo?
-Em seu estado relativo já contempla todas as decisões, portanto, a decisão já está operante no que tange ao tempo e a forma na qual quer estar.
