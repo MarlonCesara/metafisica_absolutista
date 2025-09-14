@@ -1964,6 +1964,16 @@ A liberdade humana não é uma ilusão ou uma ameaça à soberania divina, mas *
 -   As demais possibilidades permanecem suspensas, pois carecem da verdade plena — uma realidade não vívida é, em essência, não personificada.
 -   Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então o Ser também teria infinitas possibilidades de ação em sua integralidade.
 
+Como a alma pode decidir em seu estado relativo?
+No estado relativo, ela já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir.
+
+A alma contém em si todo o seu tempo. Já tomou todas as decisões, ainda que sem atribuí-las à verdadeira vida, isto é, à sua consciência temporal autêntica.
+Mas onde, então, se encontra a consciência da alma? A decisão da alma é análoga ao sistema de decisão do Espírito. Isso significa que, temporalmente, a alma nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, ela está consumada no relativo, ao mesmo tempo em que experimenta uma vivência temporal.
+
+E como a alma escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato? O tempo da alma ainda subsiste; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora contenha em si o relativo, manifesta-se também no tempo.
+
+Assim também age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único por meio de seu relativo. A alma, sendo uma unidade-espelho do Ser fundamental, perpetua a mesma lógica. Existe em um tempo que lhe é próprio, que reflete quem ela é; e nesse tempo se origina como expressão de sua persona. Pois a alma não está no tempo: a alma é o seu próprio tempo. E é criada no tempo do Espírito, o qual também faz jus à persona do mesmo.
+
 #### **§ 18.5 – A Atemporalidade do Ser e a Manifestação Temporal**
 
 O Ser não precisa "adentrar" no tempo, pois em sua natureza integral todos os acontecimentos já estão consumados. Não há necessidade de movimento temporal, pois todos os movimentos já ocorreram simultaneamente na eternidade do Ser.
