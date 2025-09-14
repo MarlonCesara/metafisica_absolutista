@@ -426,6 +426,12 @@ A vitalidade do niilista dependia do alimento social de seu ódio: o poder de op
 
 O que parecia ser sua fortaleza revela-se uma fraqueza grandiosa. O que antes era sua segurança converte-se em pavor. E o que ele julgava ser sua grandeza desaba numa avassaladora sensação de pequenez.
 
+O indivíduo niilista que outrora se sustentava pelo poderio, pelas posses e pelo status — e que se julgava detentor de um pensamento superior, vendo os outros como fracos e crédulos — agora se vê destituído do alicerce de sua própria crença.
+
+A sociedade combate os sintomas de seu comportamento (a opressão, a exploração), mesmo sem compreender sua raiz filosófica mais profunda, essa pressão externa é  suficiente para demolir suas defesas. Sem as barreiras do poder e da superioridade auto-atribuída que o mantinham distante de sua própria mente, ele se vê sem chão, exposto e vulnerável. Assim, é inundado por pensamentos intrusivos que gravitam em torno do fim da própria existência — um impulso que não se origina de uma depressão física comum, mas sim do colapso de um universo de significado que ele mesmo construiu para negar sua própria mentalidade.
+
+O opressor exterior, que antes aterrorizava e oprimia, torna-se, ironicamente, sua própria vítima. Aquele que amedrontava os outros agora se vê face a face com o seu algoz mais implacável: ele mesmo.
+
 ### **Traços de niilismo**
 
 O niilismo pode estar enraizado de forma amena em um indivíduo que às vezes crê e às vezes descrê da vida. Dessa forma, manifesta apenas seus primeiros traços. Quando a falta de perdão provoca o rancor, e isto vai se enraizando no coração humano, pode culminar em algumas raízes na esfera mais íntima do ser humano, que é sua decisão de viver, sua auto-sustentação. Um ódio não tratado começa a se enraizar aos poucos até permear a total perda do juízo pessoal, quando o ser humano vive pelo ódio de tal forma que já não se importa nem mais consigo mesmo.
