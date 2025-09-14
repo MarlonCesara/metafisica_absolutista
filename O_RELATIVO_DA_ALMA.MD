@@ -432,6 +432,16 @@ A sociedade combate os sintomas de seu comportamento (a opressão, a exploraçã
 
 O opressor exterior, que antes aterrorizava e oprimia, torna-se, ironicamente, sua própria vítima. Aquele que amedrontava os outros agora se vê face a face com o seu algoz mais implacável: ele mesmo.
 
+### **O protesto niilista**
+
+As empresas demitem funcionários e aumentam cargas de trabalho como forma de opressão, numa tentativa de demonstrar poderio. Pessoas denigram artistas e expressões culturais, buscando abalar o ânimo das multidões — mais uma manifestação desse mesmo impulso por exibir domínio. Esses atos representam o último suspiro da força niilista na sociedade: terminam em demonstrações de força bruta e violência, tal como animais que se inflam para parecerem maiores ao serem confrontados.
+
+A estratégia de luta dos niilistas é herdada diretamente da vida selvagem, pois é a única mentalidade que conservam sobre si mesmos. Desprovidos de qualquer visão espiritual ou elevadora — aquela que transcende o homem à condição de ser eterno —, o niilista vive confinado a um micromundo de selvageria. Nele, predominam apenas as sensações físicas e os comportamentos biologicamente explicáveis, num universo restrito onde a existência não significa mais que um jogo de instintos e dominação.
+
+O niilista constitui-se como uma força antagônica por excelência: é anti-político, anti-cultural e anti-harmonia. Sua afinidade natural com ideologias de direita radical — que frequentemente instrumentalizam o poder para fins de exclusão — não é casual. Ele alinha-se a partidos e a formas discriminatórias de comportamento, agindo ativamente em prol da desestruturação e da destruição do tecido social.
+
+Sua postura, no entanto, não decorre de uma mera falta de moralidade ou de uma educação deficitária. É algo mais profundo e trágico: ele é dominado por uma frustração ontológica, inerente à sua visão de mundo niilista. Essa frustração afasta-o de tudo aquilo que, no fundo, mais ama e necessita — a conexão, a criação, o sentido. Transforma-o em um perseguidor dos outros e de si mesmo: um eterno buscador de uma identidade que sua própria postura nega e destrói.
+
 ### **Traços de niilismo**
 
 O niilismo pode estar enraizado de forma amena em um indivíduo que às vezes crê e às vezes descrê da vida. Dessa forma, manifesta apenas seus primeiros traços. Quando a falta de perdão provoca o rancor, e isto vai se enraizando no coração humano, pode culminar em algumas raízes na esfera mais íntima do ser humano, que é sua decisão de viver, sua auto-sustentação. Um ódio não tratado começa a se enraizar aos poucos até permear a total perda do juízo pessoal, quando o ser humano vive pelo ódio de tal forma que já não se importa nem mais consigo mesmo.
