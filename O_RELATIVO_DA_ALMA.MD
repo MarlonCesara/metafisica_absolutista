@@ -879,7 +879,10 @@ O principio da disformidade não é violado, pois a conservação dos entes est�
 A consumação de ambos é realizada totalmente num fogo do outro.
 Esse estado pode ser definitivo.
 A junção de duas almas configura uma terceira alma. Uma nova visão. Pois a união é completa.
-
+Ambos viram fogo, e um novo ver oriundo do fogo. 
+Consomem-se em ambos, de forma a se perderem.
+E quando se perdem desaparecem para o novo ser surgir.
+Antes do ser surgir, experiementam a total transcendencia do eu.
 
 
 
