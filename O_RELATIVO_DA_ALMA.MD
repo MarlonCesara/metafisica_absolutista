@@ -862,27 +862,9 @@ A interpretação do Gênesis é multifacetada e de uma riqueza inesgotável, im
 
 Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. Não se pode atribuir uma única interpretação, pois sua genialidade reside precisamente em sua capacidade de iluminar, de uma só vez, as múltiplas dimensões — a psicológica, a metafísica, a relacional e a espiritual — da condição humana perante a liberdade, o desejo e o Divino.
 
+### **A transcendência do eu**
 
-
-
-
-
-
-
-## Rascunhos
-
-O absoluto não é regido pela lógica. 
-Consideremos então o campo das impossibilidades.
-A união completa entre duas almas, uma fusão, resulta numa queima, não numa anulação. 
-Uma vivencia do outro em sua totalidade.
-O principio da disformidade não é violado, pois a conservação dos entes está em sua infinitude.
-A consumação de ambos é realizada totalmente num fogo do outro.
-Esse estado pode ser definitivo.
-A junção de duas almas configura uma terceira alma. Uma nova visão. Pois a união é completa.
-Ambos viram fogo, e um novo ver oriundo do fogo. 
-Consomem-se em ambos, de forma a se perderem.
-E quando se perdem desaparecem para o novo ser surgir.
-Antes do ser surgir, experiementam a total transcendencia do eu.
+O absoluto não é regido pela lógica convencional. Consideremos então o campo das impossibilidades. A união completa entre duas almas, uma fusão, resulta numa queima, não numa anulação. Uma vivencia do outro em sua totalidade. O principio da disformidade não é violado, pois a conservação dos entes está em sua infinitude. A consumação de ambos é realizada totalmente num fogo do outro. Esse estado pode ser definitivo se é essa a decisão de ambos. A junção de duas almas configura uma terceira alma. Uma nova visão. Pois a união é completa. Ambos viram fogo, e um novo ver oriundo do fogo. Consomem-se em ambos, de forma a se perderem. E quando se perdem desaparecem para o novo ser surgir. Antes do ser surgir, experiementam a total transcendencia do eu.
 
 
 
