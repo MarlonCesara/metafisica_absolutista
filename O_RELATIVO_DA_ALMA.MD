@@ -864,10 +864,7 @@ Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. N
 
 ### **A transcendência do eu**
 
-O absoluto não é regido pela lógica convencional. Consideremos então o campo das impossibilidades. A união completa entre duas almas, uma fusão, resulta numa queima, não numa anulação. Uma vivencia do outro em sua totalidade. O principio da disformidade não é violado, pois a conservação dos entes está em sua infinitude. A consumação de ambos é realizada totalmente num fogo do outro. Esse estado pode ser definitivo se é essa a decisão de ambos. A junção de duas almas configura uma terceira alma. Uma nova visão. Pois a união é completa. Ambos viram fogo, e um novo ver oriundo do fogo. Consomem-se em ambos, de forma a se perderem. E quando se perdem desaparecem para o novo ser surgir. Antes do ser surgir, experiementam a total transcendencia do eu.
-
-
-
+O absoluto não é regido pela lógica convencional. Consideremos então o campo das impossibilidades. A união completa entre duas almas, uma fusão, resulta numa queima, não numa anulação. Uma vivencia do outro em sua totalidade. O principio da disformidade não é violado, pois a conservação dos entes está em sua infinitude. A consumação de ambos é realizada totalmente num fogo do outro. Esse estado pode ser definitivo se é essa a decisão de ambos. A junção de duas almas configura uma terceira alma. Uma nova visão. Pois a união é completa. Ambos viram fogo, e um novo ver oriundo do fogo. Consomem-se em ambos, de forma a se perderem. E quando se perdem desaparecem para o novo ser surgir. Antes do ser surgir, experiementam a total transcendencia do eu. No momento exato da consumação do eu total no outro, não há mais ambos, há uma vida da homogeneidade de ambas as almas, diferente de uma e da outra.
 
 
 
