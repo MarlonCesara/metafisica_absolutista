@@ -848,7 +848,9 @@ E isto é profundamente poético e intenso, iremos morrer para encontrar, de for
 
 Assim como a morte das vestes da alma possibilita o encontro, também possibilita a morte definitiva, que é o inferno. E essa ambiguidade ficou explícita em Gênesis. Livrar-se do corpo de barro ou assumir uma forma móvel, como o corpo espiritual da glorificação, concede ao homem o acesso à transcendência ou à re-troscendência. O corpo de Adão e Eva tinha uma proteção especial contra o pecado, que era a forma. Mas a alma, no estado relativo, está livre até mesmo do medo da morte, pois o medo é natural do corpo humano e de seu instinto de sobrevivência.
 
-Portanto, o desejo pela liberdade, sob o qual a natureza circundante foi deduzida para nós, nos deu grandes benefícios, mas também grandes responsabilidades.
+Portanto, o desejo pela liberdade, sob o qual a natureza circundante foi deduzida para nós, nos deu grandes benefícios, mas também grandes responsabilidades. 
+
+Sob outra ótica, podemos compreender os geneses como significando a morte humana enquanto conhecimento em direção à transcendência, ao amor. Contudo, também é possível interpretar a permanência no relativo como um filtro: apenas aqueles que verdadeiramente amam a vida poderão participar de um futuro reino próspero e justo, onde não haverá espaço para o niilismo. Nesse sentido, a morte se revela como um filtro para a construção de uma sociedade justa. O corpo, por sua vez, que luta por sua sobrevivência mesmo de forma involuntária, é capaz de proteger a alma através de um comportamento repetitivo de fuga da realidade. Já a alma, no relativo, não carrega as barreiras do medo nem da autopreservação próprias do corpo. Adão e Eva buscaram o conhecimento, desejando ser como deuses, mas a intenção da serpente era interromper os planos de Deus, instaurando o vazio de almas na existência. 
 
 ### **As varias faces de gêneses**
 
