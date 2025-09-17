@@ -415,6 +415,8 @@ O niilista trocaria sua fortuna por sonhar. Trocaria todos os seus excessos pela
 
 Nem todo mau comportamento está associado ao niilismo, mas a característica principal do niilismo é a falsidade. O erro que advém de uma tentação é diferente do que nasce de uma falsidade interior, da tentativa de mascarar a fraqueza com artifícios, distorcendo a natureza humana e transfigurando-a em atitudes desconexas ao humano. Portanto, distinguimos um comportamento de mascaramento do niilismo do erro natural. Um não-niilista erra por sua baixa sabedoria, evolução ou aprendizado; já o niilista erra por mascaramento de sua temível decisão, tentando enganar a sociedade e a si mesmo quanto ao seu conflito. O niilista tenta fugir de si mesmo o tempo todo. Suas atitudes criminosas não resultam de uma tentação contra a qual tenha lutado, mas de uma fuga desesperada daquilo que não deseja encarar: uma verdade dolorosa que rejeita reconhecer, um pesadelo interior que evita reviver por meio da tomada de consciência.
 
+O niilista quer o luxo, pois acredita que merece tudo; precisa se dar a tudo antes de decidir se anular. O niilista tem pressa em salvar sua vida de forma material; acelera o trabalhador como se o esforço acelerado e o acúmulo de bens pudessem, de alguma forma, lhe devolver ou garantir a vida na dimensão material.
+
 ### **A sensação de pequenez**
 
 Ao definir a si mesmo como um ser finito e puramente material, o indivíduo enfrenta outro grave problema para sua autoestima: a sensação esmagadora de ser um "mini-homem", um mero grão de areia num universo sem propósito. Essa percepção entra em flagrante contradição com a personalidade soberba, ostentadora e competitiva que muitos ricos exibem; na verdade, é exatamente o oposto do que projetam externamente.
