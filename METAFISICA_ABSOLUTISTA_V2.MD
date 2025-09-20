@@ -1184,6 +1184,14 @@ E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer est
 
 A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que tempo és tu?”. Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
 
+Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito existe temporalmente em seu tempo particular.
+
+Mas em que tempo estava o Espírito, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência se dá em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem no tempo. A alma de Jesus, portanto, foi gerada no tempo. 
+
+aquii
+
+O Espírito se dissolve na completude, pois gera em favor da perfeição já instaurada no relativo; que se dá completo como tal. Ainda que em constan
+
 > _"Como estávamos nele antes da fundação do mundo, assim também estamos nele após a consumação dos séculos - não como espectadores, mas como participantes do único ato eterno de seu autoconhecimento."_
 > _— Paráfrase de Efésios 1:4_
 
