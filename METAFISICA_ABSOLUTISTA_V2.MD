@@ -1581,6 +1581,7 @@ O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que
 
 #### **§ 14.2 – A Manifestação do "Sou": A Criação da Alma do Homem**
 
+iii
 ##### **Não-Multiplicidade do Ser**
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
 
