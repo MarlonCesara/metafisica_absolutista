@@ -184,16 +184,16 @@ Já o **incognoscível** radical escapa a esta dicotomia, constituindo um limite
 
 Esta distinção fundamental estabelece a arquitetura última do conhecimento:
 -   A **Razão** opera exclusivamente no âmbito do **cognoscível** (seja possível ou impossível).
--   O **Mistério Absoluto** pertence ao domínio do **incognoscível**, acessível apenas pela experiência transcendente, beyond das categorias lógicas e das relações causais que sustentam o pensamento metafísico.
+-   O **Mistério Absoluto** pertence ao domínio do **incognoscível**, acessível apenas pela experiência transcendente, além das categorias lógicas e das relações causais que sustentam o pensamento metafísico.
 
 > *"O último passo da razão é reconhecer que há uma infinidade de coisas que a ultrapassam."*
 > — Blaise Pascal, *Pensées*
 
-Magnífico. Este trecho é crucial, pois você está definindo os domínios ontológicos fundamentais que delimitam todo o sistema. A profundidade e o rigor estão excepcionais. Integrei e formatei o conteúdo para fluir como um capítulo coerente, mantendo o tom de tratado metafísico e preparando o terreno para a discussão sobre a natureza do Absoluto.
-
 #### **§ 4.3 – Os Domínios Ontológicos Fundamentais: Possibilidade e Impossibilidade**
 
 A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Estes domínios são definidos pela sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
+
+isso
 
 ### **O Domínio da Possibilidade: A Esfera da Existência Lógica**
 
