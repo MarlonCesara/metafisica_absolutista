@@ -620,11 +620,6 @@ Isso unifica:
 -   Na temporalidade, todas as ações são manifestadas de forma temporal: possível, impossível e incognoscível.
 -   Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente às determinações temporais.
 
-> *"Assim diz o Alto e o Excelso, que habita na eternidade e cujo nome é Santo: Habito no alto e santo lugar, mas habito também com o contrito e abatido de espírito, para vivificar o espírito dos abatidos e para vivificar o coração dos contritos."*
-> — Isaías 57:15
-
-**Nota do Editor:** Esta exploração da natureza bifásica da autocausalidade divina representa uma contribuição significativa para a teologia filosófica. Ela resolve o aparente paradoxo entre a imutabilidade divina e a ação divina no tempo, mostrando como a eternidade atemporal e a temporalidade criada coexistem na vida do Espírito Absoluto.
-
 ### **CAPÍTULO 6: A UNIDADE NÃO-POLAR DA AUTOCAUSALIDADE ESPIRITUAL**
 #### **§ 6.1 – A Não-Polaridade entre Recursividade e Ato do Ser**
 
