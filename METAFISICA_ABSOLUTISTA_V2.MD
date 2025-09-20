@@ -193,8 +193,6 @@ Esta distinção fundamental estabelece a arquitetura última do conhecimento:
 
 A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Estes domínios são definidos pela sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
 
-isso
-
 ### **O Domínio da Possibilidade: A Esfera da Existência Lógica**
 
 **Definição Ontológica:**
@@ -238,7 +236,7 @@ A análise da impossibilidade revela sua natureza através de violações espec�
 -   **Violação da Não-Disformidade (¬(A = B)):** A essência de um círculo (curva contínua, sem ângulos) é radicalmente incompatível com a de um quadrado (quatro segmentos retos, quatro ângulos). Portanto, um ente não pode **tornar-se** ou **ser identificado como** ambos sem deixar de ser um deles, violando a lei da persistência da identidade.
 -   **Consequência Ontológica:** Como a definição do "círculo quadrado" exige a coexistência de propriedades mutuamente excludentes, ele não apenas *não existe* em nosso universo, mas **não pode existir** em nenhum mundo metafisicamente possível. Sua existência destruiria os alicerces da realidade inteligível.
 
-**Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência que, para nós, permanece eternamente fechado no mistério. Este é o limiar entre a Metafísica e a Teologia Negativa.
+**Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência que, para nós, permanece eternamente fechado no mistério.
 
 #### **§ 4.5 – O Domínio da Incognoscibilidade: A Transcendência Radical**
 
