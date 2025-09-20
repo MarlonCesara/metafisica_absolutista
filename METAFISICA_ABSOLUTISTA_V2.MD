@@ -675,7 +675,6 @@ O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas um
 
 Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — não como duração infinita, mas como **presença absoluta que transcende toda medida**.
 
-> *"Para tudo há uma ocasião certa; há um tempo certo para cada propósito debaixo do céu."*
 > *— Eclesiastes 3:1*
 >
 > *"Mas não se esqueçam de uma coisa, amados: para o Senhor um dia é como mil anos, e mil anos como um dia."*
@@ -695,9 +694,6 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 
 **Formulação Final:**
 O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
-
-> *"Antes que os montes nascessem e se formassem a terra e o mundo, de eternidade a eternidade, tu és Deus."*
-> *— Salmos 90:2*
 
 ### **CAPÍTULO 7: A ESTRUTURA TRIDIMENSIONAL DA AÇÃO DIVINA**
 #### **§ 7.1 – A Estrutura dos Eventos Temporais**
