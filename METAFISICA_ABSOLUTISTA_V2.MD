@@ -1020,13 +1020,26 @@ Antes, a criação _ex nihilo_ significa:
 
 #### **§ 9.10 – O Campo Relativo: O Absoluto Indiferenciado**
 
-Ao tentarmos aproximar ou adequar o conceito de "relativo" como um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada —, podemos nomear tal estado de "relativo". Pois ele se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada.
+revisão do trecho abaixo
 
-O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o *potencial* da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.
+Até então, nesta dialética, não encontramos, verdadeiramente, no conceito de "nada" uma explicação que satisfaça a insurgência de uma realidade autofundamentada. Ou seja, uma realidade absoluta, que dispense causa anterior ou exterior. Embora o "nada" aparente, em seu raso significado, oferecer uma justificativa plausível para uma realidade autojustificada em razão de sua ausência conceitual de propriedades, investigando-o mais a fundo, percebe-se que tal conceito não satisfaz a busca pela explicação de como pode uma realidade existir sem nenhum fundamento externo. Ao tentarmos adequar um conceito que explique uma realidade autofundamentada, sem recorrer ao "nada", podemos considerar o conceito de "relativo" como amparo teórico.
 
-A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. Assim, o relativo seria uma existência, porém indiferenciada em seu *modo* de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. E esse ainda seria um conceito distante de "nada", pois consiste em uma existência indiferenciada.
+O conceito de "relativo" seria um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada. Tal estado é nomeado como "relativo" por ser definido pelo determinador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada.
 
-Temos, portanto, que o relativo *não* é o conceito mais próximo de nada. A palavra "nada", portanto, só pode ser tratada como um auto-evidenciador da presença autocausal. O Espírito independe de fundamento externo, e isso é *Ser do nada*. *Ser do nada* é existir sem um fundamento externo. *Surgir do nada*, portanto, é sinônimo de ser autocausal. E *criar do nada* significa determinar-se de forma autocausal. Em síntese, "criar", significa que o Ser traz suas possibilidades inerentes do nada - que funciona como um evidenciador de presença, de forma que o Ser se auto justifica.
+O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o *potencial* da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença. 
+
+O relativo é um estado que serviria da mesma forma que o conceito de "nada" para justificar uma realidade auto fundamentada, pois ambos os conceitos dispensam determinação e uma estadia de definição; ao investigar o nada e descarta-lo como possibilidade, nos resta a alternativa do relativo como explicação da realidade auto fundamentadora.
+
+O relativo dispensa um produto de si necessario de si, ao passo que existe. Ou seja, carrega a explicação auto fundamentadora semelhante ao conceito de nada, porem, existe, diferentemente do conceito de nada.
+
+Isto é, se o nada, conceitualmente seria capaz de se auto fudamentar pois não exige produto de si, porém não é um conceito lógico, o relativo faz este papel de se auto fundamentar sem que seja necessario se nadificar para tal. A existência de um potencial de possibilidades, no entanto, mais uma vez anularia o conceito de nada. 
+
+No relativo, são consideradas todas as possibilidades, e é descartada a ideia de nada como uma existencia desfigurada. E, obtemos, portanto, uma existencia justificada por si mesma e atribuida de auto determinação.
+
+
+Assim, o relativo seria uma existência, porém indiferenciada em seu *modo* de existir, não em seu próprio existir. Em outras palavras, o relativo seria positivo — existiria de fato, mas como um estado de suspensão das possibilidades inerentes ao existir. E esse ainda seria um conceito distante de "nada", pois consiste em uma existência indiferenciada.
+
+Temos, portanto, que o relativo *não* é o conceito mais próximo de nada. A palavra "nada", portanto, só pode ser tratada como um auto-evidenciador da presença autocausal. O Espírito independe de fundamento externo, e isso é *Ser do nada*. *Ser do nada* é existir sem um fundamento externo. *Surgir do nada*, portanto, é sinônimo de ser autocausal. E *criar do nada* significa determinar-se de forma autocausal. Em síntese, "criar", significa que o Ser traz suas possibilidades inerentes do nada (sem causa externa) - que funciona como um evidenciador de presença, de forma que o Ser se auto justifica.
 
 #### **§ 9.11 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
