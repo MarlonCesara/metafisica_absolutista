@@ -832,7 +832,7 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
 Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:
 -   O **Poder** (Pai) garante que o universo não desmorone.
 -   A **Sabedoria** (Espírito Santo) assegura que cada movimento seja impecável.
--   A **Liberdade** (Filho) introduz a personalidade na dança cósmica.
+-   A **Liberdade** (Filho) introduz a personalidade no cosmo.
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
