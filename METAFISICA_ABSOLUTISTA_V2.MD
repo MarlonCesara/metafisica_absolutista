@@ -870,8 +870,6 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 
 Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autodeterminação divinas.
 
-
-### **PARTE III: A AUTOMANIFESTAÇÃO DO ABSOLUTO**
 ### **CAPÍTULO 9: DO AUTOCAUSAL AO CRIACIONAL: A NATUREZA DA PRESENÇA ABSOLUTA**
 
 #### **§ 9.1 – Introdução: Do Causal ao Criacional**
