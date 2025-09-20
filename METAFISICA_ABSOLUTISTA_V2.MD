@@ -1142,7 +1142,7 @@ Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade
 
 ### **CAPÍTULO 11: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
 #### **§ 11.1 – O Relativo como Manifestação Não-Dual**
-aquii
+aquii - correção do texto
 O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **integralidade** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.
 
 Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmica do Absoluto em sua liberdade irrestrita**, onde toda forma em potencial já está, paradoxalmente, **dissolvida na completude**.
@@ -1188,9 +1188,9 @@ Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou p
 
 Mas em que tempo estava o Espírito, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência se dá em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem no tempo. A alma de Jesus, portanto, foi gerada no tempo. 
 
-aquii
+aquii- progressão de ideias, corrija o texto
 
-O Espírito se dissolve na completude, pois gera em favor da perfeição já instaurada no relativo; que se dá completo como tal. Ainda que em constan
+O Espírito se dissolve na completude, pois gera em favor da perfeição já instaurada no relativo, que se dá completo como tal, ainda que em constante mudança interna. As mudanças internas não interferem na plenitude, que se instaura ainda sob as constantes e imprevisíveis mudanças. Porém, a ação da alma, não necessariamente baseada numa plenitude estreita, corrompe o relativo, de forma que toda alma se origina com uma idade, isto é, com um tempo em si e perante uma ação temporal do Espírito. A alma de Jesus, desta forma, sempre existiu de forma inativa na Trindade; porém, teve sua ação, ou seja, gerou modificações na realidade a partir do momento de seu revelar no tempo.
 
 > _"Como estávamos nele antes da fundação do mundo, assim também estamos nele após a consumação dos séculos - não como espectadores, mas como participantes do único ato eterno de seu autoconhecimento."_
 > _— Paráfrase de Efésios 1:4_
