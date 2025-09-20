@@ -1020,7 +1020,7 @@ Antes, a criação _ex nihilo_ significa:
 
 #### **§ 9.10 – O Campo Relativo: O Absoluto Indiferenciado**
 
-Ao tentarmos aproximar ou adequar o conceito de "nada" como um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada —, podemos nomear tal estado de "relativo". Pois ele se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada.
+Ao tentarmos aproximar ou adequar o conceito de "relativo" como um estado de suspensão do absoluto — no qual o possível, o impossível ou o incognoscível existem de forma suspensa, ou seja, indiferenciada —, podemos nomear tal estado de "relativo". Pois ele se define pelo observador e não por si mesmo. O "relativo" seria entendido como a suspensão de qualquer possibilidade, ou seja, abarcaria o absoluto de forma indiferenciada.
 
 O relativo não pressupõe uma possibilidade definida, mas ainda assim mantém o *potencial* da possibilidade, já que consiste na suspensão da possibilidade — assim como o nada supõe uma presença, por ser a suspensão da presença.
 
