@@ -1814,7 +1814,7 @@ A salvação não é fuga da individualidade, mas **a realização plena da indi
 
 -   Cada autodeterminador possui a capacidade de **cessar sua continuidade sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).
 -   Isso é possível porque sua existência é **diferenciada**: uma **autoexpressão dinâmica** do Espírito.
-
+iii
 #### **§ 17.2 – A Imortalidade do sou**
 
 -   Cada autodeterminador não é capaz de esgotar seu infinito, somente definir seu movimento temporal, pois sua verdade eterna já está consumada. Ou seja, o sou não é capaz de se fadar a aniquilação, mas é capaz de morrer no sentido temporal, e não no sentido eterno.
@@ -1833,7 +1833,7 @@ A salvação não é fuga da individualidade, mas **a realização plena da indi
 
 #### **§ 17.5 – Consistência do Ser no Paralelismo**
 
--   **"A ausência do determinador ativo para relativo não anula os eventos temporais"**:
+-   **"A presença do determinador ativo para relativo não anula os eventos temporais"**:
     -   Sendo as almas manifestadas na temporalidade, isto preserva a autofundamentação do relativo.
 
 ### **Tabela 17.1: Níveis de Realidade e Sua Relação com o Ser**
@@ -1852,7 +1852,7 @@ A salvação não é fuga da individualidade, mas **a realização plena da indi
 
 ##### **Liberdade do "Sou" (Arbitrariedade Existencial)**
 A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**. Sua existência é arbitrária, pois:
--   **Não é fundamento do Relativo**: O *"sou"* não é condição para a realidade do Ser em si, apenas uma de suas infinitas possibilidades de manifestação.
+-   **Não é fundamento do Relativo**: O *"sou"* não é condição para a realidade do Ser em si, é uma de suas infinitas possibilidades de manifestação.
 
 #### **§ 17.7 – Liberdade e Autodeterminação no Relativo**
 
@@ -1877,12 +1877,10 @@ Esta análise revela que:
 2.  **A corrupção é possível** - a alma pode escolher caminhos que a afastam do Ser
 3.  **A graça é necessária** - o retorno à plenitude requer a ação do Espírito
 
-> _"Porque pela graça sois salvos, por meio da fé; e isto não vem de vós, é dom de Deus."_
-> _— Efésios 2:8_
-
 A liberdade humana não é uma ilusão ou uma ameaça à soberania divina, mas **a expressão máxima da generosidade divina** - Deus tão respeita Sua criação que permite que ela O rejeite.
 
 ### **CAPÍTULO 18: O AMOR COMO PRINCÍPIO FUNDANTE**
+
 #### **§ 18.1 – O Amor como Fundamento da Evolução Espiritual**
 
 -   A evolução espiritual (amor, propósito, epifania, encontro consigo, etc) é o fundamento da evolução espiritual.
@@ -1890,7 +1888,7 @@ A liberdade humana não é uma ilusão ou uma ameaça à soberania divina, mas *
 
 #### **§ 18.2 – A Corrupção como Retorno ao Nada**
 
-1.  **A autonegação radical voluntária** (suicídio ontológico autodeterminado) não destrói o Ser, mas **revela sua indiferença**: o Espírito permanece, ainda que o *"sou"* humano se dissolva temporalmente.
+1.  **A autonegação radical voluntária** (suicídio ontológico autodeterminado) não destrói o Ser: o Espírito permanece, ainda que o *"sou"* humano se dissolva temporalmente.
 2.  **A autonegação da autenticidade** (não inclinação à própria autodeterminação) não desmerece o Ser, mas **revela sua potencialidade**: o Relativo permanece, ainda que o *"sou"* seja indiferente à sua própria possibilidade e autenticidade de autonomia e liberdade.
 
 #### **§ 18.3 – A Liberdade como Risco Relativo**
@@ -1904,9 +1902,8 @@ A liberdade humana não é uma ilusão ou uma ameaça à soberania divina, mas *
 -   No entanto, apenas uma dessas possibilidades se manifesta como realidade vívida: aquela que envolve a autodeterminação do ente.
 -   As demais possibilidades permanecem suspensas, pois carecem da verdade plena — uma realidade não vívida é, em essência, não personificada.
 -   Mesmo que o Ser conheça todos os caminhos, pois se guia pela perfeição, a ação do homem pode alterar suas decisões, então o Ser também teria infinitas possibilidades de ação em sua integralidade.
-
-Como a alma pode decidir em seu estado relativo?
-No estado relativo, ela já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir.
+iii
+A alma pode decidir em seu estado relativo, pois neste No estado, ela já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir.
 
 A alma contém em si todo o seu tempo. Já tomou todas as decisões, ainda que sem atribuí-las à verdadeira vida, isto é, à sua consciência temporal autêntica.
 Mas onde, então, se encontra a consciência da alma? A decisão da alma é análoga ao sistema de decisão do Espírito. Isso significa que, temporalmente, a alma nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, ela está consumada no relativo, ao mesmo tempo em que experimenta uma vivência temporal.
