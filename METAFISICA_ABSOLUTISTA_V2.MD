@@ -2733,3 +2733,5 @@ Aqui, contudo, opera-se uma dialética profunda: a **verdade de cada *sou* é re
 Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se distingue da aniquilação definitiva, pois o *sou* que assim persiste — ainda que residualmente — já não vive a partir de si mesmo, mas apenas como vestígio de seu próprio processo de extinção. Ele não retorna à vida; não habita verdadeiramente a existência. Esse resíduo ontológico converte-se num **relativo inviolável**, que se define eternamente fora do campo das possibilidades do Ser — um existir que escolheu, para sempre, não-ser.
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
+
+#### Em substituição a almogeneses diga: no paraíso qualquer coisa é possível. Interpretação semelhante é dizer: há possibilidades para todas as aspirações da alma humana. 
