@@ -2376,9 +2376,6 @@ Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — 
 
 Ao descrever seres que não são humanos, mas possuem liberdade metafísica e funções divinas, subentende-se que a Bíblia refere-se aos sous que estão pressupostos no relativo — não revividos pelo tempo do espírito, mas existentes, suspensos no campo das possibilidades. Não há caminhos lógicos para deduzir dois tipos distintos de entes com livre-arbítrio; para além da distinção entre Deus e homem, não há sentido formal e lógico que sustente outra categoria. Por isso, a única interpretação coerente para os anjos é vê-los como o homem ainda em seu estado relativo. 
 
-> _"Como estávamos nele antes da fundação do mundo, assim também estamos nele após a consumação dos séculos - não como espectadores, mas como participantes do único ato eterno de seu autoconhecimento."_
-> _— Paráfrase de Efésios 1:4_
-
 Sendo assim, quando Jesus afirma que "no céu não há casamento, pois seremos como os anjos", devemos evitar uma conceção abominável do céu, entendendo-o como uma interrupção do potencial de transcendência e infinitude — ou seja, como um mal infinito. Pelo contrário, podemos interpretar o estado angelical como a conquista de uma indefinição da alma, resultante da união da dualidade. Dito de outro modo, o sentido mais preciso de "ser como os anjos" refere-se a duas almas que, fundidas numa união eterna, transcendem a definição individual. Portanto, Jesus, nesse sentido, foi muito além do conceito de casamento, transcendendo profundamente essa modalidade relacional. Ser como anjos é a definição mais próxima da união de uma dualidade, da união plena, não haveria descrição melhor.
 
 > Os anjos mais poderosos são frequentemente descritos como possuidores de múltiplos olhos, o que simboliza a capacidade de transcendência e a manifestação de múltiplas consciências dentro de uma mesma dualidade corporal. Isto é, um corpo relativo, em almogêneses, pode abrigar mais de uma consciência. Se o campo das possibilidades inclui seres hipotéticos e suas ações, então as próprias ações permanecem em suspensão no âmbito do relativo. Dessa forma, faz todo sentido considerar que os anjos existam em um estado de união — uma expansão da consciência alcançada por meio da transcendência do eu.
@@ -2393,6 +2390,8 @@ Esta visão ilumina a afirmação de Cristo de que no estado ressurreto "os home
 
 Gênesis enfatiza, de forma vaga, a transcendência relacional; porém, o Evangelho não parece ter foco em explorar as possibilidades para a alma na vida eterna, nem faz qualquer referência a essa possibilidade que lhe atribua um grau de importância considerável. Interpreta-se que o Evangelho tem como foco a necessidade mais fundamental e urgente do homem: a permanência no Ser, para que assim possa explorar o aval de possibilidades implícitas. Portanto, o Evangelho não propõe referências precisas ou mais detalhadas, nem mesmo sobre o modelo de vida no próprio paraíso. Por outro lado, dá enfoque total à questão fundamental que exploraremos a seguir: a de precaver o homem de uma das mais terríveis possibilidades que podem ser encaradas, uma vez que a alma tenha diante de si uma infinitude de possibilidades após a libertação do mundo material.
 
+> _"Como estávamos nele antes da fundação do mundo, assim também estamos nele após a consumação dos séculos - não como espectadores, mas como participantes do único ato eterno de seu autoconhecimento."_
+> _— Paráfrase de Efésios 1:4_
 
 ### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
