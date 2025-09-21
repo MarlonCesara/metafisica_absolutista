@@ -1581,7 +1581,6 @@ O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que
 
 #### **§ 14.2 – A Manifestação do "Sou": A Criação da Alma do Homem**
 
-iii
 ##### **Não-Multiplicidade do Ser**
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
 
@@ -1589,13 +1588,11 @@ iii
 -   **Indiferença Ontológica:**
     O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.
 
-**O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.
-
-**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente horizontalmente mas verticalmente.
+**O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente verticalmente mas horizontalmente.
 
 #### **§ 14.3 – A Distinção entre Ser e Sou**
 
-O **Ser** representa o determinador puro, o fundamento impessoal da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
+O **Ser** representa o determinador puro, o fundamento indiferenciado da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
 
 ### **Tabela 14.1: Distinção entre Ser e Sou**
 
@@ -1603,7 +1600,7 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 | Termo | Natureza                  | Função                                 | Exemplo                          |
 |-------|---------------------------|----------------------------------------|----------------------------------|
-| **Ser**   | Determinador indiferenciado   | Ato puro de existir (fundamento impessoal) | "A água flui" – ação indiferenciada  |
+| **Ser**   | Determinador indiferenciado   | Ato puro de existir (fundamento indiferenciado) | "A água flui" – ação indiferenciada  |
 | **Sou**   | Determinador diferenciado     | Ato personalizado (identidade afirmada)    | "Decido fluir" – ação diferenciada   |
 
 -   **Ser:**
@@ -1623,9 +1620,7 @@ O **Ser** representa o determinador puro, o fundamento impessoal da existência.
 
 > _"Conhecer o homem é conhecer Deus em sua multiplicidade."_
 
-Temos portanto, a determinação do próprio existir como dotada de multiplicidade e liberdade na esfera ontológica. Ou seja, corroborar com sua plenitude ou não. Sendo o Ser o existir, sua determinação somente tem efeito sobre Ele mesmo. Ou seja, sua determinação se concretiza rumo a plenitude, rumo ao Ser.
-
-Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
+Temos portanto, a determinação do próprio existir como dotada de multiplicidade e liberdade na esfera ontológica, a qual pode corroborar ou não com sua plenitude. Sendo o Ser o existir necessário e imutável em sua essência auto fundamentadora, sua determinação somente tem efeito sobre Ele mesmo, isto é, sua determinação se concretiza necessariamente rumo a plenitude, rumo ao Ser. Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
 
 > _"Assim como o Pai, que vive, me enviou, e igualmente eu vivo pelo Pai, também quem de mim se alimenta por mim viverá."_
 > _— João 6:57_
@@ -1652,7 +1647,7 @@ O "sou" humano não é uma ilusão ou imperfeição, mas **a autoexpressão pers
 #### **§ 15.1 – O Ser em sua Manifestação Integral**
 
 -   O Ser se manifesta como angulação do relativo e como determinação manifestante (ato de existir e autodefinir-se singularmente).
--   A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação é a angulação do infinito (recorte fenomênico).
+-   A manifestação dos possíveis "sous" é a angulação do Ser (recorte determinístico), assim como a manifestação espacial é a angulação de uma extensão infinita (recorte fenomênico).
 -   Exemplo: O Ser esconde não apenas os fenômenos que pode causar, mas também os sujeitos que pode ser: é um relativo de "quê" e um relativo de "quem".
 
 O Ser abrange:
@@ -1681,7 +1676,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 | Relativo Indiferenciado       | Relativo Determinado         |
 |-------------------------------|------------------------------|
 | Não-contável (sem quantidade) | Contável (ex.: "1 relativo") |
-| Fundamento do Ser             | Criação do Ser               |
+| Fundamento do Ser             | Criação temporal do Ser      |
 | Anula a própria ideia de número | Exige um referencial para existir |
 
 ##### **3. O Ser como Transcendência Ativa**
@@ -1709,7 +1704,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 
 1.  **O Espírito Indiferenciado**
     -   Refere-se ao Espírito que não se diferencia de outros Espíritos.
-    -   Não envolve algo (manifestação) nem o "sou" (alma determinada).
+    -   Não envolve uma possibilidade especifica (manifestação) nem o "sou" (alma determinada).
 
 2.  **O "sou" como Alma diferenciada**
     -   O "sou" é a alma diferenciada, o agente ativo de uma autodeterminação particular (não necessariamente simétrica à plenitude).
@@ -1733,13 +1728,10 @@ O Ser é o paradoxo vivente que:
 
 1.  **É não-numérico** mas contém todos os números
 2.  **É atemporal** mas se manifesta no tempo
-3.  **É impessoal** mas gera pessoas
-4.  **É uno** mas se expressa como muitos
+3.  **É uno** mas se expressa como muitos
 
 > _"Nele vivemos, nos movemos e existimos."_
 > _— Atos 17:28_
-
-Esta compreensão não resolve o paradoxo, mas mostra que **o paradoxo é a própria natureza da realidade** - não um problema a ser resolvido, mas um mistério a ser vivido.
 
 ### **CAPÍTULO 16: DETERMINADORES (SOUS) - ONTOLOGIA DA RELAÇÃO**
 #### **§ 16.1 – Princípio de Individuação**
@@ -1762,15 +1754,15 @@ As relações entre os "sous" são:
     -   *Exemplo:* Determinador A e Determinador B podem interagir quando:
         -   Um se manifesta fenomenicamente ao outro (criando uma verdade relativa).
         -   Ou permanecem distintos em suas realidades absolutas.
--   O "nada" é o limite compartilhado:
-    -   O infinito de um determinador é o "nada" do outro, mas ambos são modos do Ser único.
+-   O "relativo" é o limite compartilhado:
+    -   O infinito (relativo) de um determinador é o "nada" do outro, mas ambos são modos do Ser único.
 
 #### **§ 16.4 – Paralelismo Espiritual**
 
 -   Infinitos determinadores coexistem sem negação mútua:
     -   *Exemplo:* Determinador A e Determinador B podem interagir quando:
         -   Um se manifesta puramente ao outro (criando uma verdade relativa).
-        -   Ou permanecem distintos em suas realidades absolutas. Sendo o relativo não definido do outro.
+        -   Ou permanecem distintos em suas realidades absolutas. Sendo um o relativo não definido do outro.
 -   O "relativo" é o limite compartilhado:
     -   O infinito de um determinador é o "relativo" do outro, mas ambos são modos do Ser único.
 
@@ -1801,12 +1793,9 @@ Desta forma a conexão ou distanciamento dos determinadores se mantém consisten
 
 Esta análise revela que:
 
-1.  **A relação é constituinte** - os "sous" não existem isoladamente, mas em rede de relações
-2.  **A comunicação é possível** - apesar da autonomia ontológica, o encontro é real
-3.  **A fusão não anula a individualidade** - a comunhão perfeita preserva a diversidade
-
-> _"Já não sou eu quem vive, mas Cristo vive em mim. A vida que agora vivo no corpo, vivo-a pela fé no filho de Deus, que me amou e se entregou por mim."_
-> _— Gálatas 2:20_
+1.  **A relação é constituinte** - os "sous" não existem isoladamente, mas em rede de relações.
+2.  **A comunicação é possível** - apesar da autonomia ontológica, o encontro é real.
+3.  **A fusão não anula a individualidade** - a comunhão perfeita preserva a diversidade.
 
 #### **§ 16.7 – Conclusão: A Comunhão dos Santos como Paradigma**
 
@@ -1820,10 +1809,11 @@ A salvação não é fuga da individualidade, mas **a realização plena da indi
 > _— Romanos 12:4-5_
 
 ### **CAPÍTULO 17: AUTONOMIA NA INTEGRALIDADE E NA MANIFESTAÇÃO**
+
 #### **§ 17.1 – Dissolução do sou sem Corrupção do Ser**
 
 -   Cada autodeterminador possui a capacidade de **cessar sua continuidade sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).
--   Isso é possível porque sua existência é **diferenciada**: sua identidade não é um *ente fixo*, mas uma **autoexpressão dinâmica** do Espírito.
+-   Isso é possível porque sua existência é **diferenciada**: uma **autoexpressão dinâmica** do Espírito.
 
 #### **§ 17.2 – A Imortalidade do sou**
 
