@@ -1142,7 +1142,7 @@ Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade
 
 ### **CAPÍTULO 11: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
 #### **§ 11.1 – O Relativo como Manifestação Não-Dual**
-iii
+
 O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **integralidade** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.
 
 Assim, o campo relativo não é um "lugar" ou "estado", mas a **própria dinâmica do Absoluto em sua liberdade irrestrita**, onde toda forma em potencial já está, paradoxalmente, **dissolvida na completude**.
@@ -1814,7 +1814,7 @@ A salvação não é fuga da individualidade, mas **a realização plena da indi
 
 -   Cada autodeterminador possui a capacidade de **cessar sua continuidade sem afetar o Espírito fundamental** (o fundamento indiferenciado do Ser).
 -   Isso é possível porque sua existência é **diferenciada**: uma **autoexpressão dinâmica** do Espírito.
-iii
+
 #### **§ 17.2 – A Imortalidade do sou**
 
 -   Cada autodeterminador não é capaz de esgotar seu infinito, somente definir seu movimento temporal, pois sua verdade eterna já está consumada. Ou seja, o sou não é capaz de se fadar a aniquilação, mas é capaz de morrer no sentido temporal, e não no sentido eterno.
@@ -1912,8 +1912,9 @@ E como a alma escolhe o primeiro momento no tempo em que deseja viver, se todos 
 
 Assim também age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único por meio de seu relativo. A alma, sendo uma unidade-espelho do Ser fundamental, perpetua a mesma lógica. Existe em um tempo que lhe é próprio, que reflete quem ela é; e nesse tempo se origina como expressão de sua persona. Pois a alma não está no tempo: a alma é o seu próprio tempo. E é criada no tempo do Espírito, o qual também faz jus à persona do mesmo.
 
-Isto quer dizer que, tanto a alma do Espírito do Ser, quanto a alma do homem são manifestadas no tempo tendo como base o tempo da plenitude do Ser, e como base um tempo particular de cada alma que faz juz a sua persona e pelo qual já se originou operante. O tempo da alma de manifestar já estava implicito no tempo perfeito do Espírito. E o tempo do Sou foi dado como foi criado, segundo uma persona e seus acidentes. Os sous, desta forma, são personalidades temporais da perfeição.
-iii
+Isto quer dizer que, tanto a alma do Espírito do Ser quanto a alma do homem são manifestadas no tempo, tendo como base o tempo da plenitude do Ser, e também um tempo particular de cada alma, que faz jus à sua persona e pelo qual já se originou operante. O tempo da alma de manifestar já estava implícito no tempo perfeito do Espírito. E o tempo do Sou foi dado como foi criado, segundo uma persona e seus acidentes. Os Sous, desta forma, são personalidades temporais da perfeição atemporal. Não se originam por decisão de uma personalidade ativa, embora a alma do Absoluto esteja implícita em toda decisão anterior à sua revelação no tempo. As almas, desta forma, se dão no tempo do Espírito e em seu tempo particular, segundo a perfeição do Espírito que gera em favor da plenitude.
+
+
 #### **§ 18.5 – A Atemporalidade do Ser e a Manifestação Temporal**
 
 O Ser não precisa "adentrar" no tempo, pois em sua natureza integral todos os acontecimentos já estão consumados. Não há necessidade de movimento temporal, pois todos os movimentos já ocorreram simultaneamente na eternidade do Ser.
@@ -1967,25 +1968,26 @@ Esta análise revela que o amor é o princípio que:
 O amor é a **energia divina que vivifica as possibilidades**, transformando o relativo indeterminado em realidade vívida, sem jamais violar a liberdade das criaturas.
 
 ### **CAPÍTULO 19: NATUREZA DA CONEXÃO ENTRE O SOU E O SER**
+
 #### **§ 19.1 – O Ser como Fundamento**
 
 -   O Ser é a base de todos os "sous". É o fundamento no qual os "sous" se realizam como personificações do mesmo Ser.
 
 #### **§ 19.2 – Dons Naturais e Sobrenaturais**
 
-##### **Dons Naturais (Autodomínio Relativo)**
+##### **Dons relacionais (Autodomínio Relativo)**
 -   O autodomínio do "sou" se estende a tudo que pertence ao Ser, mas é limitado pelo autodomínio do Ser e pela interação com outros determinadores.
     -   *Exemplo:* Só vejo o ente A se A se determinar como visível para mim. Ou seja, se A me der o domínio de sua visão e a dominar de forma que possa me exibi-la.
     -   *Exemplo:* Só posso dominar A completamente se estiver fundido em A, de forma que a visão é o próprio A em meus olhos.
     -   *Exemplo:* Todos são no Ser, mas nem todos são em todos, cada um é em si e é no Ser.
 
-##### **Dons Sobrenaturais (Transcendência)**
+##### **Dons interiores (Transcendência)**
 -   O homem, como alma determinada do Ser, pode autodeterminar-se sobre o próprio Ser que o fundamenta.
 -   Quanto mais profunda sua conexão com o Ser, maior sua capacidade de influenciar a natureza do Ser.
 -   *Exemplo:* Assim como uma onda, quanto mais me realizo como indivíduo, mais me integro ao oceano do Ser.
 -   O ponto absoluto de auto domínio sobre a natureza do Ser é a total aceitação da vontade do Ser.
 
-##### **Dons Sobrenaturais na Natureza do Ser**
+##### **Dons Sobre a Natureza do Ser**
 -   A natureza manifestada do Ser, sendo uma natureza de identidade relativa ao espírito perfeito ou à alma do Ser, pode se permitir o domínio desde que este esteja alinhado a uma vontade reta em direção a sua própria plenitude.
 -   Quanto mais profunda a conexão do "sou" com o Ser, maior sua capacidade de influenciar a natureza do Ser e de ser translúcido ao Ser.
 
@@ -2025,7 +2027,7 @@ O amor é a **energia divina que vivifica as possibilidades**, transformando o r
 Esta análise revela que:
 
 1.  **A alma é divina em sua origem** - não uma criação separada, mas autoexpressão do Ser
-2.  **A autonomia é real** - a alma possui autodomínio genuíno, though derivado
+2.  **A autonomia é real** - a alma possui autodomínio genuíno
 3.  **A santificação é possível** - a alma pode tornar-se translúcida ao Ser
 
 > _"Ora, o Senhor é o Espírito; e onde está o Espírito do Senhor, aí há liberdade. E todos nós, que com a face descoberta contemplamos a glória do Senhor, segundo a sua imagem estamos sendo transformados com glória cada vez maior, a qual vem do Senhor, que é o Espírito."_
@@ -2033,14 +2035,10 @@ Esta análise revela que:
 
 #### **§ 19.6 – Conclusão: A Vocação da Alma**
 
-A vocação da alma não é escapar de sua individualidade, mas **realizá-la plenamente no Ser** - tornar-se tão perfeitamente si mesma que se torna transparente ao Fundamento que a sustenta.
-
-> _"Não rogo que os tires do mundo, mas que os protejas do mal. Eles não são do mundo, como eu também não sou. Santifica-os na verdade; a tua palavra é a verdade. Assim como me enviaste ao mundo, também eu os enviei ao mundo. E a favor deles eu me santifico, para que também sejam santificados na verdade."_
-> _— João 17:15-19_
-
-A santidade não é aniquilação do self, mas **transparência do self** - a alma tornada tão pura que deixa passar perfeitamente a luz do Ser.
+A vocação da alma não é escapar de sua individualidade, mas **realizá-la plenamente no Ser** - tornar-se tão perfeitamente si mesma que se torna transparente ao Fundamento que a sustenta. A santidade não é aniquilação do self, mas **transparência do self** - a alma tornada tão pura que deixa passar perfeitamente a luz do Ser.
 
 ### **CAPÍTULO 20: O RELATIVO DA ALMA E AS LEIS DA EXISTÊNCIA**
+
 #### **§ 20.1 – O Relativo da Alma**
 
 -   A alma é relativa. No infinito da alma há uma infinitude de determinações. A alma não é somente um infinito de espaço e tempo, mas é um infinito de possibilidades. A alma se apropria do seu relativo tal como o Ser se apropria do seu, de forma que, a alma busca sua definição em si mesma. A alma, portanto, pode assumir inúmeras formas, temporalidades ou existências, tendo uma infinitude de possibilidades em si.
@@ -2104,14 +2102,10 @@ Esta análise revela que:
 
 #### **§ 20.7 – Conclusão: Da Lei à Graça**
 
-A jornada da alma é **da limitação conceitual para a liberdade ontológica** - da vida sob leis definidas para a vida na plenitude do Ser, onde todas as possibilidades estão abertas.
-
-> _"Porque a lei foi dada por meio de Moisés; a graça e a verdade vieram por Jesus Cristo."_
-> _— João 1:17_
-
-A graça não é outra lei, mas **a transcendência de todas as leis** - a entrada na liberdade infinita do Ser onde a alma descobre que suas possibilidades são ilimitadas.
+A jornada da alma é **da limitação conceitual para a liberdade ontológica** - da vida sob leis definidas para a vida na plenitude do Ser, onde todas as possibilidades estão abertas. A graça não é outra lei, mas **a transcendência de todas as leis** - a entrada na liberdade infinita do Ser onde a alma descobre que suas possibilidades são ilimitadas.
 
 ### **CAPÍTULO 21: A DIALÉTICA DA TRANSCENDÊNCIA**
+
 #### **§ 21.1 – A Transcendência como Movimento Interno do Ser**
 
 A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma finitude, no sentido de romper um potencial expressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendência, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
@@ -2394,6 +2388,11 @@ Se o "campo das possibilidades" do Ser (o relativo) abrange todos os seres hipot
 
 Esta visão ilumina a afirmação de Cristo de que no estado ressurreto "os homens não se casam nem se dão em casamento; mas serão como os anjos no céu" (Mt 22:30; Mc 12:25). Jesus não está descrevendo um céu de solidão ou indiferenciação afetiva, mas superando a instituição do casamento—que é o portal terreno para essa união—para apontar para a sua realização plena e celestial. Ser "como os anjos" é habitar a Síntese eterna, onde a comunhão de almas atinge uma unidade tão perfeita que transcende a necessidade de mecanismos de geração física, tornando-se um estado puro e perene de amor e adoração mútuos e a Deus.
 
+Gênesis enfatiza, de forma vaga, a transcendência relacional; porém, o Evangelho não parece ter foco em explorar as possibilidades para a alma na vida eterna, nem faz qualquer referência a essa possibilidade que lhe atribua um grau de importância considerável. Interpreta-se que o Evangelho tem como foco a necessidade mais fundamental e urgente do homem: a permanência no Ser, para que assim possa explorar o aval de possibilidades implícitas. Portanto, o Evangelho não propõe referências precisas ou mais detalhadas, nem mesmo sobre o modelo de vida no próprio paraíso. Por outro lado, dá enfoque total à questão fundamental que exploraremos a seguir: a de precaver o homem de uma das mais terríveis possibilidades que podem ser encaradas, uma vez que a alma tenha diante de si uma infinitude de possibilidades após a libertação do mundo material.
+
+> _"Como estávamos nele antes da fundação do mundo, assim também estamos nele após a consumação dos séculos - não como espectadores, mas como participantes do único ato eterno de seu autoconhecimento."_
+> _— Paráfrase de Efésios 1:4_
+
 ### **CAPÍTULO 25: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
 #### **§ 25.1 – A Ontologia do Inferno: A Alma entre a Eternidade e a Auto-Negação**
@@ -2433,8 +2432,8 @@ A anulação temporal do "sou" não é uma transcendência, mas retrocesso, pois
 |----------------------|------------------------------------|------------------------------------|
 | **Alma Indiferenciada**  | Estado puro no Ser                     | Potencialidade pura                    |
 | **Alma Plena**           | União harmoniosa com o Ser             | Existência autêntica e transparente    |
-| **Alma em Corrupção**    | Autoafastamento do Ser                 | Consumo perpétuo sem plenitude         |
-| **Alma Infernal**        | Resistência ativa ao Ser               | Fogo espiritual de auto-negação        |
+| **Alma em Corrupção**    | Autoafastamento do Ser                 | Consumo temporáriio sem plenitude      |
+| **Alma Infernal**        | Resistência ativa e perpétua ao Ser    | Fogo espiritual de auto-negação        |
 
 #### **§ 25.3 – Implicações para uma Teologia da Salvação**
 
@@ -2523,7 +2522,7 @@ A alma não pode burlar sua eternidade, mas pode **distorcer sua existência no 
 | **Relacionamento** | União nupcial com o Ser   | Divórcio existencial       |
 | **Luz**        | Iluminação (verdade)      | Chamas (auto-devoramento)  |
 | **Tempo**      | Eternidade vivida         | Instante repetido          |
-| **Liberdade**  | Submissão amorosa         | Revolta infinita           |
+| **Liberdade**  | Relação amorosa com o Ser | Revolta infinita           |
 
 #### **§ 25.11 – Implicações para uma Teologia da Liberdade**
 
@@ -2531,7 +2530,7 @@ Esta análise revela que:
 
 1.  **O inferno é auto-infligido** - consequência da liberdade que se volta contra si
 2.  **A eternidade é ambivalente** - pode ser bênção ou maldição dependendo da escolha
-3.  **A graça é necessária** - só podemos escolher o bem com o auxílio divino
+3.  **A graça é necessária** - uma vez decidida pela danação, a alma só pode escolher o bem com o auxílio divino
 
 > _"E o fumo do seu tormento sobe para todo o sempre; e não têm repouso nem de dia nem de noite os que adoram a besta e a sua imagem, e aquele que receber o sinal do seu nome."_
 > _— Apocalipse 14:11_
@@ -2541,8 +2540,6 @@ Esta análise revela que:
 A ontologia do inferno nos confronta com o mistério último da liberdade:
 
 > **Deus nos ama tanto que prefere nosso inferno auto-escolhido à nossa felicidade forçada** - respeita nossa liberdade mesmo quando a usamos para nossa própria destruição.
-
-O céu não é ausência de sofrimento, mas **presença de amor**; o inferno não é ausência de Deus, mas **presença de Deus experimentada como tormento** por quem recusou o amor.
 
 > _"Apartai-vos de mim, malditos, para o fogo eterno, preparado para o diabo e seus anjos."_
 > _— Mateus 25:41_
@@ -2581,9 +2578,8 @@ A vocação humana é escolher a vida - escolher ser plenamente o que somos: **i
 #### **§ 25.16 – Conclusão: A Pedagogia do Inferno**
 
 O inferno existe como:
--   **Advertência metafísica**: Mostra o preço da auto-idolatria
 -   **Testemunho da liberdade**: Prova que até a autodestruição é permitida pelo Ser
--   **Espelho da misericórdia**: A porta permanece aberta - o fogo só persiste porque a alma insiste em alimentá-lo
+-   **Espelho da misericórdia**: A porta permanece aberta - o fogo só persiste porque a alma insiste em alimentá-lo. Não há escapatória uma vez que a alma decida não haver.
 
 #### **§ 25.17 – A Vivência Bifásica do Inferno**
 
@@ -2591,7 +2587,7 @@ A alma no inferno existe como:
 -   **Temporal e atemporal:** Temporalmente se sucede o ato do suicídio do eu, porém, este ato é definido no ato eterno e não somente temporalmente.
 -   **O resquício do eu:** Atemporalmente o eu permanece de forma que não existe mais o eu, mas o consumir do eu perpetuado eternamente.
 
-O corpo imóvel: O indivíduo, temporalmente não possui mais autodomínio, autopresença e auto consciência, porém, atemporalmente preserva sua auto-determinação. A morte, portanto, é sempre um ato consentido e não um ato consumado para o indivíduo. Há, desta forma, a morte, não como ato, mas como manutenção do ato. A morte, portanto, porta o indivíduo em ato de morte, e não encontra seu fim em seu objetivo. Não há, desta forma, o "sumiço", mas há o "morrer" eterno.
+O indivíduo, temporalmente não possui mais autodomínio, autopresença e auto consciência, porém, atemporalmente preserva sua auto-determinação. A morte, portanto, é sempre um ato consentido e não um ato consumado para o indivíduo. Há, desta forma, a morte, não como ato, mas como manutenção do ato. A morte, portanto, porta o indivíduo em ato de morte, e não encontra seu fim em seu objetivo. Não há, desta forma, o "sumiço", mas há o "morrer" eterno.
 
 > *"O inferno é a solidão de um coração que, tendo recebido tudo, escolheu nada; sendo feito para o infinito, contentou-se com seu próprio eco."*
 
@@ -2621,7 +2617,7 @@ Conclui-se que o Absoluto apresenta todas as opções para a alma, até mesmo a 
 |-------------------|-------------------------------------|-------------------------------------|
 | **Temporalidade** | Eternidade vivida                   | Instante repetido eternamente       |
 | **Consciência**   | Auto-transparência                  | Auto-alienação                      |
-| **Liberdade**     | Submissão amorosa                   | Revolta infinita                    |
+| **Liberdade**     | Relação amorosa                     | Revolta infinita                    |
 | **Existência**    | Plenitude realizadora               | Vazio consumidor                    |
 | **Relação com o Ser** | Comunhão nupcial                   | Divórcio existencial                |
 
@@ -2720,7 +2716,7 @@ O estado infernal revela:
 | Dimensão          | Paraíso                            | Inferno                            | Paradoxo                           |
 |-------------------|------------------------------------|------------------------------------|------------------------------------|
 | **Existência**    | Plenitude realizadora              | Vazio consumidor                   | Existir sem habitar o próprio ser  |
-| **Liberdade**     | Submissão amorosa                  | Revolta infinita                   | Poder escolher a própria destruição |
+| **Liberdade**     | Relação amorosa                    | Revolta infinita                   | Poder escolher a própria destruição |
 | **Temporalidade** | Eternidade vivida                  | Instante repetido eternamente      | Tempo que não flui, mas se repete  |
 | **Consciência**   | Auto-transparência                 | Auto-alienação                     | Testemunhar a própria degradação   |
 | **Relação com o Ser** | Comunhão nupcial                 | Divórcio existencial               | Rejeitar a fonte do próprio existir |
