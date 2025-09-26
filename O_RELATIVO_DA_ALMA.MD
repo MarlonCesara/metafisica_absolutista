@@ -387,7 +387,7 @@ Portanto, a crença colonial não era sobre o escravo ou o indígena. Era sobre 
 
 A célebre frase de São Paulo, "O salário do pecado é a morte" (Rm 6:23), encontra aqui uma expressão histórica terrível: o pecado niilista do colonizador gerava a morte espiritual *primeiro nele mesmo*, e só depois se manifestava como morte física e social nas vítimas de sua projeção desesperada.
 
-### **A compreensão do niilismo na luta social**
+#### **A compreensão do niilismo na luta social**
 
 A ação opressora niilista que oprime a sociedade é facilmente desmascarada por duas razões: entendido o agente psicológico que ajuda os ricos a acumularem riquezas, as empresas escravistas a continuarem erguidas e as formas de crimes a persistirem, é possível estabelecer uma legislação que identifique o potencial e a intenção de tais ações a fim de tratá-las da melhor forma possível. Também há o fato de que a ação niilista não faz jus ao uso da total capacidade cognitiva humana e de que é um grupo minoritário. Isto quer dizer que, ainda que a intenção niilista não seja desvelada, os mecanismos de opressão ocasionados pelo indivíduo niilista são facilmente desmantelados. Não são construídos com base numa inteligência ou em todo o potencial de um humano, mas são medidas desesperadas tomadas como fuga de um emocional instável, de uma loucura de poucos que fomentou por séculos a opressão de muitos. Os mecanismos de opressão não são difíceis de entender, e o entendimento destes, aliados ao entendimento do niilismo, fornece uma visão clara para a sociedade sobre contra o que está lutando. Compreender a mentalidade da qual advêm as forças opressoras ajuda a prever os movimentos do opressor, compreender sua real motivação e desconectá-la de qualquer representação fictícia de um motivo nobre; esses dois fatores são decisivos no combate às formas de opressão.
 
@@ -397,7 +397,7 @@ A estrutura de uma empresa niilista não é composta de trabalhadores que ganham
 
 O niilista é como uma criança insegura escondida por trás de grandes castelos, de grandes estruturas de poder. Quando compreendida a essência do niilismo, que é a mesma da guerra e de toda forma de opressão, o respeito do povo por tais formas opressoras cai por terra. O rico se vê como uma criança afugentada pela compreensão feroz do povo, que escracha sua fraqueza. Se antes o rico parecia uma grande sombra sobre a parede que provocava terror, vê-se, com a compreensão do niilismo, que era na verdade uma criança projetando uma sombra com suas mãos e chorando, pedindo por restauração interior.
 
-### **A insegurança do soberbo**
+#### **A insegurança do soberbo**
 
 A soberba é a máscara da insegurança interior. O soberbo olha para a vida e se sente inseguro, sem chão, sem seu autossuporte. A liberdade deveria ser espetacular para soberbo, porém ele olha as estrelas não com alegria, mas com saudade fomentada por sua despedida interior. O soberbo disfarça sua insegurança no acúmulo, na exclusão do seu próximo, na sua vida de excessos, mas na verdade nada disso lhe importa. O que o soberbo realmente queria era descansar em paz no seu travesseiro, com a mesma paz que vê no trabalhador, queria ter o mesmo sorriso dos humildes. Precisa oprimir, escravizar, enganar porque está distante de estar humanizado; ser humano significa se encarar, olhar a própria verdade, olhar direto nos olhos dos céus e sorrir de gratidão pela vida. Ser humano representa uma atitude de coragem interior, uma atitude de firmeza da alma. Quem sabe ser humano tem um porto seguro, tem um amigo interior para a eternidade.
 
@@ -409,7 +409,7 @@ Nem todo mau comportamento está associado ao niilismo, mas a característica pr
 
 O niilista quer o luxo, pois acredita que merece tudo; precisa se dar a tudo antes de decidir se anular. O niilista tem pressa em salvar sua vida de forma material; acelera o trabalhador como se o esforço acelerado e o acúmulo de bens pudessem, de alguma forma, lhe devolver ou garantir a vida na dimensão material.
 
-### **A sensação de pequenez**
+#### **A sensação de pequenez**
 
 Ao definir a si mesmo como um ser finito e puramente material, o indivíduo enfrenta outro grave problema para sua autoestima: a sensação esmagadora de ser um "mini-homem", um mero grão de areia num universo sem propósito. Essa percepção entra em flagrante contradição com a personalidade soberba, ostentadora e competitiva que muitos ricos exibem; na verdade, é exatamente o oposto do que projetam externamente.
 
@@ -433,7 +433,7 @@ A sociedade combate os sintomas de seu comportamento (a opressão, a exploraçã
 
 O opressor exterior, que antes aterrorizava e oprimia, torna-se, ironicamente, sua própria vítima. Aquele que amedrontava os outros agora se vê face a face com o seu algoz mais implacável: ele mesmo.
 
-### **O protesto niilista**
+#### **O protesto niilista**
 
 As empresas demitem funcionários e aumentam cargas de trabalho como forma de opressão, numa tentativa de demonstrar poderio. Pessoas denigram artistas e expressões culturais, buscando abalar o ânimo das multidões — mais uma manifestação desse mesmo impulso por exibir domínio. Esses atos representam o último suspiro da força niilista na sociedade: terminam em demonstrações de força bruta e violência, tal como animais que se inflam para parecerem maiores ao serem confrontados.
 
@@ -443,7 +443,7 @@ O niilista constitui-se como uma força antagônica por excelência: é anti-pol
 
 Sua postura, no entanto, não decorre de uma mera falta de moralidade ou de uma educação deficitária. É algo mais profundo e trágico: ele é dominado por uma frustração ontológica, inerente à sua visão de mundo niilista. Essa frustração afasta-o de tudo aquilo que, no fundo, mais ama e necessita — a conexão, a criação, o sentido. Transforma-o em um perseguidor dos outros e de si mesmo: um eterno buscador de uma identidade que sua própria postura nega e destrói.
 
-### **Traços de niilismo**
+#### **Traços de niilismo**
 
 O niilismo pode estar enraizado de forma amena em um indivíduo que às vezes crê e às vezes descrê da vida. Dessa forma, manifesta apenas seus primeiros traços. Quando a falta de perdão provoca o rancor, e isto vai se enraizando no coração humano, pode culminar em algumas raízes na esfera mais íntima do ser humano, que é sua decisão de viver, sua auto-sustentação. Um ódio não tratado começa a se enraizar aos poucos até permear a total perda do juízo pessoal, quando o ser humano vive pelo ódio de tal forma que já não se importa nem mais consigo mesmo.
 
@@ -453,7 +453,7 @@ O niilista, em estágio inicial, já não quer se igualar às outras pessoas; o 
 
 O acúmulo é um choro retido no indivíduo por si mesmo; é quando ele se desvaloriza ou se odeia a ponto da auto-rejeição. O acúmulo é o próprio esquecimento de si manifestado materialmente; a autoconsciência dá lugar à consciência do outro sobre si — a competição social — e a posse excessiva de bens substitui sua própria estadia na vida.
 
-### **O cansaço do niilismo e a reflexão**
+#### **O cansaço do niilismo e a reflexão**
 
 Todos os niilistas carregavam um cansaço associado à tentativa de se livrar do niilismo sem possuir o essencial para tal: o amor. Faziam a si mesmos a mesma pergunta incontáveis vezes: por que perdoar? por que aceitar? por que esquecer? por que agir de forma diferente? por que enfrentar? Tudo o que poderia movê-los em favor da vida é o amor. Tudo o que poderia fazê-los esquecer os pequenos deslizes do caminhar é o amor. Pela reflexão, tentavam constantemente chegar a algum lugar, mas acabavam em lugar nenhum, pois o que realmente buscavam era aprender a amar. Não há, definitivamente, uma resposta que leve o ser humano a perdoar, amar, relevar. A resposta definitiva é o amor. O amor é a razão que um ser humano encontra para viver. E a razão é Deus, porque Deus é amor.
 
@@ -461,7 +461,7 @@ Em certo momento histórico, no mundo de barro, as lutas sociais obtiveram êxit
 
 Os niilistas, depois da queda das dominações, foram obrigados a encarar o niilismo sem sobrepô-lo em formas de controle ou em comportamentos distorcidos. Foram levados ao exercício do pensamento. Agora, tinham de encarar seus fantasmas, enfrentar sua realidade interior e buscar a transformação de dentro para fora — e não de fora para dentro, como faziam antes.
 
-### **O encarar do niilista**
+#### **O encarar do niilista**
 
 Dar a cara a tapa não significa prostração, mas reconhecer que a atitude niilista é autodestrutiva; a batalha deve ser travada e ganha, porém, em uma derrota a verdadeira resistência está na passividade diante daquele que já deseja se destruir. No ápice de sua loucura, o niilista age, e quando é olhado nos olhos de forma a ser compreendido, pode ter uma breve lucidez da raiz de seu comportamento e de quanto se afastou do seu humano em prol de uma ideologia interior. Toda agressividade causada pela ideologia niilista, e que há tempo é esquecida pelo niilista devido a seu mascaramento, por vezes é recebida em sua consciência pelo ato de dar a cara. O niilista percebe que seus atos são injustificáveis, frutos de uma loucura que nasceu em si e que até então se deu temporariamente sem cura. Ou seja, o ato de compreender mostra ao niilista a contravenção de seu comportamento; ele cai em si de sua própria loucura, brevemente, antes que a sintomatização do niilismo o encontre novamente. Em outras palavras, o niilista nunca vence a batalha pela destruição do próprio mundo; quando a vence momentaneamente, já está imediatamente no rumo de sua derrota. É vencido de todas as formas: pela ação do outro ou pela inatividade do outro.
 
