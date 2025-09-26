@@ -878,3 +878,14 @@ A interpretação do Gênesis é multifacetada e de uma riqueza inesgotável, im
 *   **Romantismo:** Assim como o Titanic, este mundo efêmero é uma narrativa romântica: os amores se encontram em um mesmo barco, cientes de que o corpo há de perecer, mas desejosos de permanecer inesquecíveis. Sofrem a dor da perda e, por consequência, a supervalorização do outro. Ao mesmo tempo, vislumbram a possibilidade de transcender o corpo para reencontrar-se além dele.
 
 Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. Não se pode atribuir uma única interpretação, pois sua genialidade reside precisamente em sua capacidade de iluminar, de uma só vez, as múltiplas dimensões — a psicológica, a metafísica, a relacional e a espiritual — da condição humana perante a liberdade, o desejo e o Divino.
+
+### **O estranho vilarejo das almas perdidas**
+
+> "O inferno está vazio; todos os demônios estão aqui."  
+> – Shakespeare (A Tempestade)
+
+
+
+
+
+
