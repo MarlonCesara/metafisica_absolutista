@@ -461,7 +461,7 @@ Em certo momento histórico, no mundo de barro, as lutas sociais obtiveram êxit
 
 Os niilistas, depois da queda das dominações, foram obrigados a encarar o niilismo sem sobrepô-lo em formas de controle ou em comportamentos distorcidos. Foram levados ao exercício do pensamento. Agora, tinham de encarar seus fantasmas, enfrentar sua realidade interior e buscar a transformação de dentro para fora — e não de fora para dentro, como faziam antes.
 
-#### **O encarar do niilista**
+### **O encarar do niilista**
 
 Dar a cara a tapa não significa prostração, mas reconhecer que a atitude niilista é autodestrutiva; a batalha deve ser travada e ganha, porém, em uma derrota a verdadeira resistência está na passividade diante daquele que já deseja se destruir. No ápice de sua loucura, o niilista age, e quando é olhado nos olhos de forma a ser compreendido, pode ter uma breve lucidez da raiz de seu comportamento e de quanto se afastou do seu humano em prol de uma ideologia interior. Toda agressividade causada pela ideologia niilista, e que há tempo é esquecida pelo niilista devido a seu mascaramento, por vezes é recebida em sua consciência pelo ato de dar a cara. O niilista percebe que seus atos são injustificáveis, frutos de uma loucura que nasceu em si e que até então se deu temporariamente sem cura. Ou seja, o ato de compreender mostra ao niilista a contravenção de seu comportamento; ele cai em si de sua própria loucura, brevemente, antes que a sintomatização do niilismo o encontre novamente. Em outras palavras, o niilista nunca vence a batalha pela destruição do próprio mundo; quando a vence momentaneamente, já está imediatamente no rumo de sua derrota. É vencido de todas as formas: pela ação do outro ou pela inatividade do outro.
 
