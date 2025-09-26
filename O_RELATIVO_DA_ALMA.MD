@@ -357,7 +357,7 @@ Na “vida de barro” — essa existência puramente terrena —, tais indivíd
 
 Também incentivavam formas degradantes de concepção, que esvaziavam o significado de família e despojavam a sexualidade de qualquer significado como ato de união, transcendência e amor.
 
-#### **30. Reflexões sobre o niilismo**
+#### **Reflexões sobre o niilismo**
 
 O filósofo notou que, quanto mais a alma se decidia pelo niilismo, menor se tornavam sua compaixão, sua capacidade de socializar, seu autoconhecimento e seu ânimo. O indivíduo completamente niilista negava-se, em vida, a uma conversa honesta, ao silêncio de uma meditação, a um encontro amistoso entre amigos. Vivia afastado de si mesmo, sem esperança de um amanhã e sem qualquer tentativa de estabelecer diálogo interior. Não se aprofundava em si, não se sintonizava com o simples ato de estar vivo e existir. Limitava-se a tentar evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta.
 
