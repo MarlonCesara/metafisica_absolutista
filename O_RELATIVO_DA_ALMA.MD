@@ -881,12 +881,54 @@ Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. N
 
 ### **O estranho vilarejo das almas perdidas**
 
-> "O inferno está vazio; todos os demônios estão aqui."  
-> – Shakespeare (A Tempestade)
+> "O inferno está vazio; todos os demônios estão aqui."
+> – Shakespeare (*A Tempestade*)
 
-As almas, que estavam no relativo, se niilistas, ainda decidiam pelo corpo, pois apesar de não detecta-lo, era como se o fogo em que se consumavam tivesse vida própria. Ou seja, no exato momento que decidiam pela perdição, o fogo tomava partido. O fogo partia em busca de plenitude, do fim de suas chamas. As chamas buscavam por algo, por seu dono, por sua essencia que queimava sem cessar. As chamas tinham o resquicio da personalidade da alma, mas era uma personalidade lamentadora. 
+As almas, em seu relativo, sendo niilistas, ainda assim decidiam assumir um corpo. Apesar de não o detectarem conscientemente, era como se o fogo em que se consumiam tivesse vida própria. Ou seja, no exato momento em que escolhiam a perdição, o fogo tomava posse do vazio que se tornava a alma. O fogo partia em busca de plenitude, do fim de suas chamas. As chamas buscavam algo, seu dono, sua essência que queimava sem cessar. Conservavam apenas o resquício da personalidade da alma, mas era uma personalidade lamentadora.
 
-Não tinha dominio sobre si mesma.
+Os corpos assumidos pelas almas em chamas eram guiados pela dor. Choravam e lamentavam pelo eu perdido em um desespero incompreensível. O corpo ardia em chamas interiores, chamas que aniquilavam a todo instante o eu daquele ser, restando apenas o instinto natural dado a um corpo, meio biológico e meio flamejante — isto é, meio biológico e vazio. O corpo tinha olhos negros, uma expressão sóbria e fúnebre. As chamas não lhe queimavam fisicamente, mas apagavam o seu eu — e essa era a dor.
+
+Se o corpo se voltasse para sua verdade, lhe retornava um desespero sem fim, pois sua biologia não era capaz de revogar as decisões da alma. A biologia sofria sozinha, enquanto a alma havia se esvaído no próprio esquecimento.
+
+Havia centenas de milhares de almas naquele estranho vilarejo, e todas se comportavam da mesma forma. Frequentavam com avidez um salão vasto, iluminado por uma luz difusa e dourada, onde dançavam em círculos intermináveis. A música nunca cessava; era sempre a mesma melodia, o mesmo ritmo, o mesmo refrão. Cantavam e dançavam, sorrindo com expressões cansadas, como marionetes movidas por fios invisíveis. O som era agradável, quase celestial, mas também uma prisão. Estavam presas ali, seduzidas pelo prazer hipnótico da música, incapazes de parar, incapazes de pensar, incapazes de sonhar.
+
+Elas poderiam sair a qualquer momento, mas não o faziam. A música as envolvia como um abraço quente, como um vício doce e irresistível. Era uma felicidade vazia, uma diversão sem propósito, uma existência reduzida ao movimento repetitivo de dançar e cantar. Nenhum mal aparente lhes acontecia — não havia fogo, nem dor, nem sofrimento visível. O verdadeiro mal era a eternidade daquela dança, a eternidade de uma vida sem significado, sem aspirações, sem transcendência.
+
+As almas que não eram apáticas, aquelas que ainda guardavam uma centelha de espírito, podiam ouvir o canto e resistir. Tinham a força para sair, para romper o encanto e buscar algo maior. Mas para os niilistas, o canto era como uma droga. Não tinham vontade própria; eram guiadas por estímulos físicos, por prazeres imediatos, pela sedução da música. E assim, dançavam eternamente, sorrindo com lábios cansados, em um festim interminável que nunca as saciava. As risadas eram sombrias, pois sabiam, no fundo, que estavam presas em uma felicidade vazia, em uma existência sem propósito.
+
+O filósofo tentou despertar uma das almas que dançavam de seu sono hipnótico e a alertou:
+— Ei, você está aí há quanto tempo? Por que parece hipnotizada? Diga-me o seu nome!
+
+Diante da pergunta, o habitante entrou em completo desespero e pôs-se a chorar num pranto inconsolável. Gritava um nome que não sabia de quem era... e repetia-o sem cessar, até que, após alguns instantes, o canto da música o seduziu novamente, e ele retornou ao círculo dos outros.
+
+O filósofo notou que havia um corpo ali, mas lhe faltava o essencial: uma alma, um eu. Havia nele apenas um vestígio do que fora — uma memória de quem era. Era um corpo que não lembrava mais de si, e que preferia permanecer inebriado pela música, sem nunca questionar, sem nunca mudar seus hábitos, sem nunca evoluir.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
