@@ -884,7 +884,9 @@ Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. N
 > "O inferno está vazio; todos os demônios estão aqui."
 > – Shakespeare (*A Tempestade*)
 
-As almas, em seu relativo, sendo niilistas, ainda assim decidiam assumir um corpo. Apesar de não o detectarem conscientemente, era como se o fogo em que se consumiam tivesse vida própria. Ou seja, no exato momento em que escolhiam a perdição, o fogo tomava posse do vazio que se tornava a alma. O fogo partia em busca de plenitude, do fim de suas chamas. As chamas buscavam algo, seu dono, sua essência que queimava sem cessar. Conservavam apenas o resquício da personalidade da alma, mas era uma personalidade lamentadora.
+As almas, em seu relativo, sendo niilistas, ainda assim decidiam assumir um corpo. A autoaniquilação era um evento temporal, e por isso possuía forma. E a forma, qualquer que fosse, chamaremos de corpo, de modo representativo. A tendência da alma, ao se aniquilar, é recordar de como fora. Ela se interroga: quem desaparecerá? A única lembrança que lhe resta é de quem ela mesma havia sido. Por isso, sua inclinação é assumir novamente um corpo, à semelhança de seu antigo humano.
+
+Apesar das almas niilistas não detectarem o corpo conscientemente, era como se o fogo em que se consumiam tivesse vida própria. Ou seja, no exato momento em que escolhiam a perdição, o fogo tomava posse do vazio que se tornava a alma. O fogo partia em busca de plenitude, do fim de suas chamas. As chamas buscavam algo, seu dono, sua essência que queimava sem cessar. Conservavam apenas o resquício da personalidade da alma, mas era uma personalidade lamentadora.
 
 Os corpos assumidos pelas almas em chamas eram guiados pela dor. Choravam e lamentavam pelo eu perdido em um desespero incompreensível. O corpo ardia em chamas interiores, chamas que aniquilavam a todo instante o eu daquele ser, restando apenas o instinto natural dado a um corpo, meio biológico e meio flamejante — isto é, meio biológico e vazio. O corpo tinha olhos negros, uma expressão sóbria e fúnebre. As chamas não lhe queimavam fisicamente, mas apagavam o seu eu — e essa era a dor.
 
