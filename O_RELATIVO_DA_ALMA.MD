@@ -884,7 +884,9 @@ Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. N
 > "O inferno está vazio; todos os demônios estão aqui."  
 > – Shakespeare (A Tempestade)
 
+As almas, que estavam no relativo, se niilistas, ainda decidiam pelo corpo, pois apesar de não detecta-lo, era como se o fogo em que se consumavam tivesse vida própria. Ou seja, no exato momento que decidiam pela perdição, o fogo tomava partido. O fogo partia em busca de plenitude, do fim de suas chamas. As chamas buscavam por algo, por seu dono, por sua essencia que queimava sem cessar. As chamas tinham o resquicio da personalidade da alma, mas era uma personalidade lamentadora. 
 
+Não tinha dominio sobre si mesma.
 
 
 
