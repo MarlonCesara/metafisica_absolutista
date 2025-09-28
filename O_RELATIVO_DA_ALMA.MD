@@ -879,7 +879,7 @@ A interpretação do Gênesis é multifacetada e de uma riqueza inesgotável, im
 
 Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. Não se pode atribuir uma única interpretação, pois sua genialidade reside precisamente em sua capacidade de iluminar, de uma só vez, as múltiplas dimensões — a psicológica, a metafísica, a relacional e a espiritual — da condição humana perante a liberdade, o desejo e o Divino.
 
-### **O estranho vilarejo das almas perdidas**
+### **A estranha cidade das almas perdidas**
 
 > "O inferno está vazio; todos os demônios estão aqui."
 > – Shakespeare (*A Tempestade*)
@@ -911,7 +911,11 @@ Somente aquela música lhes servia de consolo. Ela vinha de um lugar misterioso,
 
 Os anjos sabiam que no fundo daquele corpo havia uma alma adormecida que queimava. Pensavam que de alguma forma a alma poderia ouvir o som e despertar. Porém, o corpo também queimava, seguia o intuito da alma pelo desaparecimento. O corpo e a alma eram um só, por isto, o corpo era tão duro de coração quanto a alma. Apesar de todo o sofrimento e desespero o corpo resistia, pois era a biologia que sentia. A dor não chegava realmente até a alma, o único sofrimento da alma era o seu auto esquecimento, o seu apagão.
 
-Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podiam relmente encontrar a alma, pois havia um abismo impercorrível que separava as almas do inferno da visão dos viventes do paraíso, ao passo que podiam olha-las pela superficie de seus corpos. 
+Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podiam relmente encontrar a alma, pois havia um abismo impercorrível que separava as almas do inferno da visão dos viventes do paraíso, ao passo que podiam olha-las pela superficie de seus corpos.
+
+O filósofo, ao sair da cidade, necessitava de grande consolo, não podia acreditar que pessoas poderiam se fadar aquele fim, o quão ódio essas pessoas teriam para provocar uma vingança tão grande contra elas mesmas? Um ódio eterno justificaria este fim. E é por isto que o filósofo entendeu que, a vida é vida desde que cuntivemos espiritualidade, desde que desejamos nos conectar com Deus, a vida é um relacionamento de perdão, compreensão e paciencia. Não é possível viver de qualquer jeito. Por mais obvio que pareça o ato de viver, milhaares de almas se perdiam por descuido, por achar que viver não era também um aprendizado. As almas perdidas não procuraram uma espiritualidade, não procuraram qualquer ensinamento, não ouviram Jesus. Se julgavam donas da razão, donas da sabedoria. Pensavam que era desnecessario qualquer ensinamento para viver. Não queriam entender que, embora pareça facil existir o coração toma camihos tortuosos em uma ausencia de resiliencia, há muitos intemperes pelos caminhos da vida, e é necessario ter uma conexão com Deus para sucumbi-los. 
+
+O filófo desejou profundamente retornar ao mundo de barro, rever o passado, mudar o destino daquelas almas. Pensou poder ser a graça de Deus naquelas vidas. Desejou profundamente poder retornar ao mundo e gritar ao sete ventos: Evangelizem!!!!!!
 
 
 
