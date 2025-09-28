@@ -901,10 +901,17 @@ As almas que não eram apáticas, aquelas que ainda guardavam uma centelha de es
 O filósofo tentou despertar uma das almas que dançavam de seu sono hipnótico e a alertou:
 — Ei, você está aí há quanto tempo? Por que parece hipnotizada? Diga-me o seu nome!
 
-Diante da pergunta, o habitante entrou em completo desespero e pôs-se a chorar num pranto inconsolável. Gritava um nome que não sabia de quem era... e repetia-o sem cessar, até que, após alguns instantes, o canto da música o seduziu novamente, e ele retornou ao círculo dos outros.
+Diante da pergunta, o habitante entrou em completo desespero e pôs-se a chorar num pranto inconsolável. Gritava um nome que não sabia de quem era... e repetia-o sem cessar. O corpo flamejante se aproximou do filosófo e o chaqualhou perguntando sobre uma pessoa que não lembrava quem era, mas era a pessoa que mais amava dizia. Seus dentes rangiam, chorava e soluçava sem cessar. Até que, após alguns instantes, o canto da música o seduziu novamente, e ele retornou à dança hipnótica.
 
 O filósofo notou que havia um corpo ali, mas lhe faltava o essencial: uma alma, um eu. Havia nele apenas um vestígio do que fora — uma memória de quem era. Era um corpo que não lembrava mais de si, e que preferia permanecer inebriado pela música, sem nunca questionar, sem nunca mudar seus hábitos, sem nunca evoluir.
 
+As almas daquele vilarejo haviam renunciado à própria liberdade. Não queriam olhar, nem tomar percepção — a consciência biológica — de sua condição. O corpo lhes fora preparado para coabitar com a alma em perfeita harmonia; porém, não detectando essa alma e não podendo resgatá-la, ao perceberem sua condição, encerravam-se em um incomparável desespero. Um desespero que, se prolongado, as levaria a buscar imediatamente a aniquilação de seus corpos.
+
+Somente aquela música lhes servia de consolo. Ela vinha de um lugar misterioso, e apenas naquele lugar podia ser ouvida. Alguns diziam que era entoada por anjos que choravam por aquelas almas, a música era tão bela porque desejavam profundamente que despertassem um dia. Era um consolo feliz diante de tamanho infortúnio daquelas vidas vazias.
+
+Os anjos sabiam que no fundo daquele corpo havia uma alma adormecida que queimava. Pensavam que de alguma forma a alma poderia ouvir o som e despertar. Porém, o corpo também queimava, seguia o intuito da alma pelo desaparecimento. O corpo e a alma eram um só, por isto, o corpo era tão duro de coração quanto a alma. Apesar de todo o sofrimento e desespero o corpo resistia, pois era a biologia que sentia. A dor não chegava realmente até a alma, o único sofrimento da alma era o seu auto esquecimento, o seu apagão.
+
+Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podiam relmente encontrar a alma, pois havia um abismo impercorrível que separava as almas do inferno da visão dos viventes do paraíso, ao passo que podiam olha-las pela superficie de seus corpos. 
 
 
 
