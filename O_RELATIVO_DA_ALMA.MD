@@ -884,7 +884,7 @@ Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. N
 > "O inferno está vazio; todos os demônios estão aqui."
 > – Shakespeare (*A Tempestade*)
 
-As almas, em seu relativo, sendo niilistas, ainda assim decidiam assumir um corpo. A autoaniquilação era um evento temporal, e por isso possuía forma. E a forma, qualquer que fosse, chamaremos de corpo, de modo representativo. A tendência da alma, ao se aniquilar, é recordar de como fora. Ela se interroga: quem desaparecerá? A única lembrança que lhe resta é de quem ela mesma havia sido. Por isso, sua inclinação é assumir novamente um corpo, à semelhança de seu antigo humano.
+As almas, em seu relativo, sendo niilistas, ainda assim decidiam assumir um corpo. A auto aniquilação era um evento temporal, e por isso possuía forma. E a forma, qualquer que fosse, chamaremos de corpo, de modo representativo. A tendência da alma, ao se aniquilar, é recordar de como fora. Ela se interroga: quem desaparecerá? A única lembrança que lhe resta é de quem ela mesma havia sido. Por isso, sua inclinação é assumir novamente um corpo, à semelhança de seu antigo humano.
 
 Apesar das almas niilistas não detectarem o corpo conscientemente, era como se o fogo em que se consumiam tivesse vida própria. Ou seja, no exato momento em que escolhiam a perdição, o fogo tomava posse do vazio que se tornava a alma. O fogo partia em busca de plenitude, do fim de suas chamas. As chamas buscavam algo, seu dono, sua essência que queimava sem cessar. Conservavam apenas o resquício da personalidade da alma, mas era uma personalidade lamentadora.
 
@@ -901,48 +901,18 @@ As almas que não eram apáticas, aquelas que ainda guardavam uma centelha de es
 O filósofo tentou despertar uma das almas que dançavam de seu sono hipnótico e a alertou:
 — Ei, você está aí há quanto tempo? Por que parece hipnotizada? Diga-me o seu nome!
 
-Diante da pergunta, o habitante entrou em completo desespero e pôs-se a chorar num pranto inconsolável. Gritava um nome que não sabia de quem era... e repetia-o sem cessar. O corpo flamejante se aproximou do filosófo e o chaqualhou perguntando sobre uma pessoa que não lembrava quem era, mas era a pessoa que mais amava dizia. Seus dentes rangiam, chorava e soluçava sem cessar. Até que, após alguns instantes, o canto da música o seduziu novamente, e ele retornou à dança hipnótica.
+Diante da pergunta, o habitante entrou em completo desespero e pôs-se a chorar num pranto inconsolável. Gritava um nome que não sabia de quem era... e repetia-o sem cessar. O corpo flamejante se aproximou do filósofo e o chacoalhou perguntando sobre uma pessoa que não lembrava quem era, mas dizia ser a pessoa que mais amava. Seus dentes rangiam, chorava e soluçava sem cessar. Até que, após alguns instantes, o canto da música o seduziu novamente, e ele retornou à dança hipnótica.
 
 O filósofo notou que havia um corpo ali, mas lhe faltava o essencial: uma alma, um eu. Havia nele apenas um vestígio do que fora — uma memória de quem era. Era um corpo que não lembrava mais de si, e que preferia permanecer inebriado pela música, sem nunca questionar, sem nunca mudar seus hábitos, sem nunca evoluir.
 
 As almas daquele vilarejo haviam renunciado à própria liberdade. Não queriam olhar, nem tomar percepção — a consciência biológica — de sua condição. O corpo lhes fora preparado para coabitar com a alma em perfeita harmonia; porém, não detectando essa alma e não podendo resgatá-la, ao perceberem sua condição, encerravam-se em um incomparável desespero. Um desespero que, se prolongado, as levaria a buscar imediatamente a aniquilação de seus corpos.
 
-Somente aquela música lhes servia de consolo. Ela vinha de um lugar misterioso, e apenas naquele lugar podia ser ouvida. Alguns diziam que era entoada por anjos que choravam por aquelas almas, a música era tão bela porque desejavam profundamente que despertassem um dia. Era um consolo feliz diante de tamanho infortúnio daquelas vidas vazias.
+Somente aquela música lhes servia de consolo. Ela vinha de um lugar misterioso, e apenas naquele lugar podia ser ouvida. Alguns diziam que era entoada por anjos que choravam por aquelas almas; a música era tão bela porque desejavam profundamente que despertassem um dia. Era um consolo feliz diante de tamanho infortúnio daquelas vidas vazias.
 
-Os anjos sabiam que no fundo daquele corpo havia uma alma adormecida que queimava. Pensavam que de alguma forma a alma poderia ouvir o som e despertar. Porém, o corpo também queimava, seguia o intuito da alma pelo desaparecimento. O corpo e a alma eram um só, por isto, o corpo era tão duro de coração quanto a alma. Apesar de todo o sofrimento e desespero o corpo resistia, pois era a biologia que sentia. A dor não chegava realmente até a alma, o único sofrimento da alma era o seu auto esquecimento, o seu apagão.
+Os anjos sabiam que, no fundo daquele corpo, havia uma alma adormecida que queimava. Pensavam que de alguma forma a alma poderia ouvir o som e despertar. Porém, o corpo também queimava, seguia o intuito da alma pelo desaparecimento. O corpo e a alma eram um só, por isso o corpo era tão duro de coração quanto a alma. Apesar de todo o sofrimento e desespero, o corpo resistia, pois era a biologia que sentia. A dor não chegava realmente até a alma; o único sofrimento da alma era o seu auto esquecimento, o seu apagão.
 
-Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podiam relmente encontrar a alma, pois havia um abismo impercorrível que separava as almas do inferno da visão dos viventes do paraíso, ao passo que podiam olha-las pela superficie de seus corpos.
+Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podiam realmente encontrar a alma, pois havia um abismo intransponível que separava as almas do inferno da visão dos viventes do paraíso, ao passo que podiam olhá-las pela superfície de seus corpos.
 
-O filósofo, ao sair da cidade, necessitava de grande consolo, não podia acreditar que pessoas poderiam se fadar aquele fim, o quão ódio essas pessoas teriam para provocar uma vingança tão grande contra elas mesmas? Um ódio eterno justificaria este fim. E é por isto que o filósofo entendeu que, a vida é vida desde que cuntivemos espiritualidade, desde que desejamos nos conectar com Deus, a vida é um relacionamento de perdão, compreensão e paciencia. Não é possível viver de qualquer jeito. Por mais obvio que pareça o ato de viver, milhaares de almas se perdiam por descuido, por achar que viver não era também um aprendizado. As almas perdidas não procuraram uma espiritualidade, não procuraram qualquer ensinamento, não ouviram Jesus. Se julgavam donas da razão, donas da sabedoria. Pensavam que era desnecessario qualquer ensinamento para viver. Não queriam entender que, embora pareça facil existir o coração toma camihos tortuosos em uma ausencia de resiliencia, há muitos intemperes pelos caminhos da vida, e é necessario ter uma conexão com Deus para sucumbi-los. 
+O filósofo, ao sair da cidade, necessitava de grande consolo. Não podia acreditar que pessoas poderiam se fadar àquele fim. Que ódio tão grande essas pessoas teriam para provocar uma vingança tão imensa contra si mesmas? Um ódio eterno justificaria este fim. E foi por isso que o filósofo entendeu que a vida é vida desde que cultivemos espiritualidade, desde que desejemos nos conectar com Deus. A vida é um relacionamento de perdão, compreensão e paciência. Não é possível viver de qualquer jeito. Por mais óbvio que pareça o ato de viver, milhares de almas se perdiam por descuido, por achar que viver não era também um aprendizado. As almas perdidas não procuraram uma espiritualidade, não procuraram qualquer ensinamento, não ouviram Jesus. Julgavam-se donas da razão, donas da sabedoria. Pensavam que era desnecessário qualquer ensinamento para viver. Não queriam entender que, embora pareça fácil existir, o coração toma caminhos tortuosos em uma ausência de resiliência. Há muitos intempéries pelos caminhos da vida, e é necessário ter uma conexão com Deus para superá-los.
 
-O filófo desejou profundamente retornar ao mundo de barro, rever o passado, mudar o destino daquelas almas. Pensou poder ser a graça de Deus naquelas vidas. Desejou profundamente poder retornar ao mundo e gritar ao sete ventos: Evangelizem!!!!!!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+O filósofo desejou profundamente retornar ao mundo de barro, rever o passado, mudar o destino daquelas almas. Pensou poder ser a graça de Deus naquelas vidas. Desejou profundamente poder retornar ao mundo e gritar aos sete ventos: **Evangelizem!**
