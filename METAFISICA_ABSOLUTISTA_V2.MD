@@ -1670,6 +1670,7 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 O Ser não pode ser reduzido a uma unidade contável:
 -   **O Ser não é "um" ou "muitos"** – sua essência dissolve a quantificação.
 -   **O Espírito fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.
+-     Uma pessoalidade delimitada significa unidade, e isso contradiz a infinitude do relativo.
 
 ##### **2. A Dupla Dimensão do relativo**
 
