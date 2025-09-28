@@ -365,7 +365,7 @@ O niilista busca antecipar sua autopunição através de um completo esqueciment
 
 O niilista radical tenta fazer sucumbir seu próprio eu ainda em vida. Ele se figura como um corpo sem conteúdo e, ainda assim, assume as ações desse corpo vazio como suas. É alguém que succumbiu à amnésia de si mesmo, que não se lembra mais de quem é.
 
-#### **A opressão histórica no mundo de barro**
+#### **A escravidão histórica no mundo de barro**
 
 A descrição do niilista oferece uma visão profundíssima para compreender a mentalidade colonial. A crença de que escravizados e indígenas "não tinham alma" não era um simples erro de observação; era a *projeção* de um niilismo prático e de uma autodestruição espiritual por parte do colonizador.
 
@@ -386,6 +386,18 @@ O colonizador havia se fechado à "conversa honesta" com a humanidade do outro, 
 Portanto, a crença colonial não era sobre o escravo ou o indígena. Era sobre o **colonizador niilista** que, ao negar a alma alheia, estava simplesmente confirmando a sua própria "depressão da alma", sua "renúncia a tudo que confere sentido à vida" e seu último e trágico ato de liberdade: a escolha pelo inferno da própria desumanização, projetando-a no mundo como um pesadelo para todos os outros.
 
 A célebre frase de São Paulo, "O salário do pecado é a morte" (Rm 6:23), encontra aqui uma expressão histórica terrível: o pecado niilista do colonizador gerava a morte espiritual *primeiro nele mesmo*, e só depois se manifestava como morte física e social nas vítimas de sua projeção desesperada.
+
+#### **A escravidão modernizada no mundo de barro**
+
+A escravidão no mundo de barro foi sendo vencida por barreiras tecnológicas e, ao mesmo tempo, se refinando. Depois de superada a violência do chicote, dos assassinatos em massa, dos genocídios e das invasões, formas mais discretas de violência foram assumidas, como:
+
+Se antes havia a dor da tortura física, agora havia a aceleração do indivíduo, o privamento de sua vida intelectual, afetiva e familiar em modelos de trabalho que tinham como único intuito o crescimento desmedido de partículas de empreendimentos na sociedade — não somente de grandes empresas, mas também de pequenas. E não apenas com funcionários fixos, mas até mesmo com prestadores de serviço. Diminuir o ganho devido do outro ou acelerá-lo para aumentar a produtividade, tomar todo o seu tempo familiar e de descanso, tinha o intuito de acumular vida para o opressor, tentando muni-lo de uma existência que ele mesmo desejava renunciar. O opressor tentava se agarrar a bens materiais, viver uma vida de leão em uma selva onde acreditava estar caçando cordeiros. Usava inúmeras formas de burlar leis, buscando sempre encontrar brechas. Arrendava seres humanos, sugando suas vidas, impedindo seus afetos, amores, a criação adequada de seus filhos. Tudo para se assegurar de possuir a própria vida.
+
+A manipulação política e até interpessoal era praticada pelo niilista, que não se concentrava apenas em grandes empresas, mas também em pequenas. Desde o encarregado até o dono da empresa, formas de manipulação eram empregadas para fazer o humano render mais. Os niilistas se infiltravam em cargos de chefia, em postos de encarregados, ou em qualquer estratégia que permitisse disfarçar seu verdadeiro intuito.
+
+Aproveitavam-se principalmente do desconhecimento do niilismo histórico, pois, embora o ser humano dispusesse de toda a tecnologia para detectar fraudes, não possuía a tecnologia para detectar o interior — a intenção de quem as provocava. Afinal, aquilo que não é suspeito não se investiga. A tecnologia mais necessária para vencer a opressão era reconhecer o intuito do niilista; só assim seria possível enxergar melhor onde estava a vazão de tanto mal na sociedade. A solução definitiva era compreender a alma do niilista.
+
+Os índios não conheciam o potencial niilista; da mesma forma, a sociedade moderna continuou por certo tempo desconhecendo o niilismo. Os índios não imaginavam que uma civilização com maior poderio tecnológico tivesse o intuito de colonizar, torturar e matar, pois a tecnologia poderia ser previsível, mas não tão facilmente seria previsível a ciência das almas. As coisas interiores eram mais difíceis de compreender. O entendimento interior foi mais lento na sociedade e se fez presente por toda a história desvelada da humanidade.
 
 #### **A compreensão do niilismo na luta social**
 
