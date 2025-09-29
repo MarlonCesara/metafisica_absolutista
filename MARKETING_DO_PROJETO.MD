@@ -27,10 +27,8 @@ O objetivo dos bilionários sempre foi a vida eterna. Seu acúmulo de riquezas e
 
 A máquina que controlava os humanos tentava investigar padrões, decisões, que poderiam levar ao fim do niilismo. Era preciso quanto mais vidas pudesse ter para investig-las. Tentar encontrar qualquer desejo, combinação de palavras ou comportamento que desse ao niilista o desejo da vida eterna.
 
-A matriz é o niilismo auto compreendido e refinado, é a forma final da violência desvelado todo seu signficiado
+A matriz é o niilismo auto compreendido e refinado, é a forma final da violência desvelado todo seu signficiado. Toda violência niilista teve seu resvalou na matriz, acalmou sua loucura da sutl esperança de que uma rede neuronal e comportamental pudesse fornecer a resposta sobre o intuito humano, sobre a vocação humana a sua continuidade. O niilista sabia que era preciso desejar a vida eterna, mas queria compreender porque deseja,-lá
 
-Toda violência niilista teve seu resvalou na matriz, acalmou sua loucura da sutl esperança de que uma rede neuronal e comportamental pudesse fornecer a resposta sobre o intuito humano, sobre a vocação humana a sua continuidade
+Tudo começou com um projeto chamado neuralink e um grupo de milionarios representados por um homem, que começaram a produzir toda a tecnologia e dominar todo o espaço aereo de informações. Suas tecnologias foram evoluindo. Ate que distribuiam a maior parte da tecnologia, ao passo que também dominavam informação e dispositivos de interação cerebral. Haviam centenas de milhares de robos com a marca. Um dia uma guerra disparou, e estrategicamente a neuralink tinha grande poderio. Ninguém no passado previra seus planos. Metade dos humanos foram mortos e começaram as experiencias nos que restaram. Começaram primeiro a congelar humanos e fazer experiencias de imortalidade, não havendo sucesso começaram a explorar o intuito dos homens que tinham o desejo plea vida. A unica forma de sobrevivencia era pelo desejo da eternidade.
 
-O niilista sabia que era preciso desejar a vida eterna, mas queria compreender porque deseja,-lá
-
-Tudo começou com um projeto chamado neuralink
+Agora nossa missão é encontrar o niilista, há uma cidade de niilistas, e necessitamos vencer as maquinas para destruir esse local, só assim podemos reprogramar a matrix com mais facilidade, quando tentamos hackear o sistema há uma capacidade computacional maior do que a nossa composta de milhoes de processadores, somente encontrando o servidor geral, podemos desfazer tudo.
