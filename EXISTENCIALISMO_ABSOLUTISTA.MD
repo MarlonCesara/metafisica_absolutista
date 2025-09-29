@@ -192,6 +192,8 @@ A crença do colonizador de que o escravo ou o indígena "não tinha alma" era, 
 
 **O Resíduo Existencial:** Ironia suprema: quem realmente se comportava como um "resíduo", um "resto de um processo que nunca lhe conferiu significado", era o próprio colonizador, que havia reduzido sua existência à acumulação material e à dominação. No entanto, ele projetava essa condição de "objeto descartável" sobre o escravo, tratando-o como literalmente descartável.
 
+**A escravidão interior espelhada:** O niilista se sentia escravo de sua condição, escravo de suas tendências egoístas, de sua sintomática. Espelhava esse fardo, esse comando interior maléfico, esse ditador interior, esse dominador inquisidor e maldoso no outro. Queria demonstrar a potência do mal que se auto-infligia. Queria se fazer compreendido. Queria denunciar o crime que sentia, a dor que auto-causava ao outro, na tentativa de que o outro a sanasse.
+
 O colonizador havia se fechado à "conversa honesta" com a humanidade do outro, ao "silêncio de uma meditação" sobre a injustiça que cometia e a qualquer "tentativa de estabelecer diálogo interior". Ela se limitava a "evadir todas as faculdades mentais que poderiam conduzi-lo à autodescoberta" — e a autodescoberta seria perceber a centelha divina no outro.
 
 Portanto, a crença colonial não era sobre o escravo ou o indígena. Era sobre o **colonizador niilista** que, ao negar a alma alheia, estava simplesmente confirmando a sua própria "depressão da alma", sua "renúncia a tudo que confere sentido à vida" e seu último e trágico ato de liberdade: a escolha pelo inferno da própria desumanização, projetando-a no mundo como um pesadelo para todos os outros.
