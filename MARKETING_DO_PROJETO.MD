@@ -50,4 +50,4 @@ Lentamente surgiram indícios de manipulação cerebral com um projeto chamado *
 
 Os que manifestavam o padrão não-niilista foram usados como experimento, enquanto os niilistas eram mortos. Somente restavam os que interessavam para a ordem niilista. E assim, lentamente, as pessoas foram sendo aprisionadas e a Matrix foi sendo construída.
 
-A Matrix é a culminação da sintomática niilista, o reflexo de toda a sua loucura; uma situação hipotética em que a própria insanidade do niilista poderia encontrar o fim. É a alusão a um desfecho trágico, possível resultado de todas as tentativas fracassadas de encontrar um sentido ao longo da história humana.
+A Matrix é a culminação da sintomática niilista, o reflexo de toda a sua loucura; uma situação hipotética em que a própria insanidade do niilista poderia encontrar o fim. É a alusão a um desfecho trágico, possível resultado de todas as tentativas fracassadas do niilista encontrar seu sentido de viver ao longo da história humana.
