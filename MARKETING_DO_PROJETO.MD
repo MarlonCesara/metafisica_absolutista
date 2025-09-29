@@ -1,3 +1,5 @@
+Trailler matrix 5 - Matrix decoded
+
 Morpheus esta sentando em seu sofa, onde ofereceu para neo as pilulas, e diz:
 
 Estamos investigando o código da Matrix e começamos a perceber que há algo profundamente errado. Os padrões algorítmicos não geram propósito real dentro da máquina. Não haveria como uma inteligência artificial sequestrar humanos por mera lógica utilitarista; há um fator desconhecido operando. O algoritmo poderia ter encontrado facilmente outras fontes de energia — mas por que preferiram os humanos? Descobrimos, ao nos conectarmos à Matrix, que ela poderia ser facilmente reprogramada, mas é como se houvesse um pensamento vivo, em contravenção à nossa programação. A raiz desse sistema tem um centro de controle. E não poderia ser uma maquina.  A Matrix não é construída apenas por máquinas. Estamos agora buscando uma provável cabine de controle: se existem humanos controlando a Matrix, onde estão? E afinal, qual o seu objetivo?
