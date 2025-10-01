@@ -12,6 +12,8 @@ Neo parou de olhar para o código e começou a olhar para a realidade. Então co
 
 Analisamos a estrutura lógica da realidade e do potencial humano, traçamos cenários hipotéticos no além-vida, mapeamos o comportamento do niilista, e agora encontramos o cerne do código-fonte: no que ele se constrói, no que é motivado e, principalmente, o que ou quem o constrói. Conhecemos o intuito. Agora travaremos uma guerra final não contra as máquinas, mas contra o mentor delas. 
 
+A Matrix não está extraindo energia das pessoas, mas informação.
+
 *(Corte para Neo em silêncio, refletindo. Close em seus olhos.)*
 
 **Narrador:**
