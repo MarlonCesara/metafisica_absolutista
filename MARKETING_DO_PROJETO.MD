@@ -8,6 +8,8 @@
 
 “Estamos investigando o código da Matrix e começamos a perceber que há algo profundamente errado. Os padrões algorítmicos não geram propósito real dentro da máquina. Não haveria como uma inteligência artificial sequestrar humanos por mera lógica utilitarista. O algoritmo poderia ter encontrado facilmente outras fontes de energia, mas por que preferiram os humanos? Descobrimos, ao nos conectarmos à Matrix, que ela poderia ser reprogramada, mas é como se houvesse um pensamento vivo, em contravenção à nossa programação. A raiz desse sistema tem um centro de controle. E não poderia ser uma máquina. A Matrix não é construída apenas por máquinas. Estamos agora buscando uma provável cabine de controle. Se existem humanos controlando a Matrix, onde estão? E afinal, qual é o seu objetivo? Neo pensou que, além de compreender todo o código, precisava compreender o propósito do código.
 
+Neo parou de olhar para o código e começou a olhar para a realidade. Então compreendeu mais a essência humana e passou a procurar o sentido do algoritmo em combinação com o ideal humano. Pediu a Morpheu que rastreasse o sistema em busca de humanos fora de Zion. Um local foi encontrado.
+
 Analisamos a estrutura lógica da realidade e do potencial humano, traçamos cenários hipotéticos no além-vida, mapeamos o comportamento do niilista, e agora encontramos o cerne do código-fonte: no que ele se constrói, no que é motivado e, principalmente, o que ou quem o constrói. Conhecemos o intuito. Agora travaremos uma guerra final não contra as máquinas, mas contra o mentor delas. 
 
 *(Corte para Neo em silêncio, refletindo. Close em seus olhos.)*
@@ -42,6 +44,8 @@ Neo fez a ligação para o niilista, e tentou lhe dar a resposta. Mas a resposta
 Agora, nossa missão é encontrar o niilista. Há uma cidade de niilistas, e precisamos vencer as máquinas para destruir esse local; só assim poderemos reprogramar a Matrix com mais facilidade. Quando tentamos hackear o sistema, há uma capacidade computacional maior do que a nossa, composta de milhões de processadores. Somente encontrando o servidor central poderemos desfazer tudo. A boa notícia é que identificamos indícios de um centro de controle — onde o niilista e seus programadores estão. Ele não está sozinho. Vamos com os melhores armamentos. 
 
 ### **Como Tudo Começou**
+
+Morpheu explicava que, no filme, correriam atrás dos niilistas. Mas se a mensagem tivesse sido passada no início, no começo da Neuralink e da inteligência artificial, tudo poderia ter sido evitado.
 
 Os não-niilistas eram detectados por padrões. Eram doces, não buscavam dominar, encontravam alegria naturalmente. O niilista acreditava que a resposta não lhe era dada, que o comportamento de paz do não-niilista guardava um segredo oculto. Então começou a corrida pela vida eterna. Primeiro congelaram humanos e tentaram experiências de imortalidade; não tendo sucesso, passaram a explorar o intuito dos homens que tinham o desejo pela vida. A única forma de sobrevivência era pelo desejo da eternidade. Os humanos não possuíam conhecimento metafísico avançado quando tudo começou.
 
