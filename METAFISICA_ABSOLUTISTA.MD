@@ -1586,7 +1586,7 @@ O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que
 
 ##### **A Natureza Não-Dual do Ser**
 -   **Indiferença Ontológica:**
-    O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa.
+    O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa. Realiza-se a própria transcendência da quantificação em sua indiferenciação, abarcando temporalmente todo o potencial de possibilidades inerentes ao Ser.
 
 **O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente verticalmente mas horizontalmente.
 
