@@ -5,7 +5,10 @@
 *(Morpheus está sentado em seu sofá, o mesmo onde ofereceu as pílulas a Neo. Ele olha fixamente para a câmera.)*
 
 **Morpheus:**
-“Estamos investigando o código da Matrix e começamos a perceber que há algo profundamente errado. Os padrões algorítmicos não geram propósito real dentro da máquina. Não haveria como uma inteligência artificial sequestrar humanos por mera lógica utilitarista. O algoritmo poderia ter encontrado facilmente outras fontes de energia, mas por que preferiram os humanos? Descobrimos, ao nos conectarmos à Matrix, que ela poderia ser reprogramada, mas é como se houvesse um pensamento vivo, em contravenção à nossa programação. A raiz desse sistema tem um centro de controle. E não poderia ser uma máquina. A Matrix não é construída apenas por máquinas. Estamos agora buscando uma provável cabine de controle. Se existem humanos controlando a Matrix, onde estão? E afinal, qual é o seu objetivo?”
+
+“Estamos investigando o código da Matrix e começamos a perceber que há algo profundamente errado. Os padrões algorítmicos não geram propósito real dentro da máquina. Não haveria como uma inteligência artificial sequestrar humanos por mera lógica utilitarista. O algoritmo poderia ter encontrado facilmente outras fontes de energia, mas por que preferiram os humanos? Descobrimos, ao nos conectarmos à Matrix, que ela poderia ser reprogramada, mas é como se houvesse um pensamento vivo, em contravenção à nossa programação. A raiz desse sistema tem um centro de controle. E não poderia ser uma máquina. A Matrix não é construída apenas por máquinas. Estamos agora buscando uma provável cabine de controle. Se existem humanos controlando a Matrix, onde estão? E afinal, qual é o seu objetivo?
+
+Analisamos a estrutura lógica da realidade e do potencial humano, traçamos cenários hipotéticos no além-vida, mapeamos o comportamento do niilista, e agora encontramos o cerne do código-fonte: no que ele se constrói, no que é motivado e, principalmente, o que ou quem o constrói. Conhecemos o intuito. Agora travaremos uma guerra final não contra as máquinas, mas contra o mentor delas. 
 
 *(Corte para Neo em silêncio, refletindo. Close em seus olhos.)*
 
@@ -40,7 +43,7 @@ Agora, nossa missão é encontrar o niilista. Há uma cidade de niilistas, e pre
 
 ### **Como Tudo Começou**
 
-Os não-niilistas eram detectados por padrões. Eram doces, não buscavam dominar, encontravam alegria naturalmente. O niilista acreditava que a resposta não lhe era dada, que o comportamento de paz do não-niilista guardava um segredo oculto. Então começou a corrida pela vida eterna. Primeiro congelaram humanos e tentaram experiências de imortalidade; não tendo sucesso, passaram a explorar o intuito dos homens que tinham o desejo pela vida. A única forma de sobrevivência era pelo desejo da eternidade.
+Os não-niilistas eram detectados por padrões. Eram doces, não buscavam dominar, encontravam alegria naturalmente. O niilista acreditava que a resposta não lhe era dada, que o comportamento de paz do não-niilista guardava um segredo oculto. Então começou a corrida pela vida eterna. Primeiro congelaram humanos e tentaram experiências de imortalidade; não tendo sucesso, passaram a explorar o intuito dos homens que tinham o desejo pela vida. A única forma de sobrevivência era pelo desejo da eternidade. Os humanos não possuíam conhecimento metafísico avançado quando tudo começou.
 
 Para isso, seria preciso entrar na mente humana para encontrar as respostas supostamente escondidas. Assim, a corrida pela “cura” começou de forma sorrateira e estratégica. Uma grande empresa chamada **I.A.E.** coletava informações de todos os aparelhos e era também a própria rede de Internet. Controlou a comunicação do mundo, o GPS, depois os dispositivos e, por fim, toda a informação. Todas as decisões estratégicas militares, todas as bases, tudo passou a ser monopolizado. A ordem não era apenas aniquilar como tentativa de demonstrar o que o niilista sentia. O propósito agora era examinar o cérebro humano para compreender, analisar a história de cada vida.
 
