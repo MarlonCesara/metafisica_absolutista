@@ -183,9 +183,7 @@ Eram as mais raras e as mais trágicas. Despertavam com um grito silencioso, seu
 
 O filósofo, com lágrimas que pareciam feitas de estrelas escorrendo pelo rosto, compreendeu que essas eram almas que, em vida, haviam transformado sua dor mais profunda em um projeto de autoaniquilação. Eram suicidas não apenas do corpo, mas da própria essência espiritual — e que agora, diante da realidade da eternidade, recusavam-se a si mesmas de forma definitiva. Seu desaparecimento não era imposto como castigo, mas constituía o último ato de liberdade de quem preferia o vazio à possibilidade de redenção — uma representação dramática da possibilidade teológica da *damnatio* (condenação eterna) resultante de uma opção livre e persistente contra Deus (cf. Mt 25,41; Catecismo da Igreja Católica, §1033).
 
-Movido por uma compaixão inquisitiva, o filósofo mergulhou nas memórias residuais que essas almas deixavam para trás, ecos de suas vidas no "mundo de barro". A partir dos fragmentos de suas existências terrenas — das palavras finais, das expressões congeladas no momento da morte, dos padrões de pensamento que persistiam como fantasmas —, ele compilou um perfil meticuloso. Não era um julgamento, mas um diagnóstico espiritual, um mapa da patologia da alma que leva ao repúdio final da graça. As almas que desapareciam compartilhavam um conjunto de características profundamente entrelaçadas.
-
-Com seu olhar que penetrava além das formas, o filósofo discerniu o fio negro que unia todas aquelas almas condenadas ao esquecimento voluntário: um ódio primordial, dirigido não contra o mundo ou os outros, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo puro de apagar-se completamente.
+O filósofo sabia, de certo modo, que elas não poderiam simplesmente desaparecer. Mas, então, para onde teriam ido? Qual seria o destino dessas almas? Onde encontrariam morada? Teriam descido ao inferno? E, se assim fosse, em que lugar estariam e como seria essa existência?
 
 ## **As Almas que Desapareciam Juntas: O Amor Idolátrico e suas Consequências**
 
@@ -584,6 +582,83 @@ Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podi
 O filósofo, ao sair da cidade, necessitava de grande consolo. Não podia acreditar que pessoas poderiam se fadar àquele fim. Que ódio tão grande essas pessoas teriam para provocar uma vingança tão imensa contra si mesmas? Um ódio eterno justificaria este fim. E foi por isso que o filósofo entendeu que a vida é vida desde que cultivemos espiritualidade, desde que desejemos nos conectar com Deus. A vida é um relacionamento de perdão, compreensão e paciência. Não é possível viver de qualquer jeito. Por mais óbvio que pareça o ato de viver, milhares de almas se perdiam por descuido, por achar que viver não era também um aprendizado. As almas perdidas não procuraram uma espiritualidade, não procuraram qualquer ensinamento, não ouviram Jesus. Julgavam-se donas da razão, donas da sabedoria. Pensavam que era desnecessário qualquer ensinamento para viver. Não queriam entender que, embora pareça fácil existir, o coração toma caminhos tortuosos em uma ausência de resiliência. Há muitos intempéries pelos caminhos da vida, e é necessário ter uma conexão com Deus para superá-los.
 
 O filósofo desejou profundamente retornar ao mundo de barro, rever o passado, mudar o destino daquelas almas. Pensou poder ser a graça de Deus naquelas vidas. Desejou profundamente poder retornar ao mundo e gritar aos sete ventos: **Evangelizem!**
+
+A borboleta, de repente, virou uma nuvem de lembranças, como se partículas refletissem memórias passadas daquelas almas, como se o desejo do homem de barro tornasse-se imediatamente realidade: querer conhecer o passado e como eram em vida. A nuvem que se abriu continha uma quantidade de cores desconhecida para seus olhos, uma nitidez incompreensível para o mundo de barro, como se pudesse enxergá-la espiritualmente. Como se o barro fosse transparente naquela nuvem. E então, pôde visualizar vidas e vidas; mergulhado em suas pesquisas, pôde concluir uma obra-prima, traçando, como se fosse a pinceladas de um quadro ornamental, o comportamento daquelas almas em vida — tudo o que restava da lembrança de quando ainda não haviam se consumido. Como eram? O que faziam? Vestígios de vida. Algo que desse ao filósofo a compreensão de por que elas se findaram em tão cruel castigo por conta própria. O que as levou a isso? Por que tal atitude? O filósofo precisava entender e, quando desejou, imediatamente pôde fazê-lo em detalhes.
+
+Tudo o que lhe restava era compreendê-las. Movido por uma compaixão inquisitiva, o filósofo mergulhou nas memórias residuais que essas almas deixavam para trás, ecos de suas vidas no "mundo de barro". A partir dos fragmentos de suas existências terrenas — das palavras finais, das expressões congeladas no momento da morte, dos padrões de pensamento que persistiam como fantasmas —, ele compilou um perfil meticuloso. Não era um julgamento, mas um diagnóstico espiritual, um mapa da patologia da alma que leva ao repúdio final da graça. As almas que desapareciam compartilhavam um conjunto de características profundamente entrelaçadas.
+
+Com seu olhar que penetrava além das formas, o filósofo discerniu o fio negro que unia todas aquelas almas condenadas ao esquecimento voluntário: um ódio primordial, dirigido não contra o mundo ou os outros, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo puro de apagar-se completamente.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
