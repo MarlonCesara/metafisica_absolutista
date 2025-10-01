@@ -105,7 +105,7 @@ O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue d
 
 #### **O espelhamento niilista**
 
-O niilista escraviza porque deseja expor o algoz que habita dentro de si, voltado contra si mesmo. Provoca miséria e fome para revelar, em vestes rasgadas, o estado de seu emocional, e em sua carência vital, a fome de espírito que o consome e o arrasta lentamente ao esquecimento. Mata para manifestar sua própria índole sobre sua própria vida. Engana para exibir a vida de mentiras que construiu. O medo diante de sua condição opressora faz com que sua expressão em sociedade se torne desmedida, violenta e absurda. 
+O niilista escraviza porque deseja expor o algoz que habita dentro de si, voltado contra si mesmo. Provoca miséria e fome para revelar, em vestes rasgadas, o estado de seu emocional, e em sua carência vital, a fome de espírito que o consome e o arrasta lentamente ao esquecimento. Mata para manifestar sua própria índole sobre sua própria vida. Engana para exibir a vida de mentiras que construiu. O medo diante de sua condição opressora faz com que sua expressão em sociedade se torne desmedida, violenta e absurda. O niilista quer mostrar que seu fardo é pesado, repassando serviços pesados. Ou tenta invejar a leveza interior, passando o ar de desleixado. Também pode tentar mostrar o que pensa que os outros sejam, já que viver parece fácil para eles.
 
 #### **O absurdo da indiferença e a vergonha da compreensão**
 
