@@ -373,7 +373,7 @@ A morte, nesse sentido, é a passagem do homem fórmico ao homem afórmico — a
 
 Adão e Eva aspiraram ao homem metamórfico. O gesto de provar o fruto foi, antes de tudo, uma recusa à lei da forma: rejeitaram o limite, a medida imposta, e ousaram ser autores do próprio desígnio. O homem, desde então, quis ser não apenas formado, mas formador de si mesmo — artífice de sua essência e do contorno de sua existência. A morte corporal é libertação da forma fixa.
 
-A morte revela-se, assim, como passagem: do homem fórmico, prisioneiro de moldes, ao homem afórmico, aquele que decide e recria continuamente a própria forma.
+A morte revela-se, assim, como passagem: do homem fórmico, prisioneiro de moldes, ao homem afórmico, aquele que decide e recria continuamente a própria forma.É a transição do homem formíco para o homem relativo, aquele que revela com naturalidade seus desejos e é conforme a decisão de seu coração.
 
 ### **O resgate de Gênesis**
 
