@@ -486,6 +486,9 @@ A Bíblia, portanto, expõe o pior comportamento esperado da liberdade decaída,
 
 Em síntese, Adão e Eva malograram o paraíso. O mundo foi destruído por um final apocalíptico, e o anjo mais inteligente se perverteu e ajudou na destruição do mundo. Apesar dessas inconsistências e previsões trágicas, Deus demonstra seu amor até mesmo nas fraquezas hipotéticas.
 
+A prova de amor a Deus é persistir na vida mesmo diante da visão das mortes eternas. E a prova da união da dualidade é permanecer unida, mesmo diante do mal e do bem.
+
+
 ### **A história dos anjos**
 
 Ao considerar que o Gênesis começa por narrar o homem em seu estado anterior, angelical à sua vivificação, temos um cenário onde esses anjos lutavam no céu contra os anjos corrompidos. Isto é, temos até mesmo o campo das possibilidades pressuposto na corrupção angelical. E não somente os anjos, a corrupção e a transcendência dos anjos pressupostas nos textos sagrados, mas temos também até mesmo a ação humana do mundo remontada mais uma vez na horda celeste anterior à criação dos céus e da terra. A luta entre o bem e o mal foi também arquitetada no mundo angelical, premeditada; porém, de uma forma um pouco catastrófica.
