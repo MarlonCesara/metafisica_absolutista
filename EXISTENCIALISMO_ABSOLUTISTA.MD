@@ -1,5 +1,8 @@
 ## **O Perfil do Niilista Existencial: Uma Cartografia da Auto-Anulação**
 
+> O niilismo não é propósito, pacto, religião, ideologia ou dogma, mas um acúmulo de ódio que chega ao seu ápice.
+
+
 #### **A Busca Deliberada e Insistente pela Morte**
 Algumas tinham uma busca deliberada e insistente pela morte. Os sinais mais claros eram tentativas de suicídio, seja de forma rápida e violenta, seja de forma lenta e gradual. Dentre as almas com as quais conversou, havia muitos fumantes, indivíduos que constantemente arriscavam a vida sem necessidade ou que se engajavam em qualquer tipo de atividade que revelasse uma intenção deliberada pela morte — fosse esse processo mais lento ou mais rápido. O filósofo descobriu que os suicidas não eram apenas aqueles que cortavam os pulsos ou saltavam de pontes; eram também os que se matavam em doses homeopáticas: garrafas de álcool transformadas em cápsulas de esquecimento, seringas cheias de névoa entorpecente, comprimidos que anestesiavam a alma pedaço por pedaço. Portanto, em vida, essas almas afastavam sistematicamente as coisas boas e procuravam a própria morte, não somente através de pensamentos e palavras, mas através de ações concretas. Reforçavam assim, na eternidade, uma tendência que já demonstravam na vida de barro — confirmando a gravidade do pecado contra o Espírito Santo (Mc 3,29), que é tradicionalmente interpretado como o da desesperação final e da rejeição obstinada da salvação.
 
