@@ -281,6 +281,9 @@ O niilista, em estágio inicial, já não quer se igualar às outras pessoas; o 
 
 O acúmulo é um choro retido no indivíduo por si mesmo; é quando ele se desvaloriza ou se odeia a ponto da auto-rejeição. O acúmulo é o próprio esquecimento de si manifestado materialmente; a autoconsciência dá lugar à consciência do outro sobre si — a competição social — e a posse excessiva de bens substitui sua própria estadia na vida.
 
+Os sintomas do niilismo se manifestam quando a pessoa tenta se afastar do convívio social, se deprime, enche a mente de negatividade e trata mal as pessoas. E isso tem o intuito de causar uma depressão no corpo, uma inclinação não somente espíritual mas física para a morte.
+
+
 #### **O cansaço do niilismo e a reflexão**
 
 Todos os niilistas carregavam um cansaço associado à tentativa de se livrar do niilismo sem possuir o essencial para tal: o amor. Faziam a si mesmos a mesma pergunta incontáveis vezes: por que perdoar? por que aceitar? por que esquecer? por que agir de forma diferente? por que enfrentar? Tudo o que poderia movê-los em favor da vida é o amor. Tudo o que poderia fazê-los esquecer os pequenos deslizes do caminhar é o amor. Pela reflexão, tentavam constantemente chegar a algum lugar, mas acabavam em lugar nenhum, pois o que realmente buscavam era aprender a amar. Não há, definitivamente, uma resposta que leve o ser humano a perdoar, amar, relevar. A resposta definitiva é o amor. O amor é a razão que um ser humano encontra para viver. E a razão é Deus, porque Deus é amor.
