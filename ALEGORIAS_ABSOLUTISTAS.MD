@@ -368,6 +368,15 @@ E então se deu a humanidade. E o Gênesis foi escrito como esse sonho — uma n
 
 E desta vez, conscientes de que no céu há todas as possibilidades possíveis, prazeres inenarráveis e felicidades infinitas — iguais em intensidade aos da união em uma dualidade, mas distribuídas de outras formas —, poderiam, portanto, seguir seus caminhos sem o mesmo orgulho, ou ao menos, sem a mesma pressa. Pois compreenderam que aquele corpo glorioso já lhes bastava, já lhes era suficientemente grande para conter uma infinitude de experiências, para um vasto e gradual amadurecimento, antes de tentarem novamente ser como deuses, assumindo responsabilidades cósmicas para as quais a alma precisa estar plenamente preparada. O arrependimento não era pelo amor, mas pela presunção de tê-lo consumado numa forma definitiva para a qual ainda precisavam crescer. E naquele momento, a eternidade apresentou-se não como um fim, mas como um caminho infinito de aprendizado e humildade.
 
+### **O homem metamórfico**
+
+Adão e Eva desejaram o homem metamórfico. O ato de comer o fruto foi uma rejeição à lei da forma: eles recusaram a forma dada e quiseram ser autores do próprio desígnio. O homem buscou ser criador de si mesmo, dono de sua própria forma. Assim, libertaram-se das limitações impostas pelas formas que restringiam suas ações.
+A morte, nesse sentido, é a passagem do homem fórmico ao homem afórmico — aquele que decide por si mesmo a sua forma.
+
+Adão e Eva aspiraram ao homem metamórfico. O gesto de provar o fruto foi, antes de tudo, uma recusa à lei da forma: rejeitaram o limite, a medida imposta, e ousaram ser autores do próprio desígnio. O homem, desde então, quis ser não apenas formado, mas formador de si mesmo — artífice de sua essência e do contorno de sua existência.
+
+A morte revela-se, assim, como passagem: do homem fórmico, prisioneiro de moldes, ao homem afórmico, aquele que decide e recria continuamente a própria forma.
+
 ### **O resgate de Gênesis**
 
 Deus, ao visualizar todos os possíveis destinos, morreu por nós. Antecipou todos os eventos e cuidou de tudo. Previu cada erro que poderia advir da liberdade, todo caos e confusão.
@@ -575,6 +584,9 @@ Os viventes do paraíso podiam visualizar os corpos que queimavam, mas não podi
 O filósofo, ao sair da cidade, necessitava de grande consolo. Não podia acreditar que pessoas poderiam se fadar àquele fim. Que ódio tão grande essas pessoas teriam para provocar uma vingança tão imensa contra si mesmas? Um ódio eterno justificaria este fim. E foi por isso que o filósofo entendeu que a vida é vida desde que cultivemos espiritualidade, desde que desejemos nos conectar com Deus. A vida é um relacionamento de perdão, compreensão e paciência. Não é possível viver de qualquer jeito. Por mais óbvio que pareça o ato de viver, milhares de almas se perdiam por descuido, por achar que viver não era também um aprendizado. As almas perdidas não procuraram uma espiritualidade, não procuraram qualquer ensinamento, não ouviram Jesus. Julgavam-se donas da razão, donas da sabedoria. Pensavam que era desnecessário qualquer ensinamento para viver. Não queriam entender que, embora pareça fácil existir, o coração toma caminhos tortuosos em uma ausência de resiliência. Há muitos intempéries pelos caminhos da vida, e é necessário ter uma conexão com Deus para superá-los.
 
 O filósofo desejou profundamente retornar ao mundo de barro, rever o passado, mudar o destino daquelas almas. Pensou poder ser a graça de Deus naquelas vidas. Desejou profundamente poder retornar ao mundo e gritar aos sete ventos: **Evangelizem!**
+
+
+
 
 
 ---
