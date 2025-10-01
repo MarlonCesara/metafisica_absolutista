@@ -373,7 +373,7 @@ E desta vez, conscientes de que no céu há todas as possibilidades possíveis, 
 Adão e Eva desejaram o homem metamórfico. O ato de comer o fruto foi uma rejeição à lei da forma: eles recusaram a forma dada e quiseram ser autores do próprio desígnio. O homem buscou ser criador de si mesmo, dono de sua própria forma. Assim, libertaram-se das limitações impostas pelas formas que restringiam suas ações.
 A morte, nesse sentido, é a passagem do homem fórmico ao homem afórmico — aquele que decide por si mesmo a sua forma.
 
-Adão e Eva aspiraram ao homem metamórfico. O gesto de provar o fruto foi, antes de tudo, uma recusa à lei da forma: rejeitaram o limite, a medida imposta, e ousaram ser autores do próprio desígnio. O homem, desde então, quis ser não apenas formado, mas formador de si mesmo — artífice de sua essência e do contorno de sua existência.
+Adão e Eva aspiraram ao homem metamórfico. O gesto de provar o fruto foi, antes de tudo, uma recusa à lei da forma: rejeitaram o limite, a medida imposta, e ousaram ser autores do próprio desígnio. O homem, desde então, quis ser não apenas formado, mas formador de si mesmo — artífice de sua essência e do contorno de sua existência. A morte corporal é libertação da forma fixa.
 
 A morte revela-se, assim, como passagem: do homem fórmico, prisioneiro de moldes, ao homem afórmico, aquele que decide e recria continuamente a própria forma.
 
