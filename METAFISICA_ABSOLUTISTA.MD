@@ -1581,7 +1581,31 @@ O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; i
 
 > Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.
 
+A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob uma perspectiva testemunhal e pessoal. Pela lógica, podemos inferir que a existência do homme é uma possibilidade, e que cabe à vontade deliberada do Ser decidir. Portanto, os capítulos a seguir abrangem o auto-testemunho para garantir sua continuidade. A base lógica é: penso, logo sou. Assim, partimos da afirmação de que existimos e de que há outros que também existem. A lógica, a partir deste ponto, é continuada. Porém, sem essa afirmação que sustenta o pensamento do eu individual e de sua liberdade metafísica, não haveria como prosseguir logicamente com os assuntos que se seguem. Segue-se que, diante de uma postura incrédula em relação a si mesmo como ente espiritual, ou de uma visão puramente biológica do ser humano, os capítulos a seguir não fariam sentido do ponto de vista lógico.
+
 #### **§ 14.2 – A Manifestação do "Sou": A Criação da Alma do Homem**
+
+Na tradição da Igreja Católica, a expressão de que o homem foi feito “à imagem e semelhança de Deus” tem um significado profundo e multifacetado. Eis os principais pontos:
+
+1. **Imagem de Deus (Imago Dei) – dimensão espiritual:**
+   Isso se refere à **alma racional e espiritual do ser humano**, que o distingue das outras criaturas. Ser feito à imagem de Deus significa que o homem possui:
+
+   * **Razão e inteligência**: capacidade de conhecer a verdade e compreender a realidade.
+   * **Vontade livre**: capacidade de escolher entre o bem e o mal, de se autodeterminar moralmente.
+   * **Capacidade de amar**: o homem pode amar desinteressadamente, refletindo o amor de Deus.
+
+2. **Semelhança com Deus – crescimento em virtude:**
+   A “semelhança” indica que o homem é chamado a **se conformar a Deus**, a imitar suas perfeições através da vida moral e espiritual. Diferente da “imagem” (que é inata), a semelhança é **desenvolvida**: cresce à medida que o ser humano vive em comunhão com Deus e pratica virtudes.
+
+3. **Vocação à comunhão:**
+   Ser feito à imagem de Deus também significa que o homem é **capaz de relacionamento**, com Deus, com os outros e consigo mesmo. Isso reflete a natureza trinitária de Deus: o homem é chamado a participar do amor divino e da vida comunitária.
+
+4. **Dignidade e valor absoluto:**
+   Por ser feito à imagem de Deus, cada ser humano possui **dignidade inalienável**, que deve ser respeitada em qualquer circunstância, independentemente de condição social, raça ou habilidade.
+
+Resumindo: na visão católica, **“imagem” diz respeito à essência espiritual e racional do homem; “semelhança” aponta para a perfeição moral e a comunhão com Deus que ele é chamado a desenvolver**.
+
+Sendo o homem possuidor da possibilidade de ser autodeterminador de si, tal como o Ser se autodetermina, temos uma característica predominante, a qual não torna o homem Deus, no sentido de identidade, mas o transforma em uma ramificação da liberdade absoluta. O homem é, assim, uma transcendência, uma criação da vontade reta e criadora.
 
 ##### **Não-Multiplicidade do Ser**
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
