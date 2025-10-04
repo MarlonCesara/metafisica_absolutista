@@ -2168,6 +2168,8 @@ A unidade que definimos como sou, não pode ser um limite, mas é uma vazão par
 
 > **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer no **Ser**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de Ser** — e Ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.
 
+> Deus não poderia criar uma criatura autoconsciente, livre e incompleta; uma criatura com um mal infinito ou uma criatura que não pudesse transcender a si mesma, para o Ser e para o outro. O homem, como criação amorosa de Deus, possui, em seu infinito particular, todas as possibilidades que o realizam e completam sua dignidade como ser existente.
+
 #### **§ 21.2 – Almogênese: A Ontologia da Transcendência e da União entre Almas**
 
 ##### **A Dialética da Autodeterminação e Transcendência**
