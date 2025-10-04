@@ -589,26 +589,11 @@ Tudo o que lhe restava era compreendê-las. Movido por uma compaixão inquisitiv
 
 Com seu olhar que penetrava além das formas, o filósofo discerniu o fio negro que unia todas aquelas almas condenadas ao esquecimento voluntário: um ódio primordial, dirigido não contra o mundo ou os outros, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo puro de apagar-se completamente.
 
+O inferno há choro e ranger de dentes, pois o ser humano, que se ve desesperado por uma condição existencial inadequada, se coloca como uma criança. Perde sua autonomia e confiança e se entrega ao desespero de joelhos. Sua preocupação maior não é em odiar e se afastar, mas em mudar. Ou seja, o mal ainda preserva a própria vida, ainda lhe resta algum temor pela vida. Então, pelo contrario do senso comum, sem ódio não é pela vida, mas culpa a vida por sua condição de abandono de si mesmo. Culpa a vida por tê-lo fadado a liberdade e por essa liberdade tê-lo levado a um mal caminho. O mal é uma criança que chora desesperada. E não pessoas confiantes, que tem uma direção em foco. A ação do mal é um pedido de socorro, um despejar do seu desespero. O mal não planeja ações, o mal faz pedidos de salvação. Não existe alguém tão louco que queira ser mal, a atitude maligna não é provocada pelo ódio real, mas pelo desespero de não ter se adaptado. O desespero de um coração que não encontrou seu destino, mesmo em meio à escuridão. Este mundo, ainda que não seja mágico, é o mais incrível para os maus. Ele possui algo que, de forma intrínseca, pode transformar o mal: o calor humano. Esse calor é mais extraordinário do que qualquer poder ou manifestação mágica. Se, neste mundo, o mal não muda sua perspectiva, dificilmente o fará em qualquer outro lugar. Não existe quem deseje, em sua sanidade, ser mau. A maldade não nasce de um ódio verdadeiro, mas do desespero de não ter encontrado adaptação ou sentido. É o reflexo de um coração perdido, que ainda busca seu destino, A risada, portanto, foi definida como algo que se assemelha a: "Posso ser feliz sem Deus." O mal é auto piedoso ao extremo, incapaz de admitir qualquer culpa por sua condição. A risada do mal é, em essência, a completa loucura manifestada em som.
 
+A estranha risada
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+> "O niilista, após ser fadado pelo anjo mais poderoso do céu aos infernos, manifestou uma estrondosa risada. Essa risada foi ouvida por muitos anjos, mas nenhum deles sabia de fato, descrever aquela risada com exatidão. O niilista não tem ódio da vida, ele tem ódio da vida não ter mudado quem ele é. O mal culpa a Deus por sua condição, sob o pensamento de que, se Deus é realmente poderoso, devia tê-lo criado feliz. Então, a risada do mal, na verdade, é uma imitação de felicidade na qual o mal acredita ser realmente feliz. É a imitação de um sentimento de infãncia não manifestado. É o ápice da loucura, a ponto de não carregar nem mesmo mais malicia, e sim a completa insanidade na expressão. É uma risada que não carrega mais consciência da realidade. Que emerge das profundezas escuras do abismo onde o mal está, e lá emite uma risada que considera ser para si sua felicidade. A risada do niilista nasce da falsidade. É a imitação de alguém feliz, porem uma imitação completamente insana. O mal, somente dizia, se é Deus, então nos salve de nós mesmos. Se não nos salva, então é porque não quis. O mal é como uma criança birrenta. "
 
 ## **O Perfil do Niilista Existencial: Uma Cartografia da Auto-Anulação**
 
