@@ -618,6 +618,12 @@ Existem pontos em comum no niilista que independem do contexto histórico, e sã
 * Recusa em acreditar na própria liberdade.
 * Medo da liberdade diante da própria intenção.
 
+#### **A verdadeira riqueza**
+
+A verdadeira riqueza está inteiramente associada ao espírito. O indivíduo que se reconhece sem misericórdia e sem perdão tem sua autoestima e sua esperança corrompidos. Imagina-se no pior desterro, com o pior destino, e sente ruir seu próprio amparo interior. O indivíduo que atenta contra a liberdade e a vida do outro priva-se, inevitavelmente, de sua própria liberdade e de sua própria vida.
+
+Os niilistas sentem-se miseráveis. O próprio corpo repudia as atitudes da alma, de modo que esta se torna um espírito atormentador do corpo — que, por sua vez, passa a abominar seu conteúdo e manifesta uma estranha sintomática. O corpo passa, então, a incorporar figuras de poder, a tornar-se obsessivo pelo acúmulo de bens e a descrer até mesmo na própria liberdade — tudo para afastar de si a ideia opressora de possuir um impulso voltado à destruição, para fugir da impressão de ter fracassado ou perdido a capacidade de harmonizar-se com a vida.
+
 #### **Ateísmo Implícito**
 O niilista carrega um pessimismo profundo; embora possa recorrer a alguma religião, faz isso apenas por cultura ou prática, mas não com verdadeira fé. Isto é, o niilista recusa totalmente sua própria liberdade como verdade, pois teme estar submetido ao próprio julgo. Assim, ainda que frequente religiões, porte sinais ou símbolos de culto, descrê de tudo. Não possui verdadeira fé na eternidade, pois teme as possibilidades que ela implica. Para o niilista, se houver a possibilidade de autoanulação, isso equivaleria à existência de um mundo sem propósito; assim, sua crença torna-se indiferente.
 
