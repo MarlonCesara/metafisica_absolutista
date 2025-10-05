@@ -1583,7 +1583,9 @@ O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; i
 
 A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob uma perspectiva testemunhal e pessoal. Pela lógica, podemos inferir que a existência do homme é uma possibilidade, e que cabe à vontade deliberada do Ser decidir. Portanto, os capítulos a seguir abrangem o auto-testemunho para garantir sua continuidade. A base lógica é: penso, logo sou. Assim, partimos da afirmação de que existimos e de que há outros que também existem. A lógica, a partir deste ponto, é continuada. Porém, sem essa afirmação que sustenta o pensamento do eu individual e de sua liberdade metafísica, não haveria como prosseguir logicamente com os assuntos que se seguem. Segue-se que, diante de uma postura incrédula em relação a si mesmo como ente espiritual, ou de uma visão puramente biológica do ser humano, os capítulos a seguir não fariam sentido do ponto de vista lógico.
 
-O auto-testemunho de si implica a afirmação da própria existência, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
+O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
+
+
 
 #### **§ 14.2 – A Manifestação do "Sou": A Criação da Alma do Homem**
 
