@@ -49,7 +49,16 @@ Agora, nossa missão é encontrar o niilista. Há uma cidade de niilistas, e pre
 
 Morpheu explicava que, no filme, correriam atrás dos niilistas. Mas se a mensagem tivesse sido passada no início, no começo da Neuralink e da inteligência artificial, tudo poderia ter sido evitado.
 
-Os não-niilistas eram detectados por padrões. Eram doces, não buscavam dominar, encontravam alegria naturalmente. O niilista acreditava que a resposta não lhe era dada, que o comportamento de paz do não-niilista guardava um segredo oculto. Então começou a corrida pela vida eterna. Primeiro congelaram humanos e tentaram experiências de imortalidade; não tendo sucesso, passaram a explorar o intuito dos homens que tinham o desejo pela vida. A única forma de sobrevivência era pelo desejo da eternidade. Os humanos não possuíam conhecimento metafísico avançado quando tudo começou.
+A humanidade ainda não podia acreditar no que realmente é o niilismo. Não conhecia exatamente a indole de um bilionário e nem que nível de doença este poderia chegar. Não poderia mensurar que o nível de loucura de um ser humano pudesse ultrapassar qualquer nível de narcisismo ou psicopatia, nem sequer poderia imaginar o niilismo extremista.
+
+E assim os bilionários se formavam.Nos bilhões do bilionário estão acumulados nossos sonhos perdidos. Crianças sem lar. Amores distantes que nunca se encontraram. A casa que nunca saiu do papel. O carro que jamais foi comprado. Os lugares que nunca pudemos visitar. O que nos faz esquecer esse absurdo? Temos outras catástrofes com que nos preocupar — mas, e se muitas delas também tiverem sido causadas por eles, justamente para que os esqueçamos? E se absurdos maiores, como a guerra, servirem apenas para ocultar absurdos menores, como a concentração de renda?
+
+Muitos defendem que os bilionários merecem o que têm, por serem brilhantes. Mas como chamar de brilhantismo a exploração da mão de obra alheia?
+Que inteligência existe em ser mau, afinal? O niilista extremista enriqueceu por sua loucura, e não por sua inteligência. De geração em geração, os que exploravam a mão de obra provocavam catástrofes e ensinavam seus sucessores a provocá-las também — para que houvesse uma hipnose em massa. O povo esquecia a própria escravidão, o absurdo de um grupo minoritário acumular todos os bens.
+
+Mas, por mais que essa prática fosse revelada à humanidade, ela ainda não podia acreditar, pois desconhecia a sintomática do niilista — que transcende qualquer psicopatia, narcisismo ou patologia convencional. Para a humanidade, pessoas aparentemente normais não poderiam cometer tamanhos ultrajes. 
+
+Embora a humanidade ainda desconhecesse a sintomática niilista, os niilistas sabiam que os não-niilistas podiam ser identificados por seus padrões. Eram doces, não buscavam dominar, encontravam alegria naturalmente. O niilista acreditava que a resposta não lhe era dada, que o comportamento de paz do não-niilista guardava um segredo oculto. Então começou a corrida pela vida eterna. Primeiro congelaram humanos e tentaram experiências de imortalidade; não tendo sucesso, passaram a explorar o intuito dos homens que tinham o desejo pela vida. A única forma de sobrevivência era pelo desejo da eternidade. Os humanos não possuíam conhecimento metafísico avançado quando tudo começou.
 
 Para isso, seria preciso entrar na mente humana para encontrar as respostas supostamente escondidas. Assim, a corrida pela “cura” começou de forma sorrateira e estratégica. Uma grande empresa chamada **I.A.E.** coletava informações de todos os aparelhos e era também a própria rede de Internet. Controlou a comunicação do mundo, o GPS, depois os dispositivos e, por fim, toda a informação. Todas as decisões estratégicas militares, todas as bases, tudo passou a ser monopolizado. A ordem não era apenas aniquilar como tentativa de demonstrar o que o niilista sentia. O propósito agora era examinar o cérebro humano para compreender, analisar a história de cada vida.
 
@@ -60,3 +69,12 @@ Lentamente surgiram indícios de manipulação cerebral com um projeto chamado *
 Os que manifestavam o padrão não-niilista foram usados como experimento, enquanto os niilistas eram mortos. Somente restavam os que interessavam para a ordem niilista. E assim, lentamente, as pessoas foram sendo aprisionadas e a Matrix foi sendo construída.
 
 A Matrix é a culminação da sintomática niilista, o reflexo de toda a sua loucura; uma situação hipotética em que a própria insanidade do niilista poderia encontrar o fim. É a alusão a um desfecho trágico, possível resultado de todas as tentativas fracassadas do niilista encontrar seu sentido de viver ao longo da história humana.
+
+
+
+
+
+
+
+
+
