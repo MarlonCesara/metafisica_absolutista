@@ -739,6 +739,12 @@ O niilista se faz de corajoso, de forte, de não acovardado; mas não consegue d
 
 O niilista escraviza porque deseja expor o algoz que habita dentro de si, voltado contra si mesmo. Provoca miséria e fome para revelar, em vestes rasgadas, o estado de seu emocional, e em sua carência vital, a fome de espírito que o consome e o arrasta lentamente ao esquecimento. Mata para manifestar sua própria índole sobre sua própria vida. Engana para exibir a vida de mentiras que construiu. O medo diante de sua condição opressora faz com que sua expressão em sociedade se torne desmedida, violenta e absurda. O niilista quer mostrar que seu fardo é pesado, repassando serviços pesados. Ou tenta invejar a leveza interior, passando o ar de desleixado. Também pode tentar mostrar o que pensa que os outros sejam, já que viver parece fácil para eles.
 
+O indivíduo niilista observa o outro com semblante sereno e imagina uma longa jornada até conseguir convencer o próprio coração a abandonar o ódio.
+Então sente um terrível remorso diante do descanso alheio — o outro lhe parece estar em um oásis, enquanto o niilista carrega o mundo nos ombros: o peso de uma consciência que o assombra e o angustia dia e noite, da qual não encontra repouso. O niilista não suporta contemplar a paz daquele que se reconciliou com a vida. Não tolera que o outro descanse, que tenha bem-estar ou alegria. Busca tirar o que o outro possui, na tentativa de igualar o ânimo alheio ao seu próprio cansaço — fruto da experiência niilista da existência.
+
+O niilista não dorme bem. Não repousa suavemente o dorso no travesseiro, nem aquieta seus pensamentos. Dia e noite, rumina suas ideias sem cessar; necessita de distrações constantes — sons, movimento, inquietude —, qualquer coisa que lhe traga consolo ou o afaste de si mesmo e de suas próprias questões.
+O corpo do niilista não encontra sossego, nem contempla breves momentos de serena paz. Está sempre diante de seu inimigo íntimo, imerso em um conflito constante, com o pensamento perpetuamente atribulado.
+
 #### **O absurdo da indiferença e a vergonha da compreensão**
 
 Quando o niilista percebe que o outro o compreendeu — que penetrou em seus objetivos internos —, a máscara de sua impetuosidade e animosidade cai, deixando-o mergulhado em uma profunda baixa autoestima. A posição de poder que julgava possuir se dissolve, dando lugar a um coitadismo implícito, a uma pobreza estampada em cada olhar que o denuncia como niilista. A piedade da sociedade, em vez de consolá-lo, desperta nele humilhação, mágoa e angústia.
