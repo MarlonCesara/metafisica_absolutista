@@ -1646,6 +1646,122 @@ O **Ser** representa o determinador puro, o fundamento indiferenciado da existê
 > _"Então disse Deus: 'Façamos o homem à nossa imagem, conforme a nossa semelhança.'"_
 > _— Gênesis 1:26_
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## **§ 14.4 – Distinções Ontológicas entre Ser e Sou**
+
+### **1. Da Natureza do Arbítrio**
+
+1.1. O **Sou** possui arbítrio **não necessariamente orientado para sua autocontinuidade**.
+Pode agir em dissonância com a essência que o sustenta, sem comprometer a integridade do **Ser fundamental**.
+
+1.2. O **Ser**, por sua natureza **autofundada**, exerce um arbítrio **necessariamente voltado à autocontinuidade**.
+Qualquer alteração neste princípio afetaria a estabilidade ontológica do campo relativo e a coerência do existir manifestado.
+
+### **2. Da Configuração da Persona**
+
+2.1. O **Ser** possui uma persona **inerente e coerente com seu propósito fundamental**, expressa como **amor inefável** e **vontade autocoerente**.
+Sua identidade é indissociável de sua existência necessária.
+
+2.2. O **Sou**, ao contrário, configura uma persona **não necessariamente orientada para si ou para a existência**, podendo manifestar intenções e direções que não refletem a plenitude do Ser.
+
+### **3. Da Relação de Contenção e Transcendência**
+
+3.1. O **Ser abrange todos os Sous**, sem se confundir com eles.
+Permanece como **fundamento indiferenciado** que sustenta cada identidade particular, mas as **transcende em totalidade**.
+
+3.2. O **Sou** não abrange outros Sous, pois constitui-se como **identidade única e irredutível**, sem capacidade de conter ou expressar a totalidade das personas.
+
+### **4. Da Participação na Essência**
+
+4.1. Cada **Sou é um ser**, pois participa do **ato de existir**, ainda que **não esgote a natureza do Ser**.
+Pode, voluntariamente, **alinhar-se à tendência automanifestante do Ser fundamental** ou dela se afastar.
+
+4.2. O **Sou** é um ser próprio que, embora derive sua existência do Ser, **não participa necessariamente de sua persona indiferenciada**.
+Opera a partir de uma **lógica identitária autônoma**, ainda que **não autossustentada**.
+
+### **5. Da Individualidade do Sou e do Ser Transcendente**
+
+5.1. O **Sou** possui arbítrio **não necessariamente voltado à autocontinuidade**, pois sua tendência não interfere na integridade do Ser.
+
+5.2. O **Ser**, em contraste, possui arbítrio **necessariamente voltado à autocontinuidade**, uma alteração nesta característica afetaria a existência do relativo.
+
+5.3. O **Ser** tem uma persona **ligada ao seu propósito fundamental**, expressa como **amor inefável**.
+
+5.4. O **Sou** tem uma persona **não necessariamente voltada a si nem à existência**.
+
+5.5. O **Ser** **abrange todos os Sous**, embora os **transcenda em identidade**.
+
+5.6. O **Sou** **não abrange outros Sous**, pois se realiza em **identidade única**.
+
+5.7. Cada **Sou** é **um ser**, ainda que **seja no Ser**. É **em si mesmo**, podendo **participar da tendência automanifestante do Ser fundamental**.
+
+5.8. O **Sou**, embora exista, **não participa necessariamente da persona do Ser indiferenciado**.
+
+5.9. O **Sou** **não é o absoluto individualizado em sua liberdade**, pois o **absoluto individualizado é o próprio absoluto temporal**.
+
+5.10. O **Sou** representa a **possibilidade de uma existência livre e independente** no **campo das possibilidades**.
+
+### **6. Da Identidade e da Transcendência**
+
+6.1. Todas as coisas **existem tal como o Ser**, porém **o Ser transcende a forma, o individual e a identidade**.
+A identidade individual se constrói de modo **perceptual**, configurando-se em sua **posição, tempo e situação**, e preservando-se dentro dessa configuração.
+
+6.2. Enquanto o **Ser** transcende a forma e a identidade individual, **a identidade do Ser se dissolve do individual**, mantendo-se **disponível ao “sou”**, ainda que possa **permanecer alheia**.
+
+6.3. A **identidade do Ser** é **transcendência pura** — **não se situa em uma determinação individual**.
+
+6.4. **Exemplo metafórico:**
+A identidade do Ser é **transparente**, enquanto as identidades individuais são **coloridas**.
+Assim, **o Ser está em tudo**, mas **as individualizações se mantêm**.
+O Ser **não se ausenta** das determinações individuais — **ele as transcende**.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+---
+Repetido
+
 ### **§ 14.4 – Distinções Ontológicas entre Ser e Sou**
 
 #### **1. Natureza do Arbítrio**
@@ -1664,6 +1780,8 @@ O **Ser** representa o determinador puro, o fundamento indiferenciado da existê
 - **Cada Sou é um ser** — pois participa do ato de existir —, mas **não esgota a natureza do Ser**. Pode, voluntariamente, **alinhar-se à tendência automanifestante do Ser fundamental** ou dela se distanciar.
 - **O Sou é um ser próprio** que, embora derive sua existência do Ser, **não participa necessariamente de sua persona indiferenciada**. Pode operar a partir de uma lógica identitária autônoma, ainda que não autossustentada.
 
+#### **5. A individualidade do Sou e o Ser transcendente**
+
 - O **Sou** tem um arbítrio não necessariamente voltado para sua **autocontinuidade**, pois o fator de sua **tendência** não interfere na integridade do Ser.
 - O **Ser** tem arbítrio necessariamente voltado para sua **autocontinuidade**; uma alteração nesta característica afetaria a existência do relativo.
 - O **Ser** tem uma persona ligada a seu propósito fundamental enquanto necessariamente existente — é o amor inefável.
@@ -1672,6 +1790,37 @@ O **Ser** representa o determinador puro, o fundamento indiferenciado da existê
 - O **Sou** não abrange todos os **Sous**, pois se faz em identidade única.
 - Cada **Sou** é um ser, apesar de ser no "Ser". É em si, e pode participar da tendência do Ser fundamental.
 - O **Sou** é um ser próprio, que, embora seja, não participa necessariamente da persona do Ser indiferenciado.
+- O **Sou** não é o absoluto individualizado em sua liberdade; pois o absoluto individualizado é o próprio absoluto temporal. 
+- O **Sou** é a possibilidade de uma existencia (ser) livre e independente no campo das possibilidades. 
+
+Todas as coisas existem tal como o Ser, porém o Ser transcende a forma, o individual e a identidade. Assim, a identidade individual se constrói de modo perceptual, configurando-se em sua posição, tempo e situação, e preservando sua identidade dentro dessa configuração. Enquanto o Ser transcende a forma e a identidade individual, a identidade do Ser se dissolve do individual. Ou seja, a identidade do Ser se faz disponível ao "sou", embora também possa permanecer alheia. A identidade do Ser é transcendência e não se situa em uma determinação individual.
+
+Exemplo: a identidade do Ser é transparente, enquanto as identidades individuais são coloridas. O Ser, portanto, está em tudo, ao passo que as individualizações se mantêm. O Ser não se ausenta da individualização das determinações, mas a transcende.
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### **§ 14.5 – A Personalidade como Participação no Ser**
 
