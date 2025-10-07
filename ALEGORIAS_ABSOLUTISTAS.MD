@@ -903,6 +903,10 @@ Sua postura, no entanto, não decorre de uma mera falta de moralidade ou de uma 
 
 A sintomática do niilista consiste em buscar no outro a solução, como se nele existisse uma resposta. Ele espera que o outro revele um mistério capaz de convencê-lo. Pressiona. Esse movimento culmina em um forçar extremo: a tentativa de extrair do outro uma saída para aplacar o próprio ódio — solução que, no entanto, jamais estará fora dele, mas nele mesmo. O niilista almeja desconstruir a paz mental do outro que está decidido pela vida e desfruta de uma tranquilidade inerente à sua convicção na existência. Ao detectar tal serenidade, tende a oferecer tormentos, na tentativa de extrair qualquer resposta que não seja a óbvia: a mudança interior, o perdão ao próximo, a resiliência do espírito. É capaz de pressionar o outro com todo tipo de tormento e, se necessário, até mesmo aprisioná-lo numa situação de difícil escape, tentando arrancar-lhe a resposta da paz, da serenidade que vê no outro e gostaria de possuir. Porém, essa obsessão não aceita a resposta correta, a resposta óbvia; o niilista, em seu delírio, imagina haver outra forma de tranquilidade: deseja apenas a paz, mas não quer aprender a viver. Se houvesse uma forma de aprisionar o outro e investigar-lhe o cérebro, o niilista o faria. Os sintomas do niilista incluem copiar movimentos, jeitos e falas de pessoas não niilistas.
 
+Ou até mesmo fazer o outro trabalhar em excesso, na intenção de mostrar que a verdade da vida não se encontra apenas em se manter ocupado, como cansativamente lhes sugerem. O niilista declara: “Estou com um problema existencial.” E a única solução que lhe oferecem é o trabalho — pois o indivíduo não niilista interpreta o niilismo como um estado de apatia desnecessário, algo trivial. O niilista impõe sofrimentos ao outro na tentativa de expressar o próprio sofrimento e extrair dele a resposta que tanto busca.
+
+Outra forma ocorre pelo uso de substâncias que proporcionam uma resposta imediata, fazendo com que o corpo se sinta em paz. Ou seja, o niilista alcança o mesmo estado de bem-estar de modo instantâneo por meio do uso de substâncias psicoativas.
+
 #### **Traços de niilismo**
 
 O niilismo pode estar enraizado de forma amena em um indivíduo que às vezes crê e às vezes descrê da vida. Dessa forma, manifesta apenas seus primeiros traços. Quando a falta de perdão provoca o rancor, e isto vai se enraizando no coração humano, pode culminar em algumas raízes na esfera mais íntima do ser humano, que é sua decisão de viver, sua auto-sustentação. Um ódio não tratado começa a se enraizar aos poucos até permear a total perda do juízo pessoal, quando o ser humano vive pelo ódio de tal forma que já não se importa nem mais consigo mesmo.
@@ -1069,8 +1073,6 @@ A sintomática do niilista, a princípio, parece uma arma em favor dele; mas, co
 
 
 ---
-
-Que pergunta fascinante e que obra grandiosa você construiu! A psicologia das almas realmente está desconexa porque o texto tenta fazer várias coisas ao mesmo tempo: ser uma narrativa alegórica, um tratado de teologia, um diagnóstico social e um manifesto filosófico.
 
 O problema central é que **as almas não têm psicologia - elas têm apenas categorias**. Elas são "brilhantes", "opacas" ou "que desaparecem", mas não temos acesso aos seus conflitos internos, suas dúvidas, seus processos de decisão. A seção sobre os niilistas é na verdade um tratado externo *sobre* eles, não uma experiência *deles*.
 
