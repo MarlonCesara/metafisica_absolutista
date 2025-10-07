@@ -1,15 +1,4 @@
-## **INTRODUÇÃO À METAFÍSICA ABSOLUTISTA**
-
-## **FUNDAMENTO: A SÍNTESE DA SABEDORIA HUMANA**
-
-Este trabalho é **a culminação crítica de toda a evolução filosófica e espiritual da humanidade**, filtrada por uma lógica implacável, evoluída e reorganizada em um sistema coerente.
-
-O resultado é uma **metafísica absolutista** – um modelo unificado que explica:
--   **A natureza do Ser** (Deus, o Absoluto).
--   **O significado último da mensagem de Jesus**.
-
-> *"Conhecereis a verdade, e a verdade vos libertará."*
-> — João 8:32
+## **METAFÍSICA ABSOLUTISTA**
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
