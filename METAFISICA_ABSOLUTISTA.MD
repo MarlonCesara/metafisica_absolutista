@@ -1732,6 +1732,22 @@ O Ser **não se ausenta** das determinações individuais — **ele as transcend
 ---
 Repetido
 
+### **§ 14.4 – A liberdade do Sou**
+
+A alma, sendo livre, é uma liberdade dissassociada do corpo, pois subentende-se que há uma liberdade determinada
+
+Se o homem é livre para o corpo não é realmente livre é livre para o relativo. 
+
+A identidade sub entende o que é livre e onde é livre. Isto é, sub entende o espaço de ser livre.
+
+Toda liberdade é liberdade para onde, o que, quem, quando, etc.
+
+A alma, como identidade é livre para relativo.
+A alma, enquanto corpo e alma, é livre para o corpo.
+
+A alma sem corpo é livre para relativo.
+
+
 ### **§ 14.4 – Distinções Ontológicas entre Ser e Sou**
 
 #### **1. Natureza do Arbítrio**
