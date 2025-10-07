@@ -1,14 +1,5 @@
 ## **INTRODUÇÃO À METAFÍSICA ABSOLUTISTA**
 
-## **OBJETIVO E MÉTODO**
-
-Esta obra busca responder às perguntas fundamentais da existência de forma **clara, concisa e sistemática**, evitando dispersões desnecessárias. Como desenvolvedor de software formado pela UEMG, adquiri ao longo da minha carreira habilidades de **modelagem lógica** e **síntese de complexidade**, que aplico aqui na estruturação de um pensamento metafísico rigoroso.
-
-O texto é **deliberadamente denso** – cada parágrafo condensa anos de reflexão filosófica e teológica. Essa abordagem visa:
-1.  **Eficiência argumentativa**, indo direto ao núcleo das questões.
-2.  **Reprodutibilidade lógica**, permitindo que o leitor reconstrua o raciocínio passo a passo.
-3.  **Estrutura:** Cada capítulo constrói sobre o anterior, formando um sistema fechado e autoconsistente.
-
 ## **FUNDAMENTO: A SÍNTESE DA SABEDORIA HUMANA**
 
 Este trabalho é **a culminação crítica de toda a evolução filosófica e espiritual da humanidade**, filtrada por uma lógica implacável, evoluída e reorganizada em um sistema coerente.
@@ -17,18 +8,8 @@ O resultado é uma **metafísica absolutista** – um modelo unificado que expli
 -   **A natureza do Ser** (Deus, o Absoluto).
 -   **O significado último da mensagem de Jesus**.
 
-## **PARA QUEM ESTE LIVRO É ESCRITO?**
-
-1.  **Pensadores radicais** – Que não aceitam respostas parciais ou evasivas.
-2.  **Cristãos profundos** – Que buscam entender a fé além do superficial.
-3.  **Céticos em busca de sentido** – Que exigem clareza lógica antes de qualquer compromisso existencial.
-
-Se você está pronto para encarar as **respostas definitivas**, prossiga.
-
 > *"Conhecereis a verdade, e a verdade vos libertará."*
 > — João 8:32
-
-**A verdade não precisa ser complicada. Ela só precisa ser verdadeira.**
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
