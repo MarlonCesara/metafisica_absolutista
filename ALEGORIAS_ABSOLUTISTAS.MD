@@ -776,6 +776,8 @@ Contudo, quando percebe que o outro se mantém absolutamente indiferente à sua 
 
 Os niilistas ricos forçam risadas, forçam o sorriso, forçam conversas alegres — tudo encoberto pelo desespero que corrói suas almas, submetidas a um senhorio cruel que exercem sobre si mesmos. São escravos de si. São algozes de si mesmos. Onde estão, não há tranquilidade: apenas barulho, distrações e descargas de frustração despejadas sobre os mais frágeis, sobre os inocentes, como reflexo do tormento que carregam dentro de si.
 
+O niilista julga-se pequeno, acredita que sua existência é uma verdade acreditada e formalizada pelo seu pensamento apenas. Sente-se insignificante diante do mundo e tenta provar sua grandeza por meio da força, da coação e da opressão.
+
 #### **A morte antecipada**
 
 O desejo do niilista pode ser ainda mais imediatista do que sua própria morte iminente; ele pode se manifestar no abandono do intelecto no que tange à alma. O indivíduo simplesmente renuncia à percepção de sua liberdade e do seu “eu”, buscando uma vida inteiramente pautada em sua esfera biológica. As atividades cotidianas que envolvem autoconsciência são deixadas de lado, de modo que o indivíduo incorpore um corpo sem alma. Ou seja, o abandono do “eu” torna-se semelhante ao abandono físico. O indivíduo passa a viver na ilusão de estar morrendo para o corpo, assumindo a postura de alguém aniquilado, sem que seja necessário experimentar a morte física.
