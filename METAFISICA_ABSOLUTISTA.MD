@@ -1747,6 +1747,11 @@ A alma, enquanto corpo e alma, é livre para o corpo.
 
 A alma sem corpo é livre para relativo.
 
+A identidade e a liberdade por si só, não tem uma liberdade no nada, pois o nada não existe. 
+Pode-se considerar a liberdade no relativo, sendo este individualizado. 
+
+
+
 
 ### **§ 14.4 – Distinções Ontológicas entre Ser e Sou**
 
