@@ -722,6 +722,8 @@ Os niilistas formam uma espécie de ordem que cultiva os bens materiais e tenta 
 
 O niilista, em sua sensação de fraqueza e de inação — ou impotência — diante de seu destino e de seu querer, sente-se alicerçado pelas forças opressoras, como uma tentativa de estender suas forças àquilo que não lhe compete alcançar, em uma forma de expressão de seu conflito. Isto é, toma as causas da injustiça como uma falsa força interior. Apropria-se de opressões sociais, ainda que estas não lhe favoreçam, movido pelo ímpeto desesperado de demonstrar seu conflito — de lançar sobre o outro o peso que sente em razão do mau uso de sua liberdade.
 
+Sente-se vingado, representado, aludido no apoio a figuras ditatoriais, opressoras, fascistas, ou a qualquer tipo de ação que descarregue sua frustração, seu pesar, sua raiva e seu ressentimento por ser a si mesmo, enquanto a humanidade parece seguir tranquila, alheia e indiferente ao seu infortúnio íntimo e secreto.
+
 #### **A Redução ao Comportamento Animal**
 O niilista, que acredita apenas na vida material, adota o mesmo comportamento da vida selvagem. Torna-se territorial, extremamente competitivo e acumulador, vivendo como se o futuro não existisse. Em sua empreitada profissional, age de forma competitiva, buscando reinar como um leão. Em seu ódio, assemelha-se a um corvo, que nunca esquece uma ofensa. É austero e segue friamente seus instintos, pois encontra seu sentido na materialidade pura. Acredita que nada transcende a lógica animal. Tudo o que almeja está estritamente ligado à materialidade, à acumulação de bens e ao status social – como se, na selva, precisasse se destacar como o animal mais violento da manada. Como aquele que está no topo, tentando rugir mais alto para afugentar todos os outros.
 
