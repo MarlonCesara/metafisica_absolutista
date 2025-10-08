@@ -717,6 +717,13 @@ O niilista tenta de todas as formas esconder sua decisão, mascara-se por requin
 Quando o niilista é forçado a encarar a verdade de sua negação, a primeira reação é uma terrível ansiedade, um abominável desconsolo. E, quando suas estruturas de auto-defesa mental são destruídas definitivamente, não somente afastadas, o niilista parte para formas menos refinadas de mascaramento, como mendicância, abuso de drogas ou violência não refinada, que é quando formas não puníveis de violência tornam-se formas puníveis. Por exemplo, quando o niilista, dono de uma grande empresa, percebe-se falido, pois a cultura de sua empresa era sustentada pelo escravismo, então passa a investir em roubos de carro, sequestros, entre outras formas não formalizadas de violência. O aparente refinamento, que passa a ser considerado criminoso, converte-se em um ato declaradamente criminoso e brutal.
 
 #### **A ordem dos niilistas**
+
+Um niilista pode sentir que outro representa seus interesses e, assim, eleger líderes opressores, acumuladores de renda, criminosos ou qualquer tipo de movimento, política ou ideologia que fomente uma busca por sentido — que oprima a sociedade na tentativa de fazê-la entender o intuito niilista. O niilista, ao defender sua alma do fim ao qual sente estar fadado, apoia, protesta e compartilha movimentos que corroboram sua tendência opressora, em razão de sua busca por respostas. Ou então, apoia movimentos que externalizem o ódio que sente e deseja ver refletido na sociedade.
+
+Mesmo que esses movimentos prejudiquem, de certa forma, o próprio niilista e seus familiares, ele projeta neles seu ódio — a expressão que não tem poder de manifestar por conta de sua falta de influência.
+
+Isso significa que aqueles que apoiam a guerra refletem sua tendência de querer destruir o mundo. Os que apoiam partidos de direita refletem sua vontade de ver a sociedade mergulhada na miséria. E os que apoiam bilionários veem nos milhões deles a própria vontade de privar as pessoas de sonhos e realizações, assim como sentem que serão privados.
+
 A elite empresarial forma um grupo de “eleitos” falsos. Interpretam o palhaço como se fosse alguém de curiosidade e entretenimento geral. Querem adquirir superpotência, superpoderes — o de salvar a si mesmos.mAssumem um comportamento de autodominio, mas o fazem de modo fictício, simulando ser dominadores.
 Os niilistas formam uma espécie de ordem que cultiva os bens materiais e tenta preservar a vida na materialidade. Julgam-se acima do Ser. Buscam uma ilusão: a sobrevivência concomitante à rejeição da vida. Sabem que o objeto de sua vingança é inalcançável, ainda que se afundem nos abismos. Criticam a sociedade que não lhes dá resposta, que os ignora, que desvia o olhar da caminhada deles até o abismo. Querem um super-homem. Um pensamento dourado que lhes conceda o impossível; querem transcender a lógica. A ordem dos niilistas deseja uma situação hipotética impossível; seu desvelo é a loucura. O niilista não quer sofrer sozinho — procura companhias que compartilhem do mesmo pensamento. 
 
@@ -947,15 +954,6 @@ Os niilistas, depois da queda das dominações, foram obrigados a encarar o niil
 #### **O encarar do niilista**
 
 Dar a cara a tapa não significa prostração, mas reconhecer que a atitude niilista é autodestrutiva; a batalha deve ser travada e ganha, porém, em uma derrota a verdadeira resistência está na passividade diante daquele que já deseja se destruir. No ápice de sua loucura, o niilista age, e quando é olhado nos olhos de forma a ser compreendido, pode ter uma breve lucidez da raiz de seu comportamento e de quanto se afastou do seu humano em prol de uma ideologia interior. Toda agressividade causada pela ideologia niilista, e que há tempo é esquecida pelo niilista devido a seu mascaramento, por vezes é recebida em sua consciência pelo ato de dar a cara. O niilista percebe que seus atos são injustificáveis, frutos de uma loucura que nasceu em si e que até então se deu temporariamente sem cura. Ou seja, o ato de compreender mostra ao niilista a contravenção de seu comportamento; ele cai em si de sua própria loucura, brevemente, antes que a sintomatização do niilismo o encontre novamente. Em outras palavras, o niilista nunca vence a batalha pela destruição do próprio mundo; quando a vence momentaneamente, já está imediatamente no rumo de sua derrota. É vencido de todas as formas: pela ação do outro ou pela inatividade do outro.
-
-#### **A ordem niilista**
-
-Um niilista pode sentir que outro representa seus interesses e, assim, eleger líderes opressores, acumuladores de renda, criminosos ou qualquer tipo de movimento, política ou ideologia que fomente uma busca por sentido — que oprima a sociedade na tentativa de fazê-la entender o intuito niilista. O niilista, ao defender sua alma do fim ao qual sente estar fadado, apoia, protesta e compartilha movimentos que corroboram sua tendência opressora, em razão de sua busca por respostas. Ou então, apoia movimentos que externalizem o ódio que sente e deseja ver refletido na sociedade.
-
-Mesmo que esses movimentos prejudiquem, de certa forma, o próprio niilista e seus familiares, ele projeta neles seu ódio — a expressão que não tem poder de manifestar por conta de sua falta de influência.
-
-Isso significa que aqueles que apoiam a guerra refletem sua tendência de querer destruir o mundo. Os que apoiam partidos de direita refletem sua vontade de ver a sociedade mergulhada na miséria. E os que apoiam bilionários veem nos milhões deles a própria vontade de privar as pessoas de sonhos e realizações, assim como sentem que serão privados.
-
 
 
 #### **O Fim dos Tempos e o niilismo**
