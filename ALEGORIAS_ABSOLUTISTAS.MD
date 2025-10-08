@@ -942,6 +942,14 @@ Os niilistas, depois da queda das dominações, foram obrigados a encarar o niil
 
 Dar a cara a tapa não significa prostração, mas reconhecer que a atitude niilista é autodestrutiva; a batalha deve ser travada e ganha, porém, em uma derrota a verdadeira resistência está na passividade diante daquele que já deseja se destruir. No ápice de sua loucura, o niilista age, e quando é olhado nos olhos de forma a ser compreendido, pode ter uma breve lucidez da raiz de seu comportamento e de quanto se afastou do seu humano em prol de uma ideologia interior. Toda agressividade causada pela ideologia niilista, e que há tempo é esquecida pelo niilista devido a seu mascaramento, por vezes é recebida em sua consciência pelo ato de dar a cara. O niilista percebe que seus atos são injustificáveis, frutos de uma loucura que nasceu em si e que até então se deu temporariamente sem cura. Ou seja, o ato de compreender mostra ao niilista a contravenção de seu comportamento; ele cai em si de sua própria loucura, brevemente, antes que a sintomatização do niilismo o encontre novamente. Em outras palavras, o niilista nunca vence a batalha pela destruição do próprio mundo; quando a vence momentaneamente, já está imediatamente no rumo de sua derrota. É vencido de todas as formas: pela ação do outro ou pela inatividade do outro.
 
+#### **A ordem niilista**
+
+Um niilista pode sentir que outro representa seus interesses e, assim, eleger líderes opressores, acumuladores de renda, criminosos ou qualquer tipo de movimento, política ou ideologia que fomente uma busca por sentido — que oprima a sociedade na tentativa de fazê-la entender o intuito niilista. O niilista, ao defender sua alma do fim ao qual sente estar fadado, apoia, protesta e compartilha movimentos que corroboram sua tendência opressora, em razão de sua busca por respostas. Ou então, apoia movimentos que externalizem o ódio que sente e deseja ver refletido na sociedade.
+
+Mesmo que esses movimentos prejudiquem, de certa forma, o próprio niilista e seus familiares, ele projeta neles seu ódio — a expressão que não tem poder de manifestar por conta de sua falta de influência.
+
+Isso significa que aqueles que apoiam a guerra refletem sua tendência de querer destruir o mundo. Os que apoiam partidos de direita refletem sua vontade de ver a sociedade mergulhada na miséria. E os que apoiam bilionários veem nos milhões deles a própria vontade de privar as pessoas de sonhos e realizações, assim como sentem que serão privados.
+
 #### **O Fim dos Tempos e o niilismo**
 
 Será o momento em que as lutas sociais atingirem seu êxito final. Quando os poderosos caírem de seus tronos. Quando todas as formas de opressão desmoronarem e não restar qualquer resquício de desigualdade estrutural. Quando o patamar sobre o qual o niilismo se escondia — camuflado pela normalidade da ordem social injusta — for removido.
