@@ -1750,8 +1750,14 @@ A alma sem corpo é livre para relativo.
 A identidade e a liberdade por si só, não tem uma liberdade no nada, pois o nada não existe. 
 Pode-se considerar a liberdade no relativo, sendo este individualizado. 
 
+Sendo liberdade, a liberdade está para a a forma ou para o relativo, não há mais opções.
+Isto é, a liberdade poderia estar para um corpo imortal, tal como para o relativo.
 
+Dentro deste contexto, diante da morte fisica, podemos interpretar que, O Ser nos criou livres para o relativo e não para o corpo.
 
+> Nossa liberdade de desgarra do corpo e solta-se livremente no aval das infinitas possibilidades.
+
+E mais uma vez, é possível concluir tal afirmação pelo auto testemunho, pois não é um caminho unidirecional e lógico. Mas depende da afirmação pessoal.
 
 ### **§ 14.4 – Distinções Ontológicas entre Ser e Sou**
 
