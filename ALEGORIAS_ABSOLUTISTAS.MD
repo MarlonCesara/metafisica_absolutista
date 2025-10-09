@@ -1096,10 +1096,7 @@ Não era algo tão complexo ou difícil de se alcançar. Para entrar ali, bastav
 
 Ali estavam os trabalhadores, as pessoas que sonhavam, que buscavam as coisas verdadeiras da vida — que cultivavam amizades sinceras e trabalhavam por um futuro melhor. Eram pessoas distantes da arrogância dos grandes ricos e do ódio dos auto sabotadores. Gente que apenas queria paz, que apenas queria viver.
 
-Seguiram seu caminho com um propósito íntimo pela vida e pelo futuro. Pessoas que souberam perdoar quando foi necessário, que enfrentaram tribulações, mas escolheram olhar para o horizonte e acreditar no amanhã. Pessoas que conservaram o brilho nos olhos, a esperança e o amor. Que riram quando queriam chorar, que se levantaram após as quedas, que amaram mesmo sendo falhas.
-
-
-
+Seguiram seu caminho com um propósito íntimo pela vida e pelo futuro. Pessoas que souberam perdoar quando foi necessário, que enfrentaram tribulações, mas escolheram olhar para o horizonte e acreditar no amanhã. Pessoas que conservaram o brilho nos olhos, a esperança e o amor. Que riram quando queriam chorar, que se levantaram após as quedas, que amaram mesmo sendo falhas. Pessoas que fizeram de suas lágrimas a força para continuar. Que transformaram suas batalhas em orações poderosas. Que fizeram de suas quedas o impulso para se reerguer para a vida. Pessoas que se perdoaram pelos seus erros. Pessoas que conseguiram sorrir em num breve momento de simplicidade.
 
 
 
