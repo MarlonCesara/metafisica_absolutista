@@ -748,6 +748,8 @@ Dessa forma, não cultivavam sequer a menor noção de moral. Consideravam a com
 
 Essa é a mentalidade dos super-ricos, dos traficantes, dos assassinos e de todos aqueles que escravizam ou praticam o mal sem pudor, sem comoção e sem consideração. São pessoas que descreem completamente tanto de si mesmas quanto do próximo. Pessoas que se enxergam apenas como fruto de uma evolução animal, incapazes de se comover justamente por não acreditarem em Deus, na própria liberdade ou na eternidade.
 
+O bilionário diz, à beira da eternidade: “Tive um ódio absoluto em vida. Causei miséria, e a miséria gerou todo tipo de atrocidade. Agora, neste mundo de infinitas possibilidades, meu ódio me consumirá, pois, sendo absoluto, atinge até a mim mesmo. E por que não usei esse ódio para me destruir em vida? Para me assassinar? Simples: o ápice do ódio no ser humano, muitas vezes, não é o suicídio, mas a loucura da megalomania.”
+
 #### **O Conflito e o Caos Interno**
 O niilista é um ser em conflito constante; tudo que vê e em que acredita se conflita com sua decisão interior fundamental. O niilista vive num caos mental. Numa incerteza constante. Numa ameaça interminável que parte de si mesmo. Sente viver com uma arma apontada em sua cabeça, com um algoz que nunca o abandona, pois é ele mesmo. Seus olhos estão sempre arregalados diante do terror da desconhecida escuridão que ele mesmo escolheu. O niilista não deseja uma purificação, não deseja provocar sofrimento em si como meio de crescimento, ou um distanciamento temporário da vida. O niilista quer se findar sem fim. Quer apagar de si qualquer resquício, provocar a morte não no tempo, mas uma morte infinita, caso contrário não seria necessário tanto medo.
 
