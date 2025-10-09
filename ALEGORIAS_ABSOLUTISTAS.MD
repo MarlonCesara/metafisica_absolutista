@@ -977,7 +977,6 @@ O acúmulo é um choro retido no indivíduo por si mesmo; é quando ele se desva
 
 Os sintomas do niilismo se manifestam quando a pessoa tenta se afastar do convívio social, se deprime, enche a mente de negatividade e trata mal as pessoas. E isso tem o intuito de causar uma depressão no corpo, uma inclinação não somente espíritual mas física para a morte.
 
-
 #### **O cansaço do niilismo e a reflexão**
 
 Todos os niilistas carregavam um cansaço associado à tentativa de se livrar do niilismo sem possuir o essencial para tal: o amor. Faziam a si mesmos a mesma pergunta incontáveis vezes: por que perdoar? por que aceitar? por que esquecer? por que agir de forma diferente? por que enfrentar? Tudo o que poderia movê-los em favor da vida é o amor. Tudo o que poderia fazê-los esquecer os pequenos deslizes do caminhar é o amor. Pela reflexão, tentavam constantemente chegar a algum lugar, mas acabavam em lugar nenhum, pois o que realmente buscavam era aprender a amar. Não há, definitivamente, uma resposta que leve o ser humano a perdoar, amar, relevar. A resposta definitiva é o amor. O amor é a razão que um ser humano encontra para viver. E a razão é Deus, porque Deus é amor.
@@ -1079,24 +1078,25 @@ Assim, o grande paradoxo se desvela: a miséria do mundo não é uma questão de
 
 A solução, então, não está apenas em novos sistemas económicos ou tecnológicos, mas numa inteligência que nos permita **isolar e erradicar de nossas estruturas sociais a semente do ódio niilista – a verdadeira raiz de toda miséria sistêmica.** Conhecer o niilista é mais importante do que desenvolver novas tecnologias. 
 
+#### **Os eleitos para o reino dos céus**
 
+O reino dos céus já é agora. Acontece no presente. Quem vai para o reino dos céus, na verdade, é quem continuará nele — quem herdará a graça e a glória de existir, quem receberá a luz da vida, quem mergulhará nos rios de água viva do paraíso.
 
+As almas brilhantes, aquelas que resplandeciam a luz do Ser, eram padres, devotos fervorosos, freiras e pessoas dedicadas ao bem humano e a obras sociais. Eram pessoas de sorriso leve, que buscavam sintonizar, de forma mais intensa ou mais sutil, sua vontade com a vontade do Ser e com as necessidades urgentes que a vida lhes revelava. Eram homens e mulheres de fortes orações, assíduos, religiosos, com uma simplicidade profunda no coração e um forte desejo de fazer o bem.
 
+Não eram apenas almas que passavam o dia todo orando; também havia pessoas simples que brilhavam — não necessariamente eruditos religiosos —, mas indivíduos comuns que mantinham um coração voltado para causas sociais e para o bem do próximo. Era a mãe que cuidou do filho deficiente a vida inteira com devoção. O pai trabalhador que fez tudo pelos filhos. Pessoas com um brilho sereno e especial, que fizeram a diferença na vida dos outros e não se preocupavam apenas com a própria existência.
 
+No paraíso, havia os mais diversos e inesperados tipos de pessoas, mas nenhuma delas tinha vivido como super rica na “vida de barro”. Eram pessoas que trabalhavam: o senhor João, que todos os dias montava sua barraca de pipoca na porta da escola; a zeladora da escola; o bom empresário que tinha uma pequena empresa e cuidava bem de seus funcionários.
 
+No paraíso, eram pessoas comuns, que apenas queriam viver. Não realizaram grandiosas obras para conquistar o paraíso — simplesmente desejaram a vida, e por esse desejo herdaram a vida. Faziam suas orações, tinham fé, tentavam acertar na medida do possível. Tinham conflitos e defeitos, mas o desejo de viver prevaleceu no momento do desligamento da vida terrena.
 
+Porém, não havia ali suicidas, pessoas destruídas pelo vício, chefes ou encarregados opressores, nem donos de empresas escravistas. Não havia pessoas tomadas por extrema soberba. Todas compartilhavam algo em comum: eram positivas, irradiavam uma boa energia, entusiasmo de viver e uma sabedoria interior.
 
+Não era algo tão complexo ou difícil de se alcançar. Para entrar ali, bastava trabalhar e ser como uma criança. E ser como uma criança significava viver sem extrema soberba, com simplicidade e pureza de coração.
 
+Ali estavam os trabalhadores, as pessoas que sonhavam, que buscavam as coisas verdadeiras da vida — que cultivavam amizades sinceras e trabalhavam por um futuro melhor. Eram pessoas distantes da arrogância dos grandes ricos e do ódio dos auto sabotadores. Gente que apenas queria paz, que apenas queria viver.
 
-
-
-
-
-
-
-
-
-
+Seguiram seu caminho com um propósito íntimo pela vida e pelo futuro. Pessoas que souberam perdoar quando foi necessário, que enfrentaram tribulações, mas escolheram olhar para o horizonte e acreditar no amanhã. Pessoas que conservaram o brilho nos olhos, a esperança e o amor. Que riram quando queriam chorar, que se levantaram após as quedas, que amaram mesmo sendo falhas.
 
 
 
