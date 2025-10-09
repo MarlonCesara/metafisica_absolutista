@@ -835,6 +835,10 @@ Restringe todo o significado de suas ações ao plano terreno e material. Evita 
 
 Essa visão de mundo, que sistematicamente evita considerar a liberdade humana, a dimensão do espírito e as pequenas sincronicidades que tecem significado em nosso propósito diário, é reduzida pelo niilista a pó. Sua percepção está morta para o encantamento, para as ilusões salutares, para o extraordinário e, em última análise, para a própria magia da existência.
 
+#### **A anormalidade niilista**
+
+Enquanto os indivíduos não niilistas aproveitam as coisas boas da vida, o niilista concentra-se em escravizar, oprimir e extrair respostas do outro. A vivência do niilista é um pedido de socorro — uma antecipação do inferno antes mesmo de sua fatalidade. Sua existência é um vício em buscar sentido de formas inquietas e descabidas.
+
 #### **A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
