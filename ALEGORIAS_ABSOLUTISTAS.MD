@@ -750,6 +750,9 @@ Essa é a mentalidade dos super-ricos, dos traficantes, dos assassinos e de todo
 
 O bilionário diz, à beira da eternidade: “Tive um ódio absoluto em vida. Causei miséria, e a miséria gerou todo tipo de atrocidade. Agora, neste mundo de infinitas possibilidades, meu ódio me consumirá, pois, sendo absoluto, atinge até a mim mesmo. E por que não usei esse ódio para me destruir em vida? Para me assassinar? Simples: o ápice do ódio no ser humano, muitas vezes, não é o suicídio, mas a loucura da megalomania.”
 
+O super-rico causa miséria como uma tentativa de dizer que a vida o despedirá de mãos vazias, que nada lhe dará. O reflexo de sua própria miséria interior se manifesta na intensidade com que acumula bens. Ele tenta tirar a vida do outro de forma a espelhar sua própria ação, denunciando, sem palavras, a discrepância entre os que terão a vida e os que a perderão. Oprime porque é oprimido pelo ditador que carrega dentro de si. Expressa no sofrimento alheio o modo como é consigo mesmo. Busca mostrar sua “alta cultura”, seu modelo de pensamento, no acúmulo e no causar da dor.
+
+
 #### **O Conflito e o Caos Interno**
 O niilista é um ser em conflito constante; tudo que vê e em que acredita se conflita com sua decisão interior fundamental. O niilista vive num caos mental. Numa incerteza constante. Numa ameaça interminável que parte de si mesmo. Sente viver com uma arma apontada em sua cabeça, com um algoz que nunca o abandona, pois é ele mesmo. Seus olhos estão sempre arregalados diante do terror da desconhecida escuridão que ele mesmo escolheu. O niilista não deseja uma purificação, não deseja provocar sofrimento em si como meio de crescimento, ou um distanciamento temporário da vida. O niilista quer se findar sem fim. Quer apagar de si qualquer resquício, provocar a morte não no tempo, mas uma morte infinita, caso contrário não seria necessário tanto medo.
 
