@@ -1106,11 +1106,17 @@ Mal sabia o mundo que o que acontecia ali não eram guerras, catástrofes natura
 
 Eram pessoas inseguras diante da constatação de sua própria liberdade, que repassavam essa insegurança ao mundo. Eram humanos fracos, débeis, sem estima, lutando pelo reconhecimento de um **interior instável** que os desestabilizava.
 
+Como um pequeno ser humano poderia encarar a ideia de uma morte eterna? Isso era grande demais até para o mais frio dos indivíduos. Entre irracionalidade, descargas de frustração, terror e obsessões, a sociedade florescia — e tudo isso era, de algum modo, controlado pelas pessoas não niilistas.
+
+O ser humano, ao imaginar-se privado de seu maior dom — suas asas rumo à eternidade, sua transcendência e sua alegria —, desenvolve uma náusea; vive em conflito e não constrói a paz.
+
 Eram bandeirantes que olhavam a existência com saudade; escravistas que carregavam um profundo desconsolo; líderes que sofriam de frustração e histeria diante da própria condição. Eram almas desesperadas, que gemiam gemidos tristes em busca de salvação.
 
 O mundo de barro era um antecessor do céu, mas também um antecessor do inferno. Ali, almas temerosas e desesperadas conviviam com almas pulsantes de esperança. E, à medida que o mundo se tornava habitável, também se autodestruía.
 
-O mundo era o útero da Mãe Terra. Desse útero nasciam e morriam almas. Haveria, portanto, na esperança cristã, um lugar onde esse triste filtro teria sido feito — longe do útero universal, onde as almas que vivessem pudessem crescer verdadeiramente, e onde as que morressem pudessem descansar eternamente.
+O mundo era o útero da Mãe Terra. Desse útero nasciam e morriam almas. Haveria, portanto, na esperança cristã, um lugar onde esse filtro teria sido feito — longe do útero universal, onde as almas que vivessem pudessem crescer verdadeiramente, e onde as que morressem pudessem descansar eternamente.
+
+Por isso, não faz sentido entristecer-se diante de tanta iniquidade e confusão, mas alegrar-se ao lembrar que todo esse caos do mundo é sinônimo de liberdade. Não faz sentido olhar para o mal no mundo, e sim para a vida eterna dentro de nós. A náusea do mal, cessando ou não, não impede ninguém de amar a vida e de ser feliz eternamente.
 
 
 
