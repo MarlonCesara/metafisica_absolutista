@@ -1118,8 +1118,9 @@ O mundo era o útero da Mãe Terra. Desse útero nasciam e morriam almas. Haveri
 
 Por isso, não faz sentido entristecer-se diante de tanta iniquidade e confusão, mas alegrar-se ao lembrar que todo esse caos do mundo é sinônimo de liberdade. Não faz sentido olhar para o mal no mundo, e sim para a vida eterna dentro de nós. A náusea do mal, cessando ou não, sendo mais ou menos efetiva na organização e acontecimentos sociais, não impede ninguém de amar a vida e de ser feliz eternamente.
 
+Neste mundo, a violência representa os gritos de desespero das almas que caminham para as chamas; o caos expressa a insatisfação e a crise de identidade nas quais se encerram em vida; a restrição financeira, social e a miséria anunciam o estado de nadificação dessas almas — o tédio absoluto, a fome suprema. Nesse cenário, o grande engano emerge em formas de gemidos, gritos de desespero, chamados sem resposta, ecos vazios e identidades que se perdem pouco a pouco, a cada novo ano.
 
-
+Ouvimos, então, os gritos finos e agudos, os olhares desesperados, os clamores e súplicas dos niilistas manifestando-se em desastres sociais, guerras e fome. Tudo isso é sentido pela sociedade. A guerra é a absorção emocional dos sentimentos niilistas: quase tudo é um querer fazer o outro sentir para se aliviar, transmitir ao outro a própria intenção. A guerra é uma confissão de índole. A miséria, uma denúncia interior do niilista.
 
 
 
