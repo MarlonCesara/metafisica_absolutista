@@ -1104,7 +1104,7 @@ No mundo de barro, as pessoas tentavam conviver — niilistas e não niilistas d
 
 Mal sabia o mundo que o que acontecia ali não eram guerras, catástrofes naturais ou destruição material, mas um **holocausto de almas autoinfligido**. Não eram anti-humanos, nem máquinas, tampouco zumbis — eram humanos temerosos de seu fim iminente, humanos tentando transmitir ao outro um pouco do que sentiam.
 
-Eram pessoas inseguras diante da constatação de sua própria liberdade, que repassavam essa insegurança ao mundo por meio da fome, da guerra e da exploração. Eram humanos fracos, débeis, sem estima, lutando pelo reconhecimento de um **interior instável** que os desestabilizava.
+Eram pessoas inseguras diante da constatação de sua própria liberdade, que repassavam essa insegurança ao mundo. Eram humanos fracos, débeis, sem estima, lutando pelo reconhecimento de um **interior instável** que os desestabilizava.
 
 Eram bandeirantes que olhavam a existência com saudade; escravistas que carregavam um profundo desconsolo; líderes que sofriam de frustração e histeria diante da própria condição. Eram almas desesperadas, que gemiam gemidos tristes em busca de salvação.
 
