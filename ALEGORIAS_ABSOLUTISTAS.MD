@@ -1116,7 +1116,7 @@ O mundo de barro era um antecessor do céu, mas também um antecessor do inferno
 
 O mundo era o útero da Mãe Terra. Desse útero nasciam e morriam almas. Haveria, portanto, na esperança cristã, um lugar onde esse filtro teria sido feito — longe do útero universal, onde as almas que vivessem pudessem crescer verdadeiramente, e onde as que morressem pudessem descansar eternamente.
 
-Por isso, não faz sentido entristecer-se diante de tanta iniquidade e confusão, mas alegrar-se ao lembrar que todo esse caos do mundo é sinônimo de liberdade. Não faz sentido olhar para o mal no mundo, e sim para a vida eterna dentro de nós. A náusea do mal, cessando ou não, não impede ninguém de amar a vida e de ser feliz eternamente.
+Por isso, não faz sentido entristecer-se diante de tanta iniquidade e confusão, mas alegrar-se ao lembrar que todo esse caos do mundo é sinônimo de liberdade. Não faz sentido olhar para o mal no mundo, e sim para a vida eterna dentro de nós. A náusea do mal, cessando ou não, sendo mais ou menos efetiva na organização e acontecimentos sociais, não impede ninguém de amar a vida e de ser feliz eternamente.
 
 
 
