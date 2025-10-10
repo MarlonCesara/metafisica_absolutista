@@ -1122,8 +1122,7 @@ Neste mundo, a violência representa os gritos de desespero das almas que caminh
 
 Ouvimos, então, os gritos finos e agudos, os olhares desesperados, os clamores e súplicas dos niilistas manifestando-se em desastres sociais, guerras e fome. Tudo isso é sentido pela sociedade. A guerra é a absorção emocional dos sentimentos niilistas: quase tudo é um querer fazer o outro sentir para se aliviar, transmitir ao outro a própria intenção. A guerra é uma confissão de índole. A miséria, uma denúncia interior do niilista.
 
-
-
+Os males no mundo vêm de uma criança que chora, oriundos do medo, da covardia de amar e de se converter. O mal chora como uma criança desconsolada. A violência é algo infantil, retrógrado, insensato. Advém de consciências que não compreenderam a si mesmas, que regrediram a uma fase fetal, na qual buscam se proteger de si próprias. A guerra e a miséria são formas de covardia, não produtos de ganância. São a loucura, o lunaticismo de indivíduos amedrontados diante do campo das possibilidades, que intentam o pior. Assim, guardam seu segredo como se a sociedade nunca fosse perceber, como se passassem despercebidos.
 
 
 
