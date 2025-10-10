@@ -1098,10 +1098,19 @@ Ali estavam os trabalhadores, as pessoas que sonhavam, que buscavam as coisas ve
 
 Seguiram seu caminho com um propósito íntimo pela vida e pelo futuro. Pessoas que souberam perdoar quando foi necessário, que enfrentaram tribulações, mas escolheram olhar para o horizonte e acreditar no amanhã. Pessoas que conservaram o brilho nos olhos, a esperança e o amor. Que riram quando queriam chorar, que se levantaram após as quedas, que amaram mesmo sendo falhas. Pessoas que fizeram de suas lágrimas a força para continuar. Que transformaram suas batalhas em orações poderosas. Que fizeram de suas quedas o impulso para se reerguer para a vida. Pessoas que se perdoaram pelos seus erros. Pessoas que conseguiram sorrir em num breve momento de simplicidade.
 
+#### **A náusea niilista**
 
+No mundo de barro, as pessoas tentavam conviver — niilistas e não niilistas dividindo o mesmo espaço. Porém, os esforços pareciam nunca ter fim. Os niilistas jamais cessavam. O mal no mundo nunca deixava de agir — e esse mal não era o mal no sentido comum, mas sim o desespero niilista naufragando a sociedade, como alguém que se afoga no mar e tenta se agarrar a quem está nadando.
 
+Mal sabia o mundo que o que acontecia ali não eram guerras, catástrofes naturais ou destruição material, mas um **holocausto de almas autoinfligido**. Não eram anti-humanos, nem máquinas, tampouco zumbis — eram humanos temerosos de seu fim iminente, humanos tentando transmitir ao outro um pouco do que sentiam.
 
+Eram pessoas inseguras diante da constatação de sua própria liberdade, que repassavam essa insegurança ao mundo por meio da fome, da guerra e da exploração. Eram humanos fracos, débeis, sem estima, lutando pelo reconhecimento de um **interior instável** que os desestabilizava.
 
+Eram bandeirantes que olhavam a existência com saudade; escravistas que carregavam um profundo desconsolo; líderes que sofriam de frustração e histeria diante da própria condição. Eram almas desesperadas, que gemiam gemidos tristes em busca de salvação.
+
+O mundo de barro era um antecessor do céu, mas também um antecessor do inferno. Ali, almas temerosas e desesperadas conviviam com almas pulsantes de esperança. E, à medida que o mundo se tornava habitável, também se autodestruía.
+
+O mundo era o útero da Mãe Terra. Desse útero nasciam e morriam almas. Haveria, portanto, na esperança cristã, um lugar onde esse triste filtro teria sido feito — longe do útero universal, onde as almas que vivessem pudessem crescer verdadeiramente, e onde as que morressem pudessem descansar eternamente.
 
 
 
