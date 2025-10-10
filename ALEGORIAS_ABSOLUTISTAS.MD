@@ -1124,6 +1124,7 @@ Ouvimos, então, os gritos finos e agudos, os olhares desesperados, os clamores 
 
 Os males no mundo vêm de uma criança que chora, oriundos do medo, da covardia de amar e de se converter. O mal chora como uma criança desconsolada. A violência é algo infantil, retrógrado, insensato. Advém de consciências que não compreenderam a si mesmas, que regrediram a uma fase fetal, na qual buscam se proteger de si próprias. A guerra e a miséria são formas de covardia, não produtos de ganância. São a loucura, o lunaticismo de indivíduos amedrontados diante do campo das possibilidades, que intentam o pior. Assim, guardam seu segredo como se a sociedade nunca fosse perceber, como se passassem despercebidos.
 
+Os niilistas ameaçam apagar sua identidade do mundo — uma identidade única, que jamais poderá ser replicada. No entanto, ainda assim, deve haver alegria, pois existem infinitas outras identidades, vidas e possibilidades. A alegria diante dos infinitos seres vivos e possíveis viventes é maior do que qualquer partida.
 
 
 
