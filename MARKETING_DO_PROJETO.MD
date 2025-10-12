@@ -92,3 +92,8 @@ O CEO da matrix era um cerebro conservador por produtos quimicos, ligado a uma m
 Todo o caos no mundo foi causado porque o homem nao poderia viver sem viver. Não poderia se despedir da vida e ficar calado, não poderia lidar com seu absurdo. O homem, descaracterizado, desvestido de toda sua arrogancia e orgulho, era uma criança de braços abertos chorando pela vida que estava esscorrendo pelos seus dedos, e ninguém via. Era uma criança desviando seu olhar para coisas superfulas, para não ver se esvaindo de si o essencial. O caos no mundo era uma saudade escondida, uma revolta por ser quem se é por parte do niilsita, um esconderijo da proprio pensamento niilista. O caos era um conto de fadas, uma matrix mental, uma escapatoria de uma realidade catastrofica idealizada secretamente no coração do niilista.
 
 As lutas sociais centralizam o pensamento do niilista no que ele realmente busca, as lutas sociais, são também, uma tentativa de normalizar a sociedade da ação niilista. É uma tentativa de tirar no niilista de sua escapatória mental do absurdo de sua decisão interior. O que o ser humano realmente almeja de todo seu coração não é humilhar o outro, ter muita posses, mas é viver eternamente. 
+
+
+Neo encontrou o cerebro niilista, mas não o matou, conversou, o cerebro falou:
+
+
