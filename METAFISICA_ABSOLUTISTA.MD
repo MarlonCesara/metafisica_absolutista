@@ -1555,8 +1555,6 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
-
-
 #### **§ 14.2 – A Manifestação do "Sou": A Criação da Alma do Homem**
 
 Na tradição da Igreja Católica, a expressão de que o homem foi feito “à imagem e semelhança de Deus” tem um significado profundo e multifacetado. Eis os principais pontos:
@@ -2222,6 +2220,8 @@ A unidade que definimos como sou, não pode ser um limite, mas é uma vazão par
 #### **§ 21.2 – A Ontologia da Transcendência no Ser**
 
 A alma, ao determinar-se no Ser — isto é, ao fundir-se com a identidade do Ser —, transcende não em direção a uma unidade específica, mas ao todo. Em outras palavras, a fusão com o Ser representa a completa expansão da consciência: o “eu” se projeta em uma expansão singular de si mesmo, e não na diluição ou expansão no outro.
+
+Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato uma fusão, mas uma abertura de consciência. Isto é, a fusão com o Ser é, na verdade, uma efusão. O indivíduo liberta-se do si, para a transcendência do individual e não em direção novamente ao individual. Isto é, não é em favor de expandir-se para outra vida, mas para expandir em vida.
 
 #### **§ 21.3 – Almogênese: A Ontologia da Transcendência e da União entre Almas**
 
