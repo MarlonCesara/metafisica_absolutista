@@ -63,6 +63,10 @@ Para isso, seria preciso entrar na mente humana para encontrar as respostas supo
 
 A corrida pela tecnologia tornou-se uma tentativa de controlar o mundo, enquanto tarefas simples para salvar o planeta eram abandonadas por motivo de controle. Florestas devastadas, animais extintos, e o ser humano focado em construir caças cada vez mais potentes e inteligências artificiais cada vez mais otimizadas. Tudo com um único intuito: dominação.
 
+Menos de 1% da população era, de fato, profundamente beneficiado pelas políticas defendidas pela direita. Esse pequeno grupo passou a concentrar e controlar as tecnologias mais avançadas do planeta. A dominação niilista se consolidou justamente porque a base política da direita — composta por milhões de eleitores — fortalecia, através do voto, os interesses desse grupo reduzido de bilionários.
+
+Assim, a “direita niilista” expressava sua sintomática não apenas cultural ou ideologicamente, mas sobretudo no campo político, ao sustentar o poder de uma minoria econômica. Com o tempo, esses poucos niilistas, verdadeiramente beneficiados, passaram a dominar praticamente tudo, sem se importar sequer com aqueles que, ironicamente, lhes garantiram poder: os próprios eleitores da direita.
+
 Lentamente surgiram indícios de manipulação cerebral com um projeto chamado **Neuralink** e um grupo de milionários representados por um homem, que passou a produzir toda a tecnologia e a dominar todo o espaço aéreo de informações. Suas tecnologias foram evoluindo até que distribuíam a maior parte delas, ao mesmo tempo em que controlavam informações e dispositivos de interação cerebral. Havia centenas de milhares de robôs com a marca. Um dia, uma guerra eclodiu e, estrategicamente, a Neuralink detinha um enorme poderio. Ninguém, no passado, previra seus planos. Metade da humanidade foi morta e começaram as experiências com os que restaram.
 
 Os que manifestavam o padrão não-niilista foram usados como experimento, enquanto os niilistas eram mortos. Somente restavam os que interessavam para a ordem niilista. E assim, lentamente, as pessoas foram sendo aprisionadas e a Matrix foi sendo construída.
