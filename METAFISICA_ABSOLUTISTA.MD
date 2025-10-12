@@ -1637,12 +1637,11 @@ Portanto, a liberdade se orienta necessariamente para:
 
 Diante da morte física, compreendemos que o Ser nos criou **livres para o relativo**, e não meramente para o corpo. 
 
-Um relativo individual, correspondente a alma única, singifica ainda uma individualização no próprio Ser, o qual o mesmo transcendente.
+Um relativo individual, correspondente a uma alma única, significa ainda uma individualização no próprio Ser, a qual o Ser transcende em identidade.
 
-Tudo que corresponda a uma individualização é transcendido pelo Ser, que não se situa como uma unicidade, portanto, a identidade do Ser, é transcendente a toda  unidade. Isto não significa que o Ser não possa se fazer temporal, ou seja, um só. Mas que sua determinação sempre está para transcender uma unidade de si.
+Tudo que corresponda a uma individualização é transcendido pelo Ser, que não se reduz a uma unicidade. Assim, a identidade do Ser é transcendente a toda unidade. Isso não significa que o Ser não possa se fazer temporal, isto é, tornar-se um só, mas que sua determinação está sempre além de qualquer unidade de si.
 
-A identidade do Ser se dissocia completamente, não do tempo, mas da unicidade. O Ser poderia se fazer homem, porem sua identidade não estaria isolada para o homem. A qualidade do Ser não o impede de adentra-lo no tempo, mas o faz transcendente a qualquer definição quantitária. 
-
+A identidade do Ser se dissocia completamente, não do tempo, mas da unicidade. O Ser poderia se fazer homem, porém sua identidade não estaria limitada ao homem. A qualidade do Ser não o impede de adentrar o tempo, mas o torna transcendente a qualquer definição quantitativa.
 
 > **Nossa liberdade desprende-se do corpo e lança-se livremente no horizonte das infinitas possibilidades.**
 
