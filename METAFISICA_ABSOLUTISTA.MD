@@ -2219,7 +2219,11 @@ A unidade que definimos como sou, não pode ser um limite, mas é uma vazão par
 
 > Deus não poderia criar uma criatura autoconsciente, livre e incompleta; uma criatura com um mal infinito ou uma criatura que não pudesse transcender a si mesma, para o Ser e para o outro. O homem, como criação amorosa de Deus, possui, em seu infinito particular, todas as possibilidades que o realizam e completam sua dignidade como ser existente.
 
-#### **§ 21.2 – Almogênese: A Ontologia da Transcendência e da União entre Almas**
+#### **§ 21.2 – A Ontologia da Transcendência no Ser**
+
+A alma, ao determinar-se no Ser — isto é, ao fundir-se com a identidade do Ser —, transcende não em direção a uma unidade específica, mas ao todo. Em outras palavras, a fusão com o Ser representa a completa expansão da consciência: o “eu” se projeta em uma expansão singular de si mesmo, e não na diluição ou expansão no outro.
+
+#### **§ 21.3 – Almogênese: A Ontologia da Transcendência e da União entre Almas**
 
 ##### **A Dialética da Autodeterminação e Transcendência**
 
@@ -2231,7 +2235,7 @@ Quando o Ser se determina como unidade de si mesmo, determina simultaneamente se
 
 O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, podendo, até mesmo, retornar à indeterminação (corrupção).
 
-#### **§ 21.3 – A Transcendência da Alma**
+#### **§ 21.4 – A Transcendência da Alma**
 
 A transcendência da alma gira em torno de duas hipóteses:
 -   A alma já transcende, tal como Ser, o tempo e espaço em seu infinito particular, porém não transcende a própria identidade. Ou seja, o "quem" da unidade não está em uniformidade à capacidade do Ser, de forma que a unidade transcenda seu "quem" tal como o Ser.
@@ -2244,7 +2248,7 @@ A transcendência do "quem" aborda distintas possibilidades:
 
 Ao criar um "sou", o Ser não se determina inteiro, pois sua plenitude como determinação envolve duas almas e uma conexão arbitrária entre ambas. A conexão é temporal e envolve uma queima no outro, um fogo que não aniquila, mas se constitui numa união de vidas que fomenta uma nova vida. O queimar do encontro e união total é diferente do queimar do inferno, pois o primeiro é uma diluição enquanto o segundo é um apagão. Desta forma, o queimar do apagão elimina as sensações do indivíduo, que encara o vazio, ou seja, o não estar aqui. Já o fogo do encontro auto continua o sentir do indivíduo atribuindo-lhe de uma presença que extravasa a si mesmo. É o ardor do outro.
 
-### **Tabela 21.1: Modos de Transcendência da Alma**
+### **Tabela 21.5: Modos de Transcendência da Alma**
 
 | Modo de Transcendência | Direção           | Resultado                          | Natureza                  |
 |------------------------|-------------------|------------------------------------|---------------------------|
@@ -2261,7 +2265,7 @@ Esta análise revela que:
 2.  **O encontro é gerativo** - a comunhão de almas gera nova vida espiritual
 3.  **O amor é ontológico** - não é sentimento, mas força geradora de realidade
 
-#### **§ 21.5 – Conclusão: A Almogênese como Paradigma da Vida Espiritual**
+#### **§ 21.6 – Conclusão: A Almogênese como Paradigma da Vida Espiritual**
 
 A almogênese - o nascimento da alma através do encontro - revela que:
 
