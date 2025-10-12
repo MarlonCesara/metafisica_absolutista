@@ -79,12 +79,6 @@ A Matrix é a culminação da sintomática niilista, o reflexo de toda a sua lou
 
 Se houvesse um corpo imortal e uma impossibilidade de escapatória, teríamos uma realidade maligna. É nisso que se espelha a Matrix: um desejo de aprisionar a consciência para escapar da própria decisão. Um querer ser forçado ao corpo, um ato de birra, uma recusa em libertar-se dele para acessar um campo maior de possibilidades. A Matrix, no filme, é a mãe do niilismo — um sistema que protege o indivíduo de sua própria liberdade e que não apenas tenta prever o que o levaria a mudar sua posição íntima. A energia que a Matrix fomenta também nasce da busca pela imortalidade. São experimentos movidos não pela incerteza da existência da alma, mas pela certeza niilista de sua própria decisão, pelo temor diante do aval de infinitas possibilidades — algo que apenas os corações devotos da vida encaram com tranquilidade e naturalidade.
 
-Matrix eleva o antigo conceito de escravidão com o objetivo de esclarecer seu verdadeiro propósito. Os autores da Matrix representam o refinamento do antigo senhor de engenho — o empresário, o “senhor feudal moderno” — que não estava realmente interessado no dinheiro ou na fortuna. Tudo isso era apenas um disfarce para sua busca real e latente: o sentido do amor.
-
-Toda a opressão foi, inconscientemente, mascarada por interesses financeiros, quando, na verdade, culminou na Matrix — no momento em que o niilista passou a compreender que necessita encontrar o sentido da vida.
-
-O homem que diz precisar de grandes coisas vive uma farsa. O ser humano é, por natureza, simples: precisa apenas de sobrevivência, de companhia, do essencial. A extrema soberba é um desvio desse essencial — é a busca pelo amor realizada de forma lateral.
-
-
+Matrix eleva o antigo conceito de escravidão sob o objetivo de clarear o real objetivo, os autores da Matrix representam o refinamento do senhor de engenho, o empresário (senhor feudal moderno) que não estava nem mesmo meramente interessado no dinheiro, na fortuna, isso tudo era um disfarce para sua busca real e latente: o sentido do amor. Toda a opressão foi, inconscientemente, mascarada por interesses financeiros, quando, na verdade, culminou na Matrix no niilista compreender o sentido da vida. O homem dizendo que precisa de grandes coisas é uma farsa de homem. O homem é feito humilde, precisa de sua sobrevivência, de companhias, do mais simples. A extrema soberba é um desvio do essencial. É a busca por amor efetuada de forma lateral.
 
 
