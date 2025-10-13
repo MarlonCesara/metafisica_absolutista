@@ -101,6 +101,10 @@ Quando a humanidade se defendia, novas técnicas surgiam, como a opressão no tr
 
 “Obtemos dinheiro, e mais dinheiro, mas isso para nós não significava nada. Não era o suficiente. O dinheiro não transmitia o sentido, então tentamos extraí-lo de uma fonte ainda melhor: o cérebro humano daqueles que pareciam tê-lo encontrado. Perseguimos todos que tinham o dom da paz e iniciamos nossas pesquisas.”
 
+Nós sabemos, Neo… sabemos muito bem que, além deste mundo, existe um lugar de infinitas possibilidades. E tudo o que precisamos é querer — o amor (voz suave e saudosa) — com uma pitada de raiva e ironia. Queremos o amor… mesmo que seja ao buscá-lo através do ódio. Não queremos ir para lugar nenhum ou nos consumir pelo próprio ódio que cativamos, queremos a vida eterna Neo. Fazemos qualquer coisa por isso, qualquer coisa! 
+
+E então as máquinas tentaram capturar Neo a comando do cérebro.
+
 “A humanidade não percebeu, e os bilionários foram sofisticando essa extração do elixir conceitual do propósito, até que surgiu a Matrix. Nela, poderíamos sustentar o corpo artificialmente e extrair os padrões de comportamento que proporcionariam a vida eterna.”
 
 Neo respondeu:
