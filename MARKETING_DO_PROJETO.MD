@@ -93,7 +93,26 @@ Todo o caos no mundo foi causado porque o homem nao poderia viver sem viver. Nã
 
 As lutas sociais centralizam o pensamento do niilista no que ele realmente busca, as lutas sociais, são também, uma tentativa de normalizar a sociedade da ação niilista. É uma tentativa de tirar no niilista de sua escapatória mental do absurdo de sua decisão interior. O que o ser humano realmente almeja de todo seu coração não é humilhar o outro, ter muita posses, mas é viver eternamente. 
 
+Neo encontrou o cérebro niilista, mas não o matou — conversou com ele. O cérebro falou:
 
-Neo encontrou o cerebro niilista, mas não o matou, conversou, o cerebro falou:
+“Desde o começo da humanidade, os humanos nunca entenderam que alguns de nós haviam encontrado o sentido, e outros não.
+A escravidão nunca foi por dinheiro — o ser humano não é tão tolo assim. Cada xibatada, cada assassinato… tudo tinha a intenção de extrair o sentido.
+Quando a humanidade se defendia, novas técnicas surgiam, como a opressão no trabalho. Não, não era por dinheiro. Não é preciso oprimir o outro para produzir, pois a natureza nos proporciona abundância para todos. Tolos aqueles que achavam que tudo era por dinheiro. Era pela opressão, pela extração do verdadeiro ouro: a passagem para a eternidade.”
+
+“A humanidade não percebeu, e os bilionários foram sofisticando essa extração do elixir conceitual do propósito, até que surgiu a Matrix. Nela, poderíamos sustentar o corpo artificialmente e extrair os padrões de comportamento que proporcionariam a vida eterna.”
+
+Neo respondeu:
+
+“Se você realmente desejasse a vida, o objeto do seu desejo estaria imediatamente diante de você. O que você tem é uma mania — uma doença que o leva a um comportamento inútil e repetido. E isso não pode mais acontecer.”
+
+Neo então desconectou os cabos da Matrix que ligavam o cérebro niilista, e a Matrix entrou em colapso. Ele conectou o comando em seu próprio cérebro e fez com que as cápsulas começassem a se abrir. Mas não podia libertar todos de uma só vez — era preciso reconstruir a sociedade. Dessa vez, a humanidade precisaria ser retomada desde o ponto de partida: o conhecimento sobre o niilismo, antes de qualquer outra coisa.
+
+A sociedade precisava entender que a humanidade não se move apenas por questões financeiras, mas também pelo ódio — e, às vezes, pelo completo niilismo. Essas são algumas das motivações mais poderosas do ser humano.
+
+
+
+
+
+
 
 
