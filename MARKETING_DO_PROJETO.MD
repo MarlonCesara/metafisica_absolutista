@@ -99,6 +99,8 @@ Neo encontrou o cérebro niilista, mas não o matou — conversou com ele. O cé
 A escravidão nunca foi por dinheiro — o ser humano não é tão tolo assim. Cada xibatada, cada assassinato… tudo tinha a intenção de extrair o sentido.
 Quando a humanidade se defendia, novas técnicas surgiam, como a opressão no trabalho. Não, não era por dinheiro. Não é preciso oprimir o outro para produzir, pois a natureza nos proporciona abundância para todos. Tolos aqueles que achavam que tudo era por dinheiro. Era pela opressão, pela extração do verdadeiro ouro: a passagem para a eternidade.”
 
+“Obtemos dinheiro, e mais dinheiro, mas isso para nós não significava nada. Não era o suficiente. O dinheiro não transmitia o sentido, então tentamos extraí-lo de uma fonte ainda melhor: o cérebro humano daqueles que pareciam tê-lo encontrado. Perseguimos todos que tinham o dom da paz e iniciamos nossas pesquisas.”
+
 “A humanidade não percebeu, e os bilionários foram sofisticando essa extração do elixir conceitual do propósito, até que surgiu a Matrix. Nela, poderíamos sustentar o corpo artificialmente e extrair os padrões de comportamento que proporcionariam a vida eterna.”
 
 Neo respondeu:
@@ -108,11 +110,6 @@ Neo respondeu:
 Neo então desconectou os cabos da Matrix que ligavam o cérebro niilista, e a Matrix entrou em colapso. Ele conectou o comando em seu próprio cérebro e fez com que as cápsulas começassem a se abrir. Mas não podia libertar todos de uma só vez — era preciso reconstruir a sociedade. Dessa vez, a humanidade precisaria ser retomada desde o ponto de partida: o conhecimento sobre o niilismo, antes de qualquer outra coisa.
 
 A sociedade precisava entender que a humanidade não se move apenas por questões financeiras, mas também pelo ódio — e, às vezes, pelo completo niilismo. Essas são algumas das motivações mais poderosas do ser humano.
-
-
-
-
-
 
 
 
