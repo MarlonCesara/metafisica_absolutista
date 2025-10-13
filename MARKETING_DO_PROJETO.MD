@@ -115,5 +115,5 @@ Neo então desconectou os cabos da Matrix que ligavam o cérebro niilista, e a M
 
 A sociedade precisava entender que a humanidade não se move apenas por questões financeiras, mas também pelo ódio — e, às vezes, pelo completo niilismo. Essas são algumas das motivações mais poderosas do ser humano.
 
-
+A matrix foi construida em decorrência de dois tipos de seres humanos: os com ódio e os com ódio absoluto. Os com ódio as vezes apoiavam os com ódio absoluto, mas no final, os com ódio absoluto destruiram tudo. Os com ódio queriam uma vingança que nunca cessava dentro deles e os niilistas queriam destruir tudo.
 
