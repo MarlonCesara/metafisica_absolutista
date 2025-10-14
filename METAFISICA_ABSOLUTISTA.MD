@@ -2948,6 +2948,10 @@ Exemplo: a identidade do Ser é transparente, enquanto as identidades individuai
 ---
 
 O infinito individualizado deixa de ser infinito?
+Se é possível que transcenda seu fininto, esta localizado no eu sua vivencia? Sendo possível transcender o eu se localiza?
+O que é o eu?
+
+
 Até os ricos evangelizam tamanho medo que tem do destino, precisam reunir muitos bens.
 Os ricos tem inteligencia para saber de espiritualidade, e é esse saber que os deixa obsessivos.
 Qualquer individuo comum se contentariam com um salario de 100 mil por mes, mas o niilista nao se contenta nem mesmo com 1 milhão por dia. Pois não é um objeto que ele deseja possuir, nem nada que neste mundo seja comprável.
