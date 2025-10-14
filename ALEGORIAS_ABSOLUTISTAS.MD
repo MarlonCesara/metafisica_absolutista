@@ -1084,27 +1084,31 @@ A solução, então, não está apenas em novos sistemas económicos ou tecnoló
 
 #### **As almas do purgatório**
 
-O purgatório não tem niilistas, as almas do purgatório são individuos de fortes paixões que se relacionam a ira. Se deixavam levar por acontecimentos em vida que tirava sua sanidade, que os fazia inflingir sofrimento sobre si mesmos. A alma do purgatório não tinha tanto desejo de dominação, controle ou tanto desespero, sintomas de mania por busca de respostas. Mas tinha um ódio cego, um ódio direcionado a sociedade e a si mesma. Procurava a satisfação da vingança de forma a tentar encontrar a paz.
+O purgatório não tem niilistas, as almas do purgatório são indivíduos de fortes paixões que se relacionam à ira. Se deixavam levar por acontecimentos em vida que tiravam sua sanidade, que os faziam infligir sofrimento sobre si mesmos. A alma do purgatório não tinha tanto desejo de dominação, controle ou tanto desespero, sintomas de mania por busca de respostas. Mas tinha um ódio cego, um ódio direcionado à sociedade e a si mesma. Procurava a satisfação da vingança de forma a tentar encontrar a paz.
 
-Tinha medo de sua insanidade, medo de si mesmas. Uma ira quase unanime, um instinto irracional, uma busca de sabedoria no aliviar da agressividade latente de qualquer forma.
+Tinha medo de sua insanidade, medo de si mesma. Uma ira quase unânime, um instinto irracional, uma busca de sabedoria no aliviar da agressividade latente de qualquer forma.
 
-As almas do purgatório apoiavam esrtuturas opressoras de poder, tentavam achar o alivio da ira na destruição, queriam encontrar a paz. Não era vida que lhes faltava, mas a paz. Queriam o sentido do perdão, queriam o que destravasse o paraíso de forma clara e evidente. Queriam se livrar dos vicios de comportamento que lhes destruia.
+As almas do purgatório apoiavam estruturas opressoras de poder, tentavam achar o alívio da ira na destruição, queriam encontrar a paz. Não era vida que lhes faltava, mas a paz. Queriam o sentido do perdão, queriam o que destravasse o paraíso de forma clara e evidente. Queriam se livrar dos vícios de comportamento que lhes destruíam.
 
-Apoiadores de direita politica, achavam que o voto lhes aliviaria do ódio, que era uma vingança final, mas não era. O perdão nasce de dentro de não da ação de retaliação. Eram pessoas feridas, e aparentemente constantemente cativavam suas feridas como se fossem parte de si, partes da história delas, partes delas mesmas.
+Apoiadores de direita política achavam que o voto lhes aliviaria do ódio, que era uma vingança final, mas não era. O perdão nasce de dentro e não da ação de retaliação. Eram pessoas feridas, e aparentemente constantemente cativavam suas feridas como se fossem parte de si, partes da história delas, partes delas mesmas.
 
-O purgatório era um ataque de ódio na tentativa de curar essa feridas, que só o amor poderia curar. Não havia realmente uma forma de retalia-las e as almas pensavam que pelo queimar poderiam justificar, o ódio, a revolta, a magoa que lhe causaram queriam pagar elas mesmas infringindo o proprio sofrimetno em si. Mas a ferida não se retalia, não se justifica, somente a agua do amor a dissolve. A ferida interior é dissipada sobre a luz do amor, tal como a sombra é diluida pela luz. O esforço externo não cura uma dor subjetiva.
+O purgatório era um ataque de ódio na tentativa de curar essas feridas, que só o amor poderia curar. Não havia realmente uma forma de retaliá-las, e as almas pensavam que pelo queimar poderiam justificar o ódio, a revolta, a mágoa que lhes causaram. Queriam pagar elas mesmas infligindo o próprio sofrimento em si. Mas a ferida não se retalia, não se justifica, somente a água do amor a dissolve. A ferida interior é dissipada sob a luz do amor, tal como a sombra é diluída pela luz. O esforço externo não cura uma dor subjetiva.
 
-O purgatório era uma forma de tentar curar uma dor, uma ferida, era uma tentativa de um esquecimento da ferida e não de si. Porém, essa tentativa abrangia o si de forma temporaria, por não haver o amor para apagar a ferida. É a intenção de perdoar, de reconhecer-se como ser humano falho tal como o outro que dá asas para que a cura aconteça.
+O purgatório era uma forma de tentar curar uma dor, uma ferida, era uma tentativa de um esquecimento da ferida e não de si. Porém, essa tentativa abrangia o si de forma temporária, por não haver o amor para apagar a ferida. É a intenção de perdoar, de reconhecer-se como ser humano falho tal como o outro que dá asas para que a cura aconteça.
 
-O ódio não é uma prova de virilidade, mas uma fraqueza, é o deixar que um fato ou acontecimento as vezes simples e temporal afete todo o contexto de uma eternidade. É esperar que o outro seja perfeito como Deus. É a uma ultra sensibilidade que acontece pela ausencia de um amor que sacie o porque das feridas.
+O ódio não é uma prova de virilidade, mas uma fraqueza. É o deixar que um fato ou acontecimento, às vezes simples e temporal, afete todo o contexto de uma eternidade. É esperar que o outro seja perfeito como Deus. É uma ultra sensibilidade que acontece pela ausência de um amor que sacie o porquê das feridas.
 
-Não há um porque para tal acontecimento que nos feriu ou magoou, há ação de perdoar. O porque nunca vai ser atingido. Então, este porque o individuo busca na descarga de seu ódio.
+Não há um porquê para tal acontecimento que nos feriu ou magoou, há ação de perdoar. O porquê nunca vai ser atingido. Então, este porquê o indivíduo busca na descarga de seu ódio.
 
-A politica nao é só guiada por tecnologias, e entendimentos politicos, históricos, organização social, etc. Mas é modificada também pela evolução espiritual de cada individuo. O individuo da direita quer que o outro não suba de vida, que o outro não tenha o necessário, quer se destacar. É uma descarga de ódio contra o outro, que ao longo prazo, envolve até o próprio individuo. Quem vota na direita sabe que está errado, teme o futuro próprio e do país, mas está fascinado pela possibilidade de libertação de seu ódio, num descarrego de raiva socialmente aceito que é o voto. É iludido por uma descarga de raiva tão violenta em sem consequencias.
+A política não é só guiada por tecnologias, entendimentos políticos, históricos, organização social etc. Mas é modificada também pela evolução espiritual de cada indivíduo. O indivíduo da direita quer que o outro não suba de vida, que o outro não tenha o necessário, quer se destacar. É uma descarga de ódio contra o outro que, a longo prazo, envolve até o próprio indivíduo. Quem vota na direita sabe que está errado, teme o futuro próprio e do país, mas está fascinado pela possibilidade de libertação de seu ódio, num descarrego de raiva socialmente aceito que é o voto. É iludido por uma descarga de raiva tão violenta e sem consequências.
 
-A direita sabe trabalhar com o ódio humano, o ódio é o discurso de convencimento. O ódio que sera aproveitado em favor de uma minnoria de bilioonários, que nem mesmo pensarão duas vezes para prejudicar seus eleitores quando possível tomar todo o poder e destruir até mesmo a democracia.
+A direita sabe trabalhar com o ódio humano. O ódio é o discurso de convencimento. O ódio que será aproveitado em favor de uma minoria de bilionários, que nem mesmo pensarão duas vezes para prejudicar seus eleitores quando possível tomar todo o poder e destruir até mesmo a democracia.
 
+A alma do purgatório busca a cura para uma aparente eterna ferida, uma ferida da qual não enxerga saídas pela escassez de seu amor, por achar que a si mesmo não merece ou o outro não merece ser perdoado. Uma ausência do sentido de sair daquela memória, fato e acontecimento. Um repetir da mesma dor.
 
+A direita apresenta ferramentas do ódio, esse é seu discurso. O ódio contra minorias. O atrativo é a promessa de alívio do ódio, de um manifesto em um dedo e um botão que liberta o indivíduo, que vinga o indivíduo em toda uma nação.
+
+O votar na direita é querer provocar diferenças sociais grandes ou até mesmo mínimas. É colocar indivíduos loucos no poder com o intuito de ver o outro afundar, passar fome, ter restrições. A direita é a promessa do paraíso em um voto, da libertação da ferida, é a promessa da cura da ferida que impede uma alma de se libertar completamente para o paraíso.
 
 
 #### **Os eleitos para o reino dos céus**
