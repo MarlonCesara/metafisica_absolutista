@@ -1081,6 +1081,24 @@ Assim, o grande paradoxo se desvela: a miséria do mundo não é uma questão de
 
 A solução, então, não está apenas em novos sistemas económicos ou tecnológicos, mas numa inteligência que nos permita **isolar e erradicar de nossas estruturas sociais a semente do ódio niilista – a verdadeira raiz de toda miséria sistêmica.** Conhecer o niilista é mais importante do que desenvolver novas tecnologias. 
 
+
+#### **As almas do purgatório**
+
+O purgatório não tem niilistas, as almas do purgatório são individuos de fortes paixões que se relacionam a ira. Se deixavam levar por acontecimentos em vida que tirava sua sanidade, que os fazia inflingir sofrimento sobre si mesmos. A alma do purgatório não tinha tanto desejo de dominação, controle ou tanto desespero, sintomas de mania por busca de respostas. Mas tinha um ódio cego, um ódio direcionado a sociedade e a si mesma. Procurava a satisfação da vingança de forma a tentar encontrar a paz.
+
+Tinha medo de sua insanidade, medo de si mesmas. Uma ira quase unanime, um instinto irracional, uma busca de sabedoria no aliviar da agressividade latente de qualquer forma.
+
+As almas do purgatório apoiavam esrtuturas opressoras de poder, tentavam achar o alivio da ira na destruição, queriam encontrar a paz. Não era vida que lhes faltava, mas a paz. Queriam o sentido do perdão, queriam o que destravasse o paraíso de forma clara e evidente. Queriam se livrar dos vicios de comportamento que lhes destruia.
+
+Apoiadores de direita politica, achavam que o voto lhes aliviaria do ódio, que era uma vingança final, mas não era. O perdão nasce de dentro de não da ação de retaliação. Eram pessoas feridas, e aparentemente constantemente cativavam suas feridas como se fossem parte de si, partes da história delas, partes delas mesmas.
+
+O purgatório era um ataque de ódio na tentativa de curar essa feridas, que só o amor poderia curar. Não havia realmente uma forma de retalia-las e as almas pensavam que pelo queimar poderiam justificar, o ódio, a revolta, a magoa que lhe causaram queriam pagar elas mesmas infringindo o proprio sofrimetno em si. Mas a ferida não se retalia, não se justifica, somente a agua do amor a dissolve. A ferida interior é dissipada sobre a luz do amor, tal como a sombra é diluida pela luz. O esforço externo não cura uma dor subjetiva.
+
+
+
+
+
+
 #### **Os eleitos para o reino dos céus**
 
 O reino dos céus já é agora. Acontece no presente. Quem vai para o reino dos céus, na verdade, é quem continuará nele — quem herdará a graça e a glória de existir, quem receberá a luz da vida, quem mergulhará nos rios de água viva do paraíso.
