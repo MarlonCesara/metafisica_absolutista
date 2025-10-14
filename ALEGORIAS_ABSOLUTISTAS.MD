@@ -1094,7 +1094,15 @@ Apoiadores de direita politica, achavam que o voto lhes aliviaria do ódio, que 
 
 O purgatório era um ataque de ódio na tentativa de curar essa feridas, que só o amor poderia curar. Não havia realmente uma forma de retalia-las e as almas pensavam que pelo queimar poderiam justificar, o ódio, a revolta, a magoa que lhe causaram queriam pagar elas mesmas infringindo o proprio sofrimetno em si. Mas a ferida não se retalia, não se justifica, somente a agua do amor a dissolve. A ferida interior é dissipada sobre a luz do amor, tal como a sombra é diluida pela luz. O esforço externo não cura uma dor subjetiva.
 
+O purgatório era uma forma de tentar curar uma dor, uma ferida, era uma tentativa de um esquecimento da ferida e não de si. Porém, essa tentativa abrangia o si de forma temporaria, por não haver o amor para apagar a ferida. É a intenção de perdoar, de reconhecer-se como ser humano falho tal como o outro que dá asas para que a cura aconteça.
 
+O ódio não é uma prova de virilidade, mas uma fraqueza, é o deixar que um fato ou acontecimento as vezes simples e temporal afete todo o contexto de uma eternidade. É esperar que o outro seja perfeito como Deus. É a uma ultra sensibilidade que acontece pela ausencia de um amor que sacie o porque das feridas.
+
+Não há um porque para tal acontecimento que nos feriu ou magoou, há ação de perdoar. O porque nunca vai ser atingido. Então, este porque o individuo busca na descarga de seu ódio.
+
+A politica nao é só guiada por tecnologias, e entendimentos politicos, históricos, organização social, etc. Mas é modificada também pela evolução espiritual de cada individuo. O individuo da direita quer que o outro não suba de vida, que o outro não tenha o necessário, quer se destacar. É uma descarga de ódio contra o outro, que ao longo prazo, envolve até o próprio individuo. Quem vota na direita sabe que está errado, teme o futuro próprio e do país, mas está fascinado pela possibilidade de libertação de seu ódio, num descarrego de raiva socialmente aceito que é o voto. É iludido por uma descarga de raiva tão violenta em sem consequencias.
+
+A direita sabe trabalhar com o ódio humano, o ódio é o discurso de convencimento. O ódio que sera aproveitado em favor de uma minnoria de bilioonários, que nem mesmo pensarão duas vezes para prejudicar seus eleitores quando possível tomar todo o poder e destruir até mesmo a democracia.
 
 
 
