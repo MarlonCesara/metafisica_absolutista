@@ -1,6 +1,8 @@
 
 ### **Análise Metafísica do Niilismo Midiático**
 
+Uma visão catastrofíca de um governo de direita totalitarista
+
 *(Morpheus está sentado em seu sofá, o mesmo onde ofereceu as pílulas a Neo. Ele olha fixamente para a câmera.)*
 
 **Morpheus:**
@@ -70,6 +72,12 @@ Assim, a “direita niilista” expressava sua sintomática não apenas cultural
 O poder economico, estando tão concetrando tomou posse completamente da politica e a loucura dos grandes empresários que dominavam tudo começou. O governo não mais controlava os projetos desenvolvidos, pois tudo era manipulado economicamente pelos bilionários.
 
 Lentamente surgiram indícios de manipulação cerebral com um projeto chamado **Neuralink** e um grupo de milionários representados por um homem, que passou a produzir toda a tecnologia e a dominar todo o espaço aéreo de informações. Suas tecnologias foram evoluindo até que distribuíam a maior parte delas, ao mesmo tempo em que controlavam informações e dispositivos de interação cerebral. Havia centenas de milhares de robôs com a marca. Um dia, uma guerra eclodiu e, estrategicamente, a Neuralink detinha um enorme poderio. Ninguém, no passado, previra seus planos. Metade da humanidade foi morta e começaram as experiências com os que restaram.
+
+Se antes a classe de direita tinha controle sobre o congresso, uma politica de direita, com o tempo, destruiu o próprio congresso e formou um poder unanime independente, defendido por fortes tecnologias, as quais somente bilionáros e trilhonários possuiam.
+
+Logo, o poder foi centralizado por uma só pessoa e um grupo de tecnicos que sustentavam seus objetivos e o apoiavam. A maquina que governava tudo estava no controle. A maquina tinha o maior poder de artilharia, a maior rede de comunicação, e não foi possível fomentar uma politiica em contraveção, não deu tempo de reestabelecer o congresso, pois a maquina era mais forte do que as massas; a maquina poderia dizimar um milhão de homens em segundos.
+
+Os apoiadores da direita se viram traidos, os que guardavam o ódio, que apoiavam estruturas de controle de ódio foram consumidos, e o ódio se voltou contra os eleitores de direita, que não mais podiam escolher entre a direite e a esquerda.
 
 Os que manifestavam o padrão não-niilista foram usados como experimento, enquanto os niilistas eram mortos. Somente restavam os que interessavam para a ordem niilista. E assim, lentamente, as pessoas foram sendo aprisionadas e a Matrix foi sendo construída.
 
