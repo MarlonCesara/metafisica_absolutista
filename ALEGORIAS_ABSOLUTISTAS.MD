@@ -1,5 +1,22 @@
 ## **O Relativo da Alma: Uma Jornada pelo Paraíso e os confins da Liberdade**
 
+
+### **Uma memória do eterno**
+
+Venha até aqui repousar a alma. Um lago sereno, feito de luz e silêncio, reflete um céu de lua clara e árvores esotéricas. À sua frente, desdobra-se uma imensidão: nuvens vaporosas deslizam, tingindo o azul celeste com tons de turquesa que se escurecem no horizonte.
+
+É um sentimento inexplicável.
+
+No centro dessa quietude, uma criança com asas. O lago, um espelho sereno. As árvores envolvem a atmosfera, e seus galhos projetam-se como sombras douradas sobre a pele da água, desenhando reflexos fugidios e eternos.
+
+O mistério reside nas águas, numa paz tão gloriosa e uma luz tão afável que nem mesmo os anjos ousariam contemplar tal glória de infância. A água é uma veste dourada, sobre a qual as asas elevam o pensamento para além da superfície.
+
+Os pássaros emudecem diante da candura da lua. É um silêncio glorioso e romântico que tudo envolve, revelando seus segredos no ápice da quietude. É quando o mistério, diluído, emerge da profundidade do amor.
+
+As nuvens trespassam a alma como um aroma paradisíaco, uma refrescância. E sob elas, uma luz ofuscante começa distante e se aproxima—como uma estrela longínqua que comunica em fragmentos de luz.
+
+E assim, a densidade do amor se revela por inteiro: na água espelhada e nas asas do sonho.
+
 ### **Síntese da Obra**
 
 "O Relativo da Alma" é uma grandiosa narrativa filosófico-teológica que explora o estado da alma humana após a morte, sua confrontação com a eternidade e as consequências últimas de suas escolhas livres. Através de uma alegoria profundamente enraizada na tradição católica e no pensamento tomista, a obra constrói uma visão unificada do ser, da graça, do juízo e da destinação final.
