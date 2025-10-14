@@ -2951,6 +2951,9 @@ O infinito individualizado deixa de ser infinito?
 Se é possível que transcenda seu fininto, esta localizado no eu sua vivencia? Sendo possível transcender o eu se localiza?
 O que é o eu?
 
+O Ser é o infininto da identidade, já o homem é uma singularidade, uma indentidade única.
+Portanto, o infinito da identidade está no romper da identidade?
+
 
 Até os ricos evangelizam tamanho medo que tem do destino, precisam reunir muitos bens.
 Os ricos tem inteligencia para saber de espiritualidade, e é esse saber que os deixa obsessivos.
