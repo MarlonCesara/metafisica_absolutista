@@ -127,10 +127,7 @@ A matrix foi construida em decorrência de dois tipos de seres humanos: os com �
 
 O cérebro, no entanto, tinha programado um mecanismo de defesa caso um dia fosse encontrado, e maquinas de suporte de emergia se ergueram devatando as capsulas e todos os humanos. Bombas nucleares foram armadas. Neo se viu diante de um verdadeiro caos. A resposta devia ter sido decodificada antes, agora já era tarde demais. Neo então, acordou em seu leito. A matrix era um sonho.
 
-Neo realmente era um programador, e decidiu contar tudo o que viu para a humanidade. Então, subiu o código da matrix no github e o reportou para a humanidade.
-
-
-
+Neo realmente era um programador, e decidiu contar tudo o que viu para a humanidade. Então, subiu o código da matrix no github e o reportou para a humanidade. Neo sabia que a humanidade precisava reconhecer, não somente a ação niilista, mas reconhecer o próprio niilista, saber o propósito e a motivação niiilista tal como sua sintomatica era essencial.
 
 
 
