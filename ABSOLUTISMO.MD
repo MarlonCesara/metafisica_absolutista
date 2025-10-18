@@ -3253,7 +3253,6 @@ No ápice da união, não era ele nem ela, era o **nós**. E a visão era de inf
 
 A transcendência do eu não se torna idêntica ao Ser, mas é um estado temporário de indefinição, onde se atinge a transcendência da identidade. E o infinito particular torna-se completo. Isto é, na dualidade ambos encontram a transcendência da unidade da identidade. E, nesse infinito composto, não há mais barreiras. A única barreira é entre o Ser e o infinito individual, sendo o infinito individual uma vazão possível para o infinito de Deus. O homem transfigurando, sendo aberto para Deus, então não há barreiras na individualidade.
 
-
 ### **As Consequências: O Preço da União e o Peso da Perfeição**
 
 Esse ato de união definitiva trouxe consigo consequências fundamentais e eternas: agora eles precisavam trabalhar e suportar as dores do parto. Essa linguagem figurada significa que, a partir de então, deveriam zelar incessantemente pela formação moral e pelos ensinamentos do novo ser que deles emanara, além de enfrentar, se necessário, o teor moral da liberdade concedida a esse novo ser — representada pela sua potencial decisão de partir. Ou seja, agora teriam de suportar as dores da despedida e assumir um compromisso de cuidado e responsabilidade que antes não existia.
@@ -3274,6 +3273,14 @@ A pergunta final ecoou em seus seres fundidos, não como um desespero, mas como 
 
 A eternidade que se estendia à sua frente seria a resposta. E enquanto isso, partilhavam um êxtase absoluto, um fogo que os queimava e os transcendia num prazer delirante e mordaz. Um prazer que os beirava a morte e a vida, pois, ao passo que os consumia, os transcendia. O delírio mais inarrável. Um prazer que se equivaleria, antagonicamente, à pior das torturas, ao mais quente dos infernos.
 
+### **O Éden da dualidade**
+
+Depois da união, novas almas surgiram, e a dualidade devia trabalhar, ensinando-as e atribuindo-lhes uma tendência moral. Sem contar que a harmonia ali se rompeu. Pois, se não havia mais niilistas no paraíso depois do primeiro juízo final, agora a ação niilista retorna. E teriam que aprender a lidar com o comportamento niilista, conheceriam o bem e o mal, e lidariam com as duras partidas de sua prole. O amor de ambos teria que ser maior que todos os intemperes e infinitamente inabalável. O retorno ao Éden seria a consumação desse amor, mesmo diante de todas as adversidades geradas pela transcendência na dualidade.
+
+Como poderiam encarar as partidas das almas niilistas? Como poderiam lidar com a perda? Com a morte? Com o niilismo social? E com a eternidade juntos? Onde estaria essa força? O que alimentaria um amor que durasse o infinito?
+
+O Ser, como se tivesse previsto a mentalidade de ambos, os aproximou de seu querer. Antes, viviam em um mundo onde precisavam lidar com a morte, lidar com o niilismo, precisavam orientar moralmente pessoas. Já sabiam o que poderiam esperar, já haviam até mesmo aprendido a viver a vida juntos, pois viveram uma vida que representava uma eternidade. Sabiam que morreriam no mundo de barro e escolheram passar aquele momento eterno, aquele breve instante de vida, juntos. E isso, para os dois, era como uma prova.
+
 ### **O Arrependimento: O Peso da Eternidade e a Lição de Humildade**
 
 Ao longo das eras, mesmo o delírio mais sublime, embora infindável, tornou-se sempre o mesmo. A novidade transformou-se em rotina, e a intensidade perpétua revelou seu próprio peso. Retornaram à forma de seus corpos gloriosos e imediatamente avistaram uma vastidão de novas almas, novas paixões possíveis e outros destinos que poderiam ter trilhado. Porém, estavam agora irrevogavelmente presos a essa união. Não podiam fugir como outrora, em outras gêneses.
@@ -3286,8 +3293,7 @@ E desta vez, conscientes de que no céu há todas as possibilidades possíveis, 
 
 ### **O homem metamórfico**
 
-Adão e Eva desejaram o homem metamórfico. O ato de comer o fruto foi uma rejeição à lei da forma: eles recusaram a forma dada e quiseram ser autores do próprio desígnio. O homem buscou ser criador de si mesmo, dono de sua própria forma. Assim, libertaram-se das limitações impostas pelas formas que restringiam suas ações.
-A morte, nesse sentido, é a passagem do homem fórmico ao homem afórmico — aquele que decide por si mesmo a sua forma.
+Adão e Eva desejaram o homem metamórfico. O ato de comer o fruto foi uma rejeição à lei da forma: eles recusaram a forma dada e quiseram ser autores do próprio desígnio. O homem buscou ser criador de si mesmo, dono de sua própria forma. Assim, libertaram-se das limitações impostas pelas formas que restringiam suas ações. A morte, nesse sentido, é a passagem do homem fórmico ao homem afórmico — aquele que decide por si mesmo a sua forma.
 
 Adão e Eva aspiraram ao homem metamórfico. O gesto de provar o fruto foi, antes de tudo, uma recusa à lei da forma: rejeitaram o limite, a medida imposta, e ousaram ser autores do próprio desígnio. O homem, desde então, quis ser não apenas formado, mas formador de si mesmo — artífice de sua essência e do contorno de sua existência. A morte corporal é libertação da forma fixa.
 
