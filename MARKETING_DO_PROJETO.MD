@@ -125,3 +125,14 @@ A sociedade precisava entender que a humanidade não se move apenas por questõe
 
 A matrix foi construida em decorrência de dois tipos de seres humanos: os com ódio e os com ódio absoluto. Os com ódio as vezes apoiavam os com ódio absoluto, mas no final, os com ódio absoluto destruiram tudo. Os com ódio queriam uma vingança que nunca cessava dentro deles e os niilistas queriam destruir tudo.
 
+O cérebro, no entanto, tinha programado um mecanismo de defesa caso um dia fosse encontrado, e maquinas de suporte de emergia se ergueram devatando as capsulas e todos os humanos. Bombas nucleares foram armadas. Neo se viu diante de um verdadeiro caos. A resposta devia ter sido decodificada antes, agora já era tarde demais. Neo então, acordou em seu leito. A matrix era um sonho.
+
+Neo realmente era um programador, e decidiu contar tudo o que viu para a humanidade. Então, subiu o código da matrix no github e o reportou para a humanidade.
+
+
+
+
+
+
+
+
