@@ -2884,7 +2884,6 @@ Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
 
-
 # Alegorias Absolutistas
 
 Após a introdução filosófica ao absolutismo, apresentarei agora o esboço de uma visão sobre o além, isto é, a realidade pós-morte corporal. Essa visão tem caráter positivista: sempre que não houver uma inferência lógica possível, recorrerei à melhor hipótese imaginável, como nos casos da descrição do paraíso ou dos confins da liberdade humana. Confesso que me inspirei profundamente na tradição católica, pois ela oferece uma coerência lógica e intuitiva notável.
@@ -2930,6 +2929,11 @@ A voz respondeu, suave e firme:
 — As regras deste momento não o permitem.
 
 O filósofo insistiu, mas ao fazê-lo, sentiu-se fragmentar, como se sua vontade se chocasse contra a harmonia do Ser. Percebeu a dissonância em seu intento. Então, em vez disso, desejou estar onde pudesse reencontrar aqueles que amara e desejou também uma vida mais leve e plena de possibilidades, na qual não necessitaria morrer ou ter dores. Imediatamente, foi conduzida a uma terra renovada, onde tudo era mais belo e pleno de sentido.
+
+> O relativo é temporal, porém, no relativo, o tempo ainda acontece. É possível ir para o atemporal e retornar sem ter visto o tempo passado.
+Isto é possível porque, no atemporal, a percepção individual de tempo existe, ao passo que o temporal a compõe e a percorre. Se digo: “vou ficar um tempo no atemporal”, estou me referindo à percepção do tempo em uma das possibilidades. Isto é equivalente a dizer: “vou ficar um tempo sem a percepção do tempo”. Desta forma, o tempo ainda existe sem que seja vivenciado pela alma. A alma, sendo temporal e atemporal, ou seja, sendo um todo, vive momentos atemporais que são percebidos, no temporal, como um lapso de tempo e, no atemporal, como um tempo infinito percorrido. A alma não deixa de ser temporal quando percebe o atemporal; o homem, no tempo, é retomado após uma vivência atemporal. E isto é relativo aos desejos do seu coração.
+
+> O filósofo desejou o que estava no seu íntimo: uma terra onde pudesse encontrar a todos, onde pudesse reviver um pouco do que foi em vida com o intuito de se reconhecer, de voltar às suas origens, ao passo que queria um corpo com mais possibilidades. Então, o seu desejo assim se fez, e no tempo em que pôde ser feito, pois seu desejo dependia de outros relativos, como veremos no decorrer da narrativa.
 
 > O designio natural do homem é a glorificação, não por imposição, mas porque é harmonica ao desejo mais profundo da alma.
 
@@ -3459,6 +3463,10 @@ A interpretação do Gênesis é multifacetada e de uma riqueza inesgotável, im
 
 Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. Não se pode atribuir uma única interpretação, pois sua genialidade reside precisamente em sua capacidade de iluminar, de uma só vez, as múltiplas dimensões — a psicológica, a metafísica, a relacional e a espiritual — da condição humana perante a liberdade, o desejo e o Divino.
 
+## **O paraíso do homem**
+
+O relativo do Ser e o relativo do sou podem se expandir de forma misteriosa a todas as possibilidades. Não se pode reter as possibilidades mediante ao desconhecido. Então, o leque está aberto para um aval infinito de possibilidades, ainda que ilógicas (impossíveis) e até mesmo incognoscíveis (impensáveis). O paraíso do homem é ter suas aspirações concretizadas. O paraíso de Deus é que tenhamos vida em abundância.
+
 ### **A estranha cidade das almas perdidas**
 
 > "O inferno está vazio; todos os demônios estão aqui."
@@ -3663,10 +3671,8 @@ Destituídos de poderes, só lhes restam os escapes mais fúteis, que ferem apen
 
 Aqueles que admiram os bilionários são, em grande parte, os que sonham em explorar outros seres humanos por ganância e capricho, tentando esconder de si mesmos sua doença megalomaníaca — sintoma direto de seu niilismo. De um niilismo que jamais triunfa, pois o ápice do ódio anula até mesmo aquele que o carrega. O usufruir de um ódio que se torna central na vida do indivíduo pode abrir caminhos financeiros, mas o priva da própria possibilidade de existir, já que esse ódio, tão intenso, acaba voltando-se contra o próprio ente que odeia. Em outras palavras, não é possível usar o máximo do ódio sem que ele alcance e destrua o próprio indivíduo que o alimenta.
 
-
 No pensamento do bilionário, ele está se alimentando de vidas, de sonhos — nutrindo-se da existência que renunciará por causa do seu ódio absoluto. O bilinário não deseja apenas o dinheiro, quer as idealizações dos indivíduos ou a capacidade de sonhar dos não niilistas — ele quer a própria vida. O bilionário acredita estar se alimentando da capacidade das pessoas de serem normais. Alimenta-se do sonho de João de ter a casa própria, do sonho de Maria de ter filhos. Ele não precisa do dinheiro em si, precisa sentir que está se nutrindo de algo, que pode “viver” sem desejar a própria vida, existindo através dos projetos alheios.
 O requinte ou luxo do bilionário representa a simulação do aprendizado mais básico da vida: aproveitar as coisas simples. Gasta dinheiro como se soubesse ser simples e feliz, como se soubesse não ser niilista. O bilionário é, em si, um lunático. A aparente facilidade de viver do bilionário faz menção ao ato não niilista de tranquilidade. Ele simula ser fácil para si a própria desistência espiritual diante da extrema facilidade material. A estima do niilista é debilitada, quase nula. Seu sentimento de derrota o leva a ser maléfico, a sustentar-se pelo outro, a colher a força alheia para tentar manter-se como indivíduo, para reter alguma dignidade após a renúncia de si mesmo.
-
 
 #### **A Redução ao Comportamento Animal**
 O niilista, que acredita apenas na vida material, adota o mesmo comportamento da vida selvagem. Torna-se territorial, extremamente competitivo e acumulador, vivendo como se o futuro não existisse. Em sua empreitada profissional, age de forma competitiva, buscando reinar como um leão. Em seu ódio, assemelha-se a um corvo, que nunca esquece uma ofensa. É austero e segue friamente seus instintos, pois encontra seu sentido na materialidade pura. Acredita que nada transcende a lógica animal. Tudo o que almeja está estritamente ligado à materialidade, à acumulação de bens e ao status social – como se, na selva, precisasse se destacar como o animal mais violento da manada. Como aquele que está no topo, tentando rugir mais alto para afugentar todos os outros.
@@ -4191,14 +4197,11 @@ A autenticidade (*Eigentlichkeit*) não é um estado moral, mas ontológico. Ela
 
 Portanto, a "teoria da inautenticidade" é um pilar da **Fenomenologia Existencial** de Martin Heidegger, detalhada em **"Ser e Tempo"**. A descrição do perfil niilista no texto que você forneceu é uma ilustração quase didática desse conceito: um ser humano que fugiu completamente do chamado para a autenticidade, abraçando o anonimato do "eles" materialista e competitivo, e fechando os ouvidos para o apelo da sua própria consciência e finitude.
 
-# Rascunhos
 
-### Expanda as possibilidades da ressurreição final.
 
-O relativo do Ser e o relativo do sou pode se expandir de forma mistériosa a todas as possibilidades. Não se pode reter as possibilidades mediante ao desconhecido. Então o leque está aberto para um aval infinito de possibilidades, ainda que ilógicas (impossívels) e até mesmo incognocíveis (impensáveis).
 
-Faça o relativo ser temporal, pois no relativo o tempo ainda acontece, ou seja, é possível ir para o atemporal e retornar, sem ter visto o tempo passado.
-Isto é possível porque no atemporal a percepção individual de tempo passa. Se digo: vou ficar um tempo no atemporal, estou me referindo a percepção do tempo. Isto é equivalente a dizer: vou ficar um tempo sem a percepção do tempo. Desta forma, o tempo ainda existe sem que seja vivenciado pela alma.
+
+
 
 
 
