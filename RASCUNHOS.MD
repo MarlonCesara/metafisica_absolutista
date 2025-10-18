@@ -6853,5 +6853,103 @@ Os erros são, em sua grande maioria, sutis e relacionados a nuances da norma cu
 
 
 
+---
+Repetido
+
+### **§ 14.4 – A liberdade do Sou**
+
+A alma, sendo livre, é uma liberdade dissassociada do corpo, pois subentende-se que há uma liberdade determinada
+
+Se o homem é livre para o corpo não é realmente livre é livre para o relativo. 
+
+A identidade sub entende o que é livre e onde é livre. Isto é, sub entende o espaço de ser livre.
+
+Toda liberdade é liberdade para onde, o que, quem, quando, etc.
+
+A alma, como identidade é livre para relativo.
+A alma, enquanto corpo e alma, é livre para o corpo.
+
+A alma sem corpo é livre para relativo.
+
+A identidade e a liberdade por si só, não tem uma liberdade no nada, pois o nada não existe. 
+Pode-se considerar a liberdade no relativo, sendo este individualizado. 
+
+Sendo liberdade, a liberdade está para a a forma ou para o relativo, não há mais opções.
+Isto é, a liberdade poderia estar para um corpo imortal, tal como para o relativo.
+
+Dentro deste contexto, diante da morte fisica, podemos interpretar que, O Ser nos criou livres para o relativo e não para o corpo.
+
+> Nossa liberdade de desgarra do corpo e solta-se livremente no aval das infinitas possibilidades.
+
+E mais uma vez, é possível concluir tal afirmação pelo auto testemunho, pois não é um caminho unidirecional e lógico. Mas depende da afirmação pessoal.
+
+
+### **§ 14.4 – A liberdade do Sou**
+
+A alma, sendo livre, é uma liberdade dissassociada do corpo, pois subentende-se que há uma liberdade determinada
+
+Se o homem é livre para o corpo não é realmente livre é livre para o relativo. 
+
+A identidade sub entende o que é livre e onde é livre. Isto é, sub entende o espaço de ser livre.
+
+Toda liberdade é liberdade para onde, o que, quem, quando, etc.
+
+A alma, como identidade é livre para relativo.
+A alma, enquanto corpo e alma, é livre para o corpo.
+
+A alma sem corpo é livre para relativo.
+
+A identidade e a liberdade por si só, não tem uma liberdade no nada, pois o nada não existe. 
+Pode-se considerar a liberdade no relativo, sendo este individualizado. 
+
+Sendo liberdade, a liberdade está para a a forma ou para o relativo, não há mais opções.
+Isto é, a liberdade poderia estar para um corpo imortal, tal como para o relativo.
+
+Dentro deste contexto, diante da morte fisica, podemos interpretar que, O Ser nos criou livres para o relativo e não para o corpo.
+
+> Nossa liberdade de desgarra do corpo e solta-se livremente no aval das infinitas possibilidades.
+
+E mais uma vez, é possível concluir tal afirmação pelo auto testemunho, pois não é um caminho unidirecional e lógico. Mas depende da afirmação pessoal.
+
+
+
+
+
+### **§ 14.4 – Distinções Ontológicas entre Ser e Sou**
+
+#### **1. Natureza do Arbítrio**
+- **O Sou** possui arbítrio **não necessariamente orientado para sua autocontinuidade**, podendo operar em dissonância com sua própria essência sustentadora, sem que isso comprometa a integridade do Ser fundamental.
+- **O Ser**, por sua natureza **autofundada**, exerce um arbítrio **necessariamente voltado à autocontinuidade**. Qualquer alteração nesse princípio afetaria a estabilidade ontológica do campo relativo e a coerência do existir manifestado.
+
+#### **2. Configuração da Persona**
+- **O Ser** possui uma persona **inerente e alinhada ao seu propósito fundamental** — expressa como **amor inefável** e **vontade autocoerente**. Sua identidade é indissociável de sua existência necessária.
+- **O Sou** configura uma persona **não necessariamente orientada para si ou para a existência**, podendo manifestar intenções e direções que não refletem a plenitude do Ser.
+
+#### **3. Relação de Contenção e Transcendência**
+- **O Ser abrange todos os Sous**, sem se confundir com eles. Mantém-se como **fundamento indiferenciado** que sustenta, mas transcende, cada identidade particular.
+- **O Sou não abrange todos os Sous**, constituindo-se como **identidade única e irredutível**, sem capacidade de conter ou expressar a totalidade das personas.
+
+#### **4. Participação na Essência**
+- **Cada Sou é um ser** — pois participa do ato de existir —, mas **não esgota a natureza do Ser**. Pode, voluntariamente, **alinhar-se à tendência automanifestante do Ser fundamental** ou dela se distanciar.
+- **O Sou é um ser próprio** que, embora derive sua existência do Ser, **não participa necessariamente de sua persona indiferenciada**. Pode operar a partir de uma lógica identitária autônoma, ainda que não autossustentada.
+
+#### **5. A individualidade do Sou e o Ser transcendente**
+
+- O **Sou** tem um arbítrio não necessariamente voltado para sua **autocontinuidade**, pois o fator de sua **tendência** não interfere na integridade do Ser.
+- O **Ser** tem arbítrio necessariamente voltado para sua **autocontinuidade**; uma alteração nesta característica afetaria a existência do relativo.
+- O **Ser** tem uma persona ligada a seu propósito fundamental enquanto necessariamente existente — é o amor inefável.
+- O **Sou** tem uma persona não necessariamente direcionada a si e à existência.
+- O **Ser** abrange todos os **Sous**, embora os transcenda em identidade.
+- O **Sou** não abrange todos os **Sous**, pois se faz em identidade única.
+- Cada **Sou** é um ser, apesar de ser no "Ser". É em si, e pode participar da tendência do Ser fundamental.
+- O **Sou** é um ser próprio, que, embora seja, não participa necessariamente da persona do Ser indiferenciado.
+- O **Sou** não é o absoluto individualizado em sua liberdade; pois o absoluto individualizado é o próprio absoluto temporal. 
+- O **Sou** é a possibilidade de uma existencia (ser) livre e independente no campo das possibilidades. 
+
+Todas as coisas existem tal como o Ser, porém o Ser transcende a forma, o individual e a identidade. Assim, a identidade individual se constrói de modo perceptual, configurando-se em sua posição, tempo e situação, e preservando sua identidade dentro dessa configuração. Enquanto o Ser transcende a forma e a identidade individual, a identidade do Ser se dissolve do individual. Ou seja, a identidade do Ser se faz disponível ao "sou", embora também possa permanecer alheia. A identidade do Ser é transcendência e não se situa em uma determinação individual.
+
+Exemplo: a identidade do Ser é transparente, enquanto as identidades individuais são coloridas. O Ser, portanto, está em tudo, ao passo que as individualizações se mantêm. O Ser não se ausenta da individualização das determinações, mas a transcende.
+
+---
 
 
