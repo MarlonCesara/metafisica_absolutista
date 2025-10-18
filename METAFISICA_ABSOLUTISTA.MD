@@ -1,4 +1,8 @@
-## **METAFÍSICA ABSOLUTISTA**
+## **ABSOLUTISMO**
+
+O Absolutismo representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Este sistema desenvolve-se a partir de uma perspectiva positiva que busca projetar, da forma mais precisa possível, uma concepção da vida além da morte. Adianto que esta projeção revela-se notavelmente compatível com os dogmas da Igreja Católica. Desse modo, a lógica, quando levada às suas últimas consequências, mostra-se misteriosamente alinhada com diversos princípios da fé cristã.
+
+Embora não se trate de um sistema lógico rigoroso no sentido mais estrito, o Absolutismo avança até o ponto em que o rigor formal se esgota, recorrendo então a uma projeção positiva baseada na intuição filosófica.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
