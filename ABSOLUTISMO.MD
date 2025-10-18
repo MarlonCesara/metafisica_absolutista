@@ -3463,7 +3463,7 @@ A interpretação do Gênesis é multifacetada e de uma riqueza inesgotável, im
 
 Em suma, o contexto do Gênesis é uma obra-prima de significado polissêmico. Não se pode atribuir uma única interpretação, pois sua genialidade reside precisamente em sua capacidade de iluminar, de uma só vez, as múltiplas dimensões — a psicológica, a metafísica, a relacional e a espiritual — da condição humana perante a liberdade, o desejo e o Divino.
 
-## **O paraíso do homem**
+#### **O paraíso do homem**
 
 O relativo do Ser e o relativo do sou podem se expandir de forma misteriosa a todas as possibilidades. Não se pode reter as possibilidades mediante ao desconhecido. Então, o leque está aberto para um aval infinito de possibilidades, ainda que ilógicas (impossíveis) e até mesmo incognoscíveis (impensáveis). O paraíso do homem é ter suas aspirações concretizadas. O paraíso de Deus é que tenhamos vida em abundância.
 
