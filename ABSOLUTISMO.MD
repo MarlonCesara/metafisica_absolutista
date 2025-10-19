@@ -4013,7 +4013,6 @@ Assim, o grande paradoxo se desvela: a miséria do mundo não é uma questão de
 
 A solução, então, não está apenas em novos sistemas económicos ou tecnológicos, mas numa inteligência que nos permita **isolar e erradicar de nossas estruturas sociais a semente do ódio niilista – a verdadeira raiz de toda miséria sistêmica.** Conhecer o niilista é mais importante do que desenvolver novas tecnologias. 
 
-
 #### **As almas do purgatório**
 
 O purgatório não tem niilistas, as almas do purgatório são indivíduos de fortes paixões que se relacionam à ira. Se deixavam levar por acontecimentos em vida que tiravam sua sanidade, que os faziam infligir sofrimento sobre si mesmos. A alma do purgatório não tinha tanto desejo de dominação, controle ou tanto desespero, sintomas de mania por busca de respostas. Mas tinha um ódio cego, um ódio direcionado à sociedade e a si mesma. Procurava a satisfação da vingança de forma a tentar encontrar a paz.
