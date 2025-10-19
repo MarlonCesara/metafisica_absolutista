@@ -90,7 +90,7 @@ Os outros riram junto, numa risada fúnebre, maligna e vazia — como ecos de um
 O cérebro continuou, tomado por um frenesi de loucura. Sua gargalhada soava como uma máquina enferrujada tentando cantar.
 
 **Neo:**
-— E o que você sente… se é que ainda sente… ao saber que é o autor do aprisionamento de milhões de corpos?
+— E o que você sente… se é que ainda sente… ao saber que é o autor do aprisionamento de milhões de pessoas?
 
 O cérebro parou de rir por um instante. Seus olhos brilharam com um misto de desprezo e orgulho. Então, com voz trêmula — não de medo, mas de uma insanidade quase religiosa — respondeu:
 
