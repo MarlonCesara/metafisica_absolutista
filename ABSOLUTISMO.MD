@@ -4171,7 +4171,7 @@ A autenticidade (*Eigentlichkeit*) não é um estado moral, mas ontológico. Ela
 
 ### Conclusão
 
-Portanto, a "teoria da inautenticidade" é um pilar da **Fenomenologia Existencial** de Martin Heidegger, detalhada em **"Ser e Tempo"**. A descrição do perfil niilista no texto que você forneceu é uma ilustração quase didática desse conceito: um ser humano que fugiu completamente do chamado para a autenticidade, abraçando o anonimato do "eles" materialista e competitivo, e fechando os ouvidos para o apelo da sua própria consciência e finitude.
+Portanto, a "teoria da inautenticidade" é um pilar da **Fenomenologia Existencial** de Martin Heidegger, detalhada em **"Ser e Tempo"**. A descrição do perfil niilista no texto é uma ilustração quase didática desse conceito: um ser humano que fugiu completamente do chamado para a autenticidade, abraçando o anonimato do "eles" materialista e competitivo, e fechando os ouvidos para o apelo da sua própria consciência e finitude.
 
 
 
