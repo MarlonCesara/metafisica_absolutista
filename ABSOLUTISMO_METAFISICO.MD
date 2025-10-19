@@ -3844,7 +3844,7 @@ O niilista quer o luxo, pois acredita que merece tudo; precisa se dar a tudo ant
 
 O niilista está sempre se comparando com o potencial de tranquilidade, alegria, entusiasmo e paz de consciência do outro. Para ele, os estados mentais são fortes indícios de diferenças — como um termômetro que determina se ele fica em paz ou aterrorizado. O niilista busca constantemente denegrir o sentimento alheio, diminuir a autoestima do outro ou evitar que o outro se alegre, para que não haja um diferencial de potencial no estado de espírito entre ambos.
 
-Por isso, o niilista está constantemente preocupado com o que o outro está aproveitando, com o descanso que o outro está tendo ou com as conquistas do outro. Tirar essas realizações dos outros o mantém em um estado de ânimo semelhante ao seu próprio — um estado moldado pela tensão entre seus desejos e a tendência natural de seu espírito em buscar segurança e vida eterna.
+Por isso, o niilista está constantemente preocupado com o que o outro está aproveitando, com o descanso que o outro está tendo ou com as conquistas do outro. Por isso, contenta-se tanto com privilégios sobre o outro, ainda que estes sejam mínimos. Tirar essas realizações dos outros o mantém em um estado de ânimo semelhante ao seu próprio — um estado moldado pela tensão entre seus desejos e a tendência natural de seu espírito em buscar segurança e vida eterna.
 
 Portanto, o empregador niilista quer ver seus funcionários sem dinheiro e sobrecarregados. Sua preocupação nem sempre é com as finanças da empresa, mas com a possibilidade de que seus funcionários tenham uma sensação de satisfação que ele mesmo não possui.
 
