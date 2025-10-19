@@ -94,13 +94,13 @@ O cérebro continuou, tomado por um frenesi de loucura. Sua gargalhada soava com
 
 O cérebro parou de rir por um instante. Seus olhos brilharam com um misto de desprezo e orgulho. Então, com voz trêmula — não de medo, mas de uma insanidade quase religiosa — respondeu:
 
-> “Desde o início da humanidade, alguns de nós encontraram sentido, outros não. A escravidão nunca foi por dinheiro. Cada golpe, cada assassinato… tudo tinha a intenção de extrair o sentido. Não é preciso explorar para produzir — a natureza é abundante. Tolos foram os que pensaram que tudo era por riqueza. Era por opressão. Queríamos o verdadeiro ouro: a passagem para a eternidade. Dinheiro nunca foi suficiente. Queremos o sentido que trás paz. Tentamos extraí-lo do cérebro daqueles que pareciam ter encontrado o sentido. Sabemos que existe um lugar de infinitas possibilidades. Queremos o amor… mesmo que tenhamos de buscá-lo através do ódio.”
+> “Desde o início da humanidade, alguns de nós encontraram sentido, outros não. A escravidão nunca foi por dinheiro. Cada golpe, cada assassinato… tudo tinha a intenção de extrair o sentido. Não é preciso explorar para produzir — a natureza é abundante. Tolos foram os que pensaram que tudo era por riqueza. Era por sentido. Queríamos o verdadeiro ouro: a passagem para a eternidade. Dinheiro nunca foi suficiente. Queremos o sentido que trás paz. Tentamos extraí-lo do cérebro daqueles que pareciam ter encontrado o sentido. Sabemos que existe um lugar de infinitas possibilidades. Queremos o amor… mesmo que tenhamos de buscá-lo através do ódio. Não somos imbecis, sabemos que somos livres, eternos e sabemos que o amago de nossa alma define nosso destino”
 
 Quando pronunciou a palavra **“amor”**, sua voz suavizou de forma grotesca, quase teatral. Fez um olhar jocoso, zombando da própria ideia, como se amar fosse um gesto dos fracos — e odiar fosse o privilégio dos fortes.
 
 Então, num tom de desespero que beirava a súplica, ele completou:
 
-> “Nossos corpos estão em decomposição. A única coisa que importa é a vida eterna. Até mesmo Deus veio à Terra e transmitiu a vocês a tecnologia final — e vocês não compreenderam.”
+> “Nossos corpos estão em decomposição. A única coisa que importa é a vida eterna. Até mesmo Deus veio à Terra e transmitiu a vocês a tecnologia final — e vocês não compreenderam. Não era somente uma mensagem religiosa, essa mensagem muda tudo.”
 
 Neo manteve-se imóvel, encarando aquele ser que um dia fora humano. Não havia mais medo em seu olhar — apenas uma clareza cortante.
 
