@@ -3842,6 +3842,14 @@ Nem todo mau comportamento está associado ao niilismo, mas a característica pr
 
 O niilista quer o luxo, pois acredita que merece tudo; precisa se dar a tudo antes de decidir se anular. O niilista tem pressa em salvar sua vida de forma material; acelera o trabalhador como se o esforço acelerado e o acúmulo de bens pudessem, de alguma forma, lhe devolver ou garantir a vida na dimensão material.
 
+O niilista está sempre se comparando com o potencial de tranquilidade, alegria, entusiasmo e paz de consciência do outro. Para ele, os estados mentais são fortes indícios de diferenças — como um termômetro que determina se ele fica em paz ou aterrorizado. O niilista busca constantemente denegrir o sentimento alheio, diminuir a autoestima do outro ou evitar que o outro se alegre, para que não haja um diferencial de potencial no estado de espírito entre ambos.
+
+Por isso, o niilista está constantemente preocupado com o que o outro está aproveitando, com o descanso que o outro está tendo ou com as conquistas do outro. Tirar essas realizações dos outros o mantém em um estado de ânimo semelhante ao seu próprio — um estado moldado pela tensão entre seus desejos e a tendência natural de seu espírito em buscar segurança e vida eterna.
+
+Portanto, o empregador niilista quer ver seus funcionários sem dinheiro e sobrecarregados. Sua preocupação nem sempre é com as finanças da empresa, mas com a possibilidade de que seus funcionários tenham uma sensação de satisfação que ele mesmo não possui.
+
+O niilista está sempre tentando se destacar em um patamar que o faça sentir-se rico interiormente, em concordância com os desejos mais profundos de seu intelecto: a vida eterna e suas infinitas possibilidades. Esse patamar precisa constantemente colocá-lo em posição de destaque em relação ao outro, para gerar um diferencial de potencial de ânimo que o faça sentir-se superior e momentaneamente satisfeito.
+
 #### **A sensação de pequenez**
 
 Ao definir a si mesmo como um ser finito e puramente material, o indivíduo enfrenta outro grave problema para sua autoestima: a sensação esmagadora de ser um "mini-homem", um mero grão de areia num universo sem propósito. Essa percepção entra em flagrante contradição com a personalidade soberba, ostentadora e competitiva que muitos ricos exibem; na verdade, é exatamente o oposto do que projetam externamente.
