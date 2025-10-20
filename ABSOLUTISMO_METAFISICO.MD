@@ -1636,8 +1636,19 @@ O **Ser** representa o determinador puro, o fundamento indiferenciado da existê
 > _"Então disse Deus: 'Façamos o homem à nossa imagem, conforme a nossa semelhança.'"_
 > _— Gênesis 1:26_
 
-
 ### **§ 14.4 – A Liberdade do "Sou"**
+
+>A alma não é um corpo. Não possui forma.
+A alma é essência — uma individualização única e eterna da liberdade.
+Ela dispõe do seu próprio campo de possibilidades, do seu próprio relativo.
+
+>A alma não é um pássaro, não é um humano, não é um espectro.
+É tudo isso e, ao mesmo tempo, nenhuma dessas coisas.
+A alma é o centro pulsante de tudo aquilo que se realiza.
+
+>A forma da alma é a forma do seu coração.
+A alma é o coração que faz ser.
+É o coração daquilo que se faz.
 
 A alma, em sua essência livre, possui uma liberdade que transcende o corpo — uma liberdade que se manifesta em domínios específicos de atuação. 
 
