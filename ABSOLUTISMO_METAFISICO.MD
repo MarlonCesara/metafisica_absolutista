@@ -1847,7 +1847,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 Esta análise revela que:
 
 1.  **A não-dualidade não é monismo** - o Ser não é "um" contra "muitos"
-2.  **A multiplicidade não quebra a unidade** - os muitos "sous" são expressões do único Ser
+2.  **A multiplicidade não quebra o indiferenciado** - os muitos "sous" são expressões do único Ser
 3.  **A liberdade é real** - cada "sou" pode autodeterminar-se em relação ao Ser
 
 > _"Há um só corpo e um só Espírito, como também fostes chamados numa só esperança da vossa vocação; um só Senhor, uma só fé, um só batismo; um só Deus e Pai de todos, o qual é sobre todos, age por meio de todos e está em todos."_
@@ -1929,10 +1929,6 @@ Esta análise revela que:
 3.  **A fusão não anula a individualidade** - a comunhão perfeita preserva a diversidade.
 
 #### **§ 16.7 – Conclusão: A Comunhão dos Santos como Paradigma**
-
-A doutrina cristã da "comunhão dos santos" encontra aqui seu fundamento ontológico:
-
-> **Os santos não são almas separadas que se comunicam, mas expressões diversas do único Ser que se reconhecem mutuamente como participações da mesma plenitude.**
 
 A salvação não é fuga da individualidade, mas **a realização plena da individualidade em comunhão** - cada "sou" único participando conscientemente do Ser único.
 
