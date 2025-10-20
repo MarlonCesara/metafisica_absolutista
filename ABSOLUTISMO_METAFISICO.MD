@@ -3900,7 +3900,7 @@ Por isso, o niilista está constantemente preocupado com o que o outro está apr
 
 Portanto, o empregador niilista quer ver seus funcionários sem dinheiro e sobrecarregados. Sua preocupação nem sempre é com as finanças da empresa, mas com a possibilidade de que seus funcionários tenham uma sensação de satisfação que ele mesmo não possui.
 
-O niilista está sempre tentando se destacar em um patamar que o faça sentir-se rico interiormente, em concordância com os desejos mais profundos de seu intelecto: a vida eterna e suas infinitas possibilidades. Esse patamar precisa constantemente colocá-lo em posição de destaque em relação ao outro, para gerar um diferencial de potencial de ânimo que o faça sentir-se superior e momentaneamente satisfeito.
+O niilista está sempre tentando se destacar em um patamar que o faça sentir-se rico interiormente, em concordância com os desejos mais profundos de seu intelecto: a vida eterna e suas infinitas possibilidades. Esse patamar precisa constantemente colocá-lo em posição de destaque em relação ao outro, para gerar um diferencial de potencial de ânimo que o faça sentir-se superior e momentaneamente satisfeito. O terror que sente ao ver o outro em paz interior disfarça-se quando esse outro é submetido à pressão, à miséria ou à estagnação.
 
 #### **A sensação de pequenez**
 
