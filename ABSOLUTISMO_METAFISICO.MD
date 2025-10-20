@@ -1598,7 +1598,7 @@ Na tradição da Igreja Católica, a expressão de que o homem foi feito “à i
 
 Resumindo: na visão católica, **“imagem” diz respeito à essência espiritual e racional do homem; “semelhança” aponta para a perfeição moral e a comunhão com Deus que ele é chamado a desenvolver**.
 
-Sendo o homem possuidor da possibilidade de ser autodeterminador de si, tal como o Ser se autodetermina, temos uma característica predominante, a qual não torna o homem Deus, no sentido de identidade, mas o transforma em uma ramificação da liberdade absoluta. O homem é, assim, uma transcendência, uma criação da vontade reta e criadora.
+Sendo o homem dotado da capacidade de autodeterminar-se a si mesmo, à semelhança do modo como o Ser fundamental se autodetermina, revela-se uma característica essencial que, sem confundir o homem com o Ser em termos de identidade absoluta, o constitui precisamente como imagem viva do Divino. Desse modo, o homem participa da natureza do Ser, recebendo como dom primordial a liberdade criadora que o habilita a co-construir sua própria existência e a responder livremente ao chamado à plenitude.
 
 ##### **Não-Multiplicidade do Ser**
 - O Ser não porta unicidade ou multiplicidade, simplesmente é.
@@ -1607,7 +1607,7 @@ Sendo o homem possuidor da possibilidade de ser autodeterminador de si, tal como
 -   **Indiferença Ontológica:**
     O Ser transcende as categorias de unidade e multiplicidade. Ele não "é uno" nem "é múltiplo" - simplesmente *é*, anterior a qualquer determinação quantitativa. Realiza-se a própria transcendência da quantificação em sua indiferenciação, abarcando temporalmente todo o potencial de possibilidades inerentes ao Ser.
 
-**O sou é a manifestação pessoal e temporal do Ser**, no sentido de que **se expressa como um determinador livre**, mas **faz emergir uma possibilidade alheia a si como princípio determinador**. A isso chamaremos **homem** ou **alma do homem**.**O Sou**, nesse contexto, **é uma determinação do próprio Ser** – a qual pode determinar-se, não somente verticalmente mas horizontalmente.
+O "sou" constitui-se como uma manifestação realizada pelo Ser, que, em ato de liberdade primordial, concede a si mesmo a expressão de um determinador livre. Este, por sua vez, faz emergir no campo do real uma possibilidade distinta – um princípio determinador autônomo. A este princípio chamamos homem ou alma. O "Sou", portanto, é uma determinação inscrita no Ser, capaz de operar não apenas em alinhamento vertical com a sua fonte, mas também em expansão horizontal no domínio das possibilidades.
 
 #### **§ 14.3 – A Distinção entre Ser e Sou**
 
@@ -1667,7 +1667,7 @@ Portanto, a liberdade se orienta necessariamente para:
 
 Diante da morte física, compreendemos que o Ser nos criou **livres para o relativo**, e não meramente para o corpo. 
 
-Um relativo individual, correspondente a uma alma única, significa ainda uma individualização no próprio Ser, a qual o Ser transcende em identidade.
+Um relativo individual, correspondente a uma alma única, significa ainda uma individualidade no Ser, a qual o Ser transcende em identidade.
 
 Tudo que corresponda a uma individualização é transcendido pelo Ser, que não se reduz a uma unicidade. Assim, a identidade do Ser é transcendente a toda unidade. Isso não significa que o Ser não possa se fazer temporal, isto é, tornar-se um só, mas que sua determinação está sempre além de qualquer unidade de si.
 
@@ -1759,7 +1759,7 @@ Temos portanto, a auto determinação dotada de multiplicidade e liberdade na es
 
 Esta análise revela que:
 
-1.  **A natureza humana participa da natureza divina** - o "sou" humano é uma manifestação do Ser divino
+1.  **A natureza humana participa da natureza divina** - o "sou" humano é uma manifestação individualizada da liberdade no Ser divino
 2.  **A liberdade humana é real** - o homem pode escolher alinhar-se ou não com a plenitude do Ser
 3.  **A multiplicidade é compatível com a unidade** - muitos "sous" podem participar do único Ser
 
@@ -1782,7 +1782,7 @@ O "sou" humano não é uma ilusão ou imperfeição, mas **uma expressão person
 
 O Ser abrange:
 -   Infinitos fenômenos possíveis.
--   Infinitos determinadores (que se igualam ao Ser exceto em sua plenitude necessária e não multiplicidade (pureza absoluta).
+-   Infinitos determinadores, criados à imagem e semelhança do Ser, os quais participam de sua natureza livre e autodeterminante, embora não possuam sua plenitude             reta nem sua pureza absoluta e não-numérica.
 -   O incognoscível.
 -   O possível e o impossível.
 
