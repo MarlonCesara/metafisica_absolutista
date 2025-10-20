@@ -1557,9 +1557,8 @@ Assim, toda manifestação é, ao mesmo tempo:
 
 Esta análise revela que:
 
-1.  **A realidade é relacional** - não existe independentemente da relação entre Espírito e observador
-2.  **A forma é perspectival** - depende do ponto de vista do observador
-3.  **A identidade é contextual** - é determinada pelas relações específicas em cada situação
+1.  **A realidade é relacional** - não existe independentemente da relação entre Espírito e relativo
+2.  **A forma é perspectival** - depende da determinação do Espírito
 
 A dignidade da forma particular está precisamente em ser **expressão única do infinito** em um contexto específico, não uma "cópia imperfeita" de algum ideal separado.
 
@@ -1567,7 +1566,7 @@ A dignidade da forma particular está precisamente em ser **expressão única do
 
 #### **§ 14.1 – A Potencialidade Ilimitada do Ser**
 
-O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o Ser fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam. Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar-se como múltiplo. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
+O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam. Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar-se como múltiplo. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
 
 O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
