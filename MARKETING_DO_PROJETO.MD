@@ -43,7 +43,7 @@ Neo não hesitou, seu olhar era uma lança na penumbra.
 Morpheus pediu que Neo explicasse melhor sua conclusão.
 Neo entregou-lhe um datapad, onde um único arquivo piscava.
 
-👉 [ABSOLUTISMO](https://github.com/MarlonCesara/metafisica_absolutista/blob/main/ABSOLUTISMO.MD)
+👉 [ABSOLUTISMO](https://github.com/MarlonCesara/metafisica_absolutista/blob/main/ABSOLUTISMO_METAFISICO.MD)
 
 E começou a narrar, sua voz ecoando na sala metálica:
 
