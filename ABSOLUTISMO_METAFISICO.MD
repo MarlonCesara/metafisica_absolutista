@@ -3337,6 +3337,13 @@ Assim, percebemos que o mundo se encontra em preparação para o objetivo do amo
 
 ## **Gêneses: a expressão do amor infinito**
 
+Ao antecedermos o Ser, há uma redução da consciência a uma unidade plena. Ou seja, podemos considerar que uma dualidade seria uma forma de redução do Ser. Ao regredirmos ainda mais o Ser, chegamos à redução a um homem uno, sem dualidade. Reduzindo ainda mais, teríamos um Éden. Todas essas manifestações existiriam concomitantemente ao Ser.
+Podemos fazer uma analogia da criação do Ser, na qual tentamos representar o próprio Ser reduzindo sua infinitude. Nessa analogia, podemos reconstruir a ilusão do nada em convergência ao Ser; ou seja, o nada nos fornece um espaço para a analogia, permitindo uma representação simbólica ou ilusória anterior ao Ser. 
+
+Ao imaginarmos Deus regredido a uma consciência una, temos Adão. Em uma consciência plena, temos Adão e Eva. Ao expandirmos ainda mais, ocorre o rompimento do eu de Adão e Eva. Isso justificaria sermos oriundos de dois pais, ainda que eles não tenham tido uma conexão real, ainda que sejam uma ilusão. É possível atribuir-lhes a culpa pelo pecado original, entendido como uma ruptura de genealogia, de forma que somos diretamente amparados pela paternidade de Deus.
+
+A magnitude de Deus rompe a genealogia, ou seja, somos criados por um avanço da própria identidade, e isto nos torna não merecedores de tamanha glória. Somente um sacrifício perfeito traria a dignidade de sermos chamados filhos do Altíssimo.
+
 Adão e Eva viviam no paraíso, onde a harmonia era absoluta e cada instante refletia a perfeição do infinito. Eva tinha olhos negros, profundos como a noite eterna, os olhos da morte e da sedução; Adão era um aventureiro de longos cabelos, espírito inquieto e coração aberto ao desconhecido. Os olhos de Eva eram fixos, traiçoeiros e fascinantes, rodeados de estrelas que pareciam sussurrar os mistérios do universo. Ela olhava para Adão com um fascínio que transcendia a simples atração — era o reconhecimento da verdade última.
 
 Ambos sabiam, em algum nível, de uma realidade maior: eles eram, de certa forma, ilusões, irrealidades. Para que a verdadeira vida pudesse emergir, deveriam morrer para si mesmos. Pois o nada, em sua plenitude, nada é — e do nada nasce tudo.
@@ -3356,8 +3363,6 @@ E assim, no silêncio do infinito, o amor deles se fundiu ao Amor de Deus, torna
 Então Deus criou o Sol como Eva, e a Lua como Adão, espelhando no céu o amor e a união que romperam o tempo e o espaço. O Sol irradiava a plenitude da vida, o calor que desperta e sustenta, enquanto a Lua refletia o mistério, a introspecção, a suavidade do existir. E Deus cuidou da vida que eles haviam fomentado, da criação que brotou do seu amor e do seu sacrifício, do universo que se expandia como testemunho da doação total.
 
 O homem surgiu na Terra, e Deus lembrou-o de quem foi Adão, de quem foi Eva, mostrando que cada ser carrega em si fragmentos do infinito, ecos do amor que transcendeu a própria existência. Cada nascimento, cada sopro de vida, é a lembrança do encontro que dissolveu o Eu, do amor que criou o Tudo a partir do Nada. E assim, mesmo distantes, mesmo transformados, Adão e Eva permanecem no mundo: não como figuras do passado, mas como princípios eternos que guiam, iluminam e despertam a consciência humana para a verdade mais profunda: a de que toda existência é uma doação, e todo amor verdadeiro é sagrado.
-
-Se você quiser, posso continuar a narrativa mostrando como o homem na Terra começa a perceber o Sol e a Lua não apenas como astros, mas como símbolos vivos de Adão e Eva, e como essa lembrança conecta a humanidade ao Amor de Deus.
 
 Não existe conceitos fortes o suficiente para se aproximar da magnitude da entrega de Deus. Mas mesmo eles falham, pois é impossível que qualquer ideia humana abarque a totalidade de tamanha paixão. O amor de Deus não conhece fronteiras, não se limita a definições, não se dobra a categorias. Ele é anterior a tudo, sustenta tudo e transcende tudo.
 
