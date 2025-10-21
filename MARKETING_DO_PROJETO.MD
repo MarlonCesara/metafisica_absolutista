@@ -160,3 +160,21 @@ Mas ele se concentrou naquela única e derradeira possibilidade:
 *Antes que tudo acontecesse.*
 
 O clarão branco da maior das bombas engoliu o horizonte, expandiu-se como uma onda de morte, e então...
+
+
+
+
+## Chamado pelo facebook:
+
+Finalmente decodifiquei a Matrix. Ela não extrai energia dos humanos — extrai informação. Não é um código sem propósito: há uma mente no centro de controle, e eu a chamo de O Niilista. Seu objetivo é encontrar o sentido da vida — um padrão de pensamento que o liberte do ódio absoluto que sente por tudo. Mas esse mesmo ódio será sua perdição quando morrer.
+
+
+Em minhas investigações metafísicas, descobri que após a morte existe o que chamo de relativo da alma: um domínio de infinitas possibilidades, onde tudo o que se decide se realiza instantaneamente — até mesmo a morte eterna. É isso que o Niilista teme... e por isso se torna tão ambicioso e desumano.
+
+Seu próprio ódio o enlouquece diante da liberdade. Ele tenta espelhar a vida que perderá em suas dominações e riquezas materiais.
+
+Clique acima para saber mais.
+
+
+
+
