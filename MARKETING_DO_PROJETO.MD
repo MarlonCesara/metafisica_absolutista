@@ -49,7 +49,7 @@ E começou a narrar, sua voz ecoando na sala metálica:
 
 **CENA 3 – A GÊNESE DA SOMBRA**
 
-Antes da construção da Matrix, partidos de direita ganharam força global. O povo, despreparado, desconhecia o niilismo e acreditava nas boas intenções de seus líderes. A direita fortaleceu os bilionários, que, nas sombras, assumiram o poder global — e a humanidade ainda não compreendia a natureza e a sintomática niilista, a doença da alma que os motivava.
+Antes da construção da Matrix, partidos de direita ganharam força global. O povo, despreparado, desconhecia o niilismo e acreditava nas boas intenções de seus líderes da direita política. Isso fortaleceu os bilionários, que, nas sombras, assumiram o poder global — e a humanidade ainda não compreendia a natureza e a sintomática niilista, a doença da alma que os motivava.
 
 Os bilionários não buscavam apenas poder. Eles acreditavam, com a fé de fanáticos, que as pessoas comuns guardavam, em seus cérebros, o segredo da vida eterna — assim como os faraós acreditavam no poder da transfusão de sangue de escravos. A energia humana não era necessária para alimentar máquinas, mas para transmitir padrões de pensamento, emoções puras, que pudessem revelar um propósito que lhes concedesse a imortalidade. Queriam a cura do niilismo. Não conseguiram. E passaram a acreditar, obsessivamente, que a resposta estava codificada no próprio tecido neural humano.
 
