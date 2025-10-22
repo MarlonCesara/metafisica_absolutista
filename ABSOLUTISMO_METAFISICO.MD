@@ -3574,6 +3574,14 @@ Existem pontos em comum no niilista que independem do contexto histórico, e sã
 * Recusa em acreditar na própria liberdade.
 * Medo da liberdade diante da própria intenção.
 
+#### **Projeções niilistas do além-vida**
+
+O niilista projeta visões do seu além-vida em seu próprio comportamento, como se seu subconsciente gritasse silenciosamente por socorro social. A risada sombria e vazia, descrita no capítulo anterior, manifesta-se com frequência no modo de agir de bilionários e extremistas de direita — uma risada que simula uma eternidade desprovida de identidade, sustentada por uma felicidade artificial.
+
+Outro traço recorrente é a fala repetitiva, monótona e superficial — como se o indivíduo se colocasse, ainda em vida, em um estado de esquecimento interior, projetando aquilo que sua mente concebe como seu destino espiritual: um futuro de consciência vazia e despersonalizada.
+
+O ódio extremo amplifica medos profundos e distorce as conclusões lógicas, espirituais e empíricas do sujeito. Como consequência, ele passa a expressar comportamentos aparentemente sem propósito no cotidiano: tendência à opressão, obsessão pelo acúmulo de bens, conversas rasas centradas no sensorial, negação da própria sexualidade e outros mecanismos de fuga. Cada gesto é um eco do vazio que o domina por dentro.
+
 #### **A verdadeira riqueza**
 
 A verdadeira riqueza está inteiramente associada ao espírito. O indivíduo que se reconhece sem misericórdia e sem perdão tem sua autoestima e sua esperança corrompidos. Imagina-se no pior desterro, com o pior destino, e sente ruir seu próprio amparo interior. O indivíduo que atenta contra a liberdade e a vida do outro priva-se, inevitavelmente, de sua própria liberdade e de sua própria vida.
