@@ -1,26 +1,6 @@
 ## **ABSOLUTISMO METAFÍSICO**
 
-O Absolutismo representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Este sistema desenvolve-se a partir de uma perspectiva positiva, que busca projetar, da forma mais precisa possível, uma concepção da vida além da morte. Adianto que essa projeção revela-se notavelmente compatível, em diversos momentos, com os dogmas da Igreja Católica. Desse modo, a lógica, quando levada às suas últimas consequências, mostra-se, em grande parte, alinhada com vários princípios da fé cristã. Embora não se trate de um sistema lógico rigoroso no sentido mais estrito — seja do ponto de vista lógico, seja do dogmático — o Absolutismo avança até o ponto em que o rigor formal se esgota, recorrendo então a uma projeção positiva baseada na intuição filosófica.
-
-Em síntese, a intenção não é conectar totalmente a lógica com a fé, nem deduzir a realidade pós-morte com extremo rigor; o objetivo é conceber um sistema de crenças positivista, inspirado na revelação divina, centralizado em suas bases pela lógica e expandido através de uma intuição metafísica, seja fundamentada em dogmas, seja na própria filosofia.
-
-**Princípios Fundamentais:**
-- **Expansão da Lógica Aristotélica**: O sistema identifica e preenche uma lacuna crucial na lógica tradicional, propondo o **Princípio da Não-Disformidade** como complemento temporal necessário ao Princípio da Identidade, estabelecendo assim uma estrutura lógica completa para descrever a realidade em seu devir.
-- **Quadro Causal Integral**: Deriva quatro princípios causais metafísicos que explicam tanto a existência quanto a identidade dos entes, oferecendo uma fundamentação completa para a investigação ontológica.
-- **Arquitetura do Absoluto**: Desenvolve uma categorização rigorosa dos domínios do possível, impossível e incognoscível, mapeando os limites do pensamento racional e abrindo espaço para a transcendência.
-
-**Desenvolvimento Metafísico:**
-O sistema avança progressivamente desde os alicerces lógicos até as consequências mais profundas:
-1. **Autocausalidade Divina**: Demonstra como o Absoluto necessariamente se autofunda, autodetermina e autosustenta, revelando uma natureza pessoal que transcende as categorias convencionais de ser e não-ser.
-2. **Estrutura Trinitária**: Explica a doutrina cristã da Trindade como expressão máxima da autoconsciência e autodeterminação divinas, correlacionando as Pessoas divinas com dimensões específicas da ação autocausal.
-3. **Ontologia Relacional**: Descreve a criação como ato de autodoação divina, onde o "Ser" fundamenta e transcende infinitos "sous" (pessoas) que participam livremente da realidade divina.
-
-**Metodologia:**
-O Absolutismo opera como um sistema filosófico que:
-- Avança o máximo possível através do rigor lógico formal
-- Recorre à intuição filosófica onde a lógica pura se esgota
-- Mantém coerência interna em todos os níveis de sua arquitetura
-- Oferece uma visão integrada que conecta lógica, metafísica e teologia
+O Absolutismo representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Este sistema desenvolve-se a partir de uma perspectiva positiva, que busca projetar, da forma mais precisa possível, uma concepção da vida além da morte. 
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
