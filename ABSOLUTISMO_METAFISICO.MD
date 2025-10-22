@@ -1,6 +1,10 @@
 ## **ABSOLUTISMO METAFÍSICO**
 
-O Absolutismo representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Este sistema desenvolve-se a partir de uma perspectiva positiva, que busca projetar, da forma mais precisa possível, uma concepção da vida além da morte. 
+O Absolutismo representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Trata-se de uma visão que se desenvolve a partir de uma perspectiva afirmativa, buscando projetar, da forma mais precisa possível, uma concepção racional e coerente da vida além da morte.
+
+Para além dessa fundamentação, o sistema se propõe a enfrentar um dos impasses psicológicos centrais da modernidade: a compreensão da psicologia por trás do fascismo, da frieza moral de certas elites econômicas e da adesão cega de massas a ideologias desumanizadoras. O Absolutismo busca responder a questões perturbadoras: o que leva figuras bilionárias a causar miséria sem demonstrar empatia? Por que existem aqueles que exploram seus semelhantes e apoiam fanaticamente causas de extrema-direita?
+
+Ao oferecer uma visão panorâmica da alma humana, o Absolutismo investiga os mecanismos mentais e espirituais que conduzem à perda da própria humanidade. A tese central é que a raiz dessa patologia reside no ódio absoluto internalizado. O sistema descreve a manifestação sintomática desse ódio — tanto no corpo quanto na consciência —, mostrando como ele distorce a percepção de realidade do indivíduo e corrompe seu propósito de vida. O resultado é uma existência obsessiva, voltada para a acumulação de riquezas, a busca por status e a opressão do outro.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
