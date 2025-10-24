@@ -3574,6 +3574,15 @@ Existem pontos em comum no niilista que independem do contexto histórico, e sã
 * Recusa em acreditar na própria liberdade.
 * Medo da liberdade diante da própria intenção.
 
+
+#### **O comportamento niilista**
+
+O ódio do niilista nem sempre é visível, porém esse ódio — que o leva a desejar o próprio fim — manifesta-se de formas particulares, provocando sintomas no corpo humano. O ódio, em sua essência, não precisa estar direcionado a outro, pois tem origem em um âmbito espiritual. Espelhado no corpo, ele nem sempre gera ação, mas conduz invariavelmente a uma postura interior de recusa e relutância constantes.
+
+Em sua forma consumada, o ódio leva o indivíduo a tentativas de suicídio e a comportamentos que expressam suas projeções do além-vida. Ou seja, o ódio possui uma sintomatologia de ação — resultante do ato de inclinar-se a ele — e outra por contê-lo. Ambas as modalidades serão descritas.
+
+A expressão do ódio consumado é um atentado contra a própria vida; já a expressão do ódio em si manifesta-se em obsessões e delírios, como a fixação por posses materiais e poder. Essas manifestações nascem das projeções que o indivíduo faz de seu além-vida ou mesmo como fuga inconsciente diante de sua decisão interior de relutar contra a própria existência.
+
 #### **Projeções niilistas do além-vida**
 
 O niilista projeta visões do seu além-vida em seu próprio comportamento, como se seu subconsciente gritasse silenciosamente por socorro social. A risada sombria e vazia, descrita no capítulo anterior, manifesta-se com frequência no modo de agir de bilionários e extremistas de direita — uma risada que simula uma eternidade desprovida de identidade, sustentada por uma felicidade artificial.
