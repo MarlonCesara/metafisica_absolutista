@@ -3595,11 +3595,13 @@ Outro traço recorrente é a fala repetitiva, monótona e superficial — como s
 
 O ódio extremo amplifica medos profundos e distorce as conclusões lógicas, espirituais e empíricas do sujeito. Como consequência, ele passa a expressar comportamentos aparentemente sem propósito no cotidiano: tendência à opressão, obsessão pelo acúmulo de bens, conversas rasas centradas no sensorial, negação da própria sexualidade e outros mecanismos de fuga. Cada gesto é um eco do vazio que o domina por dentro.
 
-#### **O Colapso Niilista**
+#### **O Colapso niilista**
 
 Primeiramente, o ódio exige uma retaliação compatível com a dor causada no indivíduo. Não havendo perdão após a retaliação, o ódio pede mais — cada vez mais — até desejar a própria vida daquele que odeia. A retaliação nunca é suficiente sem a compaixão por aquele de quem se vinga. Se não houve compaixão antes da vingança, talvez não haja depois de realizada. A vingança torna-se, então, um sentimento egoísta, que não busca saciedade, mas sim a repetição.
 
 O ódio, quando direcionado à ação, busca saciar-se. Quando nem mesmo a ação o aplaca, o ódio tende a colapsar sobre o próprio indivíduo. Numa perpétua vingança, a saciedade completa só é alcançada na destruição de quem a prática. A satisfação do sentimento vingativo ocorre na anestesia total dos sentimentos. O ódio, enquanto emoção, só encontra alívio no perdão. A vingança, por sua vez, corrói ainda mais aquele que a pratica, transformando-o em alguém desprovido de sabedoria, com uma autoimagem destrutiva. Portanto, a obsessão pela vingança culmina, em seu estágio mais intenso, no colapso do próprio indivíduo, que consome a si mesmo no ato de vingar-se.
+
+E é nesse colapso que o ódio torna-se desespero, pois se volta contra o próprio indivíduo que o carrega. O ódio intenso afeta toda a existência, de forma que tende a sucumbi-la em si mesma, tal como uma estrela que sucumbe em um buraco negro, deixando somente um vestígio escuro de quem fora. Nesse estágio, o indivíduo já não busca exatamente a vingança, mas findar a sua própria vida, e seus atos passam a ser desmedidos, pois agora respondem não somente ao ódio, mas também à loucura, a uma patologia. Seus pensamentos já não têm apenas o desejo da vingança, mas também o temor de si mesmo. A expressão de ódio passa a ser, igualmente, uma expressão de socorro; o querer da retaliação medida torna-se uma expressão desmedida e não parametrizada. Se antes o indivíduo queria ofender alguém que o ofendeu, a partir da visão de seu colapso passa a querer ofender a todos como expressão de seu infortúnio. O ódio, portanto, quando colapsa sobre o próprio indivíduo que o conserva, escapa à própria medida da vingança e se finda em loucura. E é essa loucura que vamos explorar.
 
 “Todos os que lançarem mão da espada, à espada morrerão.”
 
