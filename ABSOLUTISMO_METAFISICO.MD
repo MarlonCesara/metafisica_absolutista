@@ -4114,6 +4114,13 @@ Uma organização começa com a posse de um conhecimento avançado, meio de prod
 
 O ódio, quando se transforma em loucura, provém de indivíduos fracos, que não conseguem se sustentar. Que se veem frágeis, chorosos. O niilismo era a promessa de uma vingança que se tornou loucura e choro — enfraqueceu tanto um grupo que agora este destrói a si mesmo e pede socorro. O ódio afoga o niilista, e ele estende a mão para que alguém o tire de sua própria tempestade e perdição.
 
+A intenção dos apoiadores do ódio é ver o outro na miséria, em estado de privação, e escarnecer disso. Porém, o ódio colapsado transgride o conceito de saciação em ver o sofrimento do outro e torna-se a tentativa de obter a cura — o desejo pela cura que está no outro. A intenção deixa de ser a execução do ato de descarga do ódio e passa a ser o desejo do livramento dele. Se antes fazer o outro sofrer era importante, o niilista passa a perceber uma urgência maior: livrar-se do próprio sofrimento.
+Quando a expressão do ódio não o finda, e esse ódio começa a ameaçar a integridade do próprio indivíduo, este passa a objetivar a saciação completa de seu ódio — a cura definitiva.
+
+E é nesse momento que o desejo por bens materiais torna-se obsessão. Se antes uma certa quantia de dinheiro já servia como objeto de ataque, agora é necessária uma quantia enorme para saciar a loucura de estar atentando contra a própria vida numa postura interior. Se antes bastava causar uma dor física ao outro, agora é preciso ameaçá-lo de morte para que ele transmita a cura. Se antes bastava provocar pobreza e miséria na vida financeira do outro, agora é necessário provocar uma escassez total, até deixar o outro em pele e osso, para que ele entenda a dor niilista e ofereça a solução. O próprio ato de ódio não está à medida do ódio colapsado e nunca estará.
+
+Vamos citar o maior exemplo: a crucificação de Jesus. Ainda que Jesus tenha oferecido toda a sua dor, isso não saciou o desejo niilista por vingança. Isto é prova de que a vingança do niilista não se sacia com a dor. De nada adianta dar ao niilista o próprio sofrimento, pois o que ele quer está além do sofrimento: é o amor — o sentido de amar, relevar, perdoar, aceitar o mundo como ele é.
+
 #### **As almas do purgatório**
 
 O purgatório não tem niilistas, as almas do purgatório são indivíduos de fortes paixões que se relacionam à ira. Se deixavam levar por acontecimentos em vida que tiravam sua sanidade, que os faziam infligir sofrimento sobre si mesmos. A alma do purgatório não tinha tanto desejo de dominação, controle ou tanto desespero, sintomas de mania por busca de respostas. Mas tinha um ódio cego, um ódio direcionado à sociedade e a si mesma. Procurava a satisfação da vingança de forma a tentar encontrar a paz.
