@@ -3595,6 +3595,14 @@ Outro traço recorrente é a fala repetitiva, monótona e superficial — como s
 
 O ódio extremo amplifica medos profundos e distorce as conclusões lógicas, espirituais e empíricas do sujeito. Como consequência, ele passa a expressar comportamentos aparentemente sem propósito no cotidiano: tendência à opressão, obsessão pelo acúmulo de bens, conversas rasas centradas no sensorial, negação da própria sexualidade e outros mecanismos de fuga. Cada gesto é um eco do vazio que o domina por dentro.
 
+#### **O Colapso Niilista**
+
+O ódio, quando direcionado à ação, busca saciar-se. Quando nem mesmo a ação o aplaca, o ódio tende a colapsar sobre o próprio indivíduo. Numa perpétua vingança, a saciedade completa só é alcançada na destruição de quem a prática. A satisfação do sentimento vingativo ocorre na anestesia total dos sentimentos. O ódio, enquanto emoção, só encontra alívio no perdão. A vingança, por sua vez, corrói ainda mais aquele que a pratica, transformando-o em alguém desprovido de sabedoria, com uma autoimagem destrutiva. Portanto, a obsessão pela vingança culmina, em seu estágio mais intenso, no colapso do próprio indivíduo, que consome a si mesmo no ato de vingar-se.
+
+“Todos os que lançarem mão da espada, à espada morrerão.”
+
+— Mateus 26:52 (Bíblia Sagrada, Almeida Corrigida Fiel)
+
 #### **A verdadeira riqueza**
 
 A verdadeira riqueza está inteiramente associada ao espírito. O indivíduo que se reconhece sem misericórdia e sem perdão tem sua autoestima e sua esperança corrompidos. Imagina-se no pior desterro, com o pior destino, e sente ruir seu próprio amparo interior. O indivíduo que atenta contra a liberdade e a vida do outro priva-se, inevitavelmente, de sua própria liberdade e de sua própria vida.
