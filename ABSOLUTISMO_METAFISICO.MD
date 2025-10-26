@@ -3597,6 +3597,8 @@ O ódio extremo amplifica medos profundos e distorce as conclusões lógicas, es
 
 #### **O Colapso Niilista**
 
+Primeiramente, o ódio exige uma retaliação compatível com a dor causada no indivíduo. Não havendo perdão após a retaliação, o ódio pede mais — cada vez mais — até desejar a própria vida daquele que odeia. A retaliação nunca é suficiente sem a compaixão por aquele de quem se vinga. Se não houve compaixão antes da vingança, talvez não haja depois de realizada. A vingança torna-se, então, um sentimento egoísta, que não busca saciedade, mas sim a repetição.
+
 O ódio, quando direcionado à ação, busca saciar-se. Quando nem mesmo a ação o aplaca, o ódio tende a colapsar sobre o próprio indivíduo. Numa perpétua vingança, a saciedade completa só é alcançada na destruição de quem a prática. A satisfação do sentimento vingativo ocorre na anestesia total dos sentimentos. O ódio, enquanto emoção, só encontra alívio no perdão. A vingança, por sua vez, corrói ainda mais aquele que a pratica, transformando-o em alguém desprovido de sabedoria, com uma autoimagem destrutiva. Portanto, a obsessão pela vingança culmina, em seu estágio mais intenso, no colapso do próprio indivíduo, que consome a si mesmo no ato de vingar-se.
 
 “Todos os que lançarem mão da espada, à espada morrerão.”
