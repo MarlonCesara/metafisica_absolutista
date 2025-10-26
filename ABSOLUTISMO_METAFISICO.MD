@@ -4099,6 +4099,19 @@ Assim, o grande paradoxo se desvela: a miséria do mundo não é uma questão de
 
 A solução, então, não está apenas em novos sistemas económicos ou tecnológicos, mas numa inteligência que nos permita **isolar e erradicar de nossas estruturas sociais a semente do ódio niilista – a verdadeira raiz de toda miséria sistêmica.** Conhecer o niilista é mais importante do que desenvolver novas tecnologias. 
 
+
+#### **O niilismo moderno nas grandes organizações**
+
+Tudo começa com uma vantagem usada de forma agressiva, seja na posse do conhecimento, no domínio da tecnologia ou na contenção dos meios de produção. A primeira ação de organizações, grupos ou políticas escravistas é obter uma vantagem que possibilite a coação de outros seres humanos.
+
+Nesse ínterim, o propósito inicial seria descarregar o sentimento de ódio pelo outro, numa postura infantil de quem tem mais ou é mais favorecido. Ou seja: o propósito inicial do niilista é achar saciedade para sua insatisfação — falta de sabedoria, falta de conformidade com fatos e acontecimentos, até mesmo uma insatisfação com a própria ação niilista vinda de outrem.
+
+Porém, nessa aparente busca de vingança, surge o niilismo colapsado. Ambas as coisas se misturam, tornando-se uma reação de ódio desmedida e desparametrizada. Na guerra, por exemplo, reverbera uma loucura disseminada e já não há mais um objetivo específico ou um alvo. A promessa da vingança niilista é a saciedade — o sentimento de satisfação ao ver outrem experimentando sofrimento ou dor —, porém o niilismo apoiado por um grupo foge ao ódio convencional.
+
+Politicamente, a direita é um grupo que, inicialmente, quer ver o mais pobre sofrer e trabalhar mais; porém, isso, quando tomado de forma grupal, pode culminar em loucura, na queda da democracia, ou até na guerra e destruição do mundo. O ato niilista, portanto, é a superação da vingança — do “olho por olho, dente por dente” — que chega à desparametrização da própria ação, resultando num colapso do agir que antes era programado. O ódio não termina na violência; tem seu término em um abismo.
+
+Uma organização começa com a posse de um conhecimento avançado, meio de produção ou qualquer outra vantagem que force o outro a uma condição escravista e que dê vantagem ao detentor. Mais apoiadores niilistas se juntam, formando um grupo de apoio à opressão. Essa instituição cresce e começa a disseminar manipulação: compra pessoas, adquire mais meios de coação como armas, posiciona aliados na política, fomenta guerras e manipulação midiática. Assim, apoiadores do ódio sustentam a propaganda niilista esperando encontrar saciação, formando uma militância ou um partido de direita que, inicialmente, aparenta ser político, mas é totalmente voltado para a rápida ou lenta destruição da sociedade. A direita, nesse quadro, é uma não-política; uma bandeira decadente. Tende à destruição, tende a uma força desmedida de ódio.
+
 #### **As almas do purgatório**
 
 O purgatório não tem niilistas, as almas do purgatório são indivíduos de fortes paixões que se relacionam à ira. Se deixavam levar por acontecimentos em vida que tiravam sua sanidade, que os faziam infligir sofrimento sobre si mesmos. A alma do purgatório não tinha tanto desejo de dominação, controle ou tanto desespero, sintomas de mania por busca de respostas. Mas tinha um ódio cego, um ódio direcionado à sociedade e a si mesma. Procurava a satisfação da vingança de forma a tentar encontrar a paz.
