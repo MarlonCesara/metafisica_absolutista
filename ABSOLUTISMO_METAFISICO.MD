@@ -3372,6 +3372,12 @@ Adão e Eva se dissolveram na infinitude, tornando-se o alimento de sua própria
 
 O Éden era um lugar perfeito porque não havia liberdade, não havia escolha. A ilusão protegia contra a morte. Adão e Eva, ao evitarem gerar uma prole no paraíso, deram início à quebra da ilusão — aquela que poderia gerar a verdadeira vida. Renderam-se ao todo, assim como o nada se rende ao existir. Então conheceram o bem e o mal, conheceram a morte — e, pela auto-supressão do nada, contrastaram o próprio existir. Adão e Eva eram o nada, a ilusão que só pode ser referida de forma aproximada. A ilusão é o que mais se aproxima do nada.
 
+A representação de Adão e Eva é uma poderosa metáfora para expressar o Ser em sua relação mais próxima com o humano. Também revela o amor do Ser — um amor que colapsa sobre si mesmo em direção ao infinito.
+
+Se fosse uma dualidade, esse amor romperia até mesmo o eu e o encontro, em favor do existir. O Ser é tão perfeito que, ao se fazer Adão e Eva, um casal primordial, renunciaria não apenas um ao outro, mas também o próprio eu, em benefício do homem.
+
+Adão e Eva são metáforas que nos dão visão para um amor devastador, um amor inviolável — um amor em favor do homem. Um amor que não se limita a ser pai e mãe da humanidade, mas se faz divindade perfeita.
+
 O homem herdou o pecado no sentido de ter recebido a corrupção genealógica deixada por Adão e Eva. Herdou a capacidade de viver e de morrer — herdou, portanto, de forma metafórica, pois a ilusão nada é. O homem conserva uma corrupção não causada, simbolizada por Adão e Eva, mas que existe e exigiu uma justificativa. Como poderia o homem ser filho direto do divino? Como tamanha discrepância poderia existir sem uma perfeita oferenda? Como o homem, corruptível, poderia ser herdeiro do incorruptível? Como poderia fazer pleno uso de sua liberdade sem antes ser justificado? Deus nos fez merecedores de tamanha glória: a de sermos chamados filhos do Altíssimo.
 
 ## **Um encontro com o Mestre**
