@@ -4021,6 +4021,19 @@ Dar a cara a tapa não significa prostração, mas reconhecer que a atitude niil
 
 Quando o niilista já não encontra mais sua expressão na política ou na opressão social, ele passa a manifestar-se por meio da violência contra si mesmo. O indivíduo niilista busca simbolizar a todo custo o seu acontecimento, atentando contra o próprio corpo. Diversas formas aleatórias de expressão podem surgir, como suicídios, simbologias niilistas, automutilações ou transformações corporais. Isso ocorre porque o sentimento niilista procura desesperadamente se externalizar — não apenas como um ato de ódio, mas como um alerta do corpo de que algo está profundamente errado no indivíduo.
 
+#### **O ódio do niilista**
+
+O ódio do niilista não é apenas uma aparente revolta, um ódio indeciso, mas, por vezes, parece um ódio firme como uma rocha. Um coração tão duro que rejeita firmemente qualquer compaixão de si ou arrependimento. O ódio do niilista não o faz apenas rejeitar, mas escarnecer de si mesmo, cuspir ou realizar qualquer ato que demonstre uma rejeição absoluta ao próprio existir. Não é simplesmente uma decisão temporária, mas um coração vitrificado, que torna sua rejeição tão grande quanto a dor de partir. É um ódio inconsolável, uma tendência quase irreversível — uma certeza rochosa que se petrificou pela ausência do amor que pudesse amolecer o coração.
+
+O ódio do niilista é uma certeza cravejada por uma ferida viva que o atormenta dia e noite, mas que é mascarada pelo tamanho de seu ódio gratuito.
+
+O niilista zomba da esperança, cospe em sinal de rejeição e chama de fraco quem não tem ódio. Não se julga digno de pena; vê-se num caminho de orgulho, ao passo que teme e vive assombrado por si mesmo. Não encontra porto seguro em si e tenta desconectar-se de seus próprios pensamentos, buscando refúgio em um estilo de vida superficial.
+
+Evita a profundidade das grandes paixões, a harmonia instaurada, a paz continuada, o silêncio profundo e qualquer consolação ou sentimento que interfira em seu ódio obstinado — em seu coração petrificado, que não sente sequer compaixão de si, que nem mesmo deseja recordar seus sonhos.
+
+O niilista enterra seus sonhos, priva-se das amizades, castra sua sexualidade e isola a própria alma. O niilista se afugenta, esconde-se da luz das alegrias, refugiando-se na penumbra da solidão — nos becos e ruelas da vida, em amizades sombrias, em situações torpes. O niilista se oculta da luz, das cores, da vida.
+
+
 #### **O Fim dos Tempos e o niilismo**
 
 Será o momento em que as lutas sociais atingirem seu êxito final. Quando os poderosos caírem de seus tronos. Quando todas as formas de opressão desmoronarem e não restar qualquer resquício de desigualdade estrutural. Quando o patamar sobre o qual o niilismo se escondia — camuflado pela normalidade da ordem social injusta — for removido.
