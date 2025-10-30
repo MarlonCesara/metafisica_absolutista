@@ -186,4 +186,23 @@ Em minhas investigações metafísicas, descobri que após a morte existe o que 
 
 Seu próprio ódio o enlouquece diante da liberdade. Ele tenta espelhar a vida que perderá em suas dominações e riquezas materiais.
 
+A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global.
+
+Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
+
+Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada.
+
+A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
+
+
+
 Clique acima para saber mais.
+
+
+
+
+A Matrix foi construida porque a humanidade desconhecia o que realmente é o niilismo. A humanidade ainda não imaginava até onde é possível ir a loucura do niilista. A existencia de bilionarios e ate trilhonarios niilistas, os possibilitou patrocinar pesquisas cientificas e tecnologicas, que deram e eles uma arma muito mais poderosa que bombas atomicas, uma I.A.N com inteligencia artificial neural. Uma tecnologia recem descoberta nas mãos de uma elite dá a eles o potencial de dominar o mundo. Portanto, o dinheiro nas maos de poucos não causa somente miseria, mas é algo extremamente perigoso.
+
+Lentamente um trilhonário chamado Ellon Musk dominou o monopolio tecnologico do mundo, tinha as maiores redes de comunicação alem da tecnologia mais avançada. Sem que seja previvel misteriosamente os partidos democraticos começaram a se enfraquecer, as redes sociais foram sendo derrubadas, ninguém entendia o que estava acontecendo. Sem que ninguém esperasse, toda essa loucura começou a se formar...guerras, miséria, dominação, até chegar na matrix. 
+
+Um centro de estudo neural, uma experiencia maniaca de um grupo de elite, que tem como lider uma pessoa: o niiliista. 
