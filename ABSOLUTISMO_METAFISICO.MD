@@ -3141,6 +3141,12 @@ O niilismo tem apenas uma origem: a falta de amor. O indivíduo pode criar inúm
 
 O individuo, se forçado a refletir sobre sua dura posição, não encontra a resposta sobre o motivo de seu ódio. E a resposta que não encontra é somente o amor. O niilista se enche de complexidades mentais se forçado a refletir, e não encontra a mais simples da resposta que é amar. Era sempre uma equação de orgulho ferido: recusavam-se a dobrar-se, a perdoar, a recomeçar. Preferiam carregar seu ódio como, convencidos de que sua dor os fazia especiais, diferentes, únicos.  E quando, enfim, chegavam ao relativo e se viam diante de uma realidade onde tudo era possível — exceto continuar mentindo para si mesmos —, escolhiam o último ato de rebeldia: deixar de ser.  
 
+## **A alma niilista no relativo**
+
+Em vida, o niilista tenta guardar seu ódio em segredo. Conserva a sua existência na vida de barro, muitas vezes não por desejar a dor ou o terror, mas por buscar o autoesquecimento. Foi capaz, portanto, de esperar toda uma vida num rito de luto e, ao chegar ao relativo — livre de todos os instintos, à mercê apenas de suas aspirações — pôde alcançar a morte eterna sem passar pelo processo da morte física, sem enfrentar o terror ou o medo.
+
+Se tivesse tido essa escolha em vida, tê-la-ia tomado, mas precisou esperar que o corpo padecesse sozinho, pois não queria o sofrimento — já que até mesmo o sofrimento é vida. Passou a existência de ouvidos fechados para as coisas boas, tentando manter-se firme em sua intenção, pois, de alguma forma, sabia que sem o corpo seria mais fácil. O corpo foi projetado para se defender, para sofrer quando há o pensamento niilista; mas a alma é livre até mesmo desse sofrer.
+
 ## **A Mudança das Almas: O Processo Contínuo de Purificação e a Dinâmica do Juízo**
 
 Num insight tão claro quanto as águas do rio celestial, o filósofo entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
@@ -3587,7 +3593,6 @@ Existem pontos em comum no niilista que independem do contexto histórico, e sã
 * Desejo de explorar os limites do ódio em todas as possibilidades.
 * Recusa em acreditar na própria liberdade.
 * Medo da liberdade diante da própria intenção.
-
 
 #### **O comportamento niilista**
 
