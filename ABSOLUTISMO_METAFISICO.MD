@@ -3869,9 +3869,7 @@ O niilismo não diferencia classe social nem gênero. Mulheres que largam o espo
 
 As formas de obter dinheiro tornam-se criativas e variadas na sintomática niilista, não sendo limitadas a nenhum tipo de padrão. O niilismo está na camada mais alta da sociedade — tanto entre os mais ricos quanto entre os marginalizados que aceitam o crime, não em protesto contra a pobreza, mas como expressão do niilismo.
 
-Quando a sociedade compreende o sentimento niilista — a loucura do acúmulo de bens e da perseguição desenfreada por dinheiro — como uma doença, torna-se mais fácil entender a base dos problemas sociais: o acúmulo de capital. E, através da resolução desse problema, é possível tratar com mais sensibilidade o niilismo contido no convívio social, como o tráfico de drogas e a violência urbana. Portanto, entender a psicologia do niilismo ajuda a desarticular as grandes diferenças sociais, o que pode reduzir drasticamente a ação niilista.
-
-A expressão do niilismo ganha menos recursos, menos armas, menos financiamento, e, ao contrário de força, ganha oposição social — o que enfraquece o niilismo e faz o ser humano questionar o próprio ódio diante de uma sociedade justa.
+Quando a sociedade compreende o sentimento niilista — a loucura do acúmulo de bens e da perseguição desenfreada por dinheiro — como uma doença, torna-se mais fácil entender a base dos problemas sociais: o acúmulo de capital. E, através da resolução desse problema, é possível tratar com mais sensibilidade o niilismo contido no convívio social, como o tráfico de drogas e a violência urbana. Portanto, entender a psicologia do niilismo ajuda a desarticular as grandes diferenças sociais, o que pode reduzir drasticamente a ação niilista. A expressão do niilismo ganha menos recursos, menos armas, menos financiamento — o que enfraquece o niilista, fazendo-o questionar o próprio ódio tendo diante de si uma sociedade justa.
 
 #### **A conversão dos niilistas**
 
