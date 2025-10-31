@@ -4051,7 +4051,6 @@ Evita a profundidade das grandes paixões, a harmonia instaurada, a paz continua
 
 O niilista enterra seus sonhos, priva-se das amizades, castra sua sexualidade e isola a própria alma. O niilista se afugenta, esconde-se da luz das alegrias, refugiando-se na penumbra da solidão — nos becos e ruelas da vida, em amizades sombrias, em situações torpes. O niilista se oculta da luz, das cores, da vida.
 
-
 #### **O Fim dos Tempos e o niilismo**
 
 Será o momento em que as lutas sociais atingirem seu êxito final. Quando os poderosos caírem de seus tronos. Quando todas as formas de opressão desmoronarem e não restar qualquer resquício de desigualdade estrutural. Quando o patamar sobre o qual o niilismo se escondia — camuflado pela normalidade da ordem social injusta — for removido.
@@ -4118,7 +4117,6 @@ O niilista não consegue se manter frio, implacável, insensível ou impassível
 
 A sintomática do niilista, a princípio, parece uma arma em favor dele; mas, compreendido o mecanismo do niilismo, torna-se uma arma em prol da sociedade, permitindo identificar tais pessoas por seu posicionamento interior. O que está oculto, por meio da manifestação sintomática do comportamento niilista, revela-se de forma clara e torna-se compreensível. O niilismo, portanto, quando manifestado no humano, não passa impassível pelo filtro do bom senso do corpo, que o expõe escancaradamente à sociedade. Só não é revelado quando o comportamento do niilista ainda se encontra de forma difusa no entendimento das ciências psicológicas e metafísicas. 
 
-
 #### **A busca do niilista pela felicidade**
 
 O indivíduo niilista, por não compreender com exatidão sua própria concepção de vida e postura interior, disfarça seus verdadeiros pensamentos e intenções sob o pretexto de buscar o sentido da existência. Mas não há sentido em procurar um significado naquilo que já é, por si mesmo, o próprio significado.
@@ -4146,7 +4144,6 @@ Esta patologia, esta “loucura do ódio” como a define o texto, é a força m
 Assim, o grande paradoxo se desvela: a miséria do mundo não é uma questão de escassez, mas de direcionamento da consciência. Enquanto as formigas canalizam seu instinto para a vida, **uma humanidade cujos sistemas foram em parte corrompidos pelo niilismo** canaliza sua inteligência superlativa para a negação da vida. O problema, portanto, não é que sejamos menos inteligentes que as formigas, mas que **nossa inteligência coletiva pode ser sequestrada por uma patologia da alma que, mesmo minoritária, nos leva a construir, coletivamente, o nosso próprio formigueiro invertido: uma sociedade onde a fome de sentido de alguns gera a fome de pão de muitos.**
 
 A solução, então, não está apenas em novos sistemas económicos ou tecnológicos, mas numa inteligência que nos permita **isolar e erradicar de nossas estruturas sociais a semente do ódio niilista – a verdadeira raiz de toda miséria sistêmica.** Conhecer o niilista é mais importante do que desenvolver novas tecnologias. 
-
 
 #### **O niilismo moderno nas grandes organizações**
 
