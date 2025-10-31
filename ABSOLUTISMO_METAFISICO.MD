@@ -4118,6 +4118,13 @@ O niilista não consegue se manter frio, implacável, insensível ou impassível
 
 A sintomática do niilista, a princípio, parece uma arma em favor dele; mas, compreendido o mecanismo do niilismo, torna-se uma arma em prol da sociedade, permitindo identificar tais pessoas por seu posicionamento interior. O que está oculto, por meio da manifestação sintomática do comportamento niilista, revela-se de forma clara e torna-se compreensível. O niilismo, portanto, quando manifestado no humano, não passa impassível pelo filtro do bom senso do corpo, que o expõe escancaradamente à sociedade. Só não é revelado quando o comportamento do niilista ainda se encontra de forma difusa no entendimento das ciências psicológicas e metafísicas. 
 
+
+#### **A busca do niilista pela felicidade**
+
+O indivíduo niilista, por não compreender com exatidão sua própria concepção de vida e postura interior, disfarça seus verdadeiros pensamentos e intenções sob o pretexto de buscar o sentido da existência. Mas não há sentido em procurar um significado naquilo que já é, por si mesmo, o próprio significado.
+
+O niilismo, muitas vezes, é apenas um eufemismo para a expressão “busca da felicidade” — ou para a tentativa de encontrar um propósito para viver. Essa busca pela felicidade encobre uma postura interior: o esforço de convencer-se da gratidão pela vida. É o reflexo de uma alma que anseia por consolo, que deseja reencontrar-se consigo mesma e descobrir um “eu” que aceita o existir — em vez de um “eu” que se rejeita.
+
 #### **A mudança social**
 
 No intricado mundo de um formigueiro, reina uma harmonia funcional que desafia a lógica do mais forte. Dentro daquela sociedade minúscula e organizada, não há lugar para a fome coletiva. Cada formiga, guiada por um instinto cego e infalível, trabalha não para si, mas para o todo. Elas constroem um sistema de cooperação onde a colheita, o armazenamento e a distribuição de alimentos são processos perfeitos, garantindo a sobrevivência da colônia. É uma inteligência coletiva que prioriza o bem-estar comum acima de qualquer ambição individual.
