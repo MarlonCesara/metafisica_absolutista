@@ -4413,3 +4413,17 @@ Os males do mundo emanam de uma criança que chora, originários do medo, da cov
 ### **A Alegria ante a Infinitude**
 
 Os niilistas ameaçam apagar sua identidade única do mundo — uma identidade irreplicável, que jamais poderá ser reconstituída. No entanto, ainda assim, deve prevalecer a alegria, pois existem infinitas outras identidades, vidas e possibilidades esperando para florescer. **A alegria diante da infinitude de seres vivos e possíveis viventes é maior do que qualquer partida individual.** A escuridão de alguns não pode ofuscar a luz potencial de incontáveis outros que escolhem a vida, o amor e a eternidade.
+
+A alegria e a felicidade não podem cessar, mesmo diante da ação niilista. A ação niilista de fato tenta sucumbir a cultura e as estruturas de ânimo social, na tentativa de provocar um mundo de luto, um ambiente favorável para conservar um pensamento antagônico ao existir. O mundo do niilista não pode ter bons artistas, uma natureza bela, paz e harmonia.
+
+O niilismo prega a mentira de um mundo inconcertável, de um mundo constantemente errante. Prega a mentira de que o ser humano não possui o dom inato de ser harmonioso, de ser autossustentável.
+
+A poluição da natureza, do ar, a devastação das belezas naturais – nada disso é um ato de sobrevivência ou resultado de uma tecnologia ainda rudimentar que impossibilite o ser humano de ser autossustentável. Toda descaracterização da natureza que transmite a sensação de despropósito, todo cenário humanamente modificado e poluído ao ponto de provocar um vazio em quem o contempla, vem de um pensamento niilista. O niilista não permite a contemplação; o sentido da criação, para o niilista, deve ser extinto. A harmonia da biologia, as belezas naturais, tudo isso ofusca seu objetivo central, que é acreditar no ateísmo e no niilismo como forma de pensamento.
+
+Ao contemplar a beleza dos pássaros, das flores, o niilista retorce-se em dor e agonia e tenta se mascarar num cenário de mundo pós-apocalíptico. O ser humano tem sido levado, induzido pelo pensamento niilista, e até hoje não o conhece com exatidão. Porém, a partir da produção e divulgação deste pensamento, tudo mudará. O mundo mudará.
+
+Peço que não divulguem meu nome, ou mesmo onde conseguiram este texto. Quando uma denúncia abala verdadeiramente as estruturas sociais de dominação, essa pessoa é imediatamente caçada e morta. Os políticos, por vezes, reproduzem o pensamento das massas; porém, quando há alguém fomentando a instrução necessária para a revolução, há, portanto, um alvo definido.
+
+Não receberei nada por este projeto, mas como recompensa, peço que sejam felizes. Lutem a boa luta. E me permitam ser um anônimo, observar de longe tudo o que ocorrerá. Em meu coração, me satisfará um sentimento que só eu conhecerei.
+
+
