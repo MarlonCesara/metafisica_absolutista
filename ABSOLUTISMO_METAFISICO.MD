@@ -3876,6 +3876,10 @@ As formas de obter dinheiro tornam-se criativas e variadas na sintomática niili
 
 Quando a sociedade compreende o sentimento niilista — a loucura do acúmulo de bens e da perseguição desenfreada por dinheiro — como uma doença, torna-se mais fácil entender a base dos problemas sociais: o acúmulo de capital. E, através da resolução desse problema, é possível tratar com mais sensibilidade o niilismo contido no convívio social, como o tráfico de drogas e a violência urbana. Portanto, entender a psicologia do niilismo ajuda a desarticular as grandes diferenças sociais, o que pode reduzir drasticamente a ação niilista. A expressão do niilismo ganha menos recursos, menos armas, menos financiamento — o que enfraquece o niilista, fazendo-o questionar o próprio ódio tendo diante de si uma sociedade justa.
 
+#### **A gatilho niilista**
+
+O niilista tenta aplicar à sociedade o mesmo tormento ou acontecimento que originou o niilismo pela primeira vez, como se guardasse a lembrança de algo que causou sua ruína interior. Isto é, ao ser confrontado em sua mania, ele faz o outro recordar o comportamento que o levou ao ódio inicial. Isso pode ser observado, por exemplo, no assassino que sofreu uma tentativa de aborto ou no indivíduo que ostenta seus bens materiais como forma de vingança contra quem um dia o humilhou. O niilista pode conservar o motivo inicial de seu pesar e tentar projetá-lo sobre o outro, na tentativa inconsciente de aprender com ele a relevar o fato ou a ocasião.
+
 #### **A conversão dos niilistas**
 
 O pensamento cristão primordial, orientado para a vida, nasce da **recuperação da consciência de si**. É o primeiro movimento de escape ao niilismo: um redirecionamento da atenção que estava volvida para o exterior — para a competição, a posse e o status — de volta para a interioridade.
