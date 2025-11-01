@@ -4422,8 +4422,6 @@ A poluição da natureza, do ar, a devastação das belezas naturais – nada di
 
 Ao contemplar a beleza dos pássaros, das flores, o niilista retorce-se em dor e agonia e tenta se mascarar num cenário de mundo pós-apocalíptico. O ser humano tem sido levado, induzido pelo pensamento niilista, e até hoje não o conhece com exatidão. Porém, a partir da produção e divulgação deste pensamento, tudo mudará. O mundo mudará.
 
-Peço que não divulguem meu nome, ou mesmo onde conseguiram este texto. Quando uma denúncia abala verdadeiramente as estruturas sociais de dominação, essa pessoa é imediatamente caçada e morta. Os políticos, por vezes, reproduzem o pensamento das massas; porém, quando há alguém fomentando a instrução necessária para a revolução, há, portanto, um alvo definido.
+Peço discrição absoluta: que meu nome e a origem deste texto não sejam divulgados. Quando uma denúncia abala as estruturas de dominação social, seus autores tornam-se alvo imediato de perseguição. Os políticos, muitas vezes, apenas ecoam o pensamento das massas. Mas quando surge alguém que fornece a instrução necessária para a revolução, esse alguém se torna um alvo definido.
 
-Não receberei nada por este projeto, mas como recompensa, peço que sejam felizes. Lutem a boa luta. E me permitam ser um anônimo, observar de longe tudo o que ocorrerá. Em meu coração, me satisfará um sentimento que só eu conhecerei.
-
-
+Não receberei nada por este projeto, e minha recompensa será saber que foram felizes. Lutem a boa luta. E me permitam permanecer anônimo, como um espectador à distância de tudo o que virá a acontecer. Em meu íntimo, me aquietarei com a serena satisfação de um sentimento que só eu conhecerei.
