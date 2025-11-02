@@ -1,5 +1,11 @@
 ## **ABSOLUTISMO METAFÍSICO**
 
+### **CAPÍTULO 1: O apocalipse metafísico**
+
+O apocalipse metafísico representa a queda da ilusão. Os fundamentos estruturais da realidade são revelados, levando o homem a se autoavaliar e a reconhecer, em seu semelhante, tendências que o conduzem à danação. O apocalipse não é simplesmente a destruição do mundo ou a corrosão da natureza, mas o domínio do homem sobre a terra em um sentido metafísico. Ao conhecer verdadeiramente a estrutura da realidade, o homem se liberta de construções mentais, reconstrói seu mundo sob outra perspectiva, renova seu ânimo e traça um novo rumo para si.
+
+A queda dos astros simboliza a dissolução das ilusões dos poderosos. As pragas representam advertências repetidas, palavras que confrontam e desafiam aqueles que se afastaram da verdade. O julgamento encarna a sabedoria do homem em discernir o destino, revelando, por meio do comportamento de cada indivíduo, as tendências que o conduzem à salvação ou à perdição. O apocalipse não é apenas um evento exterior; ele ocorre na consciência, na interpretação e na ação do homem que se guia por um entendimento renovado da realidade.
+
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
 #### **§ 1.1 – O Contexto Histórico e a Necessidade de um *Organon***
