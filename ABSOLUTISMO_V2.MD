@@ -6,6 +6,8 @@ O apocalipse metafísico representa a queda da ilusão. Os fundamentos estrutura
 
 A queda dos astros simboliza a dissolução das ilusões dos poderosos. As pragas representam advertências repetidas, palavras que confrontam e desafiam aqueles que se afastaram da verdade. O julgamento encarna a sabedoria do homem em discernir o destino, revelando, por meio do comportamento de cada indivíduo, as tendências que o conduzem à salvação ou à perdição. O apocalipse não é apenas um evento exterior; ele ocorre na consciência, na interpretação e na ação do homem que se guia por um entendimento renovado da realidade.
 
+O apocalipse é a queda do velho mundo, da antiga concepção de realidade, sendo substituída e atualizada por um novo mundo. O mundo pós-apocalíptico representa uma nova visão do homem sobre a realidade, capaz de gerar transformações sociais profundas. Se o mundo é uma construção conceitual, sua destruição começa na percepção do homem acerca de quem é e do que o circunda. Portanto, o despertar do apocalipse é o despertar de uma nova compreensão da realidade. Distante da simbologia que defendia a consciência humana do que ainda era inaceitável, o homem, preparado para uma nova concepção, vê seu velho mundo ser substituído por uma visão panorâmica ampliada, e por uma compreensão que modifica suas ações e a própria construção social.
+
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
 #### **§ 1.1 – O Contexto Histórico e a Necessidade de um *Organon***
