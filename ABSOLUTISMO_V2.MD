@@ -1,6 +1,6 @@
 ## **ABSOLUTISMO METAFÍSICO**
 
-O Absolutismo representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Trata-se de uma visão que se desenvolve a partir de uma perspectiva afirmativa, buscando projetar, da forma mais precisa possível, uma concepção racional e coerente da vida além da morte.
+O Absolutismo metafísico representa uma tentativa pioneira de construir um sistema de crenças fundamentado nos princípios da lógica clássica e em intuições metafísicas universais. Trata-se de uma visão que se desenvolve a partir de uma perspectiva afirmativa, buscando projetar, da forma mais precisa possível, uma concepção racional e coerente da vida além da morte.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
