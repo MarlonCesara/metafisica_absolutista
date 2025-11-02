@@ -4436,5 +4436,6 @@ O mundo em que a transcendência é bloqueada para que o mal cesse é, de certo 
 
 O apocalipse seria, então, a preparação do homem para a tomada de consciência de sua liberdade metafísica. Ser julgado pelo próprio Ser é, de fato, seria mais fácil do que julgar a si mesmo, medir-se pelo próprio sentimento e definir uma visão pessoal do além, pois o Ser é perfeito e sempre julgaria pelo bem. Nos dias atuais, a compreensão do niilismo se impõe à sociedade como uma urgência, pois o mundo ainda carece de proteção contra sua ação — conforme se mostrará nos próximos capítulos, ao tratar das provisões de um mundo apocalíptico.
 
+Dessa forma, o apocalipse revela-se não como um fim do mundo, mas como a projeção emocional da tomada de consciência do homem sobre o seu próprio estatuto de liberdade enquanto Ser. Perceber-se radicalmente livre é um evento tão cataclísmico para a psique que, incapaz de assimilar esse poder de forma integrada, a consciência projeta seu terror interno no mundo externo, materializando-o como um colapso universal.
 
 
