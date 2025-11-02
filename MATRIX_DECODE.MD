@@ -2,6 +2,12 @@
 
 ## **A Matrix Decodificada**
 
+Num cenário pós-apocalíptico, uma nova crença se ergue: a de um ser humano capaz de compreender todo o sistema e dominar as máquinas a ponto de aliviar o sofrimento de milhões de pessoas conectadas a ele. O desejo humano pelo paraíso na Terra, pela paz absoluta, chegou ao extremo de atribuir a esse homem poderes sobre-humanos, transformando-o em uma singularidade — uma entidade que transcende os limites da própria humanidade. Assim nasce a figura de Neo, o semi-deus moderno. No mundo pós-apocalíptico que se segue, manifesta-se a grande ilusão: a espera por uma libertação que talvez nunca venha.
+
+Matrix representa uma tecnologia capaz de extrair o sentido humano de forma ainda mais eficaz do que as antigas pirâmides, a violência ou os modelos de trabalho análogos à escravidão. Ela se configura como o instrumento supremo do niilismo: não destrói o mundo, mas tampouco o constrói; transforma-o em um cenário desértico, onde os cérebros humanos são explorados e oprimidos de modo brutal sob a perspectiva humana, mas extremamente eficiente e produtivo sob a lógica niilista.
+
+A figura de Neo surge como a resposta a esse mundo pós-apocalíptico — um líder que não recorrerá à democracia, já extinta, mas que deverá possuir uma força sobrenatural, dons quase sobre-humanos, capazes de articular a derrota das máquinas e restaurar a paz perdida.
+
 **CENA 1 – A DESCONEXÃO**
 
 O ar nos servidores era frio e parado, cheirando a ozônio e pó de circuitos. Neo afastou-se do terminal principal, seus dedos deixando a superfície gelada do console. O ruído de fundo — um zumbido branco de dados fluindo — silenciou-se em sua mente não por um ato técnico, mas por um esforço de vontade. Ele não estava mais *dentro* do código; estava *além* dele. Desconectado dos computadores, sua percepção se expandiu. A Matrix, outrora uma teia complexa de luz verde e lógica implacável, agora lhe parecia um conjunto de padrões vazios, sem alma, um espelho quebrado refletindo uma realidade maior e mais assustadora que ele começava a enxergar.
