@@ -1,12 +1,4 @@
-## **ABSOLUTISMO METAFÍSICO**
-
-### **CAPÍTULO 1: O apocalipse metafísico**
-
-O apocalipse metafísico representa a queda da ilusão. Os fundamentos estruturais da realidade são revelados, levando o homem a se autoavaliar e a reconhecer, em seu semelhante, tendências que o conduzem à danação. O apocalipse não é simplesmente a destruição do mundo ou a corrosão da natureza, mas o domínio do homem sobre a terra em um sentido metafísico. Ao conhecer verdadeiramente a estrutura da realidade, o homem se liberta de construções mentais, reconstrói seu mundo sob outra perspectiva, renova seu ânimo e traça um novo rumo para si.
-
-A queda dos astros simboliza a dissolução das ilusões dos poderosos. As pragas representam advertências repetidas, palavras que confrontam e desafiam aqueles que se afastaram da verdade. O julgamento encarna a sabedoria do homem em discernir o destino, revelando, por meio do comportamento de cada indivíduo, as tendências que o conduzem à salvação ou à perdição. O apocalipse não é apenas um evento exterior; ele ocorre na consciência, na interpretação e na ação do homem que se guia por um entendimento renovado da realidade.
-
-O apocalipse é a queda do velho mundo, da antiga concepção de realidade, sendo substituída e atualizada por um novo mundo. O mundo pós-apocalíptico representa uma nova visão do homem sobre a realidade, capaz de gerar transformações sociais profundas. Se o mundo é uma construção conceitual, sua destruição começa na percepção do homem acerca de quem é e do que o circunda. Portanto, o despertar do apocalipse é o despertar de uma nova compreensão da realidade. Distante da simbologia que defendia a consciência humana do que ainda era inaceitável, o homem, preparado para uma nova concepção, vê seu velho mundo ser substituído por uma visão panorâmica ampliada, e por uma compreensão que modifica suas ações e a própria construção social.
+## **A SUMA METAFÍSICA**
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
@@ -4431,3 +4423,18 @@ Ao contemplar a beleza dos pássaros, das flores, o niilista retorce-se em dor e
 Peço discrição absoluta: que meu nome e a origem deste texto não sejam divulgados. Quando uma denúncia abala as estruturas de dominação social, seus autores tornam-se alvo imediato de perseguição. Os políticos, muitas vezes, apenas ecoam o pensamento das massas. Mas quando surge alguém que fornece a instrução necessária para a revolução, esse alguém se torna um alvo definido.
 
 Não receberei nada por este projeto, e minha recompensa será saber que foram felizes. Lutem a boa luta. E me permitam permanecer anônimo, como um espectador à distância de tudo o que virá a acontecer. Em meu íntimo, me aquietarei com a serena satisfação de um sentimento que só eu conhecerei.
+
+### **O apocalipse**
+
+O apocalipse  representa a queda da ilusão. Os fundamentos estruturais da realidade são revelados, levando o homem a se autoavaliar e a reconhecer, em seu semelhante, tendências que o conduzem à danação. O apocalipse não é simplesmente a destruição do mundo ou a corrosão da natureza, mas o domínio do homem sobre a terra em um sentido metafísico. Ao conhecer verdadeiramente a estrutura da realidade, o homem se liberta de construções mentais, reconstrói seu mundo sob outra perspectiva, renova seu ânimo e traça um novo rumo para si.
+
+A queda dos astros simboliza a dissolução das ilusões dos poderosos. As pragas representam advertências repetidas, palavras que confrontam e desafiam aqueles que se afastaram da verdade. O julgamento encarna a sabedoria do homem em discernir o destino, revelando, por meio do comportamento de cada indivíduo, as tendências que o conduzem à salvação ou à perdição. O apocalipse não é apenas um evento exterior; ele ocorre na consciência, na interpretação e na ação do homem que se guia por um entendimento renovado da realidade.
+
+O apocalipse é a queda do velho mundo, da antiga concepção de realidade, sendo substituída e atualizada por um novo mundo. O mundo pós-apocalíptico representa uma nova visão do homem sobre a realidade, capaz de gerar transformações sociais profundas. Se o mundo é uma construção conceitual, sua destruição começa na percepção do homem acerca de quem é e do que o circunda. Portanto, o despertar do apocalipse é o despertar de uma nova compreensão da realidade. Distante da simbologia que defendia a consciência humana do que ainda era inaceitável, o homem, preparado para uma nova concepção, vê seu velho mundo ser substituído por uma visão panorâmica ampliada, e por uma compreensão que modifica suas ações e a própria construção social.
+
+O mundo em que a transcendência é bloqueada para que o mal cesse é, de certo modo, tão absurdo — ou até mais — do que um mundo dominado pela ação niilista. A visão de um paraíso onde os eleitos estão definidos e onde o mal já não existe é apenas um consolo diante da dura realidade da liberdade e de suas consequências. O convívio com o niilismo tornou o mundo insuportável a tal ponto que gerou a necessidade de um escapismo — uma verdade tangente à centralidade da lógica.
+
+O apocalipse seria, então, a preparação do homem para a tomada de consciência de sua liberdade metafísica. Ser julgado pelo próprio Ser é, de fato, seria mais fácil do que julgar a si mesmo, medir-se pelo próprio sentimento e definir uma visão pessoal do além, pois o Ser é perfeito e sempre julgaria pelo bem. Nos dias atuais, a compreensão do niilismo se impõe à sociedade como uma urgência, pois o mundo ainda carece de proteção contra sua ação — conforme se mostrará nos próximos capítulos, ao tratar das provisões de um mundo apocalíptico.
+
+
+
