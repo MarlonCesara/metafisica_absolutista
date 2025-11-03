@@ -1079,7 +1079,7 @@ Somente assim o nada, confunde-se com uma ontologia suspensavel, isto é, torna-
 
 isto é, o nada deixa de ser um constante afirmador do ser, e torna-se um elemento suspensavel. Abandona o tônus que a lógica o colocou por via de regra de não ser, e entra numa camada manuseável, para que se produza o relativo.
 
-
+Ao considerarmos o ser e o não ser sendo possivel, elaboramos uma nova linha de possibilidades, uma via que quebra uma regra fixa. O quebrar desta regra para a realidade, elimina a sua diferenciação, a deerminação que bloqueia o relativo de ser concretizavel.
 
 
 
