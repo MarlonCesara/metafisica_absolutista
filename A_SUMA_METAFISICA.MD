@@ -3926,6 +3926,12 @@ Jesus tentou revelar o niilismo, e tentaram o difamar de todas as formas possív
 
 > Jesus tentou revelar o niilismo ao mundo e o crucificaram-no com a morte destinada aos que se quer humilhar, não apenas fazer sofrer. Tentaram desmoralizá-lo a todo custo. Jesus não apenas abalou as estruturas de controle social, mas procurou expor o íntimo do niilista, para que a humanidade compreendesse não só que estava sendo dominada, mas também por que estava sendo dominada.  Jesus tocou-lhes o íntimo; Ele tentou revelar ao mundo a verdadeira raiz do problema humano — aquilo que realmente provoca toda a miséria e toda a crise. Ao passo que também tentou aplacar o ódio niilista para sempre. Só um amor absoluto poderia aplacar um ódio inviolável.
 
+§ 35.12 – O esconderijo interior do niilista (NOVO)
+
+O niilista reconhece que, se a humanidade conhecesse exatamente a fonte de seu comportamento, uma nova tecnologia de ação social surgiria, muito mais bem articulada. Portanto, a acusação também é, ao mesmo tempo, uma defesa — uma proteção do sentimento niilista de não ser exposto publicamente. Uma chuva de acusações contra aqueles que denunciam a corrupção o afasta da verdade interior. Aproximar-se da paz é, na verdade, também aproximar-se da revelação do niilismo, um completo reconhecimento da raiz de muitos problemas sociais aparentemente insolúveis.
+
+O niilista esconde suas intenções, tanto para atacar o outro quanto por outros meios. O reconhecimento do outro também o aflige, pois o outro, ao afirmar uma verdade da qual ele mesmo desconfia e não quer admitir, provoca nele um profundo temor.
+
 ### **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
 
 #### **§ 36.1 – A Moralidade como Escolha Conveniente**
