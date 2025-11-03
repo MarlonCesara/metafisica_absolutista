@@ -3920,6 +3920,10 @@ O indivíduo que tem seu íntimo revelado, que vê sua tensão interior exposta,
 
 Ao perceber que o outro compreendeu seu conflito, ou que ameaça desconstruir suas defesas — sejam elas mentais, sociais ou morais —, o niilista inicia uma série de acusações infundadas, buscando rebaixar o outro a qualquer custo para evitar ser desvelado. Acusa aqueles que tentam romper suas estruturas de controle e defesa da consciência de serem assediadores, falsos moralistas, ladrões ou baderneiros. Na verdade, ele apenas se sente invadido em uma zona sensível — uma particularidade que considera seu segredo absoluto e que, em hipótese alguma, poderia ser revelada ao mundo.
 
+Acusar o outro é uma forma de afastar a autoacusação. O niilista nega a vergonha de seu próprio niilismo e, ao perceber que sua autodescoberta se aproxima, difama o outro de todas as maneiras possíveis. É como se dissesse que pode suportar ser chamado de qualquer coisa, menos de niilista — a pior das denominações; até mesmo ser chamado de assassino seria menos grave do que ser reconhecido como alguém que trava uma guerra interior contra a própria vida.
+
+Jesus tentou revelar o niilismo, e tentaram o difamar de todas as formas possíveis. Ao crucificá-lo, apenas expuseram aquilo que tentavam esconder em silêncio. Eles tentaram destruir a própria vida em pessoa. Não quiseram aceitar que negavam algo essencial tentando destruir o essêncial. Jesus denunciou o niilismo, escancarou-o para a humanidade e, na tentativa de silenciá-lo, o niilismo revelou o cerne de seu propósito e ação.
+
 > Jesus tentou revelar o niilismo ao mundo e o crucificaram-no com a morte destinada aos que se quer humilhar, não apenas fazer sofrer. Tentaram desmoralizá-lo a todo custo. Jesus não apenas abalou as estruturas de controle social, mas procurou expor o íntimo do niilista, para que a humanidade compreendesse não só que estava sendo dominada, mas também por que estava sendo dominada.  Jesus tocou-lhes o íntimo; Ele tentou revelar ao mundo a verdadeira raiz do problema humano — aquilo que realmente provoca toda a miséria e toda a crise.
 
 ### **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
