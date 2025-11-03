@@ -3763,7 +3763,7 @@ O niilismo, com frequência, revela-se um mero eufemismo para a expressão "busc
 
 A tragédia reside precisamente nisto: o niilista busca no exterior — em sentidos construídos, em felicidades programadas, em propósitos artificiais — aquilo que só pode ser encontrado no reconhecimento interior do valor intrínseco do próprio existir. Ele percorre o mundo com uma lanterna, procurando a luz, sem perceber que é ele mesmo quem deve gerá-la.
 
-## **CAPÍTULO 34: A Psicologia do Poder e da Riqueza Niilista**
+## **CAPÍTULO 34: A PSICOLOGIA DO PODER E DA RIQUEZA NO NIILISMO**
 
 #### **A Soberba como Sintoma de Fragilidade Existencial**
 
@@ -3917,6 +3917,10 @@ Isso constitui a defesa mais desesperada do corpo contra os próprios pensamento
 O niilista sente-se invadido quando é descoberto — quando tentam investigar as origens de seu comportamento, adentrando em seu íntimo e arrancando-lhe a própria verdade: a autoconsciência de sua realidade interior. Isso acontece sem que seja de sua vontade, sem que desejasse que os outros conhecessem seu interior e o desfecho de sua alma na eternidade. Quando é revelado, o niilista sente-se nu — violado em sua intimidade, naquele espaço onde apenas seus pensamentos circulavam e que agora se torna acessível também aos pensamentos alheios. O niilismo, quando exposto no ser humano, manifesta-se de forma arrebatadora — torna-se evidente. 
 
 O indivíduo que tem seu íntimo revelado, que vê sua tensão interior exposta, sente-se ultrajado, invadido, assediado pelos olhos alheios e por seus julgamentos. Os olhares curiosos que o observam como uma anomalia — uma estranha novidade — fazem-no sentir-se interiormente violado, como se estivesse nu diante da multidão. Agora, todos parecem enxergar sua alma, o mais íntimo de seus pensamentos e desejos — algo que o niilista jamais desejaria que alguém soubesse, e que, na verdade, nem ele próprio suportaria admitir.
+
+Ao perceber que o outro compreendeu seu conflito, ou que ameaça desconstruir suas defesas — sejam elas mentais, sociais ou morais —, o niilista inicia uma série de acusações infundadas, buscando rebaixar o outro a qualquer custo para evitar ser desvelado. Acusa aqueles que tentam romper suas estruturas de controle e defesa da consciência de serem assediadores, falsos moralistas, ladrões ou baderneiros. Na verdade, ele apenas se sente invadido em uma zona sensível — uma particularidade que considera seu segredo absoluto e que, em hipótese alguma, poderia ser revelada ao mundo.
+
+> Jesus tentou revelar o niilismo ao mundo e o crucificaram-no com a morte destinada aos que se quer humilhar, não apenas fazer sofrer. Tentaram desmoralizá-lo a todo custo. Jesus não apenas abalou as estruturas de controle social, mas procurou expor o íntimo do niilista, para que a humanidade compreendesse não só que estava sendo dominada, mas também por que estava sendo dominada.  Jesus tocou-lhes o íntimo; Ele tentou revelar ao mundo a verdadeira raiz do problema humano — aquilo que realmente provoca toda a miséria e toda a crise.
 
 ## **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
 
