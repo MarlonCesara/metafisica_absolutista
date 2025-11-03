@@ -1169,7 +1169,7 @@ Sendo o conhecimento uma determinação sob a fundamentação, o Espírito pode 
 
 O Espírito possui uma **consciência bifásica** que opera simultaneamente:
 
-# Dimensões da Consciência
+#### Dimensões da Consciência
 
 | Consciência Atemporal              | Consciência Temporal                |
 |------------------------------------|-------------------------------------|
