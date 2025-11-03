@@ -4507,18 +4507,13 @@ E que só agora foram identificadas; só agora a loucura foi compreendida. Só a
 
 Desvelado todo o estrago niilista, o próprio, ao compreender o caos, indagará:
 
-E do que me adiantaria a paz diante de um fim iminente?
-Como eu poderia me beneficiar de tudo aquilo que renunciei?
-É por isso que estou cego de ódio — por isso nada mais me importa.
+E do que me adiantaria a paz diante de um fim iminente? Como eu poderia me beneficiar de tudo aquilo que renunciei? É por isso que estou cego de ódio — por isso nada mais me importa.
+Diante da morte iminente, tudo se torna banal. O amor, sim, é o único elixir que me importa. Se eu mato, se eu aterrorizo, se me prendem — de que me serviria a paz, diante do inimigo que espreita meus pensamentos dia e noite? Diante do inimigo que não me deixa dormir?
 
-Diante da morte iminente, tudo se torna banal.
-O amor, sim, é o único elixir que me importa.
-Se eu mato, se eu aterrorizo, se me prendem — de que me serviria a paz,
-diante do inimigo que espreita meus pensamentos dia e noite?
-Diante do inimigo que não me deixa dormir?
+Todos os dias sonho com a vida eterna — isso está em primeiro lugar. Vocês me prendem, me matam, me interrogam, me condenam à morte… Mas nada disso é mais importante que o propósito de reencontrar o sentido. Nem a natureza me importa, nem a paz social. O que eu quero é a mim mesmo — sou um eterno buscador de mim. 
 
-Todos os dias sonho com a vida eterna — isso está em primeiro lugar.
-Vocês me prendem, me matam, me interrogam, me condenam à morte…
-Mas nada disso é mais importante que o propósito de reencontrar o sentido.
-Nem a natureza me importa, nem a paz social.
-O que eu quero é a mim mesmo — sou um eterno buscador de mim.
+Estive coberto de joias e luxo apenas para esconder a vergonha de fugir de mim mesmo — da miséria extrema diante da riqueza que vocês manifestavam ao sentirem a certeza de um bom destino.
+O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as riquezas do mundo, não me sentiria confortável diante do não-niilista. Sim, eu causei a miséria material — e isso não foi consequência de um sistema político, mas algo calculado, provocado deliberadamente. Sim, eu causei a violência exterior, pois a que habita em mim é incomparavelmente maior. Sim, eu destruí a natureza — mas a natureza interior, aos meus olhos, não é bela. Destruí tudo o que, em comparação comigo, me humilhava. Pois carrego dentro de mim a maior das misérias, o pior dos destinos, o mais triste dos cenários e a forma mais profunda de violência.
+
+Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
+Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
