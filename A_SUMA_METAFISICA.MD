@@ -3924,7 +3924,7 @@ Acusar o outro é uma forma de afastar a autoacusação. O niilista nega a vergo
 
 Jesus tentou revelar o niilismo, e tentaram o difamar de todas as formas possíveis. Ao crucificá-lo, apenas expuseram aquilo que tentavam esconder em silêncio. Eles tentaram destruir a própria vida em pessoa. Não quiseram aceitar que negavam algo essencial tentando destruir o essêncial. Jesus denunciou o niilismo, escancarou-o para a humanidade e, na tentativa de silenciá-lo, o niilismo revelou o cerne de seu propósito e ação.
 
-> Jesus tentou revelar o niilismo ao mundo e o crucificaram-no com a morte destinada aos que se quer humilhar, não apenas fazer sofrer. Tentaram desmoralizá-lo a todo custo. Jesus não apenas abalou as estruturas de controle social, mas procurou expor o íntimo do niilista, para que a humanidade compreendesse não só que estava sendo dominada, mas também por que estava sendo dominada.  Jesus tocou-lhes o íntimo; Ele tentou revelar ao mundo a verdadeira raiz do problema humano — aquilo que realmente provoca toda a miséria e toda a crise.
+> Jesus tentou revelar o niilismo ao mundo e o crucificaram-no com a morte destinada aos que se quer humilhar, não apenas fazer sofrer. Tentaram desmoralizá-lo a todo custo. Jesus não apenas abalou as estruturas de controle social, mas procurou expor o íntimo do niilista, para que a humanidade compreendesse não só que estava sendo dominada, mas também por que estava sendo dominada.  Jesus tocou-lhes o íntimo; Ele tentou revelar ao mundo a verdadeira raiz do problema humano — aquilo que realmente provoca toda a miséria e toda a crise. Ao passo que também tentou aplacar o ódio niilista para sempre. Só um amor absoluto poderia aplacar um ódio inviolável.
 
 ### **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
 
