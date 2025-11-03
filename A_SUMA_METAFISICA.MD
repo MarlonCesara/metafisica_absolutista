@@ -2848,9 +2848,9 @@ Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
 
-# Alegorias metafísicas
+#  **CAPÍTULO 26: ALEGORIAS METAFÍSICAS**
 
-Após a introdução filosófica ao absolutismo, apresentarei agora o esboço de uma visão sobre o além, isto é, a realidade pós-morte corporal. Essa visão tem caráter positivista: sempre que não houver uma inferência lógica possível, recorrerei à melhor hipótese imaginável, como nos casos da descrição do paraíso ou dos confins da liberdade humana. Confesso que me inspirei profundamente na tradição católica, pois ela oferece uma coerência lógica e intuitiva notável.
+Será apresentado agora o esboço de uma visão sobre o além, isto é, a realidade pós-morte corporal. Essa visão tem caráter positivista: sempre que não houver uma inferência lógica possível, recorrei à melhor hipótese imaginável, como nos casos da descrição do paraíso ou dos confins da liberdade humana. Esta obra foi inspirada, em grande parte, na teologia católica, pois ela oferece uma coerência lógica e intuitiva notável. 
 
 ## **O Relativo da Alma: Uma Jornada pelo Paraíso e os confins da Liberdade**
 
@@ -2859,8 +2859,6 @@ Após a introdução filosófica ao absolutismo, apresentarei agora o esboço de
 "O Relativo da Alma" é uma narrativa filosófico-teológica que explora o estado da alma humana após a morte, sua confrontação com a eternidade e as consequências últimas de suas escolhas livres. Através de uma alegoria profundamente enraizada na tradição católica e no pensamento tomista, a obra constrói uma visão unificada do ser, da graça, do juízo e da destinação final.
 
 A história segue um **filósofo** que, após a morte, adentra o "relativo" – um estado de juízo particular onde a alma se vê a si mesma refletida num infinito mar de espelhos (suas memórias, possibilidades e essência). Guiado por uma voz transcendente, ele aprende que neste estado o desejo, harmonizado coma o campo das possibilidades, molda instantaneamente a sua realidade.
-
-### **Conclusão e Reflexão Final**
 
 O "Relativo da Alma" não é um lugar distante, mas uma realidade que já habitamos. **O Juízo não é um evento futuro, mas um processo contínuo** onde nossas escolhas atuais – movidas pelo amor ou pelo ódio, pela aceitação ou pela recusa da graça – já delineiam nossa eternidade.
 
