@@ -3763,7 +3763,7 @@ O niilismo, com frequência, revela-se um mero eufemismo para a expressão "busc
 
 A tragédia reside precisamente nisto: o niilista busca no exterior — em sentidos construídos, em felicidades programadas, em propósitos artificiais — aquilo que só pode ser encontrado no reconhecimento interior do valor intrínseco do próprio existir. Ele percorre o mundo com uma lanterna, procurando a luz, sem perceber que é ele mesmo quem deve gerá-la.
 
-## **CAPÍTULO 34: A PSICOLOGIA DO PODER E DA RIQUEZA NO NIILISMO**
+## **CAPÍTULO 34: A PSICOLOGIA DO PODER E DA RIQUEZA NO COMPORTAMENTO NIILISTA**
 
 #### **A Soberba como Sintoma de Fragilidade Existencial**
 
