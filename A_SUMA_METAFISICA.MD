@@ -4501,6 +4501,24 @@ A Suma Metafísica constrói uma proteção contra esse tipo de dominação, ale
 
 #### **§ 44.7 – Um cenário de êxito nas lutas sociais (NOVO)**
 
-Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho na morte em um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
+Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
 
 E que só agora foram identificadas; só agora a loucura foi compreendida. Só agora se percebe que não existiam necessariamente “não-humanos”, mas humanos assombrados, incapazes de lidar com a liberdade. Humanos que ainda não aprenderam a nadar no mar da vida e que estão se afogando silenciosamente, sem que ninguém tivesse percebido com tanta clareza até então. O que sentir diante disso — compaixão, revolta ou indiferença? Como reagir à dor alheia? O que fazer? Perguntas que a humanidade ainda precisa responder.
+
+Desvelado todo o estrago niilista, o próprio, ao compreender o caos, indagará:
+
+E do que me adiantaria a paz diante de um fim iminente?
+Como eu poderia me beneficiar de tudo aquilo que renunciei?
+É por isso que estou cego de ódio — por isso nada mais me importa.
+
+Diante da morte iminente, tudo se torna banal.
+O amor, sim, é o único elixir que me importa.
+Se eu mato, se eu aterrorizo, se me prendem — de que me serviria a paz,
+diante do inimigo que espreita meus pensamentos dia e noite?
+Diante do inimigo que não me deixa dormir?
+
+Todos os dias sonho com a vida eterna — isso está em primeiro lugar.
+Vocês me prendem, me matam, me interrogam, me condenam à morte…
+Mas nada disso é mais importante que o propósito de reencontrar o sentido.
+Nem a natureza me importa, nem a paz social.
+O que eu quero é a mim mesmo — sou um eterno buscador de mim.
