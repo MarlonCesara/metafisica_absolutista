@@ -3555,7 +3555,7 @@ Com seu olhar que penetrava além das formas, o filósofo discerniu o fio negro 
 
 > "O niilista, após ser fadado pelo anjo mais poderoso do céu aos infernos, manifestou uma estrondosa risada. Essa risada foi ouvida por muitos anjos, mas nenhum deles sabia de fato, descrever aquela risada com exatidão. O niilista não tem ódio da vida, ele tem ódio da vida não ter mudado quem ele é. O mal culpa a Deus por sua condição, sob o pensamento de que, se Deus é realmente poderoso, devia tê-lo criado feliz. Então, a risada do mal, na verdade, é uma imitação de felicidade na qual o mal acredita ser realmente feliz. É a imitação de um sentimento de infância não manifestado. É o ápice da loucura, a ponto de não carregar nem mesmo mais malicia, e sim a completa insanidade na expressão. É uma risada que não carrega mais consciência da realidade. Que emerge das profundezas escuras do abismo onde o mal está, e lá emite uma risada que considera ser para si sua felicidade. A risada do niilista nasce da falsidade. É a imitação de alguém feliz, porem uma imitação completamente insana. O mal, somente dizia, se é Deus, então nos salve de nós mesmos. Se não nos salva, então é porque não quis. O mal é como uma criança birrenta. Sua risada é sombria, sarcástica e carrega um ódio absoluto— uma vingança travestida de ironia, uma falsa autopiedade, um instante de prazer antes de atravessar a porta do inferno, de onde jamais contemplará a si mesmo novamente e onde toda esperança será abandonada.É uma risada mecânica, vazia, tão profana que enoja os ouvidos de quem a escuta, despertando um mal-estar profundo. É a voz abafada de uma alma delirante, perdida em uma loucura que nem ela própria compreende. Uma alma na qual nunca brilhou sequer uma centelha de amor.
 
-## **CAPÍTULO 31: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
+### **CAPÍTULO 31: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
 #### **§ 31.1 – O Perfil do Niilista Existencial: Uma Cartografia da Autoaniquilação**
 
@@ -3620,7 +3620,7 @@ Então, subitamente, o indivíduo permite que um ressentimento — ou uma série
 
 Se antes ainda conservava algum propósito, ainda que em conflito com suas experiências, agora, desprovido de qualquer sentido, tenta preencher o vazio com riquezas e poder. Pois, ao permitir que o ódio se tornasse absoluto, abandonou todo propósito — abandonou a si mesmo. No ódio absoluto, só existe a perdição. O ódio completo humilha o indivíduo e lhe rouba até mesmo o breve instante de satisfação que a vingança poderia oferecer, pois a vingança acaba por voltar-se contra a própria vida. Nem mesmo o deleite de oprimir ou vingar-se subsiste no niilismo — o que resta é a completa humilhação do indivíduo, que passa a desejar destruir tudo ao seu redor, tornando-se profundamente egoísta e opressor. Seu ódio não é apenas um desejo de agredir, mas uma renúncia à eternidade.
 
-## **CAPÍTULO 32: A SINTOMOLOGIA E MANIFESTAÇÕES DO COMPORTAMENTO NIILISTA**
+### **CAPÍTULO 32: A SINTOMOLOGIA E MANIFESTAÇÕES DO COMPORTAMENTO NIILISTA**
 
 #### **§ 32.1 – A Anatomia do Comportamento Niilista**
 
@@ -3689,7 +3689,7 @@ Em síntese, o niilista é aquele que padece de uma depressão da alma, não do 
 
 O niilista empenha-se com todas as suas forças em ocultar sua decisão, mascarando-se sob requintes, vícios ou uma animalidade reducionista — todos eles, artifícios tolos e fúteis. Toda materialidade excessiva e todo comportamento de fuga representam a loucura diante do absurdo de uma alma revoltada, desgovernada e desesperada. Todos os atos do niilista constituem um pedido de socorro, um grito silencioso e interno por auxílio que ele próprio não consegue ouvir. É uma boca que não se abre para proclamar o clamor, o louvor ou a vida. O niilista é um ser em vão, uma alma encapsulada em si mesma. À medida que seus palácios simbólicos desmoronam e suas máscaras sociais caem diante das contradições da realidade, revela-se um ser humano em estado fetal — inconformado e frustrado com sua própria condição de renúncia a tudo que mais secretamente ama, inclusive de si mesmo. Os ricos em seus escritórios, aparentemente plenos de razão e autoconfiança, são, na verdade, indivíduos que esperam que aquela porta se abra, e que alguém os abrace e salve da infindável escuridão que os aguarda. Sentem, à sua espreita, um demônio faminto com sede de sangue — a própria consciência de seu vazio — a acompanhá-los incessantemente.
 
-## **CAPÍTULO 33: OS MECANISMOS PSICOLÓGICOS DE DEFESA E FUGA**
+### **CAPÍTULO 33: OS MECANISMOS PSICOLÓGICOS DE DEFESA E FUGA**
 
 #### **§ 33.1 – A Redução ao Comportamento Animal e a Lógica da Selva**
 
@@ -3763,7 +3763,7 @@ O niilismo, com frequência, revela-se um mero eufemismo para a expressão "busc
 
 A tragédia reside precisamente nisto: o niilista busca no exterior — em sentidos construídos, em felicidades programadas, em propósitos artificiais — aquilo que só pode ser encontrado no reconhecimento interior do valor intrínseco do próprio existir. Ele percorre o mundo com uma lanterna, procurando a luz, sem perceber que é ele mesmo quem deve gerá-la.
 
-## **CAPÍTULO 34: A PSICOLOGIA DO PODER E DA RIQUEZA NO COMPORTAMENTO NIILISTA**
+### **CAPÍTULO 34: A PSICOLOGIA DO PODER E DA RIQUEZA NO COMPORTAMENTO NIILISTA**
 
 #### **§ 34.1 – A Soberba como Sintoma de Fragilidade Existencial**
 
@@ -3835,7 +3835,7 @@ A crença niilista confina-os a um patamar de irrelevância ontológica, reduzin
 
 O super-rico causa miséria numa tentativa desesperada de proclamar que a vida o despedirá de mãos vazias, que nada lhe será concedido. O reflexo de sua própria indigência interior revela-se na intensidade com que acumula bens. Ele tenta extinguir a vida alheia de modo a espelhar sua própria condição, denunciando, silenciosamente, o abismo entre os que possuirão a vida plena e os que a perderão. Oprime porque é oprimido pelo ditador interior que carrega consigo. Projeta no sofrimento alheio a forma como se relaciona com seu próprio ser. Busca exibir sua suposta “alta cultura”, seu modelo mental, através do acúmulo e da inflição de dor.
 
-## **CAPÍTULO 35: A DINÂMICA RELACIONAL E PROJETIVA**
+### **CAPÍTULO 35: A DINÂMICA RELACIONAL E PROJETIVA**
 
 #### **§ 35.1 – O Niilista por Contrato: A Inveja da Vida**
 
@@ -3922,7 +3922,7 @@ Ao perceber que o outro compreendeu seu conflito, ou que ameaça desconstruir su
 
 > Jesus tentou revelar o niilismo ao mundo e o crucificaram-no com a morte destinada aos que se quer humilhar, não apenas fazer sofrer. Tentaram desmoralizá-lo a todo custo. Jesus não apenas abalou as estruturas de controle social, mas procurou expor o íntimo do niilista, para que a humanidade compreendesse não só que estava sendo dominada, mas também por que estava sendo dominada.  Jesus tocou-lhes o íntimo; Ele tentou revelar ao mundo a verdadeira raiz do problema humano — aquilo que realmente provoca toda a miséria e toda a crise.
 
-## **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
+### **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
 
 #### **§ 36.1 – A Moralidade como Escolha Conveniente**
 
