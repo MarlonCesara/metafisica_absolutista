@@ -4399,7 +4399,7 @@ Neste mundo, a violência corporifica os gritos de desespero das almas que march
 
 Ouvimos, então, os gritos finos e agudos, os olhares desesperados, os clamores e súplicas dos niilistas materializando-se em desastres sociais, guerras e fome. Tudo isto é absorvido emocionalmente pela sociedade. A guerra é a metabolização coletiva dos sentimentos niilistas: quase tudo é uma tentativa de fazer o outro experimentar a própria agonia para obter alívio, transmitir ao próximo a própria intenção autodestrutiva. **A guerra é uma confissão pública de índole.** A miséria, uma denúncia interior do niilista.
 
-### **A Criança que Chora: A Origem do Mal**
+#### **A Criança que Chora: A Origem do Mal**
 
 Os males do mundo emanam de uma criança que chora, originários do medo, da covardia de amar e de converter-se. **O mal chora como uma criança desconsolada.** A violência é algo infantil, retrógrado, insensato. Brota de consciências que não se compreenderam, que regrediram a uma fase fetal, onde buscam proteger-se de si mesmas. A guerra e a miséria são formas de covardia existencial, não meros produtos da ganância. São a loucura, o lunatismo de indivíduos aterrorizados diante do campo infinito das possibilidades, que intentam o pior. Assim, guardam seu segredo como se a sociedade jamais fosse percebê-lo, como se pudessem passar despercebidos.
 
@@ -4419,9 +4419,9 @@ Peço discrição absoluta: que meu nome e a origem deste texto não sejam divul
 
 Não receberei nada por este projeto, e minha recompensa será saber que foram felizes. Lutem a boa luta. E me permitam permanecer anônimo, como um espectador à distância de tudo o que virá a acontecer. Em meu íntimo, me aquietarei com a serena satisfação de um sentimento que só eu conhecerei.
 
-### **O apocalipse**
+### **O apocalipse bíblico**
 
-O apocalipse  representa a queda da ilusão. Os fundamentos estruturais da realidade são revelados, levando o homem a se autoavaliar e a reconhecer, em seu semelhante, tendências que o conduzem à danação. O apocalipse não é simplesmente a destruição do mundo ou a corrosão da natureza, mas o domínio do homem sobre a terra em um sentido metafísico. Ao conhecer verdadeiramente a estrutura da realidade, o homem se liberta de construções mentais, reconstrói seu mundo sob outra perspectiva, renova seu ânimo e traça um novo rumo para si.
+O apocalipse bíblico representa a queda da ilusão. Os fundamentos estruturais da realidade são revelados, levando o homem a se autoavaliar e a reconhecer, em seu semelhante, tendências que o conduzem à danação. O apocalipse não é simplesmente a destruição do mundo ou a corrosão da natureza, mas o domínio do homem sobre a terra em um sentido metafísico. Ao conhecer verdadeiramente a estrutura da realidade, o homem se liberta de construções mentais, reconstrói seu mundo sob outra perspectiva, renova seu ânimo e traça um novo rumo para si.
 
 A queda dos astros simboliza a dissolução das ilusões dos poderosos. As pragas representam advertências repetidas, palavras que confrontam e desafiam aqueles que se afastaram da verdade. O julgamento encarna a sabedoria do homem em discernir o destino, revelando, por meio do comportamento de cada indivíduo, as tendências que o conduzem à salvação ou à perdição. O apocalipse não é apenas um evento exterior; ele ocorre na consciência, na interpretação e na ação do homem que se guia por um entendimento renovado da realidade.
 
