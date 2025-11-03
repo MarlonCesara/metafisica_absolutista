@@ -1068,8 +1068,16 @@ Temos que a suspensão do ser e não ser, acontece no ato de assumir o ser como 
 
 E, em via de regra, não é possível alavancar um motivo para não se aceitar o impossível. Por qual,motivo, para absoluto, deveria existir o ser e o não ser em uma linha discreta marcando a separação entre ambos?
 
+o nada é um operador lógico, ele não é ontológico e não poderia ser constituído de ontologicidade.
 
+Isto é, o nada, até entao era uma oposição virtual do ser, não negável por estar no domínio da irrealizável, do impossível. Por esbarrar nas barreiras do pensamento humano
+acerca da parametrização que criou da realidade.
 
+Porém, a formulação do relativo envolve quebrar essa parametrização. Quebrar as regras de como a realidade deve ou não ser em linha de regra. 
+
+Somente assim o nada, confunde-se com uma ontologia suspensavel, isto é, torna-se uma realidade que é possível suprimir ao invés de ser um evidenciador e afirmador diretamente da presença determinada.
+
+isto é, o nada deixa de ser um constante afirmador do ser, e torna-se um elemento suspensavel. Abandona o tônus que a lógica o colocou por via de regra de não ser, e entra numa camada manuseável, para que se produza o relativo.
 
 
 
