@@ -2848,7 +2848,7 @@ Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
 
-# Alegorias Absolutistas
+# Alegorias metafísicas
 
 Após a introdução filosófica ao absolutismo, apresentarei agora o esboço de uma visão sobre o além, isto é, a realidade pós-morte corporal. Essa visão tem caráter positivista: sempre que não houver uma inferência lógica possível, recorrerei à melhor hipótese imaginável, como nos casos da descrição do paraíso ou dos confins da liberdade humana. Confesso que me inspirei profundamente na tradição católica, pois ela oferece uma coerência lógica e intuitiva notável.
 
