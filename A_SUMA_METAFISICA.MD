@@ -1037,6 +1037,8 @@ O relativo é como a mistura de todas as cores que se resulta numa cor pura, neu
 
 O relativo acontece quando nos desligamos das amarras mentais do que esperamos para a realidade, só assim conseguimos indiferenciar aquilo que nem mesmo consideramos possível. Sem a mentalidade do impossível para absoluto, não podemos indiferencia-lo. É preciso produzir a hipotese do nada ainda que injustificavel e até mesmo ela arremeça-la ao alto, para chegar realmente ao puro.
 
+O nada existente é uma violação dos principios lógicos. É algo entre o ser e não ser. Para indiferenciar até mesmo o Ser, é necessario aceitar a quebra dos principios lógicos. 
+
 #### **§ 9.12 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
