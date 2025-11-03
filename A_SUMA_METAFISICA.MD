@@ -658,7 +658,7 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 ##### **Tempo Potencial e Expresso (Atemporalidade)**
 -   O tempo existe em dois modos:
     1.  **Tempo expresso** (manifestado, atualizado).
-    2.  **Tempo inexpresso** (potencial não realizado, virtual).
+    2.  **Tempo inexpresso** (potencial não realizado).
 -   A infinitude consome ambos, anulando a distinção entre manifestação e não-manifestação temporal.
 -   A infinitude consuma o tempo em sua expressão e inexpressão, transcendendo a própria dicotomia entre atual e potencial.
 
