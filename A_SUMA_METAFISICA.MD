@@ -4447,7 +4447,7 @@ Não me refiro exclusivamente aos magnatas, mas a todo o espectro opressor: aos 
 
 Todos os que se mantinham num patamar de orgulho, de tirania, de dominação — os indivíduos gélidos e calculistas, os arquitetos do sistema opressivo, os colaboradores periféricos da casta dominante, nutrindo-se das migalhas da tirania. Pessoas que assimilaram a índole dos ricos e servem ao mesmo projeto existencial em troca de uma posição ligeiramente superior à da classe oprimida. Todas estas pessoas terão suas máscaras arrancadas e estilhaçadas no chão.
 
-### **O apocalipse bíblico**
+#### **O apocalipse bíblico**
 
 O apocalipse bíblico representa a queda da ilusão. Os fundamentos estruturais da realidade são revelados, levando o homem a se autoavaliar e a reconhecer, em seu semelhante, tendências que o conduzem à danação. O apocalipse não é simplesmente a destruição do mundo ou a corrosão da natureza, mas o domínio do homem sobre a terra em um sentido metafísico. Ao conhecer verdadeiramente a estrutura da realidade, o homem se liberta de construções mentais, reconstrói seu mundo sob outra perspectiva, renova seu ânimo e traça um novo rumo para si.
 
@@ -4461,7 +4461,7 @@ O apocalipse seria, então, a preparação do homem para a tomada de consciênci
 
 Dessa forma, o apocalipse revela-se não como um fim do mundo, mas como a projeção emocional da tomada de consciência do homem sobre o seu próprio estatuto de liberdade enquanto Ser. Perceber-se radicalmente livre é um evento tão cataclísmico para a psique que, incapaz de assimilar esse poder de forma integrada, a consciência projeta seu terror interno no mundo externo, materializando-o como um colapso universal.
 
-### **Um cenário apocalíptico**
+#### **Um cenário apocalíptico**
 
 A pirâmide, na antiguidade egípcia, simbolizava mais do que um monumento funerário: representava a tentativa humana de transcender a morte através da matéria. Reunia-se uma energia coletiva imensurável — a força de trabalho de milhares de homens — para edificar uma estrutura capaz de assegurar a imortalidade de um só. O faraó, considerado a encarnação do divino, buscava perpetuar-se no tempo por meio da pedra, erguendo uma eternidade artificial. Assim, a pirâmide tornou-se o primeiro grande projeto civilizacional que converteu a fé na vida eterna em engenharia material. Era como se a energia física, o sofrimento e a devoção de centenas de escravos se condensassem em um monumento saturado de simbolismo — uma máquina espiritual construída para projetar o faraó além da morte.
 
