@@ -1540,7 +1540,9 @@ A dignidade da forma particular está precisamente em ser **expressão única do
 
 #### **§ 14.1 – A Potencialidade Ilimitada do Ser**
 
-O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam. Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar-se como múltiplo. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
+O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam. 
+
+Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual sua liberdade. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
 
 O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
@@ -1669,10 +1671,6 @@ Sua identidade é indissociável de sua existência necessária.
 
 2.2. O **Sou**, ao contrário, configura uma persona **não necessariamente orientada para si ou para a existência**, podendo manifestar intenções e direções que não refletem a plenitude do Ser.
 
-Claro, eis a reorganização do texto, removendo as numerações e divisões de tópicos, mas mantendo a estruturação por parágrafos e quebras de linha para clareza.
-
-***
-
 ### **3. Da Relação de Contenção e Transcendência**
 
 O **Ser abrange todos os Sous**, sem se confundir com eles.
@@ -1691,7 +1689,6 @@ Opera a partir de uma **lógica identitária autônoma**, ainda que **não autos
 ### **5. Da Individualidade do Sou e do Ser Transcendente**
 
 O **Sou** possui arbítrio **não necessariamente voltado à autocontinuidade**, pois sua tendência não interfere na integridade do Ser.
-
 O **Ser**, em contraste, possui arbítrio **necessariamente voltado à autocontinuidade**; uma alteração nesta característica afetaria a existência do relativo.
 
 O **Ser** tem uma persona **ligada ao seu propósito fundamental**, expressa como **amor inefável**.
@@ -1788,7 +1785,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 ##### **3. O Ser como Transcendência Ativa**
 -   **Para além do espaço:** Não está "em lugar nenhum" porque *é* o próprio lugar.
 -   **Para além do tempo:** Não "dura", pois contém toda duração em si mesmo.
--   **Para além da identidade:** Não é "um sou", mas o *fundo de todos os "sous"*.
+-   **Para além da identidade:** Não é "um sou", mas a *fundamento puro de todos os "sous"*.
 
 ##### **4. A Ontologia dos "Sous"**
 -   Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).
@@ -2209,11 +2206,11 @@ A jornada da alma é **da limitação conceitual para a liberdade ontológica** 
 
 #### **§ 21.1 – A Transcendência como Movimento Interno do Ser**
 
-A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma finitude, no sentido de romper um potencial expressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendência, no sentido de um novo infinito. Seja um novo renascer em si, um renascer em Deus ou o renascer no outro.
+A transcendência, para o Ser, é um movimento interno. Pois em ato único o Ser já se consuma como resultado final de sua própria transcendência. Transcender é transcender uma finitude, no sentido de romper um potencial expressivo. As possibilidades de transcendência para o "sou" é transcender para o Ser, para o outro e para si. A possibilidade de transcendência do Ser é transcender para si. Transcender é criar sobre o potencial ou relativo, desta forma, sob todo infinito incide uma nova transcendência, no sentido de um novo infinito ou uma infinitude. Seja um novo renascer em si, um renascer no Ser ou o renascer no outro.
 
 A unidade que definimos como sou, não pode ser um limite, mas é uma vazão para a infinitude. Ou seja, desta forma, dissipamos o conceito de finitude até mesmo para a determinação individual; possibilitando que até mesmo o sou transcenda em si mesmo sem que perca sua autonomia e identidade.
 
-> **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer no **Ser**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de Ser** — e Ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.
+> **O homem é capaz de renascer em uma nova vida, de tornar-se um novo homem a partir de duas almas padrinhas.** É capaz de renascer em **Deus**, apropriando-se de uma luminosidade ainda maior, e de renascer em outra alma, transformando-se numa alma singular e renovada. O homem pode transitar no tempo. É autor do seu próprio relativo, do seu próprio universo e das suas próprias ações. Diante de si, **estendem-se infinitas possibilidades**. Mas, para que seja capaz de existir plenamente, é preciso que seja capaz de amar — **assim como nos ensinou o querido Mestre**, pois o amor é o bem mais necessário e fundamental. O mundo além deste é um **mundo de infinitas possibilidades**, muito mais vastas do que aquelas que a imaginação pode conceber. No entanto, é preciso que haja a **possibilidade de ser** — e ser significa **decidir**, optar definitivamente por **Deus**, que é a própria essência do existir. Deus em nós é a vida eterna.
 
 > Deus não poderia criar uma criatura autoconsciente, livre e incompleta; uma criatura com um mal infinito ou uma criatura que não pudesse transcender a si mesma, para o Ser e para o outro. O homem, como criação amorosa de Deus, possui, em seu infinito particular, todas as possibilidades que o realizam e completam sua dignidade como ser existente.
 
