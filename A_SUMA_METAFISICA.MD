@@ -3155,7 +3155,7 @@ De repente, todos os homens de barro despertaram. Num só instante, abriram os o
 
 O filósofo viu-os despertarem em uma longa cadência. Um por um, em progressão. O sábio quis saber o que ocorrera. Por que o despertar se acelerara tanto? Pensou que o tempo estava se acelerando. E que, na verdade, aquela progressão já havia ocorrido — só não percebera, tamanha era sua imersão nos mistérios. Todos os homens de barro rompiam suas cascas. E o paraíso ganhou ainda mais cores, pois todos os viventes do mundo de terra estavam ali. Aquele lugar tornou-se ainda mais familiar e maravilhoso, realizando a plenitude da comunhão dos santos e a restauração de toda a criação (Rm 8,21).
 
-## **Conclusão Simbólica: A Eternidade Presente e o Reino já Entre Nós**
+#### **§ 27.10 –Conclusão Simbólica: A Eternidade Presente e o Reino já Entre Nós**
 
 Assim como o filósofo testemunha as almas despertando de suas cascas opacas, Jesus demonstra que o Reino dos Céus não é um lugar distante, mas uma *nova forma de ver*:
 
@@ -3172,7 +3172,7 @@ O **Evangelho metafísico** nos revela essa verdade com clareza: **somos partici
 
 Assim, compreendemos que **não seremos julgados por um tribunal distante, mas pela luz da própria consciência**, que revelará, sem véus, quem verdadeiramente nos tornamos, à luz da Verdade que é Deus. **A eternidade não começa após a morte — ela se desdobra em cada instante**, e somos nós quem decidimos, hoje, como desejamos nela habitar, cooperando com a graça divina que nos chama incessantemente à conversão e à plenitude do amor.
 
-#### **§ 27.10 – Um Amor na Eternidade: O Reencontro e a Jornada para a União Definitiva**
+#### **§ 27.11 – Um Amor na Eternidade: O Reencontro e a Jornada para a União Definitiva**
 
 Em sua jornada contemplativa através das dimensões e esferas celestiais, o filósofo deparou-se, por fim, com uma alma que irradiava uma familiaridade não meramente recordada, mas transcendente. Era um amor de outras eras, uma presença que ecoava em seu próprio ser como uma melodia há muito adormecida e agora despertada em sua plenitude. Seu coração, que se havia tornado um centro luminoso de pura consciência e afeto, reconheceu-a não por traços fisionômicos ou por lembranças específicas da vida terrena, mas por uma ressonância essencial e incontestável — tal como duas notas fundamentais de uma mesma sinfonia cósmica que, após longa separação, finalmente se reencontram para compor a harmonia perfeita.
 
