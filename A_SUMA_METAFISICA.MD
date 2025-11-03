@@ -1029,6 +1029,12 @@ O Ser seria indiferente a determinação. E seria indiferente até mesmo ao nada
 
 Para mais claro entendimento é possível imaginar que o nada, ainda que seja uma impossibilidade ou um erro de linguagem, poluiria a pureza que necessitamos encontrar para justificar a realidade. Então jogariamos o nada em suspensão, assim como qualquer outra possibilidade, pois a pureza nem mesmo retem uma definição, que é o que chamamos de determinação. No ato de suspensão de todas as possibilidades e impossibilidades, produzimos o relativo. Uma realidade afirmativa que existe, ao passo que é pura, pois é indiferenciada.
 
+Para esclarecer ainda mais, ao se aceitar o possível ainda não alcançamos a indiferenciação, porém ao se conceber o impossível como aceitável no campo absoluto, temos uma indiferenciação até mesmo da possibilidade. Quando o nada é negado eficazmente de forma abstrata, ainda que isto não seja possível, a psique humana é capaz de imaginar o indiferenciado. É capaz de conceber algo que chegue o mais proximo possível do entendimento de uma realidade auto causal.
+
+Para sintetizar o relativo, todas as possibilidades precisam ser negadas, até mesmo o nada. E assim se encontra a pureza total auto justificada, uma realidade que nem mesmo necessita do nada. Na qual tudo está suspenso, todas as possibilidade coexistem em uma harmonia que fomenta uma pureza eterna.
+
+O relativo é como a mistura de todas as cores que se resulta numa cor pura, neutra. É como a soma de todos os infinitos que se resultam numa infinitude, numa indeterminação. É como um X que porta todas as variaveis, do ponto de vista matematico. 
+
 #### **§ 9.12 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
