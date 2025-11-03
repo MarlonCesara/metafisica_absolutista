@@ -3134,7 +3134,7 @@ Em vida, o niilista tenta guardar seu ódio em segredo. Conserva a sua existênc
 
 Se tivesse tido essa escolha em vida, tê-la-ia tomado, mas precisou esperar que o corpo padecesse sozinho, pois não queria o sofrimento — já que até mesmo o sofrimento é vida. Passou a existência de ouvidos fechados para as coisas boas, tentando manter-se firme em sua intenção, pois, de alguma forma, sabia que sem o corpo seria mais fácil. O corpo foi projetado para se defender, para sofrer quando há o pensamento niilista; mas a alma é livre até mesmo desse sofrer.
 
-## **A Mudança das Almas: O Processo Contínuo de Purificação e a Dinâmica do Juízo**
+#### **§ 27.8 – A Mudança das Almas: O Processo Contínuo de Purificação e a Dinâmica do Juízo**
 
 Num insight tão claro quanto as águas do rio celestial, o filósofo entendeu a natureza do "julgamento" que os homens de barro tanto temiam. Não havia tronos flamejantes, nem livros de contas celestiais — apenas a lei implacável da autorrevelação. No instante do despertar, cada alma enfrentava a verdade que havia cultivado em vida:
 
@@ -3149,7 +3149,7 @@ E então, no ápice de sua compreensão, o filósofo fez a descoberta mais extra
 
 O paraíso, percebeu ele, não era somente um destino, mas um caminho. E o tempo — esse tempo elástico e dançante — era o espaço da cura — reflectindo a noção de *tempus acceptable* (tempo aceitável) de 2Cor 6,2, que se estende para além da vida terrena no processo de purificação.
 
-#### **§ 27.8 – O Encontro das Almas no Paraíso: A Plenitude dos Tempos**
+#### **§ 27.9 – O Encontro das Almas no Paraíso: A Plenitude dos Tempos**
 
 De repente, todos os homens de barro despertaram. Num só instante, abriram os olhos. Como era desejo de cada alma encontrar todas as outras, as almas se encontraram no paraíso. Oriundas de um estado atemporal, localizaram-se todas em um único instante. O tempo no relativo não passava; então, a impressão que todas as almas tinham era de que o tempo que haviam passado sem os corpos havia sido o mesmo — uma antecipação da ressurreição final dos mortos. Todas as almas que cultivavam o desejo pela vida nutriram um mesmo ideal: retornar ao mundo, porém em um mundo aprimorado, com um corpo renovado e mais perfeito.
 
@@ -3172,7 +3172,7 @@ O **Evangelho metafísico** nos revela essa verdade com clareza: **somos partici
 
 Assim, compreendemos que **não seremos julgados por um tribunal distante, mas pela luz da própria consciência**, que revelará, sem véus, quem verdadeiramente nos tornamos, à luz da Verdade que é Deus. **A eternidade não começa após a morte — ela se desdobra em cada instante**, e somos nós quem decidimos, hoje, como desejamos nela habitar, cooperando com a graça divina que nos chama incessantemente à conversão e à plenitude do amor.
 
-#### **§ 27.9 – Um Amor na Eternidade: O Reencontro e a Jornada para a União Definitiva**
+#### **§ 27.10 – Um Amor na Eternidade: O Reencontro e a Jornada para a União Definitiva**
 
 Em sua jornada contemplativa através das dimensões e esferas celestiais, o filósofo deparou-se, por fim, com uma alma que irradiava uma familiaridade não meramente recordada, mas transcendente. Era um amor de outras eras, uma presença que ecoava em seu próprio ser como uma melodia há muito adormecida e agora despertada em sua plenitude. Seu coração, que se havia tornado um centro luminoso de pura consciência e afeto, reconheceu-a não por traços fisionômicos ou por lembranças específicas da vida terrena, mas por uma ressonância essencial e incontestável — tal como duas notas fundamentais de uma mesma sinfonia cósmica que, após longa separação, finalmente se reencontram para compor a harmonia perfeita.
 
