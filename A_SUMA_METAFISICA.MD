@@ -1962,8 +1962,8 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 ##### **Autodeterminação e Evolução Espiritual**
 -   Mover-se diagonalmente e não somente horizontalmente, permite ao indivíduo, não somente ser um espectador de sua existência, ou contemplar uma existência na qual foi fadado, mas o permite estar por liberdade, e não por uma consequência da escolha de Deus.
 -   A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonância consigo. É o Eu em harmonia com sua auto determinação.
--   O homem é, portanto, trinário por opção. Pode direcionar-se à plenitude (verticalmente) ou não. Desta forma, constitui-se em seu fundamento como determinação do Ser em uma particularidade temporal, o espírito perfeito de forma opcional inerente ao seu ser e a personalidade.
--   Não existe a antítese do espírito perfeito que levaria o homem à sua autodestruição, somente existe o homem sendo trinário, ou seja, sendo pleno, corroborando com a mesma plenitude do Ser, ou caracterizado pela ausência do Espírito perfeito, ou seja, pela não harmonia com o Ser e com sua plenitude.
+-   O homem é, portanto, trinário por opção. Pode direcionar-se à plenitude (verticalmente) ou não. Desta forma, constitui-se em seu fundamento como determinação do Ser em uma particularidade temporal, o Espírito Perfeito de forma opcional inerente ao seu ser e a personalidade.
+-   Não existe a antítese do Espírito Perfeito que levaria o homem à sua autodestruição, somente existe o homem sendo trinário, ou seja, sendo pleno, corroborando com a mesma plenitude do Ser, ou caracterizado pela ausência do Espírito perfeito, ou seja, pela não harmonia com o Ser e com sua plenitude.
 
 > _"Por isso eu lhes digo: todo pecado e toda blasfêmia serão perdoados, mas a blasfêmia contra o Espírito não será perdoada"_
 > _— Mateus 12:31-32_
