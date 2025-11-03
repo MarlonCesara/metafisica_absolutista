@@ -1007,7 +1007,7 @@ O "nada", portanto, longe de ser um conceito ontológico primário, revela-se um
 
 #### **§ 9.11 – O relativo como pureza absoluta**
 
-O nada, como uma realidade totalmente pura, a ponto de se injustificar e dar lugar a presença, nos reintera um raciocinio circudante ao ser negada. Toda vez que se nega o nada, tem se a presença. E, ao se negar a presença novamente, se emerge um ciclo infinito a presença. 
+Ao concebermos o nada como uma realidade totalmente pura, a ponto de se injustificar e dar lugar a presença, nos reintera um raciocinio circudante ao ser negada. Toda vez que se nega o nada, tem se a presença. E, ao se negar a presença novamente, se emerge em um ciclo infinito de negaçãoes a presença. 
 
 Isto é, diante da realidade do nada como um erro definitivo, ou algo insustentavel, temos que justificar uma presença, ou uma realidade afirmativa (não auto-suprimida), para justificar o absoluto. Tal realidade, deve ao passo que conceber o atributo de pureza do nada, e ao memso tempo ser justificada como presença auto fundamentadora.
 
@@ -1034,6 +1034,8 @@ Para esclarecer ainda mais, ao se aceitar o possível ainda não alcançamos a i
 Para sintetizar o relativo, todas as possibilidades precisam ser negadas, até mesmo o nada. E assim se encontra a pureza total auto justificada, uma realidade que nem mesmo necessita do nada. Na qual tudo está suspenso, todas as possibilidade coexistem em uma harmonia que fomenta uma pureza eterna.
 
 O relativo é como a mistura de todas as cores que se resulta numa cor pura, neutra. É como a soma de todos os infinitos que se resultam numa infinitude, numa indeterminação. É como um X que porta todas as variaveis, do ponto de vista matematico. 
+
+O relativo acontece quando nos desligamos das amarras mentais do que esperamos para a realidade, só assim conseguimos indiferenciar aquilo que nem mesmo consideramos possível. Sem a mentalidade do impossível para absoluto, não podemos indiferencia-lo. É preciso produzir a hipotese do nada ainda que injustificavel e até mesmo ela arremeça-la ao alto, para chegar realmente ao puro.
 
 #### **§ 9.12 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
