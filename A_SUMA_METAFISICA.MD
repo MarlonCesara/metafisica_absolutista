@@ -988,7 +988,7 @@ Antes, a criação _ex nihilo_ significa:
 
 #### **§ 9.10 – O Campo Relativo: O Absoluto Indiferenciado**
 
-A investigação metafísica conduzida até aqui demonstra que o conceito de "nada" não oferece uma explicação satisfatória para a emergência de uma realidade autofundamentada. Embora sua aparente simplicidade lógica — a ideia de uma ausência primordial isenta de propriedades — possa sugerir uma base para a autojustificação ontológica, uma análise rigorosa revela sua insustentabilidade. O "nada" revela-se uma construção parasitária, dependente da noção de "algo" que pretensamente nega, incapaz de servir como fundamento último.
+Como o "nada" não está sujeito às regras da causalidade que regem o "algo", elegê-lo como fundamento para uma realidade autocausada constitui um argumento quase defensável. Parte-se da premissa de que o 'nada', em sua concepção absoluta, possuiria o potencial de se autocausar precisamente por carecer de qualquer conteúdo ou atributo que exigisse uma causa ou justificação externa. No entanto, a investigação metafísica conduzida até aqui demonstra que o conceito de "nada" não oferece uma explicação satisfatória para a emergência de uma realidade autofundamentada. Embora sua aparente simplicidade lógica — a ideia de uma ausência primordial isenta de propriedades — possa sugerir uma base para a autojustificação ontológica, uma análise rigorosa revela sua insustentabilidade. O "nada" revela-se uma construção parasitária, dependente da noção de "algo" que pretensamente nega, incapaz de servir como fundamento último.
 
 Diante do colapso do "nada" como categoria explicativa, é necessário recorrer a um conceito mais robusto: o **"Relativo"** ou **"Campo Relativo"**. Este não designa uma realidade dependente ou secundária, mas sim o **estado primordial de suspensão ontológica** no qual todas as potencialidades — o possível, o impossível e o incognoscível — coexistem em **indiferenciação radical**.
 
@@ -1004,7 +1004,32 @@ Desta análise, depreende-se que a expressão "criar do nada" deve ser compreend
 
 O "nada", portanto, longe de ser um conceito ontológico primário, revela-se uma ferramenta linguística que aponta para a **auto-evidência da Presença autocausal**. A verdade última é que o Espírito Absoluto não necessita de um fundamento externo porque Ele próprio é a atualização do Campo Relativo — a Potência pura que se autodetermina como ato puro. Criar é o ato pelo qual o Ser, a partir de sua própria plenitude indiferenciada, traz à existência determinada todas as coisas.
 
-#### **§ 9.11 – O Absoluto Indiferenciado como Fundamento Dinâmico**
+
+#### **§ 9.11 – O relativo como pureza absoluta**
+
+O nada, como uma realidade totalmente pura, a ponto de se injustificar e dar lugar a presença, nos reintera um raciocinio circudante ao ser negada. Toda vez que se nega o nada, tem se a presença. E, ao se negar a presença novamente, se emerge um ciclo infinito a presença. 
+
+Isto é, diante da realidade do nada como um erro definitivo, ou algo insustentavel, temos que justificar uma presença, ou uma realidade afirmativa (não auto-suprimida), para justificar o absoluto. Tal realidade, deve ao passo que conceber o atributo de pureza do nada, e ao memso tempo ser justificada como presença auto fundamentadora.
+
+Ainda que tornassemos o ''nada'' de forma ficiticia, uma real possibilidade. O nada, não seria a si mesmo um conceito auto sustentaevl como explicado anteriormente, o nada, afirmado, é algo, e o algo, de toda a forma necessitaria de justificativa. O nada, porém, negado, emerge a presença, que mais uma vez necessita de justificativa.
+
+Para produzir o relativo, temos que tonar possivel a negação do nada. Um nada possibilitado de ser negado resulta na indiferenciação, na qual nem mesmo o nada existe como definição. E essa seria a verdadeira pureza.
+
+Pois, até mesmo o nada, como afirmação e realidade, ainda que impossivel e ilógica, mancharia o absoluto com a necessidade de auto justificação, pois o nada, é em si, uma determinação, isto é, uma escolha. E toda escolha, exigiria uma determinação previa ou a ação da escolha.
+
+Desta forma, pela negação ficticia de um nada forçadamente validado, somente para fins de entendimento do relativo, podemos começar a imaginar como uma realidade auto fudamentada pode existir de fato.
+
+O relativo é a suspensão até mesmo do nada, a suspensão da impossibilidade, da possibilidade e do incognocível. Ao suspendermos a presença, e até mesmo a ausencia, teriamos o verdadeiro nada. E para suspender a ausencia é necessario considerar até a impossibilidade para absoluto.
+
+Formamos então a verdadeira pureza que se distingue do nada que procuramos para auto fundamentar a realidade. Uma realidade que é indiferente até mesmo ao próprio nada que a poluiria. Indiferente a uma determinação de sua existencia. É uma infinitude da possibilidade. 
+
+Para produzir o relativo é necessario se aceitar a indiferenciação até mesmo do que é em um sentido não puro. É necessario aceitar a possibilidade afirmada do nada. Temos portanto, uma existencia pura, no sentido de ser indiferenciada, não no sentido de ser nada.
+
+O Ser seria indiferente a determinação. E seria indiferente até mesmo ao nada como uma afirmação incongruente. Até mesmo ao impossível haveria a indiferenciação. E não há como negar o impossivel para absoluto. Mas há como indiferenciar o impossivel no relativo.
+
+Para mais claro entendimento é possível imaginar que o nada, ainda que seja uma impossibilidade ou um erro de linguagem, poluiria a pureza que necessitamos encontrar para justificar a realidade. Então jogariamos o nada em suspensão, assim como qualquer outra possibilidade, pois a pureza nem mesmo retem uma definição, que é o que chamamos de determinação. No ato de suspensão de todas as possibilidades e impossibilidades, produzimos o relativo. Uma realidade afirmativa que existe, ao passo que é pura, pois é indiferenciada.
+
+#### **§ 9.12 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
 
@@ -1016,7 +1041,7 @@ Portanto, necessitamos de uma realidade auto-determinada para justificar a prese
 
 O que se origina sem causa não pode determinar-se em um momento posterior; caso contrário, não seria auto-determinado, pois anterior ao absoluto não há nada que pudesse determiná-lo. Sendo o tempo consumado, temos que toda a configuração futura pelo ponto de vista de um observador é um momento vindouro do que já aconteceu. A percepção de tempo, portanto, é um testemunho temporal do decorrer total do tempo que já se sucedeu completamente.
 
-#### **§ 9.12 – A Consumação Temporal do Espírito**
+#### **§ 9.13 – A Consumação Temporal do Espírito**
 
 Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto que se sucederam no tempo. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. E também significa que há uma razão para haver o fenômeno ao invés do não-fenômeno (Espírito puro), e essa razão só pode estar ligada à natureza da plenitude do Espírito.
 
@@ -1026,7 +1051,7 @@ Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subje
 
 Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.
 
-#### **§ 9.13 – O Relativo como Infinito de Possibilidades**
+#### **§ 9.14 – O Relativo como Infinito de Possibilidades**
 
 O relativo, portanto, é um infinito de possibilidades; as quais não se assumem por si de forma que não haja unidade ou multiplicidade, mas um estado indiferente, o qual é existente, porém puro. Um estado de completude no qual não há definição, número, dimensão, ou forma, porém, tudo que é possível em uma suspensão.
 
@@ -1034,7 +1059,7 @@ O relativo está em relação ao infinito, ou seja, o infinito de espaço e temp
 
 Todas as possibilidades em suspensão resulta em uma infinitude de possibilidades, tal como o tempo em sua completude se resume o atemporal. Portanto, o Absoluto não fragmentado, é uma suspensão das possibilidades de forma que isto resulte em um infinito possível, não somente de tempo, espaço, mas das próprias possibilidades. Desta forma, temos o termo "Ser", como sinônimo de uma existência indiferenciada, que porta e abrange tudo que é.
 
-#### **§ 9.14 – Conclusão: Do Nada ao Ser Pleno**
+#### **§ 9.15 – Conclusão: Do Nada ao Ser Pleno**
 
 Esta análise revela que:
 
