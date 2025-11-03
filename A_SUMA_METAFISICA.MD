@@ -3503,7 +3503,7 @@ Em síntese, Adão e Eva malograram o paraíso. O mundo foi destruído por um fi
 
 A prova de amor a Deus é persistir na vida mesmo diante da visão das mortes eternas. E a prova da união da dualidade é permanecer unida, mesmo diante do mal e do bem.
 
-#### **CAPÍTULO 30 – O EXISTÊNCIALISMO ALEGÓRICO**
+### **CAPÍTULO 30 – O EXISTÊNCIALISMO ALEGÓRICO**
 
 #### **§ 30.1 – A estranha cidade das almas perdidas**
 
