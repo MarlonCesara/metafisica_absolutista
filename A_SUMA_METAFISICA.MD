@@ -1081,7 +1081,13 @@ isto é, o nada deixa de ser um constante afirmador do ser, e torna-se um elemen
 
 Ao considerarmos o ser e o não ser sendo possivel, elaboramos uma nova linha de possibilidades, uma via que quebra uma regra fixa. O quebrar desta regra para a realidade, elimina a sua diferenciação, a deerminação que bloqueia o relativo de ser concretizavel.
 
+As proprias leis lógicas são determiações da realidade, e uma determinação impede o realizar da indeterminação, da indiferenciação.
 
+Definir que uma coisa é uma coisa, impede que uma coisa seja qualquer coisa ou até mesmo o seu antagonismo. Se existir, portanto, uma abertura do absoluto para a coisa e não coisa, essa limitação deixara de considerar essa possibilidade, impedindo assim que seja suspendida.
+
+Por isto, o nada, não pode ser indiferenciado. Pois se reconhece como uma determinação obrigatoria, o que, ainda que não exiga um subproduto do nada, exigiria da mesma forma uma justificaçaõ para tal possibilidade e não outra para absoluto.
+
+Libertando o absoluto da llógica aristotélica, temos o indiferenciado, a suspensão até mesmo do nada, pois desenquadramos o nada como algo que obrigatoriamente nada é, e que define o absoluto. Libertamos a possibilidade de suas regras, para que haja um campo onde as possibilidades estão suspensas.
 
 
 
