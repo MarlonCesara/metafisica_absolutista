@@ -3620,7 +3620,7 @@ Então, subitamente, o indivíduo permite que um ressentimento — ou uma série
 
 Se antes ainda conservava algum propósito, ainda que em conflito com suas experiências, agora, desprovido de qualquer sentido, tenta preencher o vazio com riquezas e poder. Pois, ao permitir que o ódio se tornasse absoluto, abandonou todo propósito — abandonou a si mesmo. No ódio absoluto, só existe a perdição. O ódio completo humilha o indivíduo e lhe rouba até mesmo o breve instante de satisfação que a vingança poderia oferecer, pois a vingança acaba por voltar-se contra a própria vida. Nem mesmo o deleite de oprimir ou vingar-se subsiste no niilismo — o que resta é a completa humilhação do indivíduo, que passa a desejar destruir tudo ao seu redor, tornando-se profundamente egoísta e opressor. Seu ódio não é apenas um desejo de agredir, mas uma renúncia à eternidade.
 
-## **32. A SINTOMOLOGIA E MANIFESTAÇÕES DO COMPORTAMENTO NIILISTA**
+## **CAPÍTULO 32: A SINTOMOLOGIA E MANIFESTAÇÕES DO COMPORTAMENTO NIILISTA**
 
 #### **A Anatomia do Comportamento Niilista**
 
@@ -3689,7 +3689,7 @@ Em síntese, o niilista é aquele que padece de uma depressão da alma, não do 
 
 O niilista empenha-se com todas as suas forças em ocultar sua decisão, mascarando-se sob requintes, vícios ou uma animalidade reducionista — todos eles, artifícios tolos e fúteis. Toda materialidade excessiva e todo comportamento de fuga representam a loucura diante do absurdo de uma alma revoltada, desgovernada e desesperada. Todos os atos do niilista constituem um pedido de socorro, um grito silencioso e interno por auxílio que ele próprio não consegue ouvir. É uma boca que não se abre para proclamar o clamor, o louvor ou a vida. O niilista é um ser em vão, uma alma encapsulada em si mesma. À medida que seus palácios simbólicos desmoronam e suas máscaras sociais caem diante das contradições da realidade, revela-se um ser humano em estado fetal — inconformado e frustrado com sua própria condição de renúncia a tudo que mais secretamente ama, inclusive de si mesmo. Os ricos em seus escritórios, aparentemente plenos de razão e autoconfiança, são, na verdade, indivíduos que esperam que aquela porta se abra, e que alguém os abrace e salve da infindável escuridão que os aguarda. Sentem, à sua espreita, um demônio faminto com sede de sangue — a própria consciência de seu vazio — a acompanhá-los incessantemente.
 
-## **33. OS MECANISMOS PSICOLÓGICOS DE DEFESA E FUGA**
+## **CAPÍTULO 33: OS MECANISMOS PSICOLÓGICOS DE DEFESA E FUGA**
 
 #### **A Redução ao Comportamento Animal e a Lógica da Selva**
 
@@ -3763,14 +3763,13 @@ O niilismo, com frequência, revela-se um mero eufemismo para a expressão "busc
 
 A tragédia reside precisamente nisto: o niilista busca no exterior — em sentidos construídos, em felicidades programadas, em propósitos artificiais — aquilo que só pode ser encontrado no reconhecimento interior do valor intrínseco do próprio existir. Ele percorre o mundo com uma lanterna, procurando a luz, sem perceber que é ele mesmo quem deve gerá-la.
 
-## **34. A Psicologia do Poder e da Riqueza Niilista**
+## **CAPÍTULO 34: A Psicologia do Poder e da Riqueza Niilista**
 
 #### **A Soberba como Sintoma de Fragilidade Existencial**
 
 A soberba funciona como máscara para uma insegurança ontológica. O soberbo olha para a vida e sente-se desamparado, sem chão, sem um eixo interior que o sustente. A liberdade, que deveria ser espetacular, torna-se para ele fonte de angústia; contempla as estrelas não com alegria, mas com a saudade antecipada de uma despedida interior já consumada. Disfarça sua insegurança no acúmulo, na exclusão do próximo, numa vida de excessos — mas, no fundo, nada disso verdadeiramente o importa. O que o soberbo realmente anseia é poder descansar em paz no travesseiro, com a mesma serenidade que observa no trabalhador humilde; deseja ter o mesmo sorriso autêntico dos simples. Sua necessidade de oprimir, escravizar e enganar nasce precisamente de sua distância da humanização plena. Ser humano implica encarar a si mesmo, olhar a própria verdade de frente, fitar os céus com gratidão pela vida. Representa uma coragem interior, uma firmeza de alma. Quem sabe ser humano possui um porto seguro, um amigo interior para a eternidade.
 
 A soberba não é vaidade, nem traço cultural, muito menos atributo de inteligência. Emerge da mais visceral covardia perante a vida, da quase absoluta carência de amor, da incapacidade de perdoar, de relevar, de amar e de sorrir genuinamente. Está a uma distância infinita da capacidade de selecionar boas companhias ou apreciar coisas verdadeiramente boas; brota da mais vergonhosa fraqueza, da mais temível decisão interior — que o indivíduo oculta devido ao seu caráter abissal. A soberba nasce no indivíduo que pede socorro, que mendiga esmolas para um interior tão frágil que sequer deseja auto-sustentar-se. Não provém da força ou do requinte, mas da fraqueza niilista mascarada por riquezas materiais e poder.
-
 
 #### **A Miséria Interior do Rico e do Pobre**
 
@@ -3836,7 +3835,7 @@ A crença niilista confina-os a um patamar de irrelevância ontológica, reduzin
 
 O super-rico causa miséria numa tentativa desesperada de proclamar que a vida o despedirá de mãos vazias, que nada lhe será concedido. O reflexo de sua própria indigência interior revela-se na intensidade com que acumula bens. Ele tenta extinguir a vida alheia de modo a espelhar sua própria condição, denunciando, silenciosamente, o abismo entre os que possuirão a vida plena e os que a perderão. Oprime porque é oprimido pelo ditador interior que carrega consigo. Projeta no sofrimento alheio a forma como se relaciona com seu próprio ser. Busca exibir sua suposta “alta cultura”, seu modelo mental, através do acúmulo e da inflição de dor.
 
-## **35. A DINÂMICA RELACIONAL E PROJETIVA**
+## **CAPÍTULO 35: A DINÂMICA RELACIONAL E PROJETIVA**
 
 #### **O Niilista por Contrato: A Inveja da Vida**
 
@@ -3906,7 +3905,7 @@ Os niilistas ricos forçam risadas, simulam sorrisos, encenam conversas alegres 
 
 O niilista julga-se pequeno, acredita que sua existência é uma mera construção mental, sem substância real. Sente-se insignificante perante o mundo e tenta compensar essa percepção através da força, da coação e da opressão.
 
-## **36. A DIMENSÃO ÉTICA E MORAL**
+## **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
 
 #### **A Moralidade como Escolha Conveniente**
 
@@ -3931,7 +3930,7 @@ Essas almas frequentemente se autodenominavam niilistas, mas sua essência não 
 
 Para o niilista, a única conduta que convinha era a de aproveitar o momento presente, desprezando qualquer fundamento estável — seja na conduta, nos dons recebidos ou no crescimento pessoal. Sua ânsia por proveito era, portanto, puramente imediatista, pois se considerava um ser sem futuro, enxergava a vida como intrinsicamente vazia e via o presente como um domínio a ser explorado sem preocupações éticas ou reflexão profunda. O pensamento da falta de sentido não se sustentava numa estrutura lógica robusta, mas era o acompanhamento racional de um sentimento primário — o desejo de, no mínimo, não estar "desperdiçando" a vida ao ansiar pela morte. A máxima que melhor encapsula esse estado é: "Aproveite o momento, pois só se vive uma vez". O niilista, em sua radicalidade, não acreditava na vida, não acreditava na lógica, não acreditava sequer em si mesmo. Preferia sustentar que nada era real e, por isso, reduzia o sentido da existência à fruição imediatista e inconsequente dos prazeres — uma negação prática da *lex naturalis* (lei natural) inscrita no coração de todo ser humano (Rm 2,15).
 
-## **37. O CONFLITO INTERNO E A ANATOMIA DA ALMA DIVIDIDA**
+## **CAPÍTULO 37: O CONFLITO INTERNO E A ANATOMIA DA ALMA DIVIDIDA**
 
 #### **O Conflito e o Caos Interno: A Anatomia da Alma Dividida**
 
@@ -3974,7 +3973,7 @@ O ódio do niilista não constitui uma mera revolta passageira ou um ressentimen
 
 O ódio do niilista é uma certeza cravejada em ferro, forjada sobre uma ferida viva que o atormenta perpetuamente, mas que é habilmente mascarada pela grandiosidade de seu ódio aparentemente gratuito.
 
-## **38. AS MANIFESTAÇÕES SOCIAIS E POLÍTICAS**
+## **CAPÍTULO 38: AS MANIFESTAÇÕES SOCIAIS E POLÍTICAS**
 
 #### **A Ordem dos Niilistas: Alianças na Sombra**
 
@@ -4012,7 +4011,7 @@ Para alinhar-se com a direita não é necessário ser economicamente afortunado;
 
 Todas estas atitudes, ainda que não configurem um niilismo radical como o daqueles que buscam ativamente o suicídio espiritual, representam um sintoma claro de predisposição para o niilismo integral.
 
-### **O Protesto Niilista: A Agonia do Poder Vazio**
+#### **O Protesto Niilista: A Agonia do Poder Vazio**
 
 Empresas que demitem funcionários e infligem cargas excessivas de trabalho praticam uma opressão que vai além da mera exploração econômica: é uma encenação de poder, um ritual de dominação. Pessoas que denigrem artistas e expressões culturais buscam, no fundo, minar o ânimo coletivo — mais uma manifestação desse mesmo impulso por exibir supremacia. Estes atos representam o estertor final da força niilista na sociedade: desembocam inevitavelmente em demonstrações de força bruta e violência, à imagem de animais que se inflam para aparentar maior tamanho quando ameaçados.
 
