@@ -1004,7 +1004,6 @@ Desta análise, depreende-se que a expressão "criar do nada" deve ser compreend
 
 O "nada", portanto, longe de ser um conceito ontológico primário, revela-se uma ferramenta linguística que aponta para a **auto-evidência da Presença autocausal**. A verdade última é que o Espírito Absoluto não necessita de um fundamento externo porque Ele próprio é a atualização do Campo Relativo — a Potência pura que se autodetermina como ato puro. Criar é o ato pelo qual o Ser, a partir de sua própria plenitude indiferenciada, traz à existência determinada todas as coisas.
 
-
 #### **§ 9.11 – O relativo como pureza absoluta**
 
 Ao concebermos o nada como uma realidade totalmente pura, a ponto de se injustificar e dar lugar a presença, nos reintera um raciocinio circudante ao ser negada. Toda vez que se nega o nada, tem se a presença. E, ao se negar a presença novamente, se emerge em um ciclo infinito de negaçãoes a presença. 
@@ -1038,6 +1037,10 @@ O relativo é como a mistura de todas as cores que se resulta numa cor pura, neu
 O relativo acontece quando nos desligamos das amarras mentais do que esperamos para a realidade, só assim conseguimos indiferenciar aquilo que nem mesmo consideramos possível. Sem a mentalidade do impossível para absoluto, não podemos indiferencia-lo. É preciso produzir a hipotese do nada ainda que injustificavel e até mesmo ela arremeça-la ao alto, para chegar realmente ao puro.
 
 O nada existente é uma violação dos principios lógicos. É algo entre o ser e não ser. Para indiferenciar até mesmo o Ser, é necessario aceitar a quebra dos principios lógicos. 
+
+O nada é um intermediario entre o ser e o não-ser, viola diretamente o principio do que é e não é. Assim como a indeterminação viola o principio do determinado. Portanto, o relativo é a suspensão da indeterminação deterministica, e da não contradição. Indiferenciamos O ser e o não ser, a forma A e a forma B. Já a não forma é o não ser diretamente, pois o não ser subentende todas as formas. Isto quer dizer que, o indiferenciado só é produzido quando os principios lógicos são quebrados.
+
+Quando o absoluto é aceito em abarcar até mesmo o impossível. O nada, somente represente a negação do ente. Não é ontológico no sentido de representar algo, portanto o nada é uma referencia direta ao principio da não contradição. Isto, é, aceitar o nada, não é aceitar exatamente um ente, mas aceitar a quebra dos principios da lógica aristotelica.
 
 #### **§ 9.12 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
