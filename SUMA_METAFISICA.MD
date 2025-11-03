@@ -695,7 +695,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
     -   *Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo.
 
 ##### **Referencial Possível**
--   A manifestação (A) e o nada (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
+-   A (eventos) e B (infinitude) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
 -   **Ausência de dimensões absolutas:** Nem o evento nem a infinitude podem ser delimitados espacial ou temporalmente.
 -   **Dependência de um segundo termo:**
     -   O infinito só é definível em relação ao evento (ex.: infinitude em progressão vs. infinitude consumada).
