@@ -1089,9 +1089,11 @@ Por isto, o nada, não pode ser indiferenciado. Pois se reconhece como uma deter
 
 Libertando o absoluto da llógica aristotélica, temos o indiferenciado, a suspensão até mesmo do nada, pois desenquadramos o nada como algo que obrigatoriamente nada é, e que define o absoluto. Libertamos a possibilidade de suas regras, para que haja um campo onde as possibilidades estão suspensas.
 
+O nada é um opeerador lógico que quando, referido pela ótica da ontologia, dá lugar imediatamente a presença.
 
+Porém, ao quebrarmos o estatuto da lógica classica, ao retirarmos a determinação imposta na realidade que que uma coisa é igual a ela mesma e uma coisa não pode ser uma não coisa. Chegamos portando a uma realidade, que não necessita de categorização.
 
-
+Se para a realidade deve existir ou algo ou não algo, não se pode suspender tais possibilidades, pois elas não existem simultaneamente.
 
 
 
