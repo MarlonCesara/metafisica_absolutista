@@ -1141,6 +1141,8 @@ Isto resolve como o nada pode ser algo, tratando-o como a propria impossibilidad
 
 Desta forma, o nada não é mais um substrato ilógico, mas uma força a se considerar. Aceitando-se uma realidade impossivel como algo que é e não é. Temos a possibilidade da indiferenciação. Pois criamos uma oposição ao que é que se sustenta na realidade, somente pelo fato de admitir o impossivel. Admitir uma contravenção a lógica aritotelica.
 
+A logica aristotelica está vinculada a uma observação intuitiva da realidade, porem, ao dissolvermos essa intuição, obtemos automaticamente o relativo, uma realidade em que o Ser pode se indiferenciar. Isto demontra que o logica de aristoteles esta fortemente conectada ao empirismo, e não ao absoluto em si, pois nasce de uma necessidade de definir pra sobreviver, e não de definir para filosofar sobre o alem. É necessario pensar que uma coisa é uma coisa para uma questão de sobrevivencia, porem, para transcender o pensamento é necessario questionar até mesmo a lógica convencional.
+
 
 =====================================
 
