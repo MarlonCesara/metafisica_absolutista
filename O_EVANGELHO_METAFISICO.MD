@@ -4592,6 +4592,12 @@ O niilista reconhece que, se a humanidade conhecesse exatamente a fonte de seu c
 
 O niilista esconde suas intenções, tanto para atacar o outro quanto por outros meios. O reconhecimento do outro também o aflige, pois o outro, ao afirmar uma verdade da qual ele mesmo desconfia e não quer admitir, provoca nele um profundo temor.
 
+§ 35.12 – O niilismo e o capitalsimo desleal (NOVO)
+
+De forma subtil, o desejo do niilista de fazer o outro experimentar seu infortúnio está profundamente conectado aos mecanismos sociais que privam o indivíduo de lazer e bem-estar. A privação financeira atua como uma pressão que impede o bem-estar social, e isso se alinha ao propósito niilista de transmitir — ainda que de forma indiretamente politizada —, por meio de um sistema capitalista opressivo e desleal para com os menos favorecidos, sua própria infelicidade.
+
+Isto é, no jogo capitalista, o niilista é um “mal ganhador”. Seu avanço não se orienta para o próprio bem ou para o bem comum, mas para a tentativa de derrotar o outro — para traduzir a sua própria incapacidade de harmonizar-se consigo mesmo e de criar satisfação interior.
+
 ### **CAPÍTULO 36: A DIMENSÃO ÉTICA E MORAL**
 
 #### **§ 36.1 – A Moralidade como Escolha Conveniente**
