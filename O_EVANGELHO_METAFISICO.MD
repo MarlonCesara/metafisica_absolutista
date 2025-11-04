@@ -1096,7 +1096,7 @@ Porém, ao quebrarmos o estatuto da lógica classica, ao retirarmos a determina�
 Se para a realidade deve existir ou algo ou não algo, não se pode suspender tais possibilidades, pois elas não existem simultaneamente.
 
 
-
+O nada, sendo apenas um operador lógico. Não indiferencia a possibilidade. Ou não possubilita a indiferenciação, pois se algo é algo e não algo, o indiferenciamento ou a indeterminação não pode existir. 
 
 
 
