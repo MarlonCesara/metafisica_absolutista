@@ -1112,7 +1112,26 @@ Ao suspendermos as regras logicas temos que o absoluto pode ser indefinido em vi
 
 O ato de observação de aristoteles e a definição do que é visivel nao restringe o absoluto. A observação dos principios lógicos é um fundamento empirito e não tem justificativa para se dizer que incorpora todo o potencial do absoluto.
 
+##### **O nada como estado do ser**
+- O nada é um participador ausente do que é. O nada é o que é, sem que o que seja esteja presente.
+- O nada é um ser vazio. na contravenção da logica classica. Existindo a coisa e não coisa ao mesmo tempo. 
 
+Temos portanto o Ser e o estado intermediario ao Ser e não ser: o nada que é. Ao suspendermos o Ser e o nada que é, temos o relativo. 
+
+Em sintese, rompemos a lógica aristotelica. Produzimos o ser, o nada como conceito, e o nada que é como ontologico. Ou seja, a impossibilidade ontologica.
+E, formalizando a impossibilidade, que o nada representa.
+
+O nada não representa a ontologia, representa a impossibilidade?
+
+Sim. O nada, não entra em contravenção ao supo-lo como a impossibilidade.
+
+Ao suspendermos a o ser e a impossibilidade, ambos formulam o relativo. Portanto, o impecilho para chegar ao relativo é negar a impossibilidade.
+
+O nada ontologico é a impossibilidade tomada como possivel e não exatamente uma ontologia. 
+
+Sendo o nada impossível ou não, é a homogeneidade resultante no absoluto que definira o statuto do nada. Se é algo como impossibilidade ou se é nada somado a possibilidade.
+
+Isto resolve como o nada pode ser algo, tratando-o como a propria impossibilidade.
 =====================================
 
 
