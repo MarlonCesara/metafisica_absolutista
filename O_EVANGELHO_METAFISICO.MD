@@ -1132,6 +1132,16 @@ O nada ontologico é a impossibilidade tomada como possivel e não exatamente um
 Sendo o nada impossível ou não, é a homogeneidade resultante no absoluto que definira o statuto do nada. Se é algo como impossibilidade ou se é nada somado a possibilidade.
 
 Isto resolve como o nada pode ser algo, tratando-o como a propria impossibilidade.
+
+- Se a realidade é a unica possibiliade, então nega-la é impossível. Pois ao nega-la não se obtem a irrealidade, e nem uma indiferenciação, pois não há sobre o 
+  que diferencia-la.
+
+- Porém, ao se afirmar a irrealidade como existente, ou seja, dotada de força ontológica, se obtem dois polos (realidade e irrealidade) para se formular um 
+  estado de imparcialidade.
+
+Desta forma, o nada não é mais um substrato ilógico, mas uma força a se considerar. Aceitando-se uma realidade impossivel como algo que é e não é. Temos a possibilidade da indiferenciação. Pois criamos uma oposição ao que é que se sustenta na realidade, somente pelo fato de admitir o impossivel. Admitir uma contravenção a lógica aritotelica.
+
+
 =====================================
 
 
