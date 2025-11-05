@@ -5153,7 +5153,21 @@ Já se tentou extrair o sentido através de genocídios, de experimentos cientí
 
 A Suma Metafísica constrói uma proteção contra esse tipo de dominação, alertando sobre o quão longe a psique humana pode ir quando motivada pelo niilismo. Nesse contexto, torna-se de extrema importância evitar o acúmulo de riquezas nas mãos de pequenos grupos, pois grandes descobertas científicas, tecnológicas e até mesmo psicológicas, nas mãos de bilionários que financiam pesquisas, podem resultar em catástrofes insolúveis. Assim como o Estado pode patrocinar e fomentar tecnologias, os bilionários também podem fazê-lo. Nessa corrida pela descoberta, é possível que uma elite se aproprie de uma tecnologia inovadora ou de uma arma biológica que supere a capacidade do Estado de contê-la. Por isso, a Suma Metafísica se posiciona a favor do desarmamento das elites, pois a concentração de riqueza pode gerar grandes catástrofes, especialmente quando expõe mais um núcleo do potencial humano denominado niilismo, entre tantos outros. A concentração de riquezas, de fato, deve ser considerada, no mínimo, preocupante, configurando um problema social urgente. Desarticular as elites significa realizar o desarmamento de potenciais catástrofes globais.
 
-#### **§ 44.6 – Um cenário de êxito nas lutas sociais (NOVO)**
+#### **§ 44.6 – O controle emocional do niilista sobre a sociedade**
+
+A ação niilista, no contexto financeiro, mascara toda a alegria de um povo que não eclode como o raiar do sol, devido à sua baixa capacidade financeira ou às restrições impostas por um quadro de escassez econômica. Esse estado depressivo generalizado jamais foi realmente notado, pois nunca existiu um mundo de verdadeira fartura — e isso é intencionalmente causado.
+
+O povo pobre, diante da abundância, manifesta uma alegria desmedida, uma euforia coletiva que escandaliza o niilismo. Para o niilista, sorrir é um fardo; a tranquilidade lhe parece algo quase inalcançável, sufocada pelas extenuantes lutas mentais travadas contra si mesmo. Uma alegria geral, um sentido compartilhado que se expressa em festejos, fartura, música e dança — a cultura enfim podendo se manifestar livremente — tudo isso representaria o fim das barreiras impostas pelo niilismo.
+
+É essa alegria inebriante que o niilismo tenta conter. O niilista encontra conforto ao ver semblantes de preocupação, desgosto e tédio.
+
+Toda dificuldade, toda paralisia social é proposital: um cenário artificialmente construído para que uma minoria se sinta bem. Trata-se de uma manipulação voltada a manter o mundo sob um véu fúnebre — um ambiente compatível com o pensamento niilista.
+
+A alegria do povo fica escondida em sorrisos contidos e raros, em breves momentos de tranquilidade. A face do cidadão permanece mascarada pelas preocupações do dia a dia, sem jamais enxergar uma linha de paz em sua trajetória que possa se manter constante, livre do temor do futuro. O brilho nos olhares se oculta nos instantes que o niilismo julga poder controlar.
+
+Ela fica retida nas pequenas degustações de banquetes que deveriam ser fartos, nas folgas que deveriam ser longas, nas férias que deveriam acontecer. Até mesmo o estado anímico do homem precisa ser controlado pelo niilismo: há um controle das emoções imposto pela concentração de riquezas.
+
+#### **§ 44.7 – Um cenário de êxito nas lutas sociais (NOVO)**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
 
@@ -5171,16 +5185,3 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
-
-
-
-
-## Rascunhos
-
-#### **§ 44.6 – A desigualdade (NOVO)**
-
-O niilista considera o não niilismo o mais alto grau de sofisticação — a maior das riquezas, o mais sublime dos aprendizados. Toda a sua soberba é, na verdade, uma tentativa de se igualar ao brilho no olhar, ao semblante leve e ao sorriso fácil do não niilista. Seu ideal de riqueza consiste em estar distante do peso existencial de sua própria decisão, liberto do constante esforço de compreender suas razões e do cansaço de ser escravizado por um ideal que, no fundo, não lhe pertence.
-
-A postura, então, se inverte quando observamos o rico em uma simulação de luxo — alguém que, a todo instante, equipara a serenidade de uma visão tranquila do futuro às suas posses excessivas. O contato do niilista com o não niilista torna-se, assim, algo triste e doloroso.
-
-Em seu íntimo, o niilista se comove ao perceber a simplicidade do outro. Entristece-se ao recordar a desigualdade interior que o separa do não niilista. Para reduzir essa distância, enche-se de riquezas, mimos e presentes — mas tudo isso não passa de autopiedade disfarçada de arrogância.
