@@ -1151,8 +1151,33 @@ O nada, não é um segundo estado do Ser, mas a afirmação do impossível para 
 Da mesma forma os principios causais no nível asbsoluto sao quebrados, se antes tudo precisa ter uma causa, agora somente tudo que começou precisa ter uma causa.
 Se tem a necessidade de um ente ao passo que nao tem causa, é ao mesmo tempo a causa de si mesmo. E isso, mais uma vez quebra uma regra observavel.
 
+Se algo é igual a não algo. Então não temos o não algo, e nem o algo como resultado. Temos a impossibilidade participante. E temos a indiferenciação como resultado, pois o a definição é dissolvida em si mesma, a definição encontra seu escape.
+
+Temos o possível e a atuação do impossível sobre este.
+
+temos entao que 
+
+| **Categoria Relacional** | **Princípio na Indiferenciação**      | **Função Transformada**                   |
+|--------------------------|--------------------------------------|-------------------------------------------|
+| **Ser vs. Não-Ser**      | Identidade Ser-NãoSer **(A = ¬A)**   | Dissolução da distinção ontológica        |
+| **Ser vs. Outro**        | Não-Disformidade Universal **(¬(A = ¬B))** | Suspensão de toda individuação          |
 
 
+| **Categoria Relacional** | **Princípio na Indiferenciação**      | **Função Transformada**                   |
+|--------------------------|--------------------------------------|-------------------------------------------|
+| **Ser vs. Não-Ser**      | Identidade Ser-NãoSer **(A = ¬A)**   | Abertura para a impossibilidade       |
+| **Ser vs. Outro**        | Não-Disformidade Universal **(¬(A = ¬B))** | Suspensão de toda individuação          |
+
+Então A = A, não seriao certo, mas seria A é possível = não A.  Ao destravarmos o sistema aristotelico, para o impossível.
+Não temos que A= Não A, em razão de não A não existir. Ou seja, nao temos a afirmação de que algo existe e não existe ao mesmo tempo. Mas temos a aceitação da impossibilidade. O Ser determinado nao se suspende. Porem, ao crirmos uma segunda categoria para o Ser, como o Ser e não ser ao mesmo tempo, temos O Ser como segunda alternativa. 
+
+O Princípio do Terceiro Excluído (A ∨ ¬A) opera em um contexto que exige uma decisão definitiva. Ele afirma que, para qualquer proposição bem-formulada, não há um estado intermediário entre ser verdadeira e ser falsa. Este princípio exige um veredito final, posicionando-se assim numa dimensão atemporal de avaliação definitiva. 
+
+Há o principio do terceiro excluido contestado.  A definição, ou a escolha se encerra quando não fazemos uma escolha necessaria para o absoluto. Ou seja, deve ser ou não ser, ser = a ou =b e ao as duas ao mesmo tempo. 
+
+As categoria Ser é definida na observação, não se pode extende-la universalmente. Uma maça é uma maça e uma não maça não é uma maça se aplica somente a maças. Não ao absoluto e nao há nenhum motivo que leve isto a ser aplicado ao todo.
+
+Portanto, o Ser ontologicamente pode perder seu statudo e produzir o terceiro que é excluido no principio do terceiro excluido. Criamos, entao, inicialmente 2 possibilidades, A, e A e Não A. Temos então a capacidade de suspender essas suposiçoes para produzir a verdadeira pureza, aquilo que nem sem define, uma indefinição, finalmente, o relativo. Pois podendo indiferenciar o absoluto, finalmente chegamos no estado de suspensão desejado. Algo que nem mesmo é o proprio nada, ou seja, que nem mesmo a determinação do estado de nada carrega.
 =====================================
 
 
