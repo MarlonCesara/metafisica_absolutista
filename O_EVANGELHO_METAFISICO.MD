@@ -5176,6 +5176,25 @@ A alegria do povo fica escondida em sorrisos contidos e raros, em breves momento
 
 Ela fica retida nas pequenas degustações de banquetes que deveriam ser fartos, nas folgas que deveriam ser longas, nas férias que deveriam acontecer. Até mesmo o estado anímico do homem precisa ser controlado pelo niilismo: há um controle das emoções imposto pela concentração de riquezas.
 
+#### **§ 44.7 – O niilista e o mundo velho (NOVO)**
+
+A presença do niilista entristece o mundo — não porque ele o deseje necessariamente, mas porque sua dor suga a vida por onde passa. Ele parece malograr a própria natureza. Seu caminhar em direção à morte vai escurecendo tudo ao redor: as flores murcham, as estrelas se apagam, e o ar se torna pesado. Onde o niilista está, ele absorve a energia da existência, como se tentasse se preencher da vida que lentamente esvai de si.
+
+Os niilistas deixam a humanidade exausta. Tornam o cenário sombrio, disseminam a ansiedade, e projetam seu vazio em um mundo de pedra, poluição e desigualdade. São o reflexo vivo da ausência de um sentido social que proteja a harmonia, o sonho e o bem-estar. Sua presença é como um dia nublado que demora a se dissipar. É preciso reconhecer, no silêncio do niilista, sua ação quase invisível — disfarçada de ingenuidade, de ignorância, ou mesmo de propósito.
+
+O niilista carrega ódio no olhar e uma mente perturbada por ideias que o consomem. Por sua causa, o viver se torna cansativo, às vezes até doloroso. O niilismo espalha seu desânimo como uma névoa; e, por mais que a sociedade tente conscientizar, as respostas são sempre as mesmas — vazias, repetitivas, como se vindas de seres zumbificados, incapazes de reagir à comoção natural do humano.
+
+O bilionário vê a fome e a miséria, mas não divide sua fortuna. O líder escravista das empresas observa o cansaço e o desânimo de seus empregados, mas nada sente.
+O criminoso vê o choro e a tristeza alheia, mas permanece impassível. O direitista assiste à democracia ruir com o próprio voto, e ainda assim o repete, indiferente.
+
+O niilismo produz zumbis — seres que abandonam o sentido natural da vida, feito de deleite e alegria, para viver apenas na defesa de si mesmos. Tornam-se corpos que tentam se proteger da informação que emana de suas próprias almas, incapazes de confrontar o próprio espírito.
+
+O niilista teme a própria consciência; preocupa-se com sua loucura e dela não deseja sair, pois sabe que ao fazê-lo teria de encarar a si mesmo — e, sobretudo, o vazio de seu intento. O niilista, em sua desesperança, frustra tanto o homem que a sociedade, por impaciência, busca resolvê-lo pela força — assassinando, punindo, encarcerando, como se a morte fosse cura.
+
+Que belo seria se a humanidade soubesse compreender o niilista, se lhe concedesse o tempo necessário para tentar se reerguer. Que belo seria se o niilismo não fosse condenado como crime, mas reconhecido como pena — pois ser niilista já é, em si, o pior castigo possível. Não há dor mais profunda que o niilismo. Não há pena mais severa que existir sem sentido.
+
+O niilista necessita do amor — e, sobretudo, do tempo. A sociedade, por sua vez, precisa compreender o que é o niilista e aprender a criar novos caminhos para conduzir e acolher tal condição do espírito humano.
+
 #### **§ 44.7 – Um cenário de êxito nas lutas sociais (NOVO)**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
