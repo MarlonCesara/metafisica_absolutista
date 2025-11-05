@@ -5153,7 +5153,7 @@ Já se tentou extrair o sentido através de genocídios, de experimentos cientí
 
 A Suma Metafísica constrói uma proteção contra esse tipo de dominação, alertando sobre o quão longe a psique humana pode ir quando motivada pelo niilismo. Nesse contexto, torna-se de extrema importância evitar o acúmulo de riquezas nas mãos de pequenos grupos, pois grandes descobertas científicas, tecnológicas e até mesmo psicológicas, nas mãos de bilionários que financiam pesquisas, podem resultar em catástrofes insolúveis. Assim como o Estado pode patrocinar e fomentar tecnologias, os bilionários também podem fazê-lo. Nessa corrida pela descoberta, é possível que uma elite se aproprie de uma tecnologia inovadora ou de uma arma biológica que supere a capacidade do Estado de contê-la. Por isso, a Suma Metafísica se posiciona a favor do desarmamento das elites, pois a concentração de riqueza pode gerar grandes catástrofes, especialmente quando expõe mais um núcleo do potencial humano denominado niilismo, entre tantos outros. A concentração de riquezas, de fato, deve ser considerada, no mínimo, preocupante, configurando um problema social urgente. Desarticular as elites significa realizar o desarmamento de potenciais catástrofes globais.
 
-#### **§ 44.6 – O controle emocional do niilista sobre a sociedade**
+#### **§ 44.6 – O controle emocional do niilista sobre a sociedade (NOVO)**
 
 A ação niilista, no contexto financeiro, mascara toda a alegria de um povo que não eclode como o raiar do sol, devido à sua baixa capacidade financeira ou às restrições impostas por um quadro de escassez econômica. Esse estado depressivo generalizado jamais foi realmente notado, pois nunca existiu um mundo de verdadeira fartura — e isso é intencionalmente causado.
 
