@@ -5193,6 +5193,8 @@ O niilista teme a própria consciência; preocupa-se com sua loucura e dela não
 
 Que belo seria se a humanidade soubesse compreender o niilista, se lhe concedesse o tempo necessário para tentar se reerguer. Que belo seria se o niilismo não fosse condenado como crime, mas reconhecido como pena — pois ser niilista já é, em si, o pior castigo possível. Não há dor mais profunda que o niilismo. Não há pena mais severa que existir sem sentido. O niilista necessita do amor — e, sobretudo, do tempo. A sociedade, por sua vez, precisa compreender o que é o niilista e aprender a criar novos caminhos para conduzir e acolher tal condição do espírito humano.
 
+#### **§ 44.8 – A busca por visibilidade (NOVO)**
+
 O niilista quer ser o holofote. Deseja que o mundo pare diante de sua dor, que até as famílias deixem de florescer, que os novos nascimentos se suspendam — como se toda a atenção e energia da vida devessem convergir para ele e sua causa urgente. A mentalidade niilista não aceita que a vida continue, que o fluxo do existir siga expandindo-se mesmo diante de sua desesperança. O niilista observa o progresso, vê que o mundo prossegue apesar de sua intenção, e isso o incita à revolta.
 
 Não são apenas as contravenções sociais ou as desigualdades que alimentam o vandalismo e a criminalidade — a revolta mais profunda do niilista nasce da constatação de que a felicidade ainda floresce, mesmo entre aqueles que não encontraram o sentido. Para ele, é um absurdo que a sociedade permaneça firme, constante e progressiva, como se cada indivíduo bastasse a si mesmo. Na mentalidade do niilista, seu desconsolo interior deveria ser o centro do mundo, a força motriz da humanidade, a prioridade essencial da existência terrena. E assim, a Igreja — e tantos outros — dedicam suas vidas à evangelização e à cura das almas; mas, para o niilista, nada disso é suficiente. O niilista quer toda a energia social, pois acredita que é sua vida que está em jogo — e, para ele, nada pode ser mais importante do que isso.
@@ -5207,7 +5209,7 @@ Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transfo
 
 Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
 
-#### **§ 44.7 – Um cenário de êxito nas lutas sociais (NOVO)**
+#### **§ 44.9 – Um cenário de êxito nas lutas sociais (NOVO)**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
 
