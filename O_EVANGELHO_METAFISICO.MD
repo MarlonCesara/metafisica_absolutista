@@ -1178,6 +1178,9 @@ Há o principio do terceiro excluido contestado.  A definição, ou a escolha se
 As categoria Ser é definida na observação, não se pode extende-la universalmente. Uma maça é uma maça e uma não maça não é uma maça se aplica somente a maças. Não ao absoluto e nao há nenhum motivo que leve isto a ser aplicado ao todo.
 
 Portanto, o Ser ontologicamente pode perder seu statudo e produzir o terceiro que é excluido no principio do terceiro excluido. Criamos, entao, inicialmente 2 possibilidades, A, e A e Não A. Temos então a capacidade de suspender essas suposiçoes para produzir a verdadeira pureza, aquilo que nem sem define, uma indefinição, finalmente, o relativo. Pois podendo indiferenciar o absoluto, finalmente chegamos no estado de suspensão desejado. Algo que nem mesmo é o proprio nada, ou seja, que nem mesmo a determinação do estado de nada carrega.
+
+Chegamos a uma justificação totalmente pura e positiva para o absoluto, uma realidade auto justificada pois abarca todas as possibilidades, ao passo que também não nega nenhuma delas. Não afirma nenhuma, e não nega. Simplesmente é um statuto sem definição, uma realidade purissima.
+
 =====================================
 
 
