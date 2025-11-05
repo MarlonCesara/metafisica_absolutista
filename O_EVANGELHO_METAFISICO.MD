@@ -5171,3 +5171,16 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
+
+
+
+
+## Rascunhos
+
+#### **§ 44.6 – A desigualdade (NOVO)**
+
+O niilista considera o não niilismo o mais alto grau de sofisticação — a maior das riquezas, o mais sublime dos aprendizados. Toda a sua soberba é, na verdade, uma tentativa de se igualar ao brilho no olhar, ao semblante leve e ao sorriso fácil do não niilista. Seu ideal de riqueza consiste em estar distante do peso existencial de sua própria decisão, liberto do constante esforço de compreender suas razões e do cansaço de ser escravizado por um ideal que, no fundo, não lhe pertence.
+
+A postura, então, se inverte quando observamos o rico em uma simulação de luxo — alguém que, a todo instante, equipara a serenidade de uma visão tranquila do futuro às suas posses excessivas. O contato do niilista com o não niilista torna-se, assim, algo triste e doloroso.
+
+Em seu íntimo, o niilista se comove ao perceber a simplicidade do outro. Entristece-se ao recordar a desigualdade interior que o separa do não niilista. Para reduzir essa distância, enche-se de riquezas, mimos e presentes — mas tudo isso não passa de autopiedade disfarçada de arrogância.
