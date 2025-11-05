@@ -1144,6 +1144,15 @@ Desta forma, o nada não é mais um substrato ilógico, mas uma força a se cons
 A logica aristotelica está vinculada a uma observação intuitiva da realidade, porem, ao dissolvermos essa intuição, obtemos automaticamente o relativo, uma realidade em que o Ser pode se indiferenciar. Isto demontra que o logica de aristoteles esta fortemente conectada ao empirismo, e não ao absoluto em si, pois nasce de uma necessidade de definir pra sobreviver, e não de definir para filosofar sobre o alem. É necessario pensar que uma coisa é uma coisa para uma questão de sobrevivencia, porem, para transcender o pensamento é necessario questionar até mesmo a lógica convencional.
 
 
+Em sintese, se produz o indiferenciado se afirmando o impossível, tal como se produz a realidade auto causada afirmando-seo espírito.
+
+O nada, não é um segundo estado do Ser, mas a afirmação do impossível para o Ser, e o movimento de ''soltura'' do impossível ao ser, sem exatamente definir o que isso resultará, deixando que a definição seja o relativo.
+
+Da mesma forma os principios causais no nível asbsoluto sao quebrados, se antes tudo precisa ter uma causa, agora somente tudo que começou precisa ter uma causa.
+Se tem a necessidade de um ente ao passo que nao tem causa, é ao mesmo tempo a causa de si mesmo. E isso, mais uma vez quebra uma regra observavel.
+
+
+
 =====================================
 
 
