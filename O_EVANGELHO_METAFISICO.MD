@@ -2346,6 +2346,7 @@ Quando o Ser se determina como unidade de si mesmo, determina simultaneamente se
 
 O "sou" que não realiza sua transcendência permanece incompleto perante sua origem, pois não pode ultrapassar os limites do eu individual para alcançar o Todo - limitando-se apenas a desenvolver-se dentro de si mesmo. Tal condição o torna inválido como expressão plena de uma fonte determinadora transcendente. Em síntese, o Ser não se determina ao se determinar metade de si, ou seja, o determinar-se significa se singularizar, porém, como uma cópia de si, abordando sua potencialidade total, podendo, até mesmo, retornar à indeterminação (corrupção).
 
+Para fora da sua unidade, o sou não teria campo de ação ontológico, e isto representa uma não infinitude. O campo de ação do sou deve se diluir, dar vazão, desembocar para além da unidade, seja em direção ao próprio Ser, tendo como efeito uma luminosidade, ou para o outro, tendo como efeito um processo de transcendência para o outro.
 
 #### **§ 21.4 – A Transcendência da Alma**
 O homem não fora criado para uma singularidade, mas para a vazão aberta ao infinito. O homem dispõe do infinito e de um infinito em si. Essa é uma visão positivista, considerando que o homem tem acesso ao relativo, e o relativo é um aval de possibilidades infinitas que nem mesmo está restrito ao impossível.
