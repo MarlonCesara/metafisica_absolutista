@@ -4706,3 +4706,18 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
+
+
+#### **§ 44.10 – A salvação do homem (NOVO)**
+
+Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
+
+Jesus eleva o potencial humano ao seu máximo, como se tornasse irrevogável a cura para aquele que se volta ao seu consolo. Isto é, Jesus ofereceu uma proposta: *“Creia em mim e será salvo.”* Quer dizer que a simples inclinação da vontade humana ao divino já o alivia do niilismo.
+
+A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jamais fora. O homem alcançou um patamar de graça especial — uma elevação singular — através do sacrifício de Cristo, que pode levá-lo inevitavelmente à salvação.
+
+O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
+
+E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
+
+
