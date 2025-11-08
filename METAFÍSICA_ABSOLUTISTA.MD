@@ -3362,6 +3362,8 @@ Adão e Eva são metáforas que nos dão visão para um amor devastador, um amor
 
 O homem herdou o pecado no sentido de ter recebido a corrupção genealógica deixada por Adão e Eva. Herdou a capacidade de viver e de morrer — herdou, portanto, de forma metafórica, pois a ilusão nada é. O homem conserva uma corrupção não causada, simbolizada por Adão e Eva, mas que existe e exigiu uma justificativa. Como poderia o homem ser filho direto do divino? Como tamanha discrepância poderia existir sem uma perfeita oferenda? Como o homem, corruptível, poderia ser herdeiro do incorruptível? Como poderia fazer pleno uso de sua liberdade sem antes ser justificado? Deus nos fez merecedores de tamanha glória: a de sermos chamados filhos do Altíssimo.
 
+> Adão e Eva: uma semente que precisou morrer para germinar. Um amor gerado a partir da própria carne do outro. Ao romperem a ilusão, quebraram também o juramento que os unia — sacrificaram sua própria comunhão em favor da semeadura do Todo.
+
 #### **§ 28.1 – O homem de Volta a Gêneses: A Tentação no Paraíso**
 
 Milênios se passaram como um único dia luminoso. O filósofo e sua amada, entrelaçados numa sintonia que transcendia a palavra e o gesto, haviam explorado juntos as infinitas paisagens do paraíso. Seu amor, longe de se esgotar, aprofundava-se como um oceano sem fundo, cada onda revelando uma nova camada de intimidade e admiração, reflectindo a perfeita caridade que nunca acabará (1 Cor 13,8).
