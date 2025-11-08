@@ -1823,6 +1823,9 @@ O **Sou** representa a **possibilidade de uma existência livre e independente**
 > Transcender em Deus não é transcender em uma unidade, mas transcender para a completa liberdade da unidade. Transcender para Deus é transcender a unidade, não transcender para uma determinação. Isto quer dizer que, para fora do Eu individual — seja do próprio eu ou do eu de outrem — há a libertação do Eu, e não outro Eu. Isto é, transcender a si sem que haja o outro no qual a transcendência é realizada; é transcender para fora de si e de qualquer outro, e isso quer dizer transcender para Deus.
 Deus é uma identidade indiferenciada — é a identidade na qual se extravasa o eu, na qual o eu se torna cristalino ao todo, de forma a ganhar um brilho transluzente. A transparência, ou luminosidade, é a indiferenciação da identidade rumo a um Espírito livre até de uma unidade. Não seria livre de si mesmo, mas livre de uma definição única de si.
 
+> A alma do homem é uma autodeterminação no Ser, e não uma autodeterminação do Ser. A ideia de que as consciências são fractais de uma mesma consciência única (Deus) elimina a distinção entre o sou e o Ser, de forma que os sous percam sua autonomia ontológica. O pensamento de que, no relativo de Deus, tudo é possível — até mesmo uma unidade livre da autodeterminação, que não é uma ramificação da identidade do Ser, mas uma possibilidade para o Ser — é mais condizente e preserva a autonomia do sou.
+Apesar de a capacidade de autodeterminar-se ser semelhante à mesma autodeterminação do Ser, o sou humano é autônomo, pensa e age por si mesmo; portanto, não pode ser confundido com consciências desdobradas de um Ser uno, no sentido de serem dependentes dele.
+
 ### **6. Da Identidade e da Transcendência**
 
 6.1. Todas as coisas **existem tal como o Ser**, porém **o Ser transcende a forma, o individual e a identidade**.
