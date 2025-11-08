@@ -1703,6 +1703,8 @@ O "sou" constitui-se como uma manifestação realizada pelo Ser, que, em ato de 
 
 O **Ser** representa o determinador puro, o fundamento indiferenciado da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
 
+> O homem se difere de Deus em identidade, ainda que participe do ato de existir e de ser livre do qual Deus participa; sua identidade é unidade, enquanto a identidade de Deus é transcendente à unidade. Quando pensamos de um ponto de vista fenomenológico, as coisas se dividem pelo tempo e pelo espaço; desta forma, discernimos se é o objeto A ou B por sua localização. Porém, do ponto de vista espiritual, os entes se diferem por identidade. Deus é a pureza total, é a própria transcendencia. Deus para o homem, é a vazão da alma rumo o infinito.
+
 ### **Tabela 14.1: Distinção entre Ser e Sou**
 
 # Natureza da Determinação Ontológica
@@ -1818,6 +1820,9 @@ O **Sou**, embora exista, **não participa necessariamente da persona do Ser ind
 O **Sou** **não é o absoluto individualizado em sua liberdade**, pois o **absoluto individualizado é o próprio absoluto temporal**.
 O **Sou** representa a **possibilidade de uma existência livre e independente** no **campo das possibilidades**.
 
+> Transcender em Deus não é transcender em uma unidade, mas transcender para a completa liberdade da unidade. Transcender para Deus é transcender a unidade, não transcender para uma determinação. Isto quer dizer que, para fora do Eu individual — seja do próprio eu ou do eu de outrem — há a libertação do Eu, e não outro Eu. Isto é, transcender a si sem que haja o outro no qual a transcendência é realizada; é transcender para fora de si e de qualquer outro, e isso quer dizer transcender para Deus.
+Deus é uma identidade indiferenciada — é a identidade na qual se extravasa o eu, na qual o eu se torna cristalino ao todo, de forma a ganhar um brilho transluzente. A transparência, ou luminosidade, é a indiferenciação da identidade rumo a um Espírito livre até de uma unidade. Não seria livre de si mesmo, mas livre de uma definição única de si.
+
 ### **6. Da Identidade e da Transcendência**
 
 6.1. Todas as coisas **existem tal como o Ser**, porém **o Ser transcende a forma, o individual e a identidade**.
@@ -1833,8 +1838,6 @@ Assim, **o Ser está em tudo**, mas **as individualizações se mantêm**.
 O Ser **não se ausenta** das determinações individuais — **ele as transcende**.
 
 #### **§ 14.5 – A Personalidade como Participação no Ser**
-
-> _"Conhecer o homem é conhecer Deus em sua multiplicidade."_
 
 Temos portanto, a auto determinação dotada de multiplicidade e liberdade na esfera ontológica, a qual pode corroborar ou não com sua plenitude. Sendo o Ser o existir necessário e imutável em sua essência auto fundamentadora, sua determinação somente tem efeito sobre Ele mesmo, isto é, sua determinação se concretiza necessariamente rumo a plenitude, rumo ao Ser. Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
 
