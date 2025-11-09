@@ -4782,10 +4782,6 @@ E, por fim, as nuances do comportamento humano revelarão quem caminha em direç
 
 Haverá os que verão Jesus nos céus — a representação do caminho de paz que se abrirá diante de seus olhos — e haverá também os que testemunharão a destruição do mundo, não o mundo físico, mas aquele em que acreditavam e onde julgavam estar seguros.
 
+#### **§ 00.0 – O existencialismo dos privilégios (NOVO)**
 
-
-
-
-
-
-
+O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê a sua volta das pessoas. Sente-se revoltado como em sua volta existem pessoas com um tom de comportamento tão despreocupado, amantes se amando nas praças, pessoas vivendo em paz. Aparentemente indiferentes a sua realidade conflituosa. O niilista, por isto, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Se vê distante de sua paz e tranquilidade e quer repor isto por meio de privilégios. Ao percebe-se com tal postura o niilista quer repor sua estima, quer tentar de alguma forma suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa estima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
