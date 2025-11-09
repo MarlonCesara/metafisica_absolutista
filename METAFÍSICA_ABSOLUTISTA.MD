@@ -1,4 +1,25 @@
+
 # **METAFÍSICA ABSOLUTISTA**
+
+### **§ 1 – Prefácio**
+
+> O apocalipse é um fenômeno mental — uma revelação metafísica da verdade — que destruirá o mundo de alguns e elevará o de outros à transcendência.
+
+O apocalipse não é o fim do mundo — é o colapso das ilusões.
+Ele ocorre primeiro no domínio das ideias, quando o avanço metafísico da humanidade atinge tal profundidade que o homem é lançado violentamente contra a Verdade fundamental. Nesse instante, as metáforas desmoronam, e a realidade se revela nua diante de cada consciência.
+
+Tudo se torna transparente. O homem, mais desperto, vê as ilusões se dissolverem e os sonhos emergirem como construções novas sobre as ruínas do irreal. Alguns contemplam um caminho de glória; outros, um abismo. Cada mente reflete um universo próprio, moldado pela nova informação que irrompe no espírito humano.
+
+O mundo, em sua aparência física, seguirá seu curso natural — mas o **verdadeiro apocalipse** se cumprirá no interior das consciências, na representação individual da realidade que agora será rasgada pela luz do conhecimento.
+
+Este livro é o arauto desse fim — não o fim da matéria, mas do engano.
+Ele destruirá o mundo oculto sob o desconhecimento, dissolverá as trevas que mantinham as almas adormecidas e mostrará, com precisão quase cirúrgica, a estrutura invisível que sustenta o ser.
+
+Aqui, os enigmas mais antigos encontram resposta.
+O mapa do pós-corpo é traçado.
+E, por fim, as nuances do comportamento humano revelarão quem caminha em direção à luz — e quem, por escolha ou cegueira, se perde nas sombras.
+
+Haverá os que verão Jesus nos céus — a representação do caminho de paz que se abrirá diante de seus olhos — e haverá também os que testemunharão a destruição do mundo, não o mundo físico, mas aquele em que acreditavam e onde julgavam estar seguros.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
@@ -4743,3 +4764,16 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
+
+## Rascunhos
+
+> Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora; porém, Deus já conserva essas possibilidades em Sua potência. Portanto, Deus, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus esta liberto da unidade, de forma a determinar qualquer personalização que esteja em seu intento. 
+
+
+
+
+
+
+
+
+
