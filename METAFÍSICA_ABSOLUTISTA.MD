@@ -1,7 +1,7 @@
 
 # **METAFÍSICA ABSOLUTISTA**
 
-### **§ 1 – Prefácio**
+### **§ Prefácio**
 
 > O apocalipse é um fenômeno mental — uma revelação metafísica da verdade — que destruirá o mundo de alguns e elevará o de outros à transcendência.
 
