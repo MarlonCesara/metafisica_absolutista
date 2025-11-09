@@ -4752,7 +4752,6 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
 
-
 #### **§ 44.10 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
@@ -4769,11 +4768,8 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 
 > Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora; porém, Deus já conserva essas possibilidades em Sua potência. Portanto, Deus, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus esta liberto da unidade, de forma a determinar qualquer personalização que esteja em seu intento. 
 
+> Transcender para o Ser é ser em tudo, ser o todo. Transcender de si não para uma individualidade, mas para a completa libertação da unidade. Não significa gerar uma vida, mas participar da geração de Deus. É gerar todas as vidas. Adentrar na realidade que gera como uma unidade e não como uma dualidade. O Ser não precisa de uma distinção em sua visão para gerar uma nova visão, pois já é em si toda a distinção. O Ser cria o homem como um movimento interno, já é em si a transcendência. O Ser não necessita transcender uma unidade, já é a junção de duas unidades transcendidas. O Ser cria se autoangulando em si uma possibilidade, pois já é o indiferenciado sem necessitar de uma dualidade para provar tal indiferenciação. Transcender para o Ser é indiferenciar-se de si mesmo, de forma a participar do indiferenciado. É queimar-se em Deus de forma a consumir a unidade no todo, na indiferenciação pura. Se a união da dualidade é se consumir em uma dualidade, ou seja, em outro limite de dualidade. Tocar o Ser é consumir-se de forma totalmente indiferenciada, é tocar o indiferenciado diretamente sem que seja necessário o outro. Transcender diretamente para o Ser é ser tudo e gerar tudo.
 
+> A unidade pode gerar outras almas? Sim, porém indiferenciada de si mesma, envolvida no próprio Ser. A geração é uma indiferenciação da unidade de forma que a alma se defina em qualquer variação possível e transcenda a unidade. Indiferenciar-se de si mesmo é inevitavelmente abrir-se para o todo, e o todo é o Ser. A transcendência é um voar para longe da consciência, de forma a preservá-la porém, também, transcendê-la.
 
-
-
-
-
-
-
+> As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
