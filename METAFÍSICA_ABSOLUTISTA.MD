@@ -4816,3 +4816,5 @@ Porém, o cumulo do desespero para converter o outro também não é uma atitude
 
 > É impossível ser infeliz se determinando pela vida eterna. O gozo da alma é quando ela se determina pela vida eterna, o sentido da vida já é a propria vida. Portanto, a alma só se faz infeliz ou se define de tal forma quando intenta em seu intimo contra seu próprio existir. A felicidade emerge naturalmente do ser humano quando este tem a decisão pela vida.
 
+O rico se ve incomodado com o pobre sendo feliz com qualquer coisa, cqualquer distração qualquer detalhe, pois o peso de niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realiadade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortavel ao estar sob defesas mental, que é o caso de estar sob privilégios, quando a mente do niilista o protege da informação de sua intenção o niilista tem um pouco de alivio. Porém, precisa sempre de um escapse de si mesmo par atal.
+
