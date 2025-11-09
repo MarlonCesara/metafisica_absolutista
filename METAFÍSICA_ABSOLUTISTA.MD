@@ -4818,3 +4818,12 @@ Porém, o cumulo do desespero para converter o outro também não é uma atitude
 
 O rico se ve incomodado com o pobre sendo feliz com qualquer coisa, cqualquer distração qualquer detalhe, pois o peso de niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realiadade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortavel ao estar sob defesas mental, que é o caso de estar sob privilégios, quando a mente do niilista o protege da informação de sua intenção o niilista tem um pouco de alivio. Porém, precisa sempre de um escapse de si mesmo par atal.
 
+#### **§ 00.0 – A solução dos males sociais (NOVO)**
+
+A humanidade, oprimida pelos bilionarios e violencia, tenta praticar o exemplo, de forma a bater, prender e desolar os que causam os males. Porém, ainda que com o exemplo o mal continua. Mesmo que os bilionarios sejam assassiados, outros herdarao sua herança e mesmo que os que praticam a violencia sejam mortos, serão substituidos. Isto acontece porque os nascimentos nao param e a liberdade humana não para de tomar seus rumos próprios.
+
+A solução dos males é enfraquecer os olicerces do niilismo que é o seu ambito financeiro. E se faz isso compreendendo a motivação niilista. Impedindo totalmente a concentração de riquezas, o mal se torna um fator isolado, porem deixa de tornar-se um fator de destruição global ou de opressão em massa. Isto é, um assassinato ou um acumulo rependino de riquezas pode acontecer esporadicamente, porem isto é facilmente controlado pela sociedade. 
+
+O mal não deixara de existir, porem, torna-se-a suportavel, no sentido de que nao corrompe um paraiso projetado para o homem e de forma que permtia a paz, que permita a preservação natural, o alvio de trabalhos pesados. No sentido de que torne-se acontecimentos isolados, que corroboram para atribuir um valor perigoso a vida no sentido de não abolir a aventura humana ou as lutas sociais por completo, de forma que se formasse um ambiente completamente monotomo.
+
+Sendo o financeiro desarticulado da ação niilista, temos investidas comportamentais e não massivamente sociais.
