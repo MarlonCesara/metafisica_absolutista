@@ -4756,11 +4756,13 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 
 > A unidade pode gerar outras almas? Sim, porém indiferenciada de si mesma, envolvida no próprio Ser. A geração é uma indiferenciação da unidade de forma que a alma se defina em qualquer variação possível e transcenda a unidade. Indiferenciar-se de si mesmo é inevitavelmente abrir-se para o todo, e o todo é o Ser. A transcendência é um voar para longe da consciência, de forma a preservá-la porém, também, transcendê-la. 
 
-> Quando mais reta a vontade do individuo, mais ele pode indiferenciar-se de si sem se perder de si. A transcendência da unidade, é plena de forma que o individuo esteja alinhado a vontade do todo. O união só acontece com ambas as vontades da mesma direção. Transcender para o nada é o inferno, pois é necessário transcender para algo. E se houver algo fora de si, a transcendência realmente aconteceu. Transcender para o nada não existe, isso é auto alienação. Ao transcender para fora de si pelo Ser a unidade não colide com outros sous. O transcender da unidade do sou é para uma existência sem unidade, ou seje, é para o ato puro de existir de forma indiferenciada e isto é o Ser. Transcender de si tem como rumo o Ser, que é o existir diferenciado. Unir-se ao Ser seria diluir-se em prol do todo. 
+> Quando mais reta a vontade do individuo, mais ele pode indiferenciar-se de si sem se perder de si. A transcendência da unidade, é plena de forma que o individuo esteja alinhado a vontade do todo. O união só acontece com ambas as vontades da mesma direção. Transcender para o nada é o inferno, pois é necessário transcender para algo. E se houver algo fora de si, a transcendência realmente aconteceu. Transcender para o nada não existe, isso é auto alienação. Ao transcender para fora de si pelo Ser a unidade não colide com outros sous. O transcender da unidade do sou é para uma existência sem unidade, ou seje, é para o ato puro de existir de forma indiferenciada e isto é o Ser. Transcender de si tem como rumo o Ser, que é o existir diferenciado. Unir-se ao Ser seria diluir-se em prol do todo. Transcender no outro é não ser mais a si e nem ao outro temporariamente, mas ser uma indefinição da dualidade. Não ser a si e nem ser o outro mas uma nova vida no outro.
 
 > Transcender-se de si, é consumir-se no Ser, experimentar um extase de uma transcendencia pura. Já transcender para o outro é experimentar uma unidade; uma transcendencia para o outro, é consumir-se de forma a romper o si no outro, e não seria como romper o si no existir que é o Ser.
 
 > As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
+
+
 
 
 
@@ -4784,6 +4786,33 @@ E, por fim, as nuances do comportamento humano revelarão quem caminha em direç
 
 Haverá os que verão Jesus nos céus — a representação do caminho de paz que se abrirá diante de seus olhos — e haverá também os que testemunharão a destruição do mundo, não o mundo físico, mas aquele em que acreditavam e onde julgavam estar seguros.
 
+
+
+
+
+
 #### **§ 00.0 – O existencialismo dos privilégios (NOVO)**
 
 O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê a sua volta das pessoas. Sente-se revoltado como em sua volta existem pessoas com um tom de comportamento tão despreocupado, amantes se amando nas praças, pessoas vivendo em paz. Aparentemente indiferentes a sua realidade conflituosa. O niilista, por isto, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Se vê distante de sua paz e tranquilidade e quer repor isto por meio de privilégios. Ao percebe-se com tal postura o niilista quer repor sua estima, quer tentar de alguma forma suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa estima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
+
+O niilismo esconde que aqui mesmo, no plano terreno, o paraíso começa. O niilista sente dor ao ver a alegria natural que emerge da sociedade diante da boa alimentação, do lazer, das amizades. Pois qualquer melhora social trás ao povo uma alegria incomparável, que constrange o niilista. O niilista, se quisesse, poderia mudar sua postura e sentir-se feliz naturalmente diante de uma boa visão de futuro.
+
+Porém, julga a si mesmo como uma pedra imóvel, e se refere ao amor como a unica coisa que pudesse move-lo de seu estado, sendo que, já o niilismo já é em si uma movimentação do espírito rumo a sua anulação.
+
+O niilista teme ao ver o festejar despreocupado. Uma sociedade niilista é uma sociedade em que deve se cultivar o sentimento de desanimo. Iste sentimento é propositalmente causado, calculado e articulado pelas elites dominantes.
+
+É causado pelo dono de padaria, pelo dono de super mercado, pelas empresas que praticam comercio exterior. Toda a construção social até agora tem se voltado para fazer com que a sociedade permaneça num estado emocional conflitante. Como se realmente houvesse uma barreira entre o homem e o seu sonhado paraíso. Porém, essa barreira não existe. Nada impede que o paraíso comece aqui. Mas a ação niilista quer que acreditemos que este paraíso está distante.
+
+O privilégio é uma tentativa do niilista de ver o outro experimentar a sensação niilista, é uma tentativa de faze-lo compreender o descabido diferencial entre as almas que intuitam a morte e as que tem como intuito a vida. É de mostrar a verdadeira face da miséria. 
+
+O niilista acha absurdo a sociedade continuar, indiferente ao niilismo, as pessoas sorrindo vai e vem, comos e não tivessem nenhuma preocupação, como se já tivessem encontrado seu lar e olhassem o niilsita no frio, num deserto de sentido para fora de sua janela, sem nunca convida-lo para entrar e ensinar-lhe. Jesus conteste essa posição de indiferença e leva a humanidade a evangelização. A não ficar indiferente diante daquele que intenta sua própria ruina. 
+
+A solução das diferenças sociais começa na evangelização. No convidar do outro para a vida eterna. Pois a miséria espiritual de uns causa a miséria material do mundo inteiro. Pois o fundamento da miséria material é espíritual. A verdadeira miséria causa uma falsa miséria exterior que é a escassez material.
+
+Olhar o individuo que intenta a morte com indiferença, não deixa de ser uma falta de solidariedade ainda que seja este próprio individuo que queira sua própria ruina. Cada alma que se esvai deixa de colorir o mundo com sua nova personalidade. Cada alma perdida é uma personalidade singular que deixa de agir no plano da existência de forma efetiva pra se tornar conflito.
+
+Porém, o cumulo do desespero para converter o outro também não é uma atitude coerente, pois a liberdade, idependentemente da forma pela qual é usada, é direito da pessoa humana. E o ser humano só é realizado através do uso de sua liberdade.
+
+
+
+
