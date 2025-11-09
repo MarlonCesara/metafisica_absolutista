@@ -4814,5 +4814,5 @@ Olhar o individuo que intenta a morte com indiferença, não deixa de ser uma fa
 Porém, o cumulo do desespero para converter o outro também não é uma atitude coerente, pois a liberdade, idependentemente da forma pela qual é usada, é direito da pessoa humana. E o ser humano só é realizado através do uso de sua liberdade.
 
 
-
+> É impossível ser infeliz se determinando pela vida eterna. O gozo da alma é quando ela se determina pela vida eterna, o sentido da vida já é a propria vida. Portanto, a alma só se faz infeliz ou se define de tal forma quando intenta em seu intimo contra seu próprio existir. A felicidade emerge naturalmente do ser humano quando este tem a decisão pela vida.
 
