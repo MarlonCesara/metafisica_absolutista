@@ -4830,5 +4830,7 @@ Um dia a mais na vida de um niilista que não é assassinado por ter tido a chan
 
 Se o niilista fosse realmente sensato em seu proceder, produziria uma sociedade totalmente disposta e cheia de energia para tentar convertê-lo de sua decisão. Porém, o niilismo prova que nem a si mesmo é capaz de ajudar, de forma que ajude o outro a ajudá-lo.
 
+O poderio niislita deve ser desarticulado, e para isto o niilismo precisa ser compreendido, a sociedade precisa entender o acumlo de riquezas como o produto de um comportameneto obsessivo que é oriundo do niilista. O sociedade precisa compreender as empresas bilionárias como instituições construidas pelo niilismo, tanto em seu topo de liderança quanto em sua bases médias, e compreender que somente nas extremidades os trabalhadores estão.
 
+A partir dessa compreensão a humanidade passa a desconfiar de toda forma de riqueza acumulada, e dissocia-la de um progresso social, mas interpreta-la como um centro de opressão ou como um potencial de dar a uma minoria um grande poder social que se faz acima até da politica. Desta forma, a humanidade desarticulando todo o acumulo de riqueza, ao identificar que se trata de um monumento niilista, passa a regir totalmente a politica de forma a criar uma estrutura social pacifica. Sobrará então energia para tratar o niilista ao invés de simplesmente sucumbilo e mata-lo tal como seria matar traficantes ou bilionários.
 
