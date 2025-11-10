@@ -4834,3 +4834,6 @@ O poderio niislita deve ser desarticulado, e para isto o niilismo precisa ser co
 
 A partir dessa compreensão a humanidade passa a desconfiar de toda forma de riqueza acumulada, e dissocia-la de um progresso social, mas interpreta-la como um centro de opressão ou como um potencial de dar a uma minoria um grande poder social que se faz acima até da politica. Desta forma, a humanidade desarticulando todo o acumulo de riqueza, ao identificar que se trata de um monumento niilista, passa a regir totalmente a politica de forma a criar uma estrutura social pacifica. Sobrará então energia para tratar o niilista ao invés de simplesmente sucumbilo e mata-lo tal como seria matar traficantes ou bilionários.
 
+O niilista não compreendido tem um alto potencial de destruição, pois se faz uma criança regida por impulsos incosncientes que, com o uso de sua inteligencia consegue um grande poder e por sua vez esse poder novamente é guiado por impulsos incosncientes e por decisões inconsistents com a harmonia.
+
+Combater os bilionarios é tratar o niilista, cuidar melhor dos que não se favoreceram espiritualmente e por isso deveriam ser a camada mais fragil social, e não a camada opressora. Deveria ser a camada social cuidada e não a camada ao qual demos força para destruir tudo, inclusive a si mesma e sua oportunidade de viver mais e aprender a ser melhores.
