@@ -4822,3 +4822,13 @@ O mal não deixará de existir, porém tornar-se-á suportável, no sentido de q
 
 Sendo o financeiro desarticulado da ação niilista, temos investidas comportamentais e não massivamente sociais. Outro ponto é investir no comportamento niilista, tentando convencer o indivíduo niilista em favor de sua vida, no sentido de que todos são convidados. Essa é uma abordagem elegante que converge no sentido do bem e tem sua eficácia social.
 
+Não produzam bilionários — não deem a pessoas desequilibradas tamanho poder social, a capacidade de manipular mídias, comprar consciências e controlar o poder tecnológico e bélico do mundo. Alguém com muito dinheiro torna-se acima da política, tal como um rei, pois pode conduzir a própria política de forma mais forte até mesmo do que o eleitor, de modo que o bilionário pode ameaçar, comprar ou até mesmo manipular informações midiáticas para fazer um povo se rebelar contra um bom candidato com boas intenções.
+
+Uma fortuna bilionária na mão de um niilista cujo descontrole tomou conta completamente de si pode causar um estrago social enorme. O acúmulo de dinheiro dá um poder enorme ao niilista, abrindo um leque grandioso de possibilidades. O bilionário torna-se acima até mesmo da lei, podendo manipulá-la ou mudá-la a seu favor. O dinheiro em excesso pode manipular até mesmo por ameaça — quando o bilionário não consegue comprar o político, basta ameaçar seus familiares ou a própria vida deste político. Portanto, desmantelando o esquema financeiro que alimenta a ação niilista, teremos um niilismo isolado. Um niilismo no qual se pode aplicar a compaixão e a evangelização — um niilista que se pode controlar é um niilista cuja chance de conversão é muito maior.
+
+Um dia a mais na vida de um niilista que não é assassinado por ter tido a chance de ganhar armas para o crime é uma chance de salvá-lo de uma eternidade inteira na perdição. Portanto, nenhum mal se compara ao mal que o niilista quer infligir a si mesmo, e por isso ele necessita que haja uma estrutura inteligente ao seu favor. E isto não é para o mal do niilista, mas para o próprio bem. O niilismo deve ser combatido nos alicerces que o fortalecem, para o próprio bem do niilista. Pois uma sociedade que está mais disposta a ensinar, que tem mais energia social para transmitir uma boa visão de mundo, fortalece muito mais o niilista do que uma sociedade cansada, frustrada pelo excesso de trabalho e aterrorizada por catástrofes e acontecimentos cataclísmicos.
+
+Se o niilista fosse realmente sensato em seu proceder, produziria uma sociedade totalmente disposta e cheia de energia para tentar convertê-lo de sua decisão. Porém, o niilismo prova que nem a si mesmo é capaz de ajudar, de forma que ajude o outro a ajudá-lo.
+
+
+
