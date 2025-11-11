@@ -756,8 +756,8 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológic
 Esta tríplice dimensão da ação do Espírito não representa uma divisão, mas uma **unidade dinâmica** que manifesta a plenitude do Ser divino:
 
 1.  **Como Fundamentador,** Deus é o **Pai** - fonte incriada de toda existência.
-2.  **Como Plenificador,** Deus é o **Filho/Logos** - razão e sabedoria que estrutura a realidade.
-3.  **Como Personalizador,** Deus é o **Espírito Santo** - amor pessoal e dom que personaliza a relação.
+2.  **Como Plenificador,** Deus é o **Espírito Santo ** - razão e sabedoria que estrutura a realidade.
+3.  **Como Personalizador,** Deus é o **Filho/Logos** - amor pessoal e dom que personaliza.
 
 ### **CAPÍTULO 8: AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 #### **§ 8.1 – As Personas da Autocausalidade Divina**
@@ -829,6 +829,8 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 
 > _"Há um só corpo e um só Espírito, assim como a esperança para a qual vocês foram chamados é uma só; há um só Senhor, uma só fé, um só batismo, um só Deus e Pai de todos, que é sobre todos, por meio de todos e em todos."_
 > _— Efésios 4:4-6_
+
+> A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. A personalidade detém a ação que está desligada de traços pessoais e determinísticos, como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
 #### **§ 8.5 – Conclusão do Capítulo**
 
@@ -3577,6 +3579,8 @@ Se Deus falasse diretamente ao homem, Ele diria:
 
 Esse pronunciamento resume toda a história da salvação, na qual Deus transcende as barreiras da lógica, as resistências do coração, o individualismo e a vontade humana, conduzindo-nos a realidades que ultrapassam nosso entendimento. Ele fará **tudo** para resgatar o homem em sua queda. É aqui que a lógica aristotélica se rende ao divino, e o impossível se manifesta na Igreja fundada por Cristo — *"Porque para Deus nada é impossível"* (Lc 1,37).
 
+> Jesus, na cruz, realizou o impossível. Quando desceu ao reino dos mortos significa que quis estar reunido até mesmo com as almas que se anularam de forma a transformar todas as coisas. É uma transcendencia rumo ao próprio eu do homem na intenção de resgatá-lo do uso austero de sua liberdade. A morte de cruz foi um mergulho no impossível, e neste mergulho o amor transformou toda as coisas, adentrou no impossível. 
+
 #### **§ 29.3 – A paixão de Jesus**
 
 **Jesus não falou somente sobre a salvação, mas nos ensinou a viver intensamente. A viver as emoções.**  
@@ -3657,12 +3661,15 @@ O apocalipse seria, então, a preparação do homem para a tomada de consciênci
 
 Dessa forma, o apocalipse revela-se não como um fim do mundo, mas como a projeção emocional da tomada de consciência do homem sobre o seu próprio estatuto de liberdade enquanto Ser. Perceber-se radicalmente livre é um evento tão cataclísmico para a psique que, incapaz de assimilar esse poder de forma integrada, a consciência projeta seu terror interno no mundo externo, materializando-o como um colapso universal.
 
+> O apocalipse é um fenômeno mental — uma revelação metafísica da verdade — que destruirá o mundo de alguns e elevará o de outros à transcendência.
 
+O apocalipse não é o fim do mundo — é o colapso das ilusões. Ele ocorre primeiro no domínio das ideias, quando o avanço metafísico da humanidade atinge tal profundidade que o homem é lançado violentamente contra a Verdade fundamental. Nesse instante, as metáforas desmoronam, e a realidade se revela nua diante de cada consciência.
 
+Tudo se torna transparente. O homem, mais desperto, vê as ilusões se dissolverem e os sonhos emergirem como construções novas sobre as ruínas do irreal. Alguns contemplam um caminho de glória; outros, um abismo. Cada mente reflete um universo próprio, moldado pela nova informação que irrompe no espírito humano.
 
+O mundo, em sua aparência física, seguirá seu curso natural — mas o **verdadeiro apocalipse** se cumprirá no interior das consciências, na representação individual da realidade que agora será rasgada pela luz do conhecimento.
 
-
-### **CAPÍTULO 30 – O EXISTÊNCIALISMO ALEGÓRICO**
+### **CAPÍTULO 30 – O EXISTÊNCIALISMO**
 
 #### **§ 30.1 – A estranha cidade das almas perdidas**
 
@@ -4713,6 +4720,63 @@ Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transfo
 
 Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
 
+
+#### **§ 44.9 – O existencialismo dos privilégios (NOVO)**
+
+O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê à sua volta nas pessoas. Sente-se revoltado ao ver, ao seu redor, pessoas com um tom de comportamento tão despreocupado — amantes se amando nas praças, pessoas vivendo em paz — aparentemente indiferentes à sua realidade conflituosa. O niilista, por isso, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Vê-se distante de sua paz e tranquilidade e quer repor isso por meio de privilégios. Ao perceber-se com tal postura, o niilista quer repor sua estima, quer tentar, de alguma forma, suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa autoestima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
+
+O niilismo esconde que aqui mesmo, no plano terreno, o paraíso começa. O niilista sente dor ao ver a alegria natural que emerge da sociedade diante da boa alimentação, do lazer, das amizades. Pois qualquer melhora social traz ao povo uma alegria incomparável, que constrange o niilista. O niilista, se quisesse, poderia mudar sua postura e sentir-se feliz naturalmente diante de uma boa visão de futuro.
+
+Porém, julga a si mesmo como uma pedra imóvel e se refere ao amor como a única coisa que pudesse movê-lo de seu estado, sendo que o niilismo já é, em si, uma movimentação do espírito rumo à sua anulação.
+
+O niilista teme ao ver o festejar despreocupado. Uma sociedade niilista é uma sociedade em que deve se cultivar o sentimento de desânimo. Este sentimento é propositalmente causado, calculado e articulado pelas elites dominantes.
+
+É causado pelo dono de padaria, pelo dono de supermercado, pelas empresas que praticam comércio exterior. Toda a construção social até agora tem se voltado para fazer com que a sociedade permaneça num estado emocional conflitante, como se realmente houvesse uma barreira entre o homem e o seu sonhado paraíso. Porém, essa barreira não existe. Nada impede que o paraíso comece aqui. Mas a ação niilista quer que acreditemos que este paraíso está distante.
+
+O privilégio é uma tentativa do niilista de fazer o outro experimentar a sensação niilista, é uma tentativa de fazê-lo compreender o descabido diferencial entre as almas que intuitam a morte e as que têm como intuito a vida. É mostrar a verdadeira face da miséria.
+
+O niilista acha absurdo a sociedade continuar indiferente ao niilismo — as pessoas sorrindo, indo e vindo, como se não tivessem nenhuma preocupação, como se já tivessem encontrado seu lar — e olha o niilista no frio, num deserto de sentido, para fora de sua janela, sem nunca convidá-lo a entrar e ensinar-lhe. Jesus contesta essa posição de indiferença e leva a humanidade à evangelização, a não ficar indiferente diante daquele que intenta sua própria ruína.
+
+A solução das diferenças sociais começa na evangelização — no convidar o outro para a vida eterna. Pois a miséria espiritual de uns causa a miséria material do mundo inteiro, já que o fundamento da miséria material é espiritual. A verdadeira miséria causa uma falsa miséria exterior, que é a escassez material.
+
+Olhar o indivíduo que intenta a morte com indiferença não deixa de ser uma falta de solidariedade, ainda que seja este próprio indivíduo que queira sua própria ruína. Cada alma que se esvai deixa de colorir o mundo com sua nova personalidade. Cada alma perdida é uma personalidade singular que deixa de agir no plano da existência de forma efetiva para se tornar conflito.
+
+Porém, o cúmulo do desespero para converter o outro também não é uma atitude coerente, pois a liberdade, independentemente da forma pela qual é usada, é direito da pessoa humana. E o ser humano só é realizado através do uso de sua liberdade.
+
+> É impossível ser infeliz se determinando pela vida eterna. O gozo da alma é quando ela se determina pela vida eterna; o sentido da vida já é a própria vida. Portanto, a alma só se faz infeliz ou se define de tal forma quando intenta, em seu íntimo, contra seu próprio existir. A felicidade emerge naturalmente do ser humano quando este tem a decisão pela vida.
+
+O rico se vê incomodado com o pobre sendo feliz com qualquer coisa, qualquer distração, qualquer detalhe, pois o peso do niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realidade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortável ao estar sob defesas mentais — que é o caso de estar sob privilégios — pois, quando a mente do niilista o protege da informação de sua intenção, ele tem um pouco de alívio. Porém, precisa sempre de um escape de si mesmo para tal.
+
+#### **§ 44.10 – A solução dos males sociais (NOVO)**
+
+A humanidade, oprimida pelos bilionários e pela violência, tenta praticar o exemplo, de forma a bater, prender e desolar os que causam os males. Porém, ainda que com o exemplo, o mal continua. Mesmo que os bilionários sejam assassinados, outros herdarão sua herança, e mesmo que os que praticam a violência sejam mortos, serão substituídos. Isto acontece porque os nascimentos não param e a liberdade humana não deixa de tomar seus rumos próprios.
+
+A solução dos males é enfraquecer os alicerces do niilismo, que é o seu âmbito financeiro. E se faz isso compreendendo a motivação niilista. Impedindo totalmente a concentração de riquezas, o mal se torna um fator isolado, porém deixa de tornar-se um fator de destruição global ou de opressão em massa. Isto é, um assassinato ou um acúmulo repentino de riquezas pode acontecer esporadicamente, porém isto é facilmente controlado pela sociedade.
+
+O mal não deixará de existir, porém tornar-se-á suportável, no sentido de que não corrompe um paraíso projetado para o homem, e de forma que permita a paz, a preservação natural e o alívio de trabalhos pesados. No sentido de que torne-se em acontecimentos isolados, que corroborem para atribuir um valor perigoso à vida, no sentido de não abolir a aventura humana ou as lutas sociais por completo, de forma que não se forme um ambiente completamente monótono.
+
+Sendo o financeiro desarticulado da ação niilista, temos investidas comportamentais e não massivamente sociais. Outro ponto é investir no comportamento niilista, tentando convencer o indivíduo niilista em favor de sua vida, no sentido de que todos são convidados. Essa é uma abordagem elegante que converge no sentido do bem e tem sua eficácia social.
+
+Não produzam bilionários — não deem a pessoas desequilibradas tamanho poder social, a capacidade de manipular mídias, comprar consciências e controlar o poder tecnológico e bélico do mundo. Alguém com muito dinheiro torna-se acima da política, tal como um rei, pois pode conduzir a própria política de forma mais forte até mesmo do que o eleitor, de modo que o bilionário pode ameaçar, comprar ou até mesmo manipular informações midiáticas para fazer um povo se rebelar contra um bom candidato com boas intenções.
+
+Uma fortuna bilionária na mão de um niilista cujo descontrole tomou conta completamente de si pode causar um estrago social enorme. O acúmulo de dinheiro dá um poder enorme ao niilista, abrindo um leque grandioso de possibilidades. O bilionário torna-se acima até mesmo da lei, podendo manipulá-la ou mudá-la a seu favor. O dinheiro em excesso pode manipular até mesmo por ameaça — quando o bilionário não consegue comprar o político, basta ameaçar seus familiares ou a própria vida deste político. Portanto, desmantelando o esquema financeiro que alimenta a ação niilista, teremos um niilismo isolado. Um niilismo no qual se pode aplicar a compaixão e a evangelização — um niilista que se pode controlar é um niilista cuja chance de conversão é muito maior.
+
+Um dia a mais na vida de um niilista que não é assassinado por ter tido a chance de ganhar armas para o crime é uma chance de salvá-lo de uma eternidade inteira na perdição. Portanto, nenhum mal se compara ao mal que o niilista quer infligir a si mesmo, e por isso ele necessita que haja uma estrutura inteligente ao seu favor. E isto não é para o mal do niilista, mas para o próprio bem. O niilismo deve ser combatido nos alicerces que o fortalecem, para o próprio bem do niilista. Pois uma sociedade que está mais disposta a ensinar, que tem mais energia social para transmitir uma boa visão de mundo, fortalece muito mais o niilista do que uma sociedade cansada, frustrada pelo excesso de trabalho e aterrorizada por catástrofes e acontecimentos cataclísmicos.
+
+Se o niilista fosse realmente sensato em seu proceder, produziria uma sociedade totalmente disposta e cheia de energia para tentar convertê-lo de sua decisão. Porém, o niilismo prova que nem a si mesmo é capaz de ajudar, de forma que ajude o outro a ajudá-lo.
+
+O poderio niislita deve ser desarticulado, e para isto o niilismo precisa ser compreendido, a sociedade precisa entender o acumlo de riquezas como o produto de um comportameneto obsessivo que é oriundo do niilista. O sociedade precisa compreender as empresas bilionárias como instituições construidas pelo niilismo, tanto em seu topo de liderança quanto em sua bases médias, e compreender que somente nas extremidades os trabalhadores estão.
+
+A partir dessa compreensão a humanidade passa a desconfiar de toda forma de riqueza acumulada, e dissocia-la de um progresso social, mas interpreta-la como um centro de opressão ou como um potencial de dar a uma minoria um grande poder social que se faz acima até da politica. Desta forma, a humanidade desarticulando todo o acumulo de riqueza, ao identificar que se trata de um monumento niilista, passa a regir totalmente a politica de forma a criar uma estrutura social pacifica. Sobrará então energia para tratar o niilista ao invés de simplesmente sucumbilo e mata-lo tal como seria matar traficantes ou bilionários.
+
+O niilista não compreendido tem um alto potencial de destruição, pois se faz uma criança regida por impulsos incosncientes que, com o uso de sua inteligencia consegue um grande poder e por sua vez esse poder novamente é guiado por impulsos incosncientes e por decisões inconsistents com a harmonia.
+
+Combater os bilionarios é tratar o niilista, cuidar melhor dos que não se favoreceram espiritualmente e por isso deveriam ser a camada mais fragil social, e não a camada opressora. Deveria ser a camada social cuidada e não a camada ao qual demos força para destruir tudo, inclusive a si mesma e sua oportunidade de viver mais e aprender a ser melhores.
+
+O bilionário é um sedento pela vida eterna, enquanto não instruido ele não desncasará buscando a resposta. É muito mais facil agir rapidamente do que compreender o comportamento do outro. E nessa rapidez de julgamento a humanidade não compreende realmente o niilismo, e dessa forma também não arquiteta formas de desarticular as instutições de controle social. O niilista, no topo de uma companhia, é alguem que não sabe o que fazer, e faz o que lhe resta: oprimir, sucumbir, sugar da sociedade a ter a vida que a sociedade não lhe ensina pois não o compreende.
+
+Até a presente data desta escrita, a sociedade esta tentando vencer os males sociais por reforço negativo, matando bilioonários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
+
 #### **§ 44.9 – Um cenário de êxito nas lutas sociais (NOVO)**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
@@ -4744,6 +4808,8 @@ O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de 
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
 
+
+
 ## Rascunhos
 
 > Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora; porém, o Ser já conserva essas possibilidades em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero.
@@ -4763,83 +4829,11 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 
 
 
-> O apocalipse é um fenômeno mental — uma revelação metafísica da verdade — que destruirá o mundo de alguns e elevará o de outros à transcendência.
 
-O apocalipse não é o fim do mundo — é o colapso das ilusões.
-Ele ocorre primeiro no domínio das ideias, quando o avanço metafísico da humanidade atinge tal profundidade que o homem é lançado violentamente contra a Verdade fundamental. Nesse instante, as metáforas desmoronam, e a realidade se revela nua diante de cada consciência.
 
-Tudo se torna transparente. O homem, mais desperto, vê as ilusões se dissolverem e os sonhos emergirem como construções novas sobre as ruínas do irreal. Alguns contemplam um caminho de glória; outros, um abismo. Cada mente reflete um universo próprio, moldado pela nova informação que irrompe no espírito humano.
 
-O mundo, em sua aparência física, seguirá seu curso natural — mas o **verdadeiro apocalipse** se cumprirá no interior das consciências, na representação individual da realidade que agora será rasgada pela luz do conhecimento.
 
-Este livro é o arauto desse fim — não o fim da matéria, mas do engano.
-Ele destruirá o mundo oculto sob o desconhecimento, dissolverá as trevas que mantinham as almas adormecidas e mostrará, com precisão quase cirúrgica, a estrutura invisível que sustenta o ser.
 
-Aqui, os enigmas mais antigos encontram resposta.
-O mapa do pós-corpo é traçado.
-E, por fim, as nuances do comportamento humano revelarão quem caminha em direção à luz — e quem, por escolha ou cegueira, se perde nas sombras.
-
-Haverá os que verão Jesus nos céus — a representação do caminho de paz que se abrirá diante de seus olhos — e haverá também os que testemunharão a destruição do mundo, não o mundo físico, mas aquele em que acreditavam e onde julgavam estar seguros.
-
-#### **§ 00.0 – O existencialismo dos privilégios (NOVO)**
-
-O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê à sua volta nas pessoas. Sente-se revoltado ao ver, ao seu redor, pessoas com um tom de comportamento tão despreocupado — amantes se amando nas praças, pessoas vivendo em paz — aparentemente indiferentes à sua realidade conflituosa. O niilista, por isso, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Vê-se distante de sua paz e tranquilidade e quer repor isso por meio de privilégios. Ao perceber-se com tal postura, o niilista quer repor sua estima, quer tentar, de alguma forma, suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa autoestima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
-
-O niilismo esconde que aqui mesmo, no plano terreno, o paraíso começa. O niilista sente dor ao ver a alegria natural que emerge da sociedade diante da boa alimentação, do lazer, das amizades. Pois qualquer melhora social traz ao povo uma alegria incomparável, que constrange o niilista. O niilista, se quisesse, poderia mudar sua postura e sentir-se feliz naturalmente diante de uma boa visão de futuro.
-
-Porém, julga a si mesmo como uma pedra imóvel e se refere ao amor como a única coisa que pudesse movê-lo de seu estado, sendo que o niilismo já é, em si, uma movimentação do espírito rumo à sua anulação.
-
-O niilista teme ao ver o festejar despreocupado. Uma sociedade niilista é uma sociedade em que deve se cultivar o sentimento de desânimo. Este sentimento é propositalmente causado, calculado e articulado pelas elites dominantes.
-
-É causado pelo dono de padaria, pelo dono de supermercado, pelas empresas que praticam comércio exterior. Toda a construção social até agora tem se voltado para fazer com que a sociedade permaneça num estado emocional conflitante, como se realmente houvesse uma barreira entre o homem e o seu sonhado paraíso. Porém, essa barreira não existe. Nada impede que o paraíso comece aqui. Mas a ação niilista quer que acreditemos que este paraíso está distante.
-
-O privilégio é uma tentativa do niilista de fazer o outro experimentar a sensação niilista, é uma tentativa de fazê-lo compreender o descabido diferencial entre as almas que intuitam a morte e as que têm como intuito a vida. É mostrar a verdadeira face da miséria.
-
-O niilista acha absurdo a sociedade continuar indiferente ao niilismo — as pessoas sorrindo, indo e vindo, como se não tivessem nenhuma preocupação, como se já tivessem encontrado seu lar — e olha o niilista no frio, num deserto de sentido, para fora de sua janela, sem nunca convidá-lo a entrar e ensinar-lhe. Jesus contesta essa posição de indiferença e leva a humanidade à evangelização, a não ficar indiferente diante daquele que intenta sua própria ruína.
-
-A solução das diferenças sociais começa na evangelização — no convidar o outro para a vida eterna. Pois a miséria espiritual de uns causa a miséria material do mundo inteiro, já que o fundamento da miséria material é espiritual. A verdadeira miséria causa uma falsa miséria exterior, que é a escassez material.
-
-Olhar o indivíduo que intenta a morte com indiferença não deixa de ser uma falta de solidariedade, ainda que seja este próprio indivíduo que queira sua própria ruína. Cada alma que se esvai deixa de colorir o mundo com sua nova personalidade. Cada alma perdida é uma personalidade singular que deixa de agir no plano da existência de forma efetiva para se tornar conflito.
-
-Porém, o cúmulo do desespero para converter o outro também não é uma atitude coerente, pois a liberdade, independentemente da forma pela qual é usada, é direito da pessoa humana. E o ser humano só é realizado através do uso de sua liberdade.
-
-> É impossível ser infeliz se determinando pela vida eterna. O gozo da alma é quando ela se determina pela vida eterna; o sentido da vida já é a própria vida. Portanto, a alma só se faz infeliz ou se define de tal forma quando intenta, em seu íntimo, contra seu próprio existir. A felicidade emerge naturalmente do ser humano quando este tem a decisão pela vida.
-
-O rico se vê incomodado com o pobre sendo feliz com qualquer coisa, qualquer distração, qualquer detalhe, pois o peso do niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realidade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortável ao estar sob defesas mentais — que é o caso de estar sob privilégios — pois, quando a mente do niilista o protege da informação de sua intenção, ele tem um pouco de alívio. Porém, precisa sempre de um escape de si mesmo para tal.
-
-#### **§ 00.0 – A solução dos males sociais (NOVO)**
-
-A humanidade, oprimida pelos bilionários e pela violência, tenta praticar o exemplo, de forma a bater, prender e desolar os que causam os males. Porém, ainda que com o exemplo, o mal continua. Mesmo que os bilionários sejam assassinados, outros herdarão sua herança, e mesmo que os que praticam a violência sejam mortos, serão substituídos. Isto acontece porque os nascimentos não param e a liberdade humana não deixa de tomar seus rumos próprios.
-
-A solução dos males é enfraquecer os alicerces do niilismo, que é o seu âmbito financeiro. E se faz isso compreendendo a motivação niilista. Impedindo totalmente a concentração de riquezas, o mal se torna um fator isolado, porém deixa de tornar-se um fator de destruição global ou de opressão em massa. Isto é, um assassinato ou um acúmulo repentino de riquezas pode acontecer esporadicamente, porém isto é facilmente controlado pela sociedade.
-
-O mal não deixará de existir, porém tornar-se-á suportável, no sentido de que não corrompe um paraíso projetado para o homem, e de forma que permita a paz, a preservação natural e o alívio de trabalhos pesados. No sentido de que torne-se em acontecimentos isolados, que corroborem para atribuir um valor perigoso à vida, no sentido de não abolir a aventura humana ou as lutas sociais por completo, de forma que não se forme um ambiente completamente monótono.
-
-Sendo o financeiro desarticulado da ação niilista, temos investidas comportamentais e não massivamente sociais. Outro ponto é investir no comportamento niilista, tentando convencer o indivíduo niilista em favor de sua vida, no sentido de que todos são convidados. Essa é uma abordagem elegante que converge no sentido do bem e tem sua eficácia social.
-
-Não produzam bilionários — não deem a pessoas desequilibradas tamanho poder social, a capacidade de manipular mídias, comprar consciências e controlar o poder tecnológico e bélico do mundo. Alguém com muito dinheiro torna-se acima da política, tal como um rei, pois pode conduzir a própria política de forma mais forte até mesmo do que o eleitor, de modo que o bilionário pode ameaçar, comprar ou até mesmo manipular informações midiáticas para fazer um povo se rebelar contra um bom candidato com boas intenções.
-
-Uma fortuna bilionária na mão de um niilista cujo descontrole tomou conta completamente de si pode causar um estrago social enorme. O acúmulo de dinheiro dá um poder enorme ao niilista, abrindo um leque grandioso de possibilidades. O bilionário torna-se acima até mesmo da lei, podendo manipulá-la ou mudá-la a seu favor. O dinheiro em excesso pode manipular até mesmo por ameaça — quando o bilionário não consegue comprar o político, basta ameaçar seus familiares ou a própria vida deste político. Portanto, desmantelando o esquema financeiro que alimenta a ação niilista, teremos um niilismo isolado. Um niilismo no qual se pode aplicar a compaixão e a evangelização — um niilista que se pode controlar é um niilista cuja chance de conversão é muito maior.
-
-Um dia a mais na vida de um niilista que não é assassinado por ter tido a chance de ganhar armas para o crime é uma chance de salvá-lo de uma eternidade inteira na perdição. Portanto, nenhum mal se compara ao mal que o niilista quer infligir a si mesmo, e por isso ele necessita que haja uma estrutura inteligente ao seu favor. E isto não é para o mal do niilista, mas para o próprio bem. O niilismo deve ser combatido nos alicerces que o fortalecem, para o próprio bem do niilista. Pois uma sociedade que está mais disposta a ensinar, que tem mais energia social para transmitir uma boa visão de mundo, fortalece muito mais o niilista do que uma sociedade cansada, frustrada pelo excesso de trabalho e aterrorizada por catástrofes e acontecimentos cataclísmicos.
-
-Se o niilista fosse realmente sensato em seu proceder, produziria uma sociedade totalmente disposta e cheia de energia para tentar convertê-lo de sua decisão. Porém, o niilismo prova que nem a si mesmo é capaz de ajudar, de forma que ajude o outro a ajudá-lo.
-
-O poderio niislita deve ser desarticulado, e para isto o niilismo precisa ser compreendido, a sociedade precisa entender o acumlo de riquezas como o produto de um comportameneto obsessivo que é oriundo do niilista. O sociedade precisa compreender as empresas bilionárias como instituições construidas pelo niilismo, tanto em seu topo de liderança quanto em sua bases médias, e compreender que somente nas extremidades os trabalhadores estão.
-
-A partir dessa compreensão a humanidade passa a desconfiar de toda forma de riqueza acumulada, e dissocia-la de um progresso social, mas interpreta-la como um centro de opressão ou como um potencial de dar a uma minoria um grande poder social que se faz acima até da politica. Desta forma, a humanidade desarticulando todo o acumulo de riqueza, ao identificar que se trata de um monumento niilista, passa a regir totalmente a politica de forma a criar uma estrutura social pacifica. Sobrará então energia para tratar o niilista ao invés de simplesmente sucumbilo e mata-lo tal como seria matar traficantes ou bilionários.
-
-O niilista não compreendido tem um alto potencial de destruição, pois se faz uma criança regida por impulsos incosncientes que, com o uso de sua inteligencia consegue um grande poder e por sua vez esse poder novamente é guiado por impulsos incosncientes e por decisões inconsistents com a harmonia.
-
-Combater os bilionarios é tratar o niilista, cuidar melhor dos que não se favoreceram espiritualmente e por isso deveriam ser a camada mais fragil social, e não a camada opressora. Deveria ser a camada social cuidada e não a camada ao qual demos força para destruir tudo, inclusive a si mesma e sua oportunidade de viver mais e aprender a ser melhores.
-
-O bilionário é um sedento pela vida eterna, enquanto não instruido ele não desncasará buscando a resposta. É muito mais facil agir rapidamente do que compreender o comportamento do outro. E nessa rapidez de julgamento a humanidade não compreende realmente o niilismo, e dessa forma também não arquiteta formas de desarticular as instutições de controle social. O niilista, no topo de uma companhia, é alguem que não sabe o que fazer, e faz o que lhe resta: oprimir, sucumbir, sugar da sociedade a ter a vida que a sociedade não lhe ensina pois não o compreende.
-
-Até a presente data desta escrita, a sociedade esta tentando vencer os males sociais por reforço negativo, matando bilioonários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
-
-> A forma de ação do Espírito plenificador está sempre ligada a perfeição, porém a ação do Espírito personalizador está ligada a acidentes de uma personalidade. Isto quer dizer que, a ação personalizadora continua sendo guiada pela plenitude, porém, em seus declives. A personalidade oferece trejeitos, gostos, caminhos que nem sempre está ligado a uma ocasião. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade.
-
-> Jesus, na cruz, realizou o impossível. Quando desceu ao reino dos mortos significa que quis estar reunido até mesmo com as almas que se anularam de forma a transformar todas as coisas. É uma transcendencia rumo ao próprio eu do homem na intenção de resgatá-lo do uso austero de sua liberdade. A morte de cruz foi um mergulho no impossível, e neste mergulho o amor transformou toda as coisas, adentrou no impossível. 
 
 
 
