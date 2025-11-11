@@ -4841,3 +4841,20 @@ Combater os bilionarios é tratar o niilista, cuidar melhor dos que não se favo
 O bilionário é um sedento pela vida eterna, enquanto não instruido ele não desncasará buscando a resposta. É muito mais facil agir rapidamente do que compreender o comportamento do outro. E nessa rapidez de julgamento a humanidade não compreende realmente o niilismo, e dessa forma também não arquiteta formas de desarticular as instutições de controle social. O niilista, no topo de uma companhia, é alguem que não sabe o que fazer, e faz o que lhe resta: oprimir, sucumbir, sugar da sociedade a ter a vida que a sociedade não lhe ensina pois não o compreende.
 
 Até a presente data desta escrita, a sociedade esta tentando vencer os males sociais por reforço negativo, matando bilioonários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
+
+> A forma de ação do Espírito plenificador está sempre ligada a perfeição, porém a ação do Espírito personalizador está ligada a acidentes de uma personalidade. Isto quer dizer que, a ação personalizadora continua sendo guiada pela plenitude, porém, em seus declives. A personalidade oferece trejeitos, gostos, caminhos que nem sempre está ligado a uma ocasião. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade.
+
+> Jesus, na cruz, realizou o impossível. Quando desceu ao reino dos mortos significa que quis estar reunido até mesmo com as almas que se anularam de forma a transformar todas as coisas. É uma transcendencia rumo ao próprio eu do homem na intenção de resgatá-lo do uso austero de sua liberdade. A morte de cruz foi um mergulho no impossível, e neste mergulho o amor transformou toda as coisas, adentrou no impossível. 
+
+
+
+
+
+
+
+
+
+
+
+
+
