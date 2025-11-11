@@ -4746,11 +4746,9 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 
 ## Rascunhos
 
-> Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora; porém, Deus já conserva essas possibilidades em Sua potência. Portanto, Deus, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus esta liberto da unidade, de forma a determinar qualquer personalização que esteja em seu intento. 
+> Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora; porém, o Ser já conserva essas possibilidades em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero.
 
-
-
-
+> Ao regredirmos um acumulado de vida infinito, um indiferenciado de infinitas vidas, temos como redução uma dualidade, que é um acumulo de vida maior do que uma unidade.
 
 > Transcender para o Ser é ser em tudo, ser o todo. Transcender de si não para uma individualidade, mas para a completa libertação da unidade. Não significa gerar uma vida, mas participar da geração de Deus. É gerar todas as vidas. Adentrar na realidade que gera como uma unidade e não como uma dualidade. O Ser não precisa de uma distinção em sua visão para gerar uma nova visão, pois já é em si toda a distinção. O Ser cria o homem como um movimento interno, já é em si a transcendência. O Ser não necessita transcender uma unidade, já é a junção de duas unidades transcendidas. O Ser cria se autoangulando em si uma possibilidade, pois já é o indiferenciado sem necessitar de uma dualidade para provar tal indiferenciação. Transcender para o Ser é indiferenciar-se de si mesmo, de forma a participar do indiferenciado. É queimar-se em Deus de forma a consumir a unidade no todo, na indiferenciação pura. Se a união da dualidade é se consumir em uma dualidade, ou seja, em outro limite de dualidade. Tocar o Ser é consumir-se de forma totalmente indiferenciada, é tocar o indiferenciado diretamente sem que seja necessário o outro. Transcender diretamente para o Ser é ser tudo e gerar tudo.
 
@@ -4761,9 +4759,6 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 > Transcender-se de si, é consumir-se no Ser, experimentar um extase de uma transcendencia pura. Já transcender para o outro é experimentar uma unidade; uma transcendencia para o outro, é consumir-se de forma a romper o si no outro, e não seria como romper o si no existir que é o Ser.
 
 > As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
-
-
-
 
 
 
