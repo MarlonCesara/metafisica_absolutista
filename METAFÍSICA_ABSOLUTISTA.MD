@@ -4808,8 +4808,6 @@ O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de 
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
 
-
-
 ## Rascunhos
 
 > Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora; porém, o Ser já conserva essas possibilidades em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero.
