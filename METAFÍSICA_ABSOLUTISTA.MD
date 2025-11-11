@@ -3,13 +3,13 @@
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
-#### **§ 1.1 – O Contexto Histórico e a Necessidade de um *Organon**
+#### **§ 1.1 – O Contexto Histórico e a Necessidade de um Organon**
 
 A fundação da lógica como disciplina sistemática é obra de Aristóteles (384-322 a.C.), desenvolvida em resposta às limitações percebidas na filosofia platônica. Enquanto Platão orientava a investigação para o mundo transcendente das Ideias ou Formas, Aristóteles buscou estabelecer um método formal para o pensamento correto acerca do mundo real — um *organon* (ferramenta) para a ciência e a demonstração.
 
 Sua partida de Atenas após a morte de Platão (347 a.C.) e seus estudos biológicos em Assos e Lesbos foram decisivos. A observação de estruturas e padrões naturais levou-o à intuição fundamental de que **assim como há uma ordem na *physis* (natureza), deve haver uma ordem correspondente no *logos* (pensamento e linguagem)**. Esta correlação entre a estrutura do real e a estrutura do pensamento racional constitui o princípio gerador da lógica formal.
 
-#### **§ 1.2 – A Sistematização no *Organon**
+#### **§ 1.2 – A Sistematização no Organon**
 
 De volta a Atenas, no Liceu, Aristóteles sistematizou sua descoberta no *Organon*, um conjunto de seis tratados. Foi neste *corpus* que ele estabeleceu de forma axiomática os **três princípios fundamentais do raciocínio lógico**, alicerces incontornáveis de todo pensamento válido:
 
