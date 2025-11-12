@@ -2087,6 +2087,7 @@ A liberdade do *"sou"* reside justamente em sua **não-necessidade ontológica**
 -   A ação do espírito na alma é o existente indo de encontro a si mesmo, a sua estadia, ao seu existir. É o ente entrando em ressonância consigo. É o Eu em harmonia com sua auto determinação.
 -   O homem é, portanto, trinário por opção. Pode direcionar-se à plenitude (verticalmente) ou não. Desta forma, constitui-se em seu fundamento como determinação do Ser em uma particularidade temporal, o Espírito Perfeito de forma opcional inerente ao seu ser e a personalidade.
 -   Não existe a antítese do Espírito Perfeito que levaria o homem à sua autodestruição, somente existe o homem sendo trinário, ou seja, sendo pleno, corroborando com a mesma plenitude do Ser, ou caracterizado pela ausência do Espírito perfeito, ou seja, pela não harmonia com o Ser e com sua plenitude.
+– A negação ao Espírito Santo é a negação à plenitude, e não à personalidade. Isso significa que o homem que aceita e coopera com o próprio existir está sintonizado, de forma transcendente, com o Espírito Santo, que tem o mesmo intento: ver o homem existente. O ato de existir, portanto, já confere por si mesmo uma luminosidade ao homem, pois, ao existir, ele manifesta uma harmonia com a vontade fundamental de Deus. A plenitude do Espírito Santo concorre para a vida, para a existência — e isso significa que quem deseja existir não atentou contra o Espírito Santo.
 
 > _"Por isso eu lhes digo: todo pecado e toda blasfêmia serão perdoados, mas a blasfêmia contra o Espírito não será perdoada"_
 > _— Mateus 12:31-32_
@@ -4823,25 +4824,4 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 > Transcender-se de si, é consumir-se no Ser, experimentar um extase de uma transcendencia pura. Já transcender para o outro é experimentar uma unidade; uma transcendencia para o outro, é consumir-se de forma a romper o si no outro, e não seria como romper o si no existir que é o Ser.
 
 > As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
