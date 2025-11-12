@@ -4810,7 +4810,15 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
 
-#### **§ 44.10 – A salvação do homem (NOVO)**
+#### **§ 44.10 – Um cair das defesas mentais (NOVO)**
+
+O homem, sob o jugo da regra do pecado com base na ação e não na intenção, protege-se da tomada de consciência de sua liberdade perante a revelação metafísica de sua alma. Isso quer dizer que imaginar um conjunto de ações calculadas — chamadas de pecado em suas diferentes magnitudes — confere ao indivíduo um cerco no qual pode imaginar-se salvo de si mesmo.
+
+Isso quer dizer que, ainda que o indivíduo busque sua própria morte, pode, por meio de uma metodologia comportamental ou por via de regra, pensar-se distante de seu verdadeiro intuito e salvo. Quando a pessoa humana se dá conta de sua liberdade completa e de que nossas ações não serão verdadeiramente julgadas por Deus, então o indivíduo pode entrar em crise existencial. Se o conceito mais raso de pecado serve como algo angustiante para muitos, para o niilista pode soar confortador. Seguir um sistema de regras e sentir-se seguro dentro dele é o estado anterior ao apocalipse da consciência — quando esse mundo facilitado se destrói e dá lugar ao potencial real da alma e à verdadeira responsabilidade do indivíduo perante si mesmo.
+
+Quando o indivíduo se dá conta de que responde por si só, e não perante uma força maior, é arremessado diretamente contra sua autorresponsabilidade, e nela pode sentir-se mais ou menos assegurado. É dentro dessa nova percepção que as barreiras entre o mundo terreno e o mundo espiritual se quebram, de forma a já nos identificarmos no mundo espiritual. A partir da vida terrena, é possível assumir o risco da liberdade e antever o destino que cada indivíduo intenta. Sob a perspectiva comportamental também é possível observar na sociedade e diferenciar os indivíduos, de forma a enxergá-los como potenciais pessoas em crise existencial ou pessoas que já optaram, em seu âmago, pela vida de forma definitiva.
+
+#### **§ 44.11 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
 
