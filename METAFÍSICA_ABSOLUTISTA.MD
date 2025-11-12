@@ -1669,7 +1669,11 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
-#### **§ 14.2 – A Manifestação do "Sou": A Criação da Alma do Homem**
+#### **§ 14.2 – O potencial de criar o homem**
+
+O Ser já conserva a possibilidade da indiferenciação da dualidade em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero. O Ser, em sua indiferen­ciação, já contém em si todo o potencial dos autodeterminadores individuais, pois ele é indiferenciado não apenas em relação aos fenômenos, mas também à própria autodeterminação. Esta, por sua vez, não se individualiza numericamente nem se multiplica no indiferenciado, mas permanece indiferente tanto a uma determinação única quanto a uma múltipla.
+
+#### **§ 14.3 – A Manifestação do "Sou": A Criação da Alma do Homem**
 
 Na tradição da Igreja Católica, a expressão de que o homem foi feito “à imagem e semelhança de Deus” tem um significado profundo e multifacetado. Eis os principais pontos:
 
@@ -1702,7 +1706,7 @@ Sendo o homem dotado da capacidade de autodeterminar-se a si mesmo, à semelhan�
 
 O "sou" constitui-se como uma manifestação realizada pelo Ser, que, em ato de liberdade primordial, concede a si mesmo a expressão de um determinador livre. Este, por sua vez, faz emergir no campo do real uma possibilidade distinta – um princípio determinador autônomo. A este princípio chamamos homem ou alma. O "Sou", portanto, é uma determinação inscrita no Ser, capaz de operar não apenas em alinhamento vertical com a sua fonte, mas também em expansão horizontal no domínio das possibilidades.
 
-#### **§ 14.3 – A Distinção entre Ser e Sou**
+#### **§ 14.4 – A Distinção entre Ser e Sou**
 
 O **Ser** representa o determinador puro, o fundamento indiferenciado da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
 
@@ -1730,7 +1734,7 @@ O **Ser** representa o determinador puro, o fundamento indiferenciado da existê
 > _"Então disse Deus: 'Façamos o homem à nossa imagem, conforme a nossa semelhança.'"_
 > _— Gênesis 1:26_
 
-### **§ 14.4 – A Liberdade do "Sou"**
+### **§ 14.5 – A Liberdade do "Sou"**
 
 >A alma não é um corpo. Não possui forma.
 A alma é essência — uma individualização única e eterna da liberdade.
@@ -1773,7 +1777,7 @@ A identidade do Ser se dissocia completamente, não do tempo, mas da unicidade. 
 Esta compreensão, mais uma vez, não decorre de um raciocínio puramente lógico, mas do **auto-testemunho existencial** — da afirmação pessoal que cada alma faz de sua própria liberdade perante o Ser.
 
 
-## **§ 14.5 – Distinções Ontológicas entre Ser e Sou**
+## **§ 14.6 – Distinções Ontológicas entre Ser e Sou**
 
 ### **1. Da Natureza do Arbítrio**
 
@@ -1843,14 +1847,14 @@ A identidade do Ser é **transparente**, enquanto as identidades individuais sã
 Assim, **o Ser está em tudo**, mas **as individualizações se mantêm**.
 O Ser **não se ausenta** das determinações individuais — **ele as transcende**.
 
-#### **§ 14.5 – A Personalidade como Participação no Ser**
+#### **§ 14.7 – A Personalidade como Participação no Ser**
 
 Temos portanto, a auto determinação dotada de multiplicidade e liberdade na esfera ontológica, a qual pode corroborar ou não com sua plenitude. Sendo o Ser o existir necessário e imutável em sua essência auto fundamentadora, sua determinação somente tem efeito sobre Ele mesmo, isto é, sua determinação se concretiza necessariamente rumo a plenitude, rumo ao Ser. Quando mais o sou se determina rumo ao Ser, mais é em si e no Ser.
 
 > _"Assim como o Pai, que vive, me enviou, e igualmente eu vivo pelo Pai, também quem de mim se alimenta por mim viverá."_
 > _— João 6:57_
 
-#### **§ 14.6 – Implicações Antropológicas e Teológicas**
+#### **§ 14.8 – Implicações Antropológicas e Teológicas**
 
 Esta análise revela que:
 
@@ -2600,7 +2604,7 @@ O relativo do Ser não é a ausência de almas, mas a indiferenciação de todas
 
 O Ser mantém sua fundação assim como a dualidade se sustenta, mas o Ser é uma indiferenciação em si mesmo. Ele constitui sua base inesgotável e é, por natureza, uma indiferenciação da alma.
 
-#### **§ 24.8 – A Alma e a Transcendência na Visão Bíblica**
+#### **§ 24.8 – A Alma e a Transcendência**
 
 Em sua busca primordial, Adão e Eva almejaram tornar-se como deuses, conhecedores do bem e do mal. O texto sagrado sugere que, uma vez despidos não apenas de seus corpos, mas também da ignorância sobre sua capacidade de transcendência , suas almas — agora nuas perante si mesmas e diante do Criador — pressentiram que poderiam adentrar um *estado relativo*: extinguir-se voluntariamente em um êxtase de dissolução temporária, um apagão da unidade individual, para consumirem-se na dualidade compartilhada.  
 
@@ -2609,6 +2613,16 @@ Anelavam, assim, alcançar uma condição análoga à divina, não pela obediên
 Contudo, o amor que não se consuma no tempo e no espírito — que não é fundado na entrega total e transcendente — não gera vida plena, mas morte corporal. E assim, a união que poderia tê-los elevado à semelhança divina resultou apenas na morte terrena, no exílio do Éden e na percepção abrupta de sua própria vulnerabilidade.  
 
 Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — esconderam-se da transparência de suas próprias almas, do reconhecimento íntimo do que significa estar totalmente exposto ao outro e a si mesmo. Compreenderam, demasiado tarde, que a nudez da alma precede e supera a do corpo, e que toda união definitiva carrega em si o peso glorioso e temível da eternidade.
+000
+> Transcender para o Ser é ser em tudo, ser o todo. Transcender de si não para uma individualidade, mas para a completa libertação da unidade. Não significa gerar uma vida, mas participar da geração de Deus. É gerar todas as vidas. Adentrar na realidade que gera como uma unidade e não como uma dualidade. O Ser não precisa de uma distinção em sua visão para gerar uma nova visão, pois já é em si toda a distinção. O Ser cria o homem como um movimento interno, já é em si a transcendência. O Ser não necessita transcender uma unidade, já é a junção de duas unidades transcendidas. O Ser cria se autoangulando em si uma possibilidade, pois já é o indiferenciado sem necessitar de uma dualidade para provar tal indiferenciação. Transcender para o Ser é indiferenciar-se de si mesmo, de forma a participar do indiferenciado. É queimar-se em Deus de forma a consumir a unidade no todo, na indiferenciação pura. Se a união da dualidade é se consumir em uma dualidade, ou seja, em outro limite de dualidade. Tocar o Ser é consumir-se de forma totalmente indiferenciada, é tocar o indiferenciado diretamente sem que seja necessário o outro. Transcender diretamente para o Ser é ser tudo e gerar tudo.
+
+> A unidade pode gerar outras almas? Sim, porém indiferenciada de si mesma, envolvida no próprio Ser. A geração é uma indiferenciação da unidade de forma que a alma se defina em qualquer variação possível e transcenda a unidade. Indiferenciar-se de si mesmo é inevitavelmente abrir-se para o todo, e o todo é o Ser. A transcendência é um voar para longe da consciência, de forma a preservá-la porém, também, transcendê-la. 
+
+> Quando mais reta a vontade do individuo, mais ele pode indiferenciar-se de si sem se perder de si. A transcendência da unidade, é plena de forma que o individuo esteja alinhado a vontade do todo. O união só acontece com ambas as vontades da mesma direção. Transcender para o nada é o inferno, pois é necessário transcender para algo. E se houver algo fora de si, a transcendência realmente aconteceu. Transcender para o nada não existe, isso é auto alienação. Ao transcender para fora de si pelo Ser a unidade não colide com outros sous. O transcender da unidade do sou é para uma existência sem unidade, ou seje, é para o ato puro de existir de forma indiferenciada e isto é o Ser. Transcender de si tem como rumo o Ser, que é o existir diferenciado. Unir-se ao Ser seria diluir-se em prol do todo. Transcender no outro é não ser mais a si e nem ao outro temporariamente, mas ser uma indefinição da dualidade. Não ser a si e nem ser o outro mas uma nova vida no outro.
+
+> Transcender-se de si, é consumir-se no Ser, experimentar um extase de uma transcendencia pura. Já transcender para o outro é experimentar uma unidade; uma transcendencia para o outro, é consumir-se de forma a romper o si no outro, e não seria como romper o si no existir que é o Ser.
+
+> As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
 
 #### **§ 24.9 – O relativo dos anjos**
 
@@ -3313,8 +3327,7 @@ E assim, de mãos dadas — ou melhor, de essências plenamente unidas e sintoni
 
 ### **CAPÍTULO 28: GÊNESES: A EXPRESSÃO DO AMOR INFINITO**
 
-Ao antecedermos o Ser, há uma redução da consciência a uma unidade plena. Ou seja, podemos considerar que uma dualidade seria uma forma de redução do Ser. Ao regredirmos ainda mais o Ser, chegamos à redução a um homem uno, sem dualidade. Reduzindo ainda mais, teríamos um Éden. Todas essas manifestações existiriam concomitantemente ao Ser.
-Podemos fazer uma analogia da criação do Ser, na qual tentamos representar o próprio Ser reduzindo sua infinitude. Nessa analogia, podemos reconstruir a ilusão do nada em convergência ao Ser; ou seja, o nada nos fornece um espaço para a analogia, permitindo uma representação simbólica ou ilusória anterior ao Ser. 
+Ao regredirmos a um indiferenciado de infinitas vidas, obtemos, como redução, uma dualidade — um acúmulo de vida maior do que uma unidade. E ao regredirmos ainda mais temos um genero (Adão). Ao antecedermos o Ser, há uma redução da consciência a uma unidade plena. Ou seja, podemos considerar que uma dualidade seria uma forma de redução do Ser. Ao regredirmos ainda mais o Ser, chegamos à redução a um homem uno, sem dualidade. Reduzindo ainda mais, teríamos um Éden. Todas essas manifestações existiriam concomitantemente ao Ser. Podemos fazer uma analogia da criação do Ser, na qual tentamos representar o próprio Ser reduzindo sua infinitude. Nessa analogia, podemos reconstruir a ilusão do nada em convergência ao Ser; ou seja, o nada nos fornece um espaço para a analogia, permitindo uma representação simbólica ou ilusória anterior ao Ser. 
 
 Ao imaginarmos Deus regredido a uma consciência una, temos Adão. Em uma consciência plena, temos Adão e Eva. Ao expandirmos ainda mais, ocorre o rompimento do eu de Adão e Eva. Isso justificaria sermos oriundos de dois pais, ainda que eles não tenham tido uma conexão real, ainda que sejam uma ilusão. É possível atribuir-lhes a culpa pelo pecado original, entendido como uma ruptura de genealogia, de forma que somos diretamente amparados pela paternidade de Deus.
 
@@ -4808,22 +4821,3 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
-
-## Rascunhos
-
-> Adão e Eva teriam transcendido um ao outro e gerado toda a humanidade em metáfora.
-
-> Ao regredirmos um acumulado de vida infinito, um indiferenciado de infinitas vidas, temos como redução uma dualidade, que é um acumulo de vida maior do que uma unidade. E ao regredirmos ainda mais temos um genero (Adão). 
-
-O Ser já conserva a possibilidade da indiferenciação da dualidade em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero. O Ser, em sua indiferen­ciação, já contém em si todo o potencial dos autodeterminadores individuais, pois ele é indiferenciado não apenas em relação aos fenômenos, mas também à própria autodeterminação. Esta, por sua vez, não se individualiza numericamente nem se multiplica no indiferenciado, mas permanece indiferente tanto a uma determinação única quanto a uma múltipla.
-
-> Transcender para o Ser é ser em tudo, ser o todo. Transcender de si não para uma individualidade, mas para a completa libertação da unidade. Não significa gerar uma vida, mas participar da geração de Deus. É gerar todas as vidas. Adentrar na realidade que gera como uma unidade e não como uma dualidade. O Ser não precisa de uma distinção em sua visão para gerar uma nova visão, pois já é em si toda a distinção. O Ser cria o homem como um movimento interno, já é em si a transcendência. O Ser não necessita transcender uma unidade, já é a junção de duas unidades transcendidas. O Ser cria se autoangulando em si uma possibilidade, pois já é o indiferenciado sem necessitar de uma dualidade para provar tal indiferenciação. Transcender para o Ser é indiferenciar-se de si mesmo, de forma a participar do indiferenciado. É queimar-se em Deus de forma a consumir a unidade no todo, na indiferenciação pura. Se a união da dualidade é se consumir em uma dualidade, ou seja, em outro limite de dualidade. Tocar o Ser é consumir-se de forma totalmente indiferenciada, é tocar o indiferenciado diretamente sem que seja necessário o outro. Transcender diretamente para o Ser é ser tudo e gerar tudo.
-
-> A unidade pode gerar outras almas? Sim, porém indiferenciada de si mesma, envolvida no próprio Ser. A geração é uma indiferenciação da unidade de forma que a alma se defina em qualquer variação possível e transcenda a unidade. Indiferenciar-se de si mesmo é inevitavelmente abrir-se para o todo, e o todo é o Ser. A transcendência é um voar para longe da consciência, de forma a preservá-la porém, também, transcendê-la. 
-
-> Quando mais reta a vontade do individuo, mais ele pode indiferenciar-se de si sem se perder de si. A transcendência da unidade, é plena de forma que o individuo esteja alinhado a vontade do todo. O união só acontece com ambas as vontades da mesma direção. Transcender para o nada é o inferno, pois é necessário transcender para algo. E se houver algo fora de si, a transcendência realmente aconteceu. Transcender para o nada não existe, isso é auto alienação. Ao transcender para fora de si pelo Ser a unidade não colide com outros sous. O transcender da unidade do sou é para uma existência sem unidade, ou seje, é para o ato puro de existir de forma indiferenciada e isto é o Ser. Transcender de si tem como rumo o Ser, que é o existir diferenciado. Unir-se ao Ser seria diluir-se em prol do todo. Transcender no outro é não ser mais a si e nem ao outro temporariamente, mas ser uma indefinição da dualidade. Não ser a si e nem ser o outro mas uma nova vida no outro.
-
-> Transcender-se de si, é consumir-se no Ser, experimentar um extase de uma transcendencia pura. Já transcender para o outro é experimentar uma unidade; uma transcendencia para o outro, é consumir-se de forma a romper o si no outro, e não seria como romper o si no existir que é o Ser.
-
-> As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
-
