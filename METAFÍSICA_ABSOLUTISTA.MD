@@ -4701,6 +4701,8 @@ A alegria do povo fica escondida em sorrisos contidos e raros, em breves momento
 
 Ela fica retida nas pequenas degustações de banquetes que deveriam ser fartos, nas folgas que deveriam ser longas, nas férias que deveriam acontecer. Até mesmo o estado anímico do homem precisa ser controlado pelo niilismo: há um controle das emoções imposto pela concentração de riquezas.
 
+Uma sociedade onde a alegria se prolifera, onde os pássaros e a natureza cantam em harmonia, onde os artistas se expressam e enchem o mundo de poesia — um mundo que anuncia, de forma natural, a felicidade, a beleza e a evolução — é, sob a ótica niilista, um absurdo. O niilista acredita que o mundo deve permanecer em luto por si mesmo, e que ninguém é responsável por esse luto senão o próprio homem. Por isso, os artistas que ousam cantar a alegria são perseguidos pela mídia, alvo de fofocas e da exposição excessiva de suas particularidades — tudo com o intuito de silenciá-los. A atitude violenta não busca apenas distorcer os valores sociais, mas também arrancar da sociedade aquilo que lhe dá esperança e a impulsiona a seguir em frente.
+
 #### **§ 44.7 – O niilista e o mundo velho (NOVO)**
 
 A presença do niilista entristece o mundo — não porque ele o deseje necessariamente, mas porque sua dor suga a vida por onde passa. Ele parece malograr a própria natureza. Seu caminhar em direção à morte vai escurecendo tudo ao redor: as flores murcham, as estrelas se apagam, e o ar se torna pesado. Onde o niilista está, ele absorve a energia da existência, como se tentasse se preencher da vida que lentamente esvai de si.
@@ -4733,7 +4735,6 @@ O acúmulo de riqueza, sob essa ótica, não é progresso, mas sequestro: o sequ
 Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transformam pessoas em zumbis, manipula a política para degradar a sociedade. Tudo isso é a projeção de um desespero que busca ser reconhecido.
 
 Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
-
 
 #### **§ 44.9 – O existencialismo dos privilégios (NOVO)**
 
