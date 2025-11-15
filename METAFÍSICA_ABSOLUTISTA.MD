@@ -2263,6 +2263,35 @@ Esta análise revela que:
 
 A vocação da alma não é escapar de sua individualidade, mas **realizá-la plenamente no Ser** - tornar-se tão perfeitamente si mesma que se torna transparente ao Fundamento que a sustenta. A santidade não é aniquilação do self, mas **transparência do self** - a alma tornada tão pura que deixa passar perfeitamente a luz do Ser.
 
+#### **§ 19.7 – A liberdade da sou (NOVO)**
+
+A alma em seu relativo é completamente livre, tem uma liberdade completa, porém, é liberdade da unidade. A unidade, portanto, pode indiferenciar-se para o Ser, no sentido de transcender a unidade. Ou transcender em outra unidade, no sentido de transcender rumo a outra unidade. E no transcender da unidade para outra unidade há o gênero, sendo que uma unidade é a dominada da vontade e a outra a dominadora.
+
+O transcender para fora de uma unidade, isto é, para a completa transcendência de si, envolve o ceder a uma existência autônoma, sem unidade, que é o Ser. A vontade do Ser é reta em relação ao existir. Por isto, o transcender no Ser frutifica quando a vontade da unidade se sintoniza com a vontade do Ser.
+
+Se a relação entre unidades se dá em forma de dominação e ser dominado, a relação entre o homem e o próprio Ser está para além dessa dualidade. O homem não se funde no Ser no sentido de se fundir a outra unidade, pois o Ser é a própria transcendência.
+
+Então não faz sentido dizer: “se fundir ao Ser”. Mas faz sentido dizer: “Ser translúcido”. Pois o Ser não é uma unidade, é a própria capacidade de transcendência da unidade para algo maior que a si.
+
+Se fundir ao Ser, em palavras mais exatas, significaria desprender-se de si e não conectar-se à unidade. Porém, desprender-se de si para o existir, e não para a autoanulação. Atravessar o eu rumo ao Ser e não sucumbir o eu num vazio estéril.
+
+A indefinição de si gerada pela luminosidade frutifica as ações do Ser, indefine o indivíduo para uma existência autônoma da unidade. Enquanto a transcendência de si rumo a outra unidade indiferencia a unidade de si no outro, e não de si mesma. A indiferenciação de si no outro gera os frutos relativos ao outro e a si mesmo.
+
+Toda vez que a unidade diferencia a própria unidade, não é unidade, está relativa à unidade; e estar relativo à unidade significa poder se movimentar rumo a outra unidade, ser livre até do campo da unidade, e não somente no campo fenomenológico.
+
+A unidade é livre para movimentar-se até mesmo no âmbito da unidade; essa unidade, indiferenciando-se, deve poder movimentar-se em numericidade (números de si) e em determinação (tipos de si). Porém, a fuga da própria unidade é a autoanulação.
+
+Portanto, a unidade tem liberdade de movimento:
+
+| Tipo de Autodeterminação | Consciência       | Presença          | Domínio           | Relação                |
+|--------------------------|-------------------|-------------------|-------------------|------------------------|
+| **Sem si**               | Inconsciencia     | Não presente      | Sem domínio       | Auto-afastamento       |
+| **Em si**                | De si mesmo       | Em si mesmo       | Sobre si mesmo    | Auto-relação           |
+| **Por si**               | De outrem         | Em outrem         | Sobre outrem      | Relação instrumental   |
+| **De si**                | Mútua             | Recíproca         | Mútuo             | Relação dialética      |
+| **Para si**              | Sintética         | Fusional          | Criador           | Relação gerativa       |
+| **Para o outro de si**   | Paternal          | Transcendente     | Fundador          | Relação generativa     |
+
 ### **CAPÍTULO 20: O RELATIVO DA ALMA E AS LEIS DA EXISTÊNCIA**
 
 #### **§ 20.1 – O Relativo da Alma**
@@ -4830,34 +4859,4 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
-
-
-
-
-
-
-
-A alma em seu relativo é completamente livre, tem uma liberdade completa, porem, é liberdade da unidade. A unidade, portanto, pode indiferenciar-se para o ser, no setido de transcender a unidade. Ou transcender em outra unidade, no sentido de transcender rumo a outra unidade. E no transcender da unidade para outra unidade há o genero, sendo que uma unidade é a dominada da vontade e a outra a dominadora.
-
-O transcender para fora de uma unidade, isto é, para a completa transcendencia de si, envolve o ceder a uma existencia automona, sem unidade, que é o Ser. A vontade do Ser é reta em relação ao existir. Por isto, o transcender no Ser frutifica quando a vontade da unidade se sintoniza com a vontade do Ser.
-
-Se a realação entre unidades se dá em forma de dominação e ser dominado. A relação entre o homem e o próprio Ser está para alem dessa dualidade. O homem não se funde no Ser nos sentido de se fundir a outra unidade, pois o Ser é a própria trnanscendencia.
-
-Então não faz sentido o dizer: se fundir ao Ser. Mas faz o sentido dizer: Ser translucido. Pois o Ser não é uma unidade, é a propría capacidade de transcendencia da unidade para algo maior que a si.
-
-Se fundir ao Ser, em palavras mais exatas, significaria derprender-se de si e não conectar-se a unidade. Porém, despreender-se de si para o existir, e não para a auto-anulação. Atravessar o eu rumo ao Ser e não sucumbir o eu num vazio esteril.
-
-A indefinição de si gerada pela luminosidade frutifica as ações do Ser, indefine o individuo para uma existencia autonoma da unidade. Enquanto a transcendencia de si rumo a outra unidade indiferencia a unidade de si no outro, e não de si mesma. A indiferenciação de si no outro gera os frutos relativos ao outro e a si mesmo. 
-
-Toda vez que a unidade diferencia a propria unidade, não é unidade, está relativa a unidade; e estar relativo a unidade significa poder se moviemntar rumo a outra unidade, ser livre até do campo da unidade, e não somente no campo fenomenológico.
-
-A unidade é livre para movimentar-se até mesmo no ambito da unidade, essa unidade indiferenciando-se, deve poder movimentar-se em numericidade (numeros de si) e em determinação (tipos de si). Porém, a fuga da propria unidade, é a auto-anulação.
-
-Portanto, a unidade tem liberdade total no Ser, a liberdade 
-
-
-
-
-
-
 
