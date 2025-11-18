@@ -3059,7 +3059,7 @@ Uma voz retumbante respondeu, ecoando por toda a extensão do ser:
 A voz respondeu, suave e firme:
 — As regras deste momento não o permitem.
 
-O filósofo insistiu, mas ao fazê-lo, sentiu-se fragmentar, como se sua vontade se chocasse contra a harmonia do Ser. Percebeu a dissonância em seu intento. Então, em vez disso, desejou estar onde pudesse reencontrar aqueles que amara e desejou também uma vida mais leve e plena de possibilidades, na qual não necessitaria morrer ou ter dores. Imediatamente, foi conduzida a uma terra renovada, onde tudo era mais belo e pleno de sentido.
+O filósofo insistiu, mas ao fazê-lo, sentiu-se fragmentar, como se sua vontade se chocasse contra a harmonia do Ser. Percebeu a dissonância em seu intento. Então, em vez disso, desejou estar onde pudesse reencontrar aqueles que amara e desejou também uma vida mais leve e plena de possibilidades, na qual não necessitaria morrer ou ter dores. Imediatamente, foi conduzida a uma terra renovada, onde tudo era mais belo e pleno de sentido. Essa terra existia num futuro distante, onde todos os problemas do mundo terreno haviam sido sanados, pois o seu desejo era chegar a um paraíso. Foi assim que esse mesmo desejo o enviou para um futuro pelo qual ele esperara havia milênios, ainda que sem perceber, estando sempre em seu tempo relativo.
 
 > O relativo é temporal, porém, no relativo, o tempo ainda acontece. É possível ir para o atemporal e retornar sem ter visto o tempo passado.
 Isto é possível porque, no atemporal, a percepção individual de tempo existe, ao passo que o temporal a compõe e a percorre. Se digo: “vou ficar um tempo no atemporal”, estou me referindo à percepção do tempo em uma das possibilidades. Isto é equivalente a dizer: “vou ficar um tempo sem a percepção do tempo”. Desta forma, o tempo ainda existe sem que seja vivenciado pela alma. A alma, sendo temporal e atemporal, ou seja, sendo um todo, vive momentos atemporais que são percebidos, no temporal, como um lapso de tempo e, no atemporal, como um tempo infinito percorrido. A alma não deixa de ser temporal quando percebe o atemporal; o homem, no tempo, é retomado após uma vivência atemporal. E isto é relativo aos desejos do seu coração.
@@ -4871,7 +4871,7 @@ O individuo niilista por vezes tenta entrar num estado de amnesia de si, se eque
 
 
 
-
+> A sexualidade humana representa o fudir com outra unidade, enquanto a morte a libertação do eu para o todo. O mundo terreno é uma figuração temporaria de propriedades com potencial eterno.
 
 
 
