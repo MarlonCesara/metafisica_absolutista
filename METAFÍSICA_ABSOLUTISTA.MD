@@ -4746,6 +4746,8 @@ Ela fica retida nas pequenas degustações de banquetes que deveriam ser fartos,
 
 Uma sociedade onde a alegria se prolifera, onde os pássaros e a natureza cantam em harmonia, onde os artistas se expressam e enchem o mundo de poesia — um mundo que anuncia, de forma natural, a felicidade, a beleza e a evolução — é, sob a ótica niilista, um absurdo. O niilista acredita que o mundo deve permanecer em luto por si mesmo, e que ninguém é responsável por esse luto senão o próprio homem. Por isso, os artistas que ousam cantar a alegria são perseguidos pela mídia, alvo de fofocas e da exposição excessiva de suas particularidades — tudo com o intuito de silenciá-los. A atitude violenta não busca apenas distorcer os valores sociais, mas também arrancar da sociedade aquilo que lhe dá esperança e a impulsiona a seguir em frente.
 
+O indivíduo que se decide pela perdição não aceita a convivência com o outro que não se fadou a tal decisão; só aceita a convivência diante de uma visível discrepância financeira com o outro. Ao ser igualado financeiramente ao outro, sente-se arremessado contra sua real diferença diante do outro — e isso é doloroso. Percebe que, para o outro, a vida é rara e preciosa, e sente a dor de estar se desfazendo do que mais precisa e ama: a vida. O niilista, portanto, precisa se esconder da alegria do outro, da alegria do não-niilista que denuncia o absurdo da posição niilista. O niilista precisa se defender da alegria do mundo, da bonança social, do sucesso, das belezas naturais.
+
 #### **§ 44.7 – O niilista e o mundo velho (NOVO)**
 
 A presença do niilista entristece o mundo — não porque ele o deseje necessariamente, mas porque sua dor suga a vida por onde passa. Ele parece malograr a própria natureza. Seu caminhar em direção à morte vai escurecendo tudo ao redor: as flores murcham, as estrelas se apagam, e o ar se torna pesado. Onde o niilista está, ele absorve a energia da existência, como se tentasse se preencher da vida que lentamente esvai de si.
@@ -4763,7 +4765,15 @@ O niilista teme a própria consciência; preocupa-se com sua loucura e dela não
 
 Que belo seria se a humanidade soubesse compreender o niilista, se lhe concedesse o tempo necessário para tentar se reerguer. Que belo seria se o niilismo não fosse condenado como crime, mas reconhecido como pena — pois ser niilista já é, em si, o pior castigo possível. Não há dor mais profunda que o niilismo. Não há pena mais severa que existir sem sentido. O niilista necessita do amor — e, sobretudo, do tempo. A sociedade, por sua vez, precisa compreender o que é o niilista e aprender a criar novos caminhos para conduzir e acolher tal condição do espírito humano.
 
-#### **§ 44.8 – A busca por visibilidade (NOVO)**
+#### **§ 44.8 – O auto valor do niilista (NOVO)**
+
+O niilista acumula muitos bens começando pelo intuito de exploração. Usa de má-fé para pagar um valor injusto ou comprar coisas por um valor injusto. Sua obsessão, desenvolvida por sua decisão, o leva a querer grandes valores para si, como se tentasse atribuir valor à própria existência que decidiu renunciar. Ao renunciar à vida, torna-se um ser objetal para si, pois está, por sua própria vontade, fadado ao descarte. Vê-se como ser finito em razão de sua decisão, e isto lhe confere uma grande baixa autoestima. O niilista se apossa completamente da ideia de sua finitude e de sua falta de sentido, de forma a não imaginar outra escapatória senão sua perdição. O niilista se apropria do desterro pior que poderia imaginar. Visualiza-se e monta sua existência em cima de um pessimismo descomunal, a ponto de encerrá-lo numa microvisão de si — e isso lhe confere um desvalor sem proporções. O niilista esvazia-se do sentido dos valores e das virtudes, e se encerra numa falta de sentido tamanha que passa seus dias tentando encontrar seu autovalor. 
+
+O niilista é alguém que descre em si mesmo, que não dá sequer uma pequena chance a si, que se ignora e se autoesquece. O niilista é alguém que se esvai de si, que considera seu corpo o último resquício do que já se fora. O niilista considera-se um ser sem alma, um produto da biologia que tende à falência, uma criação miserável que tem como único fim a morte e um vazio de razão de existir como corpo e homem. O niilista se considera um erro da natureza, um fracasso humano. E é essa crença, unida ao intuito de ser como tal, que lhe confere uma incalculável baixa estima, um inarrável desejo de encontrar o auto valor, de desejar a si mesmo, de olhar-se como ser digno de ser crido e ser considerado espiritual, vivo, eterno.
+
+Neste ínterim nasce a obsessão por bens materiais, por validação social. De fato, o ser humano não pode ser tão fútil a ponto de precisar de milhões e bilhões para ser alegre. Essa necessidade deriva de uma grandiosa falta de auto valor, falta de qualquer espiritualidade que dê ao ser humano que ostenta em demasia algum valor que o faça se projetar para a eternidade.
+
+#### **§ 44.9 – A busca por visibilidade (NOVO)**
 
 O niilista quer ser o holofote. Deseja que o mundo pare diante de sua dor, que até as famílias deixem de florescer, que os novos nascimentos se suspendam — como se toda a atenção e energia da vida devessem convergir para ele e sua causa urgente. A mentalidade niilista não aceita que a vida continue, que o fluxo do existir siga expandindo-se mesmo diante de sua desesperança. O niilista observa o progresso, vê que o mundo prossegue apesar de sua intenção, e isso o incita à revolta.
 
@@ -4779,7 +4789,7 @@ Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transfo
 
 Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
 
-#### **§ 44.9 – O existencialismo dos privilégios (NOVO)**
+#### **§ 44.10 – O existencialismo dos privilégios (NOVO)**
 
 O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê à sua volta nas pessoas. Sente-se revoltado ao ver, ao seu redor, pessoas com um tom de comportamento tão despreocupado — amantes se amando nas praças, pessoas vivendo em paz — aparentemente indiferentes à sua realidade conflituosa. O niilista, por isso, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Vê-se distante de sua paz e tranquilidade e quer repor isso por meio de privilégios. Ao perceber-se com tal postura, o niilista quer repor sua estima, quer tentar, de alguma forma, suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa autoestima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
 
@@ -4805,7 +4815,7 @@ Porém, o cúmulo do desespero para converter o outro também não é uma atitud
 
 O rico se vê incomodado com o pobre sendo feliz com qualquer coisa, qualquer distração, qualquer detalhe, pois o peso do niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realidade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortável ao estar sob defesas mentais — que é o caso de estar sob privilégios — pois, quando a mente do niilista o protege da informação de sua intenção, ele tem um pouco de alívio. Porém, precisa sempre de um escape de si mesmo para tal.
 
-#### **§ 44.10 – A solução dos males sociais (NOVO)**
+#### **§ 44.11 – A solução dos males sociais (NOVO)**
 
 A humanidade, oprimida pelos bilionários e pela violência, tenta praticar o exemplo, de forma a bater, prender e desolar os que causam os males. Porém, ainda que com o exemplo, o mal continua. Mesmo que os bilionários sejam assassinados, outros herdarão sua herança, e mesmo que os que praticam a violência sejam mortos, serão substituídos. Isto acontece porque os nascimentos não param e a liberdade humana não deixa de tomar seus rumos próprios.
 
@@ -4835,7 +4845,7 @@ O bilionário é um sedento pela vida eterna, enquanto não instruido ele não d
 
 Até a presente data desta escrita, a sociedade esta tentando vencer os males sociais por reforço negativo, matando bilioonários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
 
-#### **§ 44.9 – Um cenário de êxito nas lutas sociais (NOVO)**
+#### **§ 44.12 – Um cenário de êxito nas lutas sociais (NOVO)**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
 
@@ -4854,7 +4864,7 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
 
-#### **§ 44.10 – Um cair das defesas mentais (NOVO)**
+#### **§ 44.13 – Um cair das defesas mentais (NOVO)**
 
 O homem, sob o jugo da regra do pecado com base na ação e não na intenção, protege-se da tomada de consciência de sua liberdade perante a revelação metafísica de sua alma. Isso quer dizer que imaginar um conjunto de ações calculadas — chamadas de pecado em suas diferentes magnitudes — confere ao indivíduo um cerco no qual pode imaginar-se salvo de si mesmo.
 
@@ -4862,7 +4872,7 @@ Isso quer dizer que, ainda que o indivíduo busque sua própria morte, pode, por
 
 Quando o indivíduo se dá conta de que responde por si só, e não perante uma força maior, é arremessado diretamente contra sua autorresponsabilidade, e nela pode sentir-se mais ou menos assegurado. É dentro dessa nova percepção que as barreiras entre o mundo terreno e o mundo espiritual se quebram, de forma a já nos identificarmos no mundo espiritual. A partir da vida terrena, é possível assumir o risco da liberdade e antever o destino que cada indivíduo intenta. Sob a perspectiva comportamental também é possível observar na sociedade e diferenciar os indivíduos, de forma a enxergá-los como potenciais pessoas em crise existencial ou pessoas que já optaram, em seu âmago, pela vida de forma definitiva.
 
-#### **§ 44.11 – A salvação do homem (NOVO)**
+#### **§ 44.14 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
 
@@ -4873,20 +4883,3 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
-
-
-
-
-
-## Rascunhos
-
-O indivíduo que se decide pela perdição não aceita a convivência com o outro que não se fadou a tal decisão; só aceita a convivência diante de uma visível discrepância financeira com o outro. Ao ser igualado financeiramente ao outro, sente-se arremessado contra sua real diferença diante do outro — e isso é doloroso. Percebe que, para o outro, a vida é rara e preciosa, e sente a dor de estar se desfazendo do que mais precisa e ama: a vida. O niilista, portanto, precisa se esconder da alegria do outro, da alegria do não-niilista que denuncia o absurdo da posição niilista. O niilista precisa se defender da alegria do mundo, da bonança social, do sucesso, das belezas naturais.
-
-#### **§ 44.11 – O auto valor do niilista (NOVO)**
-
-O niilista acumula muitos bens começando pelo intuito de exploração. Usa de má-fé para pagar um valor injusto ou comprar coisas por um valor injusto. Sua obsessão, desenvolvida por sua decisão, o leva a querer grandes valores para si, como se tentasse atribuir valor à própria existência que decidiu renunciar. Ao renunciar à vida, torna-se um ser objetal para si, pois está, por sua própria vontade, fadado ao descarte. Vê-se como ser finito em razão de sua decisão, e isto lhe confere uma grande baixa autoestima. O niilista se apossa completamente da ideia de sua finitude e de sua falta de sentido, de forma a não imaginar outra escapatória senão sua perdição. O niilista se apropria do desterro pior que poderia imaginar. Visualiza-se e monta sua existência em cima de um pessimismo descomunal, a ponto de encerrá-lo numa microvisão de si — e isso lhe confere um desvalor sem proporções. O niilista esvazia-se do sentido dos valores e das virtudes, e se encerra numa falta de sentido tamanha que passa seus dias tentando encontrar seu autovalor. 
-
-O niilista é alguém que descre em si mesmo, que não dá sequer uma pequena chance a si, que se ignora e se autoesquece. O niilista é alguém que se esvai de si, que considera seu corpo o último resquício do que já se fora. O niilista considera-se um ser sem alma, um produto da biologia que tende à falência, uma criação miserável que tem como único fim a morte e um vazio de razão de existir como corpo e homem. O niilista se considera um erro da natureza, um fracasso humano. E é essa crença, unida ao intuito de ser como tal, que lhe confere uma incalculável baixa estima, um inarrável desejo de encontrar o auto valor, de desejar a si mesmo, de olhar-se como ser digno de ser crido e ser considerado espiritual, vivo, eterno.
-
-Neste ínterim nasce a obsessão por bens materiais, por validação social. De fato, o ser humano não pode ser tão fútil a ponto de precisar de milhões e bilhões para ser alegre. Essa necessidade deriva de uma grandiosa falta de auto valor, falta de qualquer espiritualidade que dê ao ser humano que ostenta em demasia algum valor que o faça se projetar para a eternidade.
-
