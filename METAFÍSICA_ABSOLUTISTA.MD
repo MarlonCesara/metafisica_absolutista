@@ -2642,7 +2642,7 @@ Anelavam, assim, alcançar uma condição análoga à divina, não pela obediên
 Contudo, o amor que não se consuma no tempo e no espírito — que não é fundado na entrega total e transcendente — não gera vida plena, mas morte corporal. E assim, a união que poderia tê-los elevado à semelhança divina resultou apenas na morte terrena, no exílio do Éden e na percepção abrupta de sua própria vulnerabilidade.  
 
 Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — esconderam-se da transparência de suas próprias almas, do reconhecimento íntimo do que significa estar totalmente exposto ao outro e a si mesmo. Compreenderam, demasiado tarde, que a nudez da alma precede e supera a do corpo, e que toda união definitiva carrega em si o peso glorioso e temível da eternidade.
-000
+
 > Transcender para o Ser é ser em tudo, ser o todo. Transcender de si não para uma individualidade, mas para a completa libertação da unidade. Não significa gerar uma vida, mas participar da geração de Deus. É gerar todas as vidas. Adentrar na realidade que gera como uma unidade e não como uma dualidade. O Ser não precisa de uma distinção em sua visão para gerar uma nova visão, pois já é em si toda a distinção. O Ser cria o homem como um movimento interno, já é em si a transcendência. O Ser não necessita transcender uma unidade, já é a junção de duas unidades transcendidas. O Ser cria se autoangulando em si uma possibilidade, pois já é o indiferenciado sem necessitar de uma dualidade para provar tal indiferenciação. Transcender para o Ser é indiferenciar-se de si mesmo, de forma a participar do indiferenciado. É queimar-se em Deus de forma a consumir a unidade no todo, na indiferenciação pura. Se a união da dualidade é se consumir em uma dualidade, ou seja, em outro limite de dualidade. Tocar o Ser é consumir-se de forma totalmente indiferenciada, é tocar o indiferenciado diretamente sem que seja necessário o outro. Transcender diretamente para o Ser é ser tudo e gerar tudo.
 
 > A unidade pode gerar outras almas? Sim, porém indiferenciada de si mesma, envolvida no próprio Ser. A geração é uma indiferenciação da unidade de forma que a alma se defina em qualquer variação possível e transcenda a unidade. Indiferenciar-se de si mesmo é inevitavelmente abrir-se para o todo, e o todo é o Ser. A transcendência é um voar para longe da consciência, de forma a preservá-la porém, também, transcendê-la. 
@@ -3456,6 +3456,8 @@ No ápice da união, não era ele nem ela, era o nós. E a visão era de infinit
 
 A transcendência do eu não se torna idêntica ao Ser, mas é um estado temporário de indefinição, onde se atinge a transcendência da identidade. E o infinito particular torna-se completo. Isto é, na dualidade ambos encontram a transcendência da unidade da identidade. E, nesse infinito composto, não há mais barreiras. A única barreira é entre o Ser e o infinito individual, sendo o infinito individual uma vazão possível para o infinito de Deus. O homem transfigurando, sendo aberto para Deus, então não há barreiras na individualidade.
 
+> A sexualidade humana representa o fundir-se com outra unidade, enquanto a morte simboliza a libertação do eu para o todo. O mundo terreno é uma figuração temporária de propriedades com potencial eterno.
+
 ### **As Consequências: O Preço da União e o Peso da Perfeição**
 
 Esse ato de união definitiva trouxe consigo consequências fundamentais e eternas: agora eles precisavam trabalhar e suportar as dores do parto. Essa linguagem figurada significa que, a partir de então, deveriam zelar pela formação moral e pelos ensinamentos do novo ser que deles emanara, além de enfrentar, se necessário, o teor moral da liberdade concedida a esse novo ser — representada pela sua potencial decisão de partir. Ou seja, agora teriam de suportar as dores da despedida e assumir um compromisso de cuidado e responsabilidade que antes não existia.
@@ -3802,6 +3804,8 @@ Existem, contudo, traços comuns ao niilista que transcendem o contexto históri
 O suicida depressivo e o niilista são fenômenos completamente distintos. A depressão é uma disfunção química cerebral que leva o indivíduo a desejar a própria morte, acompanhada de pensamentos negativos e intenso sofrimento emocional. Já o niilismo é uma disposição do espírito que se manifesta no comportamento humano, mas não está relacionada a qualquer desequilíbrio hormonal ou neuroquímico.
 
 O niilismo pode conduzir o indivíduo à ideia de suicídio, mas não como tentativa de aliviar a dor, e sim como expressão de um impulso destrutivo mais profundo. O depressivo quer morrer não por intenção propriamente dita, mas porque busca libertar-se do sofrimento mental causado pela disfunção química. O niilista, ao contrário, pode desejar a morte mesmo sem dor alguma — não para escapar do sofrimento, mas por ódio à própria existência.
+
+As almas do inferno já conhecem seu destino ainda na vida terrena. O niilismo, portanto, manifesta-se como a não aceitação dessa decisão interior. Dessa forma, o corpo deforma os pensamentos, os sentidos e a intenção do indivíduo, a fim de adequar sua vida ao pensamento niilista — ou ao intento de sua própria anulação.
 
 #### **§ 31.3 – A Verdadeira Riqueza**
 
@@ -4168,13 +4172,17 @@ O niilismo provoca no homem um apagamento de si, um eclipse emocional e intelect
 Lidar com um niilista é, portanto, deparar-se com uma cegueira interior; o indivíduo não olha para dentro de si e, consequentemente, não toma consciência plena de seus atos, concebendo a si e ao outro não como almas, mas como meros organismos biológicos. Isto significa que, para o niilista, o relacionamento humano é um processo estritamente transacional ou biológico, e não uma conexão genuína; reduz-se a uma necessidade prática ou instintiva.
 Ao escravizar, maltratar ou mesmo eliminar vidas, o niilista percebe tais atos como processos naturais, desprovidos de qualquer significado que ultrapasse o plano material. Ele se inocenta ao comparar seu comportamento ao de animais que competem por território e alimento. Muitas vezes, o niilista espelha-se conscientemente no animal, restringindo-se a conversas rasas e dedicando-se exclusivamente a objetos e situações fúteis. Esforça-se por apagar a memória que tem de si mesmo. Busca esgotar o sentido de todas as situações ao seu redor, negando qualquer contato pessoal que possa conferir profundidade às suas relações. É neste contexto que se inserem as relações laborais escravizantes e os apartheid sociais entre classes econômicas. Tudo isto reflete a materialização das relações interpessoais, compreendidas como regidas exclusivamente por instintos territoriais. Toda essa dinâmica é incitada por indivíduos que fogem de sua humanidade e de sua profundidade espiritual.
 
-#### **§ 36.3 – A Vida como Jogo Cínico e a Sombra da Culpa**
+#### **§ 36.3 – Auto esquecimento (NOVO)**
+
+O indivíduo niilista, por vezes, tenta entrar num estado de amnésia de si mesmo, esquecendo-se de suas aspirações, gostos e atividades favoritas. Lança-se num tédio que o separa da vivacidade da autorreflexão, realizando tarefas monótonas e evitando qualquer pensamento reflexivo. Assim, entra numa espécie de entorpecimento do pensamento, onde consegue reduzir seu nível de reflexão e viver de forma superficial, focando-se em coisas fúteis.
+
+#### **§ 36.4 – A Vida como Jogo Cínico e a Sombra da Culpa**
 
 O niilista olha para o mundo e concebe-o como um jogo cínico, como se a vida fosse uma simples competição selvagem. Observa a realidade com sarcasmo, incapaz de nela crer genuinamente. Enquanto usufrui de seus privilégios, persuade-se de que vive numa simulação fictícia. Descrê de sua própria alma e adere cegamente a um propósito estritamente biológico para sua existência — tal como o leão que devora suas presas é considerado bem-sucedido na natureza. O niilista acredita ser esse leão. Imagina-se num jogo virtual, onde o “eu” é apenas o reflexo de um pensamento que se julga existente. Nesse jogo, sua missão autoatribuída é ser o animal mais forte, o imperador da selva. Ele encara o ato de matar e morrer, dominar e sucumbir, como processos biológicos inerentes ao jogo natural da vida, e isso o leva a crer que não há qualquer problema ético nisso, pois os instintos biológicos simplesmente seguem seu curso, tal como na natureza.
 
 O niilista emite uma risada jocosa — particularmente aqueles que praticam violência política ou social —, como se tudo não passasse de uma brincadeira animalesca, e a agressividade, uma fatalidade do instinto humano, e não um mal moral decorrente do exercício da liberdade. Ele acredita possuir um pensamento superior, estar conectado a uma verdade obscura que só ele contempla, ligada à ausência de propósito último. Culpa o outro por não compartilhar de seu mesmo instinto predatório. Para ele, quem sofre em decorrência de suas ações é responsável por não estar à frente na competição selvagem. No entanto, essa crença reducionista é permanentemente assombrada por uma suspeita lancinante: o temor de estar cometendo um mal moral de proporções abissais. Essa suspeita o persegue, pois sabe, no íntimo, que não está sendo intelectualmente honesto ao segregar completamente a dimensão ética de seus atos. Algo o atormenta e não lhe concede repouso; sua consciência recusa-se a silenciar, e as repetidas investidas para reforçar sua crença na pura biologicidade não logram mitigar seu pesar profundo.
 
-#### **§ 36.4 – A Mentalidade Niilista como Estrutura de Recusa Ativa**
+#### **§ 36.5 – A Mentalidade Niilista como Estrutura de Recusa Ativa**
 
 Essas almas frequentemente se autodenominavam niilistas, mas sua essência não se resumia à simples descrença no sentido da vida. Eram, sobretudo, entidades que se recusavam ativamente a crer, mesmo quando confrontadas com evidências incontestáveis da verdade. Sua convicção interior, contrária à permanência na existência, impossibilitava a aceitação de qualquer forma de crença ou significado transcendente. Como corolário, julgavam-se árbitros absolutos de sua própria moralidade, permitindo-se todo e qualquer comportamento, sob a premissa de que todo prazer era lucro imediato e que nenhum ato teria consequências numa eternidade que insistiam em negar. Viviam como se a existência fosse um jogo sem regras últimas, onde os limites éticos eram meras ilusões a serem transgredidas — uma manifestação palpável do *peccatum contra Spiritum Sanctum* (pecado contra o Espírito Santo) que é o da presunção, acreditando que sua vontade era a lei suprema.
 
@@ -4861,21 +4869,4 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
-
-===========
-
-#### **§ 44.12 – Auto esquecimento (NOVO)**
-
-O individuo niilista por vezes tenta entrar num estado de amnesia de si, se equecendo de suas aspirações, gostos e atividades favoritas. Lançando-se num tédio que o separada da vivacidade da auto reflexão. Fazendo tarefa monotonas e evitando qualquer pensamento reflexivo. Entrando numa especia de entorpecimento de pensamento onde consegue reduzir seu nível de reflexão e viver de uma forma superficial focando-se em coisas futeis. 
-
-> As almas do inferno já sabem seu destino na vida terrena. O niilismo, portanto, manifesta seus sinais como não aceitação dessa decisão interior. De forma que o corpo deforma os pensamentos, os sentidos e a intenção do individuo de forma a adequar sua vida ao pensamento niilista, ou ao intento pela sua anulação.
-
-
-> A sexualidade humana representa o fudir com outra unidade, enquanto a morte a libertação do eu para o todo. O mundo terreno é uma figuração temporaria de propriedades com potencial eterno.
-
-
-
-
-
-
 
