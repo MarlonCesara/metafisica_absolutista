@@ -4878,7 +4878,9 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 
 
 
-
 ## Rascunhos
 
 > O indivíduo que se decide pela perdição não aceita a convivência com o outro que não se fadou a tal decisão; só aceita a convivência diante de uma visível discrepância financeira com o outro. Ao ser igualado financeiramente ao outro, sente-se arremessado contra sua real diferença diante do outro — e isso é doloroso. Percebe que, para o outro, a vida é rara e preciosa, e sente a dor de estar se desfazendo do que mais precisa e ama: a vida. O niilista, portanto, precisa se esconder da alegria do outro, da alegria do não-niilista que denuncia o absurdo da posição niilista. O niilista precisa se defender da alegria do mundo, da bonança social, do sucesso, das belezas naturais.
+
+> O niilista acumula muitos bens começando pelo intuito de exploração. Usa de má-fé para pagar um valor injusto ou comprar coisas por um valor injusto. Sua obsessão, desenvolvida por sua decisão, o leva a querer grandes valores para si, como se tentasse atribuir valor à própria existência que decidiu renunciar. Ao renunciar à vida, torna-se um ser objetal para si, pois está, por sua própria vontade, fadado ao descarte. Vê-se como ser finito em razão de sua decisão, e isto lhe confere uma grande baixa autoestima. 
+
