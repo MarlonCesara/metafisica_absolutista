@@ -4868,7 +4868,7 @@ E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.*
 
 O individuo niilista por vezes tenta entrar num estado de amnesia de si, se equecendo de suas aspirações, gostos e atividades favoritas. Lançando-se num tédio que o separada da vivacidade da auto reflexão. Fazendo tarefa monotonas e evitando qualquer pensamento reflexivo. Entrando numa especia de entorpecimento de pensamento onde consegue reduzir seu nível de reflexão e viver de uma forma superficial focando-se em coisas futeis. 
 
-
+> As almas do inferno já sabem seu destino na vida terrena. O niilismo, portanto, manifesta seus sinais como não aceitação dessa decisão interior. De forma que o corpo deforma os pensamentos, os sentidos e a intenção do individuo de forma a adequar sua vida ao pensamento niilista, ou ao intento pela sua anulação.
 
 
 > A sexualidade humana representa o fudir com outra unidade, enquanto a morte a libertação do eu para o todo. O mundo terreno é uma figuração temporaria de propriedades com potencial eterno.
