@@ -3805,7 +3805,9 @@ O suicida depressivo e o niilista são fenômenos completamente distintos. A dep
 
 O niilismo pode conduzir o indivíduo à ideia de suicídio, mas não como tentativa de aliviar a dor, e sim como expressão de um impulso destrutivo mais profundo. O depressivo quer morrer não por intenção propriamente dita, mas porque busca libertar-se do sofrimento mental causado pela disfunção química. O niilista, ao contrário, pode desejar a morte mesmo sem dor alguma — não para escapar do sofrimento, mas por ódio à própria existência.
 
-As almas do inferno já conhecem seu destino ainda na vida terrena. O niilismo, portanto, manifesta-se como a não aceitação dessa decisão interior. Dessa forma, o corpo deforma os pensamentos, os sentidos e a intenção do indivíduo, a fim de adequar sua vida ao pensamento niilista — ou ao intento de sua própria anulação.
+As almas niilistas já conhecem seu destino ainda na vida terrena. O niilismo sintomático, portanto, manifesta-se como a não aceitação dessa decisão interior. Dessa forma, o corpo deforma os pensamentos, os sentidos e a intenção do indivíduo, a fim de adequar sua vida ao pensamento niilista — ou ao intento de sua própria anulação.
+
+O niilista mantém em segredo sua intenção; já sabe qual será o destino e que será o autor dele. Já carrega a intenção da perdição no olhar, já tenta se conformar com o medo da escuridão na qual se lançará. Já antecipa, em vida, uma adaptação de sua morte. Já antecipa seu próprio luto em suas atitudes, pensamentos e desejos.
 
 #### **§ 31.3 – A Verdadeira Riqueza**
 
