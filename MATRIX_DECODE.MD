@@ -51,8 +51,6 @@ Neo não hesitou, seu olhar era uma lança na penumbra.
 Morpheus pediu que Neo explicasse melhor sua conclusão.
 Neo entregou-lhe um datapad, onde um único arquivo piscava.
 
-👉 [ABSOLUTISMO METAFÍSICO](https://github.com/MarlonCesara/metafisica_absolutista/blob/main/ABSOLUTISMO_METAFISICO.MD)
-
 E começou a narrar, sua voz ecoando na sala metálica:
 
 **CENA 3 – A GÊNESE DA SOMBRA**
