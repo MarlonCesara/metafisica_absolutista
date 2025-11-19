@@ -4874,3 +4874,11 @@ O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de 
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
 
+
+
+
+
+
+## Rascunhos
+
+> O indivíduo que se decide pela perdição não aceita a convivência com o outro que não se fadou a tal decisão; só aceita a convivência diante de uma visível discrepância financeira com o outro. Ao ser igualado financeiramente ao outro, sente-se arremessado contra sua real diferença diante do outro — e isso é doloroso. Percebe que, para o outro, a vida é rara e preciosa, e sente a dor de estar se desfazendo do que mais precisa e ama: a vida. O niilista, portanto, precisa se esconder da alegria do outro, da alegria do não-niilista que denuncia o absurdo da posição niilista. O niilista precisa se defender da alegria do mundo, da bonança social, do sucesso, das belezas naturais.
