@@ -4383,6 +4383,12 @@ As almas do purgatório apoiavam estruturas opressoras de poder, na tentativa eq
 
 Os apoiadores da direita política acreditavam, ingenuamente, que o voto lhes traria o alívio do ódio, como se fosse uma vingança final e socialmente legitimada. Ignoravam que o perdão brota do interior e não da retaliação externa. Eram pessoas profundamente feridas que, paradoxalmente, acariciavam suas feridas como se fossem parte integrante de sua identidade — traços indeléveis de sua história, componentes essenciais de seu ser.
 
+§ 40.000 – A direita política como grito de socorro (NOVO)
+
+O niilista tenta se levantar no contexto social com um pedido de socorro à sua condição. Seu voto na direita é um voto na própria ruína. Um processo que visa demonstrar que, enquanto o mundo parece indiferente à sua decisão, o niilista não permanece indiferente ao status quo da normalidade, desferindo contra este o seu golpe de socorro. O niilista sabe que a direita política vai contra os interesses da pessoa humana, e não somente dos ricos, pois fomenta a destruição total. Na direita política não há favorecidos.
+
+A direita é um demonstrar do barco individual que se afunda na correnteza do ocenado na vida do individuo, e o individuo demonstra esse nalfragio querendo nalfragar a economia
+
 #### **§ 40.4 – A Natureza do Purgatório e a Ineficácia do Sofrimento Autoinfligido**
 
 O purgatório representava um ataque de ódio na tentativa desesperada de curar feridas que só o amor poderia sanar. Não havia, na realidade, forma possível de retaliá-las, e estas almas imaginavam que através do sofrimento autoinfligido poderiam justificar o ódio, a revolta e a mágoa que as consumiam. Aspiravam pagar sua dívida existencial através do próprio martírio. Contudo, uma ferida interior não se retalia, não se justifica; apenas se dissolve nas águas do amor. A ferida subjetiva dissipa-se sob a luz do amor, tal como a sombra é aniquilada pela luz direta. Nenhum esforço exterior logra curar uma dor íntima.
