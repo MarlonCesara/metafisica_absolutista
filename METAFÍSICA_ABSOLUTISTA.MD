@@ -4895,6 +4895,14 @@ Isso quer dizer que, ainda que o indivíduo busque sua própria morte, pode, por
 
 Quando o indivíduo se dá conta de que responde por si só, e não perante uma força maior, é arremessado diretamente contra sua autorresponsabilidade, e nela pode sentir-se mais ou menos assegurado. É dentro dessa nova percepção que as barreiras entre o mundo terreno e o mundo espiritual se quebram, de forma a já nos identificarmos no mundo espiritual. A partir da vida terrena, é possível assumir o risco da liberdade e antever o destino que cada indivíduo intenta. Sob a perspectiva comportamental também é possível observar na sociedade e diferenciar os indivíduos, de forma a enxergá-los como potenciais pessoas em crise existencial ou pessoas que já optaram, em seu âmago, pela vida de forma definitiva.
 
+#### **§ 44.14 – A loucura dos ricos (NOVO)**
+
+O super rico é um louco, um louco que tenta enxergar a vida a todo instante, ainda que esta esteja diante de seus olhos. O bilionário é um fanático. Um indivíduo omisso a qualquer empatia que não esteja voltada para a sua autoempatia, o desejo de não ser quem se é diante do querer do que se quer. O rico é o único e exclusivo agente de miséria. É um louco que tira dos demais a visão de que aqui mesmo é o paraíso, em favor de nutrir uma ilusão vazia em si com tanta riqueza. O segredo do bilionário é a loucura. A sociedade, quando compreender que são indivíduos sem mérito algum, a mudança acontecerá totalmente. A sociedade percebe a existência de milionários e bilionários como algo natural, algo fruto da competição capitalista. Imagina que é um lugar que se chegou por uma estratégia inteligente e que tem um propósito bom para o mundo, como é transmitido pelas figuras que servem como máscara para esses acionistas.
+
+Figuras como Elon Musk mascaram intenções mesquinhas, mascaram a loucura que é deixar um grupo seleto ter tanto poder político e econômico, como se isso fosse inocente ou completamente despretensioso. Como se a riqueza fosse contemplação da sorte. O bilionário é um criminoso, e seu crime não consegue ser visto porque a sociedade acha tudo isto normal.
+
+Quando a sociedade conhecer realmente a índole do bilionário e for um absurdo conter grandes riquezas, e quando conhecer a índole dos que apoiam os bilionários, que é voltada para a autodestruição, então os esforços serão mais eficazes. A sociedade aparenta ainda uma impassibilidade, um sossego, uma conformância mediante a concentração de riquezas, e isso é inadmissível; é como ver a faca na mão de um assassino e não temer. A sociedade não pode ser guiada pela loucura; a um indivíduo não se deve dar nenhum poder econômico em razão de sua fortuna.
+
 #### **§ 44.14 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
@@ -4906,3 +4914,5 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
+
+
