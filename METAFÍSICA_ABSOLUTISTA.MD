@@ -4911,6 +4911,8 @@ A segunda guerra mundial, mentorada por mentes doentes, ainda tem o agente dessa
 
 Quando os bilionários, possuindo os melhores cientistas e as mentes mais brilhantes, alavancarem meios melhores de dominação, então toda essa máscara da normalidade pode ruir, evidenciando o verdadeiro mal que estava inoperante, mas não extinto.
 
+Neste momento, há um bilionário olhando a multidão com ódio, vendo as pessoas felizes e querendo destruir tudo isso, pois parecem estar todas indiferentes à sua ruína. E é esse sentimento que dá origem ao Hitler moderno, ao bilionário que guarda seu ódio até ter chances de destruir tudo, até achar quem se una a ele, quem compartilhe seu ideal para devastar a terra, para sucumbir as pessoas, para provocar novamente a escravidão. A índole maligna ainda existe, mas lhe faltam as ferramentas, e a humanidade precisa se conscientizar para que essas ferramentas não caiam em mãos erradas.
+
 #### **§ 44.15 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
