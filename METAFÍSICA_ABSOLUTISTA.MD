@@ -4903,7 +4903,9 @@ Figuras como Elon Musk mascaram intenções mesquinhas, mascaram a loucura que �
 
 Quando a sociedade conhecer realmente a índole do bilionário e for um absurdo conter grandes riquezas, e quando conhecer a índole dos que apoiam os bilionários, que é voltada para a autodestruição, então os esforços serão mais eficazes. A sociedade aparenta ainda uma impassibilidade, um sossego, uma conformância mediante a concentração de riquezas, e isso é inadmissível; é como ver a faca na mão de um assassino e não temer. A sociedade não pode ser guiada pela loucura; a um indivíduo não se deve dar nenhum poder econômico em razão de sua fortuna.
 
-#### **§ 44.14 – A salvação do homem (NOVO)**
+O paraíso terreno é disfarçado pela loucura humana, a loucura do indivíduo que renunciou tudo e tenta agarrar esse tudo com suas mãos humanas. A miséria é causada por corpos humanos que desabaram, que abandonaram a sanidade em troca de uma vida em que não precisavam enxergar o próprio ódio gratuito que guardavam. A humanidade necessita parar de ter tamanha reverência e respeito por lunáticos, e tirar das mãos deles o poderio de manipulação política, midiática e bélica imediatamente.
+
+#### **§ 44.15 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
 
