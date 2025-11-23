@@ -1119,7 +1119,19 @@ A potência indiferencia o Ser como única e exclusiva possibilidade, pois atrav
 
 O Relativo representa assim a superação definitiva da metafísica da determinação, abrindo caminho para uma compreensão do Absoluto como pura potencialidade indiferenciada - fundamento último de toda a realidade determinada.
 
-#### **§ 9.12 – O Absoluto Indiferenciado como Fundamento Dinâmico**
+#### **§ 9.12 – O não causado como substância ontológica**
+
+Dada a explicação do indiferenciado, a realidade pura que se autojustifica, temos que explicar, por conseguinte, a origem da possibilidade e não somente a possibilidade. Chegamos à conclusão do indiferenciado, mas falta agora justificar a estadia do indiferenciado: como a substância do indiferenciado se faz incausada, e não somente a possibilidade de haver o incausado.
+
+Ao considerarmos a pureza total como homogeneidade de todas as coisas, e não como uma falta de todas as coisas, temos então o substrato que precisamos para produzir qualquer existência.
+
+Para imaginarmos de forma ainda melhor, ao considerarmos o nada fictício, de forma que consideremos mais uma vez o nada existente, este não seria realmente o nada, mas uma homogeneidade ontológica. Da mesma forma, ao considerarmos o indiferenciado, este não é, mais uma vez, o nada, mas é uma indefinição. Diferente do nada ontológico, é uma indefinição completamente pura. Desta pureza, a definição da possibilidade é uma forma não diluída.
+
+Ao falarmos realmente em indiferenciado — a pureza positiva — não falamos de um nada negativo, no sentido de que não haja nada, mas falamos de um estado autodeterminado.
+
+A autodeterminação sob o indiferenciado gera uma realidade viva — a realidade que, por si mesma, tem como contraparte o indiferenciado. Temos uma pureza viva, uma pureza real, e a realidade ontológica é a polarização dessa pureza. Tal como o preto se dilui em várias cores, ou a luz branca se torna várias cores num prisma, o indiferenciado se traduz em qualquer existência.
+
+#### **§ 9.13 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
 
@@ -1131,7 +1143,7 @@ Portanto, necessitamos de uma realidade auto-determinada para justificar a prese
 
 O que se origina sem causa não pode determinar-se em um momento posterior; caso contrário, não seria auto-determinado, pois anterior ao absoluto não há nada que pudesse determiná-lo. Sendo o tempo consumado, temos que toda a configuração futura pelo ponto de vista de um observador é um momento vindouro do que já aconteceu. A percepção de tempo, portanto, é um testemunho temporal do decorrer total do tempo que já se sucedeu completamente.
 
-#### **§ 9.13 – A Consumação Temporal do Espírito**
+#### **§ 9.14 – A Consumação Temporal do Espírito**
 
 Tanto o **campo fenomenológico interno ao Espírito** quanto **o Espírito puro** (não fenomenizado) seriam determinações internas do Absoluto que se sucederam no tempo. Isso sugere que o Absoluto, em sua natureza primordial, não se limita a determinações fixas, mas abriga em si uma dinâmica de possibilidades. E também significa que há uma razão para haver o fenômeno ao invés do não-fenômeno (Espírito puro), e essa razão só pode estar ligada à natureza da plenitude do Espírito.
 
@@ -1141,7 +1153,7 @@ Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subje
 
 Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.
 
-#### **§ 9.14 – O Relativo como Infinito de Possibilidades**
+#### **§ 9.15 – O Relativo como Infinito de Possibilidades**
 
 O relativo, portanto, é um infinito de possibilidades; as quais não se assumem por si de forma que não haja unidade ou multiplicidade, mas um estado indiferente, o qual é existente, porém puro. Um estado de completude no qual não há definição, número, dimensão, ou forma, porém, tudo que é possível em uma suspensão.
 
@@ -1149,7 +1161,7 @@ O relativo está em relação ao infinito, ou seja, o infinito de espaço e temp
 
 Todas as possibilidades em suspensão resulta em uma infinitude de possibilidades, tal como o tempo em sua completude se resume o atemporal. Portanto, o Absoluto não fragmentado, é uma suspensão das possibilidades de forma que isto resulte em um infinito possível, não somente de tempo, espaço, mas das próprias possibilidades. Desta forma, temos o termo "Ser", como sinônimo de uma existência indiferenciada, que porta e abrange tudo que é.
 
-#### **§ 9.15 – Conclusão: Do Nada ao Ser Pleno**
+#### **§ 9.16 – Conclusão: Do Nada ao Ser Pleno**
 
 Esta análise revela que:
 
