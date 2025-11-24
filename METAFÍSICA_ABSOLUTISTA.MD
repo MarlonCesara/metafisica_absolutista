@@ -1,3 +1,13 @@
+# Teste Markdown
+
+## Lista
+- Item 1
+- Item 2
+
+## Citação
+> Isto deve aparecer como citação
+
+**Negrito** e *itálico*
 
 # **A SUMA METAFÍSICA**
 
