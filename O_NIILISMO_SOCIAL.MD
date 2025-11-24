@@ -1,3 +1,6 @@
+
+
+
 # **A NIILISMO SOCIAL**
 
 Este capítulo visa a análise das lutas hodiernas que afetam o *status quo*. Lutas políticas. Luta das minorias. Todas as lutas que buscam uma estratégia para sucumbir o mal e dar o florescer ao bem na sociedade.
@@ -35,3 +38,14 @@ Os fantoches sociais do niilismo são instituídos por manipulação das elites,
 O bilionário financia o funk → O funk causa gravidez precoce e apropriação da favela → Isso causa violência urbana → A violência urbana distrai o povo da existência do bilionário.
 
 Há um pensamento avançado, uma ciência social de manutenção dos bilionários, e é nisso que os super-ricos realmente focam. A estratégia de suas empresas é delegada a trabalhadores formados e altamente qualificados; porém, a manutenção do status quo de passividade frente ao acúmulo de riquezas é fomentada por mentes totalmente perturbadas. É um pensamento que está além do controle financeiro e atua em prol do controle mental das massas.
+
+#### **§ 1.2 – A convivência social do niilista (NOVO)**
+
+O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
+
+O niilista quer causar a diferença social, a diferença espiritual que enxerga entre si e o outro. O niilista quer externalizar a diferença social e, como último ato de rebeldia, pode até mesmo tirar a própria vida, num último ato de tentar equiparar. Em sua mentalidade, tirar a própria vida causa miséria social, pois está tirando da vida uma personalidade. Está negando ao outro sua convivência, sua estadia na vida. E, se for um ato definitivo, isso é irreparável. Se o recurso do niilista não é mais financeiro, o único que lhe restaria é tornar escasso o mundo de sua própria vida.
+
+O niilista precisa das diferenças sociais não somente como pedido de uma cultura que aprendeu, que o faz ter sempre que se sentir imponente e impoderado perante o outro, mas necessita para esconder seu emocional, para tornar a convivência humana possível, para que o lidar com o outro não gaste tanta energia emocional. Pois intuitar o próprio fim e ter que conviver com o outro que tem bens eternos é, de fato, um ato que exige um grande mascaramento da própria intenção.
+
+O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
+
