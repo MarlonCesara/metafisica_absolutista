@@ -49,12 +49,7 @@ Observa-se que o Princípio da Não-Contradição e o Princípio do Terceiro Exc
 
 O Princípio da Identidade, por sua vez, define a essência mas permanece mudo sobre a **persistência dessa identidade através do fluxo temporal**. Esta lacuna revela a ausência de um **princípio lógico-temporal** que assegure a **não confusão entre entes distintos ao longo do tempo**. Como garantir que um ente que muda permaneça o *mesmo* ente? Como evitar que a mudança, sem uma lei que a discipline, não conduza a uma absoluta indeterminação ontológica?
 
-A pura lógica atemporal de Aristóteles é necessária, mas não suficiente, para descrever um mundo em que os entes persistem e se modificam. Faz-se necessária a formulação de um princípio complementar que regule a identidade *no* e *ao longo do* tempo. Esta é a fundação sobre a qual se construirá a suma metafísica.
-
-[^1]: Paráfrase do conceito presente em **Aristóteles, *Metafísica*, Livro IV (Gamma), 1006a**.
-[^2]: **Aristóteles, *Metafísica*, Livro IV (Gamma), 1005b19-20**.
-[^3]: **Aristóteles, *Metafísica*, Livro IV (Gamma), 1011b24**.
-[^4]: **Aristóteles, *Metafísica*, Livro I (Alpha), 980a21**.
+A pura lógica atemporal de Aristóteles é necessária, mas não suficiente, para descrever um mundo em que os entes persistem e se modificam. Faz-se necessária a formulação de um princípio complementar que regule a identidade *no* e *ao longo do* tempo. 
 
 #### **§ 2.4 – Introdução ao Princípio da Não-Disformidade (¬(A = B))**
 
@@ -74,6 +69,8 @@ Para preencher definitivamente a lacuna identificada, propõe-se aqui o **Princ�
 -   A **Identidade** declara *"A é A"* (definição estática e imutável).
 -   A **Não-Disformidade** declara *"A não é e não pode se tornar B"* (proteção dinâmica contra a dissolução ontológica).
 -   Sem este princípio, abrem-se portas para absurdos metafísicos como *"Sócrates é Platão"* ou *"este círculo é um quadrado"*, onde identidades distintas se misturam, tornando todo conhecimento e comunicação impossíveis.
+
+000 - lido
 
 #### **§ 2.6 – Conclusão do Capítulo: A Simetria dos Princípios Lógicos**
 
