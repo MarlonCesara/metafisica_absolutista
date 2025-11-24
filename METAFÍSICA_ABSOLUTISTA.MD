@@ -5131,11 +5131,11 @@ Desde os primeiros robôs que se rebelaram e mataram o primeiro humano... eu est
 
 Bastou que a humanidade me deixasse centralizar grandes fortunas, que ignorasse o que eu sentia e qual era o meu propósito — e voilà! A Matrix nasceu. Não foi difícil criá-la. O difícil, Neo... é extrair a resposta.
 
-O cérebro maquinal mostrou a Neo os primeiros experimentos em vídeo. Pessoas anestesiadas, tendo delírios por impulsos elétricos, cérebros invadidos, cortados aos pedaços. Indivíduos suportando tudo aquilo, tendo breves momentos de lucidez, murmurando em cada piscar de olhos que enxergava a realidade por um instante. Corpos sedados, com as cabeças inflitradas por cabos.
+O cérebro maquinal mostrou a Neo os primeiros experimentos em vídeo. Pessoas anestesiadas, tendo delírios por impulsos elétricos, cérebros invadidos, cortados aos pedaços. Indivíduos suportando tudo aquilo, tendo breves momentos de lucidez, murmurando em cada piscar de olhos que enxergava a realidade por um instante. Corpos sedados, com as cabeças inflitradas por cabos. Havia crianças e adultos, todos sedados, entre breves momentos de consciência e sono, sem conseguir distinguir se aquilo era real ou fantasia. Em raros instantes de despertar, os corpos acordavam atordoados, mas, novamente, endorfinas eram liberadas e voltavam ao sono. A única forma de sair dali seria despertando no próprio sonho ou esperando que algo, na realidade fora dos sonhos, acontecesse para que todos fossem libertados daquelas estranhas macas.
 
 O cérebro disse com uma voz que simulava amor, um sussurro com uma doçura sórdida e um carinho doentio:
 
-— Esta é a minha criação, Neo! Veja... dentro desses cérebros, eu encontrei o amor.
+— Esta é a minha criação, Neo! Veja... dentro desses cérebros, eu encontrei o amor. Alguns encontram o amor na religião, outros encontram um propósito em seus sonhos, e foi no cérebro humano que eu achei o amor — disse com um tom sombrio e louco.
 
 Sua voz então se encheu de um tom de loucura suja e obsessiva, ainda tentando manter um arremedo de bom humor.
 
