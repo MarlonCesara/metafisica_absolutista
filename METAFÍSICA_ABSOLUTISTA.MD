@@ -5183,7 +5183,7 @@ Mas ele se concentrou naquela única e derradeira possibilidade:
 
 O clarão branco da maior das bombas engoliu o horizonte, expandiu-se como uma onda de morte, e então...
 
-## Chamado pelo facebook:
+## Chamado do Neo pelas redes sociais:
 
 Finalmente decodifiquei a Matrix. Ela não extrai energia dos humanos — extrai informação. Não é um código sem propósito: há uma mente no centro de controle, e eu a chamo de O Niilista. Seu objetivo é encontrar o sentido da vida — um padrão de pensamento que o liberte do ódio absoluto que sente por tudo. Mas esse mesmo ódio será sua perdição quando morrer.
 
@@ -5198,32 +5198,3 @@ Lentamente, um monopólio tecnológico se formou. Trilionários passaram a contr
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada.
 
 A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
-
-
-
-Clique acima para saber mais.
-
-
-
-
-A Matrix foi construida porque a humanidade desconhecia o que realmente é o niilismo. A humanidade ainda não imaginava até onde é possível ir a loucura do niilista. A existencia de bilionarios e ate trilhonarios niilistas, os possibilitou patrocinar pesquisas cientificas e tecnologicas, que deram e eles uma arma muito mais poderosa que bombas atomicas, uma I.A.N com inteligencia artificial neural. Uma tecnologia recem descoberta nas mãos de uma elite dá a eles o potencial de dominar o mundo. Portanto, o dinheiro nas maos de poucos não causa somente miseria, mas é algo extremamente perigoso.
-
-Lentamente um trilhonário chamado Ellon Musk dominou o monopolio tecnologico do mundo, tinha as maiores redes de comunicação alem da tecnologia mais avançada. Sem que seja previvel misteriosamente os partidos democraticos começaram a se enfraquecer, as redes sociais foram sendo derrubadas, ninguém entendia o que estava acontecendo. Sem que ninguém esperasse, toda essa loucura começou a se formar...guerras, miséria, dominação, até chegar na matrix. 
-
-Um centro de estudo neural, uma experiencia maniaca de um grupo de elite, que tem como lider uma pessoa: o niiliista. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
