@@ -2976,6 +2976,8 @@ No estado infernal, o indivíduo experimenta uma dicotomia ontológica fundament
 
 #### **§ 25.21 – O Estatuto da Alma Condenada**
 
+A alma que se auto condena não se funde ao “nada”, pois o nada não existe para que nele seja fundida, muito menos “entra” no nada. O processo que a alma enfrenta é uma decisão definitiva, que resulta num estado definitivo de auto esquecimento, no qual a própria decisão atesta a veracidade do auto esquecimento. Caso fosse um esquecimento parcial, não seria, de fato, o inferno. A alma, em sua verdade plena temporal, já decidiu em toda a sua extensão todo o contexto de sua existência, que seria a auto anulação. A alma simplesmente não transcende nem se mistura a outro ente; porém, somente se desfaz de si pelo proveito de sua liberdade, de sua não necessidade ontológica.
+
 ##### **3.1. A Existência Velada**
 -   A alma não desaparece, mas **torna-se fantasma de si mesma**:
     -   *"Existe sem habitar seu próprio ser"*
