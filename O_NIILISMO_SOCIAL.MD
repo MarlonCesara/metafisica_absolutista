@@ -31,3 +31,7 @@ Também alavanca figuras que incentivam a violência, tais como os líderes de f
 Todos os líderes que se dizem da direita, sejam populistas, políticos, criminosos ou porta-vozes de acionistas bilionários como Elon Musk, são eleitos pelo financiamento das mídias. Sem que tivessem tal impulsionamento, certamente não teriam relevância social, armas ou nenhum tipo de exposição privilegiada. Todos esses elementos não espalham só o niilismo individual de cada um deles por ter aceitado tal papel, mas se fazem elementos de manobra de niilistas com um poder aquisitivo ainda maior, que usam de apoiadores niilistas para exercer uma grande manipulação.
 
 Os fantoches sociais do niilismo são instituídos por manipulação das elites, que não estão meramente preocupadas com seus empreendimentos, pois o alicerce da riqueza não é a estratégia de negócio, mas é manter o cidadão comum inconsciente do absurdo do acúmulo de bens enquanto pessoas vivem na miséria.
+
+O bilionário financia o funk → O funk causa gravidez precoce e apropriação da favela → Isso causa violência urbana → A violência urbana distrai o povo da existência do bilionário.
+
+Há um pensamento avançado, uma ciência social de manutenção dos bilionários, e é nisso que os super-ricos realmente focam. A estratégia de suas empresas é delegada a trabalhadores formados e altamente qualificados; porém, a manutenção do status quo de passividade frente ao acúmulo de riquezas é fomentada por mentes totalmente perturbadas. É um pensamento que está além do controle financeiro e atua em prol do controle mental das massas.
