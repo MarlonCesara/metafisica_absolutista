@@ -4931,7 +4931,57 @@ Quando os bilionários, possuindo os melhores cientistas e as mentes mais brilha
 
 Neste momento, há um bilionário olhando a multidão com ódio, vendo as pessoas felizes e querendo destruir tudo isso, pois parecem estar todas indiferentes à sua ruína. E é esse sentimento que dá origem ao Hitler moderno, ao bilionário que guarda seu ódio até ter chances de destruir tudo, até achar quem se una a ele, quem compartilhe seu ideal para devastar a terra, para sucumbir as pessoas, para provocar novamente a escravidão. A índole maligna ainda existe, mas lhe faltam as ferramentas, e a humanidade precisa se conscientizar para que essas ferramentas não caiam em mãos erradas.
 
-#### **§ 44.15 – A salvação do homem (NOVO)**
+#### **§ 44.15 – As visão estratégica dos bilionários (NOVO)**
+
+O crime dispõe de grande poder para financiar músicas, modas e estilos. E essa influência, sigilosamente, fomenta famílias separadas, o índice de filhos sem a companhia dos pais e de adolescentes grávidas é altíssimo devido à extrema sexualização da música. De fato, se um indivíduo comum tentar divulgar uma letra de música no estilo funk sexualizado, essa letra, de fato, não é viralizada. Porém, com o incentivo financeiro, essa letra chega a milhares de jovens que se adequam ao estilo de vida que a música passa.
+
+Há bilionários por trás dos movimentos musicais, que aparentemente são desprovidos de má intenção e usam como justificativa um simples divertimento, mas têm como pano de fundo uma ideologia do crime. O incentivo a uma vida sexual precoce tem como objetivo estabelecer uma juventude sexualizada e fragilizada, que se sente contente em viver em condições precárias, como nas favelas, sem contestar que isto é, de fato, um absurdo urbano que não é questionado.
+
+A música funk romantiza as favelas, a sexualização de menores e o esvaziamento de sentido das relações amorosas, que se tornam, sem brincadeira, algo entre os jovens. A música funk tem um poder destrutivo, não só em relação à sexualização de menores e ao desmoronamento dos valores familiares, mas passa ao jovem uma mentalidade de fracasso, de falta de erudição, de mediocrização. Faz o jovem marginalizado romantizar a pobreza e levantar ideias como: ser o rei da montanha, o rei do crime, ou uma pessoa que impõe moral com armas e um estilo de vida marginalizado.
+
+Por trás dessas armadilhas musicais para o entendimento da vida ainda raso por parte do adolescente, há laboratórios de pensamento. Indivíduos que, através de estudos, projetam nas músicas arquétipos de comportamento que beneficiam o crime. Que beneficiam comunidades frágeis e o aumento da criminalidade.
+
+O bilionário não é só um indivíduo obsessado em enriquecer, mas é um indivíduo que usa de todos os meios que seu dinheiro pode comprar, desde a compra de parlamentares até a compra musical e cultural. Portanto, todos os meios são usados para sustentar um povo num pensamento de miséria, num pensamento que não questiona as diferenças sociais ou dentro de um mundo de preocupações que ausentam a consciência humana de questionar os bilionários quando é preenchida de preocupações como o crime urbano crescente.
+
+Isto é, há uma rede de interconexões; o bilionário usa até mesmo a produção de famílias frágeis, o que produz jovens de mentalidade facilmente manipulada pela criminalidade, que na verdade nada lhes oferece senão um senso de ensino e paternidade. O crime não oferece uma vida segura, um financeiro firme, apenas dá ao jovem um sentido de responsabilidade e paternidade que a cultura, por vezes, o levou a não ter.
+
+E é justamente o crime que faz com que o pensamento das massas esteja longe do questionamento dos bilionários, enquanto outros nada têm. Se existem bilionários, é porque a existência dos mesmos foi invisibilizada através de distrações. O crime é uma estratégia, a violência urbana é um jogo. O bilionário movimenta mais recursos do que se imagina. Ele se situa atrás de sua escrivaninha, sem nem mesmo precisar pensar em seus negócios, tem um pensamento mais elevado até mesmo que o funcionamento de seus empreendimentos. Pensa em estratégias sociais para manter o povo omisso da visão da injustiça, da absurda diferença social entre uma elite e os trabalhadores.
+
+A mente do trabalhador deve estar a todo tempo atribulada, assustada, apavorada pela escassez, exaurida pela falta de recursos e trabalho em excesso, pelas constantes lutas diárias para não perceber o óbvio: que se alguns têm muito, outros não vão ter o suficiente. Que, se a energia social transformada em dinheiro está nas mãos de poucos, isso fará com que essa energia sirva de manipulação social e que seja direcionada a coisas que não corroboram para a manutenção do status quo social.
+
+O bilionário não investe em produção de alimentos, em criar casas para todos a baixo custo, em promover o que a humanidade realmente precisa, mas foca em processos lunáticos, em objetivos que estão discrepantes com o que a sociedade considera a normalidade e a necessidade. O bilionário está se movimentando em razão do desespero, está tentando construir pirâmides, está usando esforço para objetivos lunáticos, e por isso deve ser detido.
+
+A preocupação real do bilionário não é com suas empresas, é em manter o status quo da sociedade convencido de que o bilionário é o menor dos problemas; por isso o verdadeiro trabalho do bilionário é se envolver em manipulações políticas, midiáticas, até mesmo tentar adentrar no contexto religioso. Um povo tranquilo e consciente identifica imediatamente o absurdo que é pessoas serem bilionárias enquanto outras não têm o que comer, e entra em imediato questionamento ou confronto com a ideia dos super-ricos.
+
+Em síntese, o bilionário é um estrategista que pensa além da estratégia de mercado. O bilionário alavanca figuras populares que demonstram estar a favor de causas humanitárias para justificar o acúmulo de dinheiro e mais uma vez passar despercebido, tais como Elon Musk, o melhor exemplo que se tem; sua função é dar a entender que o bilionário, na verdade, é alguém brilhante e aventureiro e que, sem o bilionário, a sociedade não se moveria bem. O bilionário tem dois meios de disfarçar a discrepância social: tentando justificá-la ou tentando distrair o povo dela.
+
+Também alavanca figuras que incentivam a violência, tais como os líderes de facções, ou figuras que são amplamente divulgadas como criminosos cantores de funk. Toda a sucata musical está vinculada a uma forte divulgação, pois não cresceria na mídia em razão do próprio conteúdo ou teor de musicalidade. Assim como também muitas figuras famosas não seriam como tal em razão do próprio carisma ou talento, são exclusivamente em razão do financiamento desses bilionários que ficam escondidos como reais mentores de toda a manipulação social.
+
+Todos os líderes que se dizem da direita, sejam populistas, políticos, criminosos ou porta-vozes de acionistas bilionários como Elon Musk, são eleitos pelo financiamento das mídias. Sem que tivessem tal impulsionamento, certamente não teriam relevância social, armas ou nenhum tipo de exposição privilegiada. Todos esses elementos não espalham só o niilismo individual de cada um deles por ter aceitado tal papel, mas se fazem elementos de manobra de niilistas com um poder aquisitivo ainda maior, que usam de apoiadores niilistas para exercer uma grande manipulação.
+
+Os fantoches sociais do niilismo são instituídos por manipulação das elites, que não estão meramente preocupadas com seus empreendimentos, pois o alicerce da riqueza não é a estratégia de negócio, mas é manter o cidadão comum inconsciente do absurdo do acúmulo de bens enquanto pessoas vivem na miséria.
+
+O bilionário financia o funk → O funk causa gravidez precoce e apropriação da favela → Isso causa violência urbana → A violência urbana distrai o povo da existência do bilionário.
+
+Há um pensamento avançado, uma ciência social de manutenção dos bilionários, e é nisso que os super-ricos realmente focam. A estratégia de suas empresas é delegada a trabalhadores formados e altamente qualificados; porém, a manutenção do status quo de passividade frente ao acúmulo de riquezas é fomentada por mentes totalmente perturbadas. É um pensamento que está além do controle financeiro e atua em prol do controle mental das massas.
+
+#### **§ 44.16 – A convivência social do niilista (NOVO)**
+
+O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
+
+O niilista quer causar a diferença social, a diferença espiritual que enxerga entre si e o outro. O niilista quer externalizar a diferença social e, como último ato de rebeldia, pode até mesmo tirar a própria vida, num último ato de tentar equiparar. Em sua mentalidade, tirar a própria vida causa miséria social, pois está tirando da vida uma personalidade. Está negando ao outro sua convivência, sua estadia na vida. E, se for um ato definitivo, isso é irreparável. Se o recurso do niilista não é mais financeiro, o único que lhe restaria é tornar escasso o mundo de sua própria vida.
+
+O niilista precisa das diferenças sociais não somente como pedido de uma cultura que aprendeu, que o faz ter sempre que se sentir imponente e impoderado perante o outro, mas necessita para esconder seu emocional, para tornar a convivência humana possível, para que o lidar com o outro não gaste tanta energia emocional. Pois intuitar o próprio fim e ter que conviver com o outro que tem bens eternos é, de fato, um ato que exige um grande mascaramento da própria intenção.
+
+O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
+
+A capacidade de convivência do niilista com o não niilista depende de um certo equilíbrio — e esse equilíbrio ele tenta encontrar nos bens materiais. Assim, torna-se exibicionista: precisa sempre estar em uma posição superior à do outro para não ser ferido em sua autoestima, devido à sua própria condição.
+
+A relação humana produz uma sensação de normalidade, amizade e harmonia, e isso obriga o niilista a encarar o absurdo de sua postura, fazendo-o sentir-se mal; essa lucidez gera uma dissonância entre sua condição existencial e a realidade à sua volta. Essa dissonância se manifesta na tentativa de afirmar superioridade — seja material, afetiva ou até mesmo no lazer.
+
+Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
+
+#### **§ 44.17 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
 
@@ -4942,4 +4992,3 @@ A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jam
 O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
-
