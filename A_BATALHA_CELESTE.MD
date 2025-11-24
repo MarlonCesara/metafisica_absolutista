@@ -1,4 +1,4 @@
-A LUTA DAS MILÍCIAS CELESTIAIS**
+# **A BATALHA CELESTE**
 
 Este capítulo visa a análise das lutas hodiernas que afetam o *status quo*. Lutas políticas. Luta das minorias. Todas as lutas que buscam uma estratégia para sucumbir o mal e dar o florescer ao bem na sociedade.
 
