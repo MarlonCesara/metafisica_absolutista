@@ -4944,3 +4944,41 @@ O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
 
 
+
+
+
+
+
+
+
+
+
+### **CAPÍTULO 45: A LUTA CONTEMPORÊNEA DAS MILÍCIAS CELESTIAIS**
+
+
+Este capitulo visa a analise das lutas hodiernas que afetam o status quo. Lutas politicas. Luta das minorias. Todas as lutas que buscam uma estrategia para sucumbir o mal e dar o florescer ao bem na sociedade.
+
+
+#### **§ 45.1 – A música como instrumento do crime (NOVO)**
+
+O crime dispoe de grande poder de financiar musicas, modas, estilos. E está influencia sigilosamente fomenta familias separadas, o nível de filhos sem a compania dos pais, de adolescens gravidas e altissimo devido a extrema sexualização da musica. De fato, se um individuo comum tentar divulgar uma letra de uma musica no estilo funk sexualidade, essa letra, de fato, não é viralizada. Porem, com o incentivo financiero essa letra chega a milhares de jovens que se adequam ao estilo de vida que a musica passa.
+
+Há bilionarios por trás dos movimentos musicais, que aparentemente são desprovidos de má intenção, que usam como justificativa um simples divertimento,mas tem como fundo uma ideologia do crime. O incentivo a uma vida sexual precoce tem como estabelecer uma juventude sexualidade e fragilizda. Que se sente contente em viver em condições precarias, como nas favelas, sem contestar que isto é de fato um absurdo urbano que não é questionado.
+
+A musica funk romantiza as favelas, a sexualização de menores, o esvaziamento de sentido das relações amorosas, que tornam sem brincadeira entre os jovens. A musica funk tem um poder destruitvo, não só em relação a sexualização de menores e ao desmoronamento dos valores familiares, mas passa ao jovem um amentalidade de fracasso, de falta de erudição, de mediocrização. Faz o jovem margilziado romantizar a pobreza e levantar ideias como: ser o rei da montanha, o rei do crime, ou uma pessoa que impoe moral com armas e um estilo de vida marginalizado.
+
+Por trás dessas armadilhas musicais para o entendimento da vida ainda raso por parte do adolescente, há laboratórios de pensamento. Individuos que, através de estudos, projetam nas musicas arquetipos de comportamento que beneficiam o crime. Que beneficiam comunidaes grageis e o aumento da criminalidade.
+
+O bilionário não é só um individuo obsessaco em enrriquecer, mas é um indiiduo que usa de todos os meios que seu dinheiro pode conter, desde a compra de parlamentares ate a compra musical e cultural. Portanto, todos os meios sao usados para sustentar um povo num pensamento de miséria, num pensamento que não questiona as diferenças sociais ou dentro de um mundo de preocupações que ausentam a consicencia humana de quesitonar os bilionarios qunado é preenchida de preocupações como o crime urbano crescente.
+
+Isto é, há uma rede de interconexões, o bilionario usa até mesmo a produção de familias frageis, o que produz joves de mentalidade facilmente mmanipulada pela criminalidade, que na verdade nada os oferece se nao um senso de ensino e paternidade. O crime não oferece uma vida segura, um financeiro firme, apenas dá ao jovem um sentido de reponsabilidade e paternidade que a cultura,por vezes, o levou a não ter. 
+
+E é justamente o crime que faz com que o pensmento das massas esteja longe do quesitonamento de bilionarios enqunato outros nada tem. Se existem bilionarios, é porque a existencia dos mesmos foi invisibilizada através de distratores. O crime, é uma estrategia, a violencia urbana é um jogo. O bilionario movimenta mais recursos do que se imagina. Ele se situa atrás de sua escrivaninha, sem nem mesmo precisar pensar em seus negocios, tem um pensamsento mais elevado até mesmo que no funcionamento de seus empreedimentos. Pensa em estrategias sociais para manter o povo omisso da visão da injustiça, da absurda diferencia social entre uma elite e os trabalhadores.
+
+A mente do trabalhador deve estar a todo tempo atribulada, assustada, apavorada pela escassez, exaurida pela falta de recursos e trabalho em excesso, pelas constantes lutares diarias para não perceber o óbvio: que se alguns tem muito outros não vão ter o suficiente. Que, se energia social transformada em dinheiro está nas mãos de poucos, isso fará com que essa energia sirva de manipulação social e que seja direcinada a coisas que nao corroboram para a manutenção do status quo social.
+
+O bilionario nao investe em produlção de aliemntos, em criar casas para todos a baixo busco, em promover o que a humanidade relamente precisa, mas foca em processos lunaticos, em obtivos que estao discrepants com o que a sociedade considera a normalidade e a nencessidade. O bilionário esta se movimentando em razão do desespero, está tentando construir piramides, esta usando esforço para objetivos lunaticos, e por isso, deve ser detido.
+
+
+
+
