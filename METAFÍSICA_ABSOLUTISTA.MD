@@ -5187,7 +5187,7 @@ Mas ele se concentrou naquela única e derradeira possibilidade:
 
 *Antes que tudo acontecesse.*
 
-O clarão branco da maior das bombas engoliu o horizonte, expandiu-se como uma onda de morte, e então...
+O clarão branco da maior das bombas engoliu o horizonte, expandiu-se como uma onda de morte, e então...a ilusão se desfez e o mundo real veio à tona. Neo não era um deus; era o auxílio de que o mundo precisava. Era o alerta que precisava ser despertado. A construção de Neo representava um apelo da humanidade por compreensão. Era a resposta a uma intuição profunda de que algo de ruim poderia acontecer com o avanço tecnológico desenfreado.
 
 ## Chamado do Neo pelas redes sociais:
 
