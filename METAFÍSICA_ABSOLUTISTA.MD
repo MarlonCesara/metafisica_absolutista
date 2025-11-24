@@ -5003,6 +5003,10 @@ Matrix representa uma tecnologia que tem o intuito de extrair o sentido humano d
 
 A figura de Neo surge como a resposta a esse mundo pós-apocalíptico — um líder que não recorrerá à democracia, já extinta, mas que deverá possuir uma força sobrenatural, dons quase sobre-humanos, capazes de articular a derrota das máquinas e restaurar a paz perdida.
 
+A paz torna-se uma quimera distante, diante de experimentos horríveis como os da Segunda Guerra, porém agora executados com uma sofisticação inédita. As corporações que dominam a tecnologia não precisam mais se sujeitar a políticas humanitárias. Realizam testes cerebrais em humanos, mapeiam padrões de comportamento e pensamento — supostamente em busca de uma cura, mas revelando, inconscientemente, um objetivo que o próprio niilismo se recusa a admitir.
+
+A Matrix é a previsão de uma Terceira Guerra Mundial, composta não de trincheiras, mas de torturas que ultrapassam a imaginação. São técnicas de devastação em massa renovadas, novas formas de mutilar o humano em busca de uma resposta — desta vez, por meio de métodos mais refinados e letais. Empresas como a Neuralink, livres de amarras éticas, promoverão testes em humanos, bebês de proveta e todo tipo de horror tecnológico, tudo para manter o status quo do terror.
+
 **CENA 1 – A DESCONEXÃO**
 
 O ar nos servidores era frio e parado, cheirando a ozônio e pó de circuitos. Neo afastou-se do terminal principal, seus dedos deixando a superfície gelada do console. O ruído de fundo — um zumbido branco de dados fluindo — silenciou-se em sua mente não por um ato técnico, mas por um esforço de vontade. Ele não estava mais *dentro* do código; estava *além* dele. Desconectado dos computadores, sua percepção se expandiu. A Matrix, outrora uma teia complexa de luz verde e lógica implacável, agora lhe parecia um conjunto de padrões vazios, sem alma, um espelho quebrado refletindo uma realidade maior e mais assustadora que ele começava a enxergar.
