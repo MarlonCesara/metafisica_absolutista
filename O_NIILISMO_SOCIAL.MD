@@ -49,3 +49,9 @@ O niilista precisa das diferenças sociais não somente como pedido de uma cultu
 
 O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
 
+A capacidade de convivência do niilista com o não niilista depende de um certo equilíbrio — e esse equilíbrio ele tenta encontrar nos bens materiais. Assim, torna-se exibicionista: precisa sempre estar em uma posição superior à do outro para não ser ferido em sua autoestima, devido à sua própria condição.
+
+A relação humana produz uma sensação de normalidade, amizade e harmonia, e isso obriga o niilista a encarar o absurdo de sua postura, fazendo-o sentir-se mal; essa lucidez gera uma dissonância entre sua condição existencial e a realidade à sua volta. Essa dissonância se manifesta na tentativa de afirmar superioridade — seja material, afetiva ou até mesmo no lazer.
+
+Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
+
