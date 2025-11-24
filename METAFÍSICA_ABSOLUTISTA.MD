@@ -5189,9 +5189,7 @@ Um pesadelo terrível e vívido, do qual ele pudesse acordar. Acordar ofegante, 
 
 O rugido do mundo acabando se aproximava, o vento quente queimava sua pele. Mas dentro de Neo, por uma fração de segundo, tudo ficou silencioso. Uma estranha calma desceu sobre ele, a calma de quem entrega o último fio de esperança a um milagre.
 
-Ele não sabia se era possível. Não sabia se sua consciência, moldada pela Matrix e expandida pelo Absolutismo, poderia dobrar o tempo e o espaço de tal forma.
-
-Mas ele se concentrou naquela única e derradeira possibilidade:
+E ele se concentrou em uma única e derradeira possibilidade:
 
 *Acordar.*
 
