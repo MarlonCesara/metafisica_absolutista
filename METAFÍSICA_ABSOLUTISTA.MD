@@ -155,7 +155,7 @@ Esta distinção fundamental estabelece a arquitetura última do conhecimento:
 > — Blaise Pascal, *Pensées*
 
 #### **§ 4.3 – Os Domínios Ontológicos Fundamentais: Possibilidade e Impossibilidade**
-000 - lido
+
 A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Estes domínios são definidos pela sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
 
 ### **O Domínio da Possibilidade: A Esfera da Existência Lógica**
@@ -167,7 +167,7 @@ A Possibilidade constitui o conjunto de todos os estados de coisas cuja estrutur
 -   **Coerência Lógico-Estrutural:** Exibe consistência interna absoluta e compatibilidade externa com o sistema integral de princípios metafísicos.
 -   **Estrutura Determinada:** Possui contornos essenciais claramente definíveis e inteligíveis.
 -   **Relacionabilidade Sistemática:** Pode estabelecer conexões harmônicas e hierárquicas com outras possibilidades dentro do espaço metafísico.
-
+000 - lido
 **Graus de Cognoscibilidade:**
 1.  **Plenamente Cognoscível:** Entes matemáticos e lógicos ideais (e.g., um círculo, um triângulo), cuja essência é perfeitamente apreensível pela razão pura.
 2.  **Parcialmente Cognoscível:** Objetos físicos e fenômenos naturais (e.g., um átomo, uma estrela), sujeitos às limitações da investigação empírica.
