@@ -70,8 +70,6 @@ Para preencher definitivamente a lacuna identificada, propõe-se aqui o **Princ�
 -   A **Não-Disformidade** declara *"A não é e não pode se tornar B"* (proteção dinâmica contra a dissolução ontológica).
 -   Sem este princípio, abrem-se portas para absurdos metafísicos como *"Sócrates é Platão"* ou *"este círculo é um quadrado"*, onde identidades distintas se misturam, tornando todo conhecimento e comunicação impossíveis.
 
-000 - lido
-
 #### **§ 2.6 – Conclusão do Capítulo: A Simetria dos Princípios Lógicos**
 
 O **Princípio da Não-Disformidade** é, portanto, **a contraparte temporal indispensável do Princípio da Identidade**. Enquanto a **Identidade** afirma *o que algo é*, a **Não-Disformidade** protege *o que algo não é e não pode vir a ser*. Isso não apenas **preenche uma lacuna crítica na lógica clássica**, mas também **fortalece e expande a estrutura metafísica** ao erradicar ambiguidades entre entes distintos no fluxo do tempo.
@@ -86,9 +84,9 @@ Esta reformulação torna a lógica intrinsecamente mais robusta para lidar com 
 
 | **Categoria Relacional** | **Princípio Atemporal**          | **Princípio Temporal**              | **Função Primária**                          |
 |--------------------------|----------------------------------|-------------------------------------|----------------------------------------------|
-| **Ser vs. Não-Ser**      | Terceiro Excluído **(A ∨ ¬A)**   | Não-Contradição **(¬(A ∧ ¬A))**     | Garantir a determinação e consistência truth-value |
+| **Ser vs. Não-Ser**      | Terceiro Excluído **(A ∨ ¬A)**   | Não-Contradição **(¬(A ∧ ¬A))**     | Garantir a determinação e consistência (truth-value) |
 | **Ser vs. Outro**        | Identidade **(A = A)**           | **Não-Disformidade (¬(A = B))**     | Garantir a individuação e distinção ontológica |
-
+000 - lido
 ### **Síntese Final da Estrutura Lógica:**
 
 A análise demonstra que os princípios lógicos fundamentais organizam-se de forma simétrica em dois eixos relacionais distintos, cada um com uma manifestação atemporal e outra temporal:
