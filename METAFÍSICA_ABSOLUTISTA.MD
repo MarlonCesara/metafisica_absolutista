@@ -90,7 +90,7 @@ Esta reformulação torna a lógica intrinsecamente mais robusta para lidar com 
 ### **Síntese Final da Estrutura Lógica:**
 
 A análise demonstra que os princípios lógicos fundamentais organizam-se de forma simétrica em dois eixos relacionais distintos, cada um com uma manifestação atemporal e outra temporal:
-000 - lido
+
 1.  **Eixo Ontológico (Ser/Não-Ser):**  
     -   **Atemporal:** **Terceiro Excluído (A ∨ ¬A)**. Define o campo de possibilidades lógicas definitivas.
     -   **Temporal:** **Não-Contradição (¬(A ∧ ¬A))**. Garante a consistência sincrónica dos estados de um ente.
@@ -99,7 +99,7 @@ A análise demonstra que os princípios lógicos fundamentais organizam-se de fo
     -   **Atemporal:** **Identidade (A = A)**. Define a essência invariável de um ente.
     -   **Temporal:** **Não-Disformidade (¬(A = B))**. Garante a integridade diacrónica de um ente, protegendo-o da confusão com outro.
 
-Esta estrutura revela uma **simetria lógica profunda** e completa, integrando **temporalidade e ontologia** num sistema coerente e fechado. O **Princípio da Não-Disformidade** surge, assim, não como um acréscimo opcional, mas como um pilar necessário para garantir a **integridade dos entes no domínio do tempo**, complementando definitivamente a lógica clássica com a sua dimensão dinâmica missing.
+Esta estrutura revela uma **simetria lógica profunda** e completa, integrando **temporalidade e ontologia** num sistema coerente e fechado. O **Princípio da Não-Disformidade** surge, assim, não como um acréscimo opcional, mas como um pilar necessário para garantir a **integridade dos entes no domínio do tempo**, complementando definitivamente a lógica clássica com a sua dimensão dinâmica ausente.
 
 ### **CAPÍTULO 3: OS PRINCÍPIOS CAUSAIS METAFÍSICOS**
 #### **§ 3.1 – A Dupla Fundamentação da Realidade**
@@ -129,7 +129,7 @@ Este quadro sistêmico demonstra que a pergunta metafísica fundamental — *"Po
 
 ### **CAPÍTULO 4: O ABSOLUTO COMO HORIZONTE METAFÍSICO**
 #### **§ 4.1 – O Conceito de Absoluto como Fundamento**
-
+000 - lido
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
 Ao examinar sua natureza, emergem três categorias radicais que antecedem e fundamentam até mesmo noções como "ente" ou "essência":
