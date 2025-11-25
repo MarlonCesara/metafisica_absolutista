@@ -129,7 +129,7 @@ Este quadro sistêmico demonstra que a pergunta metafísica fundamental — *"Po
 
 ### **CAPÍTULO 4: O ABSOLUTO COMO HORIZONTE METAFÍSICO**
 #### **§ 4.1 – O Conceito de Absoluto como Fundamento**
-000 - lido
+
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
 Ao examinar sua natureza, emergem três categorias radicais que antecedem e fundamentam até mesmo noções como "ente" ou "essência":
@@ -141,7 +141,7 @@ Ao examinar sua natureza, emergem três categorias radicais que antecedem e fund
 
 O **cognoscível** – esfera onde opera a razão discursiva – subdivide-se, portanto, em:
 -   **Possível:** Aquilo que é ontologicamente realizável, estando em perfeito alinhamento com as estruturas lógicas.
--   **Impossível:** Aquilo que é ontologicamente irrealizável, por encontrar-se em contradição interna com tais estruturas (e.g., um círculo quadrado).
+-   **Impossível:** Aquilo que é ontologicamente irrealizável, por encontrar-se em contradição interna com tais estruturas (por exemplo, um círculo quadrado).
 
 Já o **incognoscível** radical escapa a esta dicotomia, constituindo um limite intransponível para a conceituação racional. Enquanto a razão pode mapear e definir o possível e o impossível (ambos ainda formas de cognoscibilidade, ainda que por negação), o verdadeiramente incognoscível só se pode revelar através de vias não-discursivas:
 -   **Experiência direta** (via intuitiva ou mística).
@@ -155,7 +155,7 @@ Esta distinção fundamental estabelece a arquitetura última do conhecimento:
 > — Blaise Pascal, *Pensées*
 
 #### **§ 4.3 – Os Domínios Ontológicos Fundamentais: Possibilidade e Impossibilidade**
-
+000 - lido
 A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Estes domínios são definidos pela sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
 
 ### **O Domínio da Possibilidade: A Esfera da Existência Lógica**
