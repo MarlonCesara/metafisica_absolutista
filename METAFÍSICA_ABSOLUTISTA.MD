@@ -86,11 +86,11 @@ Esta reformulação torna a lógica intrinsecamente mais robusta para lidar com 
 |--------------------------|----------------------------------|-------------------------------------|----------------------------------------------|
 | **Ser vs. Não-Ser**      | Terceiro Excluído **(A ∨ ¬A)**   | Não-Contradição **(¬(A ∧ ¬A))**     | Garantir a determinação e consistência (truth-value) |
 | **Ser vs. Outro**        | Identidade **(A = A)**           | **Não-Disformidade (¬(A = B))**     | Garantir a individuação e distinção ontológica |
-000 - lido
+
 ### **Síntese Final da Estrutura Lógica:**
 
 A análise demonstra que os princípios lógicos fundamentais organizam-se de forma simétrica em dois eixos relacionais distintos, cada um com uma manifestação atemporal e outra temporal:
-
+000 - lido
 1.  **Eixo Ontológico (Ser/Não-Ser):**  
     -   **Atemporal:** **Terceiro Excluído (A ∨ ¬A)**. Define o campo de possibilidades lógicas definitivas.
     -   **Temporal:** **Não-Contradição (¬(A ∧ ¬A))**. Garante a consistência sincrónica dos estados de um ente.
