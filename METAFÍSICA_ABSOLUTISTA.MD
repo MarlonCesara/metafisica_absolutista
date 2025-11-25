@@ -1041,6 +1041,8 @@ Não existe justificação racional para rejeitar o impossível ao nível do Abs
 
 A formulação do Relativo exige que quebremos esta parametrização convencional, estas regras implícitas sobre como a realidade "deve ser". Apenas assim o nada transforma-se de constante afirmador do ser - sua negação necessária - em elemento suspensível, manipulável conceptualmente.
 
+O nada, portanto, não sendo capturável pela razão, não necessita existir de fato quando se aceita o impossível. A afirmação do impossível para absoluto já se resolve no próprio absoluto, não havendo dependência do nada existente para resolvê-lo. Isto é, ao lançarmos o impossível ao absoluto, não é necessário nem mesmo o nada para obtermos, como substrato ontológico, o indiferenciado. O impossível, por si só, se resolve para absoluto de uma forma não disruptiva. Se é possível que exista o nada — em outras palavras, se o impossível existe — é de cunho do absoluto resolvê-lo, estando tal tarefa para além da conceptualização humana.
+
 **A Libertação da Determinação Lógica**
 
 As próprias leis lógicas constituem determinações da realidade, e toda determinação impede a realização da indeterminação. Ao definirmos que "uma coisa é uma coisa", impedimos que essa coisa seja qualquer coisa ou o seu antagónico. Se o Absoluto estiver confinado à dicotomia "coisa ou não-coisa", tal limitação impossibilita a suspensão completa.
