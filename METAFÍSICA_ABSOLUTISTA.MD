@@ -5108,6 +5108,14 @@ Assim que os bilionários conseguiram substituir a força de trabalho humana por
 
 A partir do século XXI, o mesmo ciclo se repetiu. Amparado por pesquisas científicas e avanços tecnológicos, um grupo minoritário ultrapassou os limites que a política poderia deter. Criaram robôs, armas mais precisas, sistemas de vigilância e um nível tecnológico que poucos dominavam. Com isso, iniciou-se novamente uma tentativa de dominação — não mais por escravidão física, mas por algo ainda mais profundo e invisível.
 
+O processo começou quando a força de trabalho ainda produzia alimentos, produtos industriais, carros — tudo dependia diretamente do esforço humano. Com o tempo, grande parte dessa produção foi mecanizada. O monopólio dos produtos foi sendo tomado pelos bilionários, e não havia moeda ou poder público capaz de disputar esse domínio.
+
+Quando o governo tentou intervir — pois os serviços e produtos estavam caríssimos e já não havia meios para produzir — a intervenção tornou-se impossível: os bilionários haviam tomado grande parte dos recursos e do espaço de produção. Não existia apenas o monopólio da produção, mas máquinas protegiam e sustentavam esse monopólio.
+
+Formou-se, lentamente, uma antidemocracia. A força das máquinas era devastadora. A política se reduziu a uma articulação local, fraca, sem poder real. Depois que as máquinas surgiram e ficaram nas mãos de poucos, nada parecia capaz de abalar o poder das elites.
+
+Isso ocorreu porque esses grupos avançaram na corrida tecnológica muito mais rápido que os governos. Os bilionários se tornaram irrefreáveis. Nada mais podia detê-los. A mesma sede que os levou a acumular bilhões — explorando e abusando da mão de obra — os fez abusar também do poderio tecnológico. E assim puderam desferir toda sua loucura contra a população: a mesma população cuja omissão silenciosa dos bilionários permitiu manter tamanha desigualdade no mundo, ignorando a dor, a fome e a pobreza.
+
 O inimigo nunca adormeceu. Apenas esperou. Desde o fim da Segunda Guerra, o caos pareceu cessar, mas o desejo de poder absoluto continuou ardendo nas sombras. Hoje, esse desejo ressurge nas sutilezas de símbolos, ideais e comportamentos, que lembram os sinais do nazismo — agora não entre soldados, mas dentro de uma elite bilionária que emerge silenciosamente no século XXI.
 
 Eles orquestravam guerras e catástrofes para mascarar a concentração de renda e de recursos tecnológicos. Muitos os chamavam de “visionários” ou “brilhantes”. Mas que inteligência há em explorar e destruir? A riqueza extrema nasceu da loucura, não da genialidade. De geração em geração, os exploradores aperfeiçoaram técnicas de dominação — uma hipnose coletiva para fazer o povo esquecer sua própria escravidão, cantar hinos ao progresso enquanto cavava sua própria tumba.
