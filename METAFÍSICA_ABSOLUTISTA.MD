@@ -167,11 +167,11 @@ A Possibilidade constitui o conjunto de todos os estados de coisas cuja estrutur
 -   **Coerência Lógico-Estrutural:** Exibe consistência interna absoluta e compatibilidade externa com o sistema integral de princípios metafísicos.
 -   **Estrutura Determinada:** Possui contornos essenciais claramente definíveis e inteligíveis.
 -   **Relacionabilidade Sistemática:** Pode estabelecer conexões harmônicas e hierárquicas com outras possibilidades dentro do espaço metafísico.
-000 - lido
+
 **Graus de Cognoscibilidade:**
-1.  **Plenamente Cognoscível:** Entes matemáticos e lógicos ideais (e.g., um círculo, um triângulo), cuja essência é perfeitamente apreensível pela razão pura.
-2.  **Parcialmente Cognoscível:** Objetos físicos e fenômenos naturais (e.g., um átomo, uma estrela), sujeitos às limitações da investigação empírica.
-3.  **Cognoscível por Analogia:** Realidades metafísicas superiores e atributos divinos (e.g., bondade, verdade, beleza), acessíveis apenas através de raciocínio analógico a partir de suas manifestações.
+1.  **Plenamente Cognoscível:** Entes matemáticos e lógicos ideais (por exemplo, um círculo, um triângulo), cuja essência é perfeitamente apreensível pela razão pura.
+2.  **Parcialmente Cognoscível:** Objetos físicos e fenômenos naturais (por exemplo, um átomo, uma estrela), sujeitos às limitações da investigação empírica.
+3.  **Cognoscível por Analogia:** Realidades metafísicas superiores e atributos divinos (por exemplo, bondade, verdade, beleza), acessíveis apenas através de raciocínio analógico a partir de suas manifestações.
 
 **Implicação Metafísica:** Tudo o que é possível pertence ao domínio do **Lógico**, um subconjunto ativo e ordenado do Absoluto, onde a existência se manifesta de forma inteligível e estruturada. Um círculo é uma realidade geométrica possível porque sua definição — "uma figura plana com todos os pontos equidistantes de um centro" — é internamente coerente e não contém contradição.
 
@@ -194,7 +194,7 @@ A Impossibilidade constitui a classe de entes ou proposições cuja própria def
 #### **§ 4.4 – Tipologia da Impossibilidade: A Violação dos Princípios**
 
 A análise da impossibilidade revela sua natureza através de violações específicas:
-
+000 - lido
 **1. Contradições Explícitas (Violação Direta dos Princípios Lógicos)**
 -   *Exemplo Paradigmático:* "Círculo quadrado".
 -   **Violação da Não-Contradição (¬(A ∧ ¬A)):** Um círculo, por definição, *não possui vértices ou lados retos*, enquanto um quadrado, necessariamente, *possui quatro vértices e quatro lados retos*. Afirmar que algo é simultaneamente "círculo (não-quadrado) e quadrado (não-círculo)" é uma contradição lógica direta.
