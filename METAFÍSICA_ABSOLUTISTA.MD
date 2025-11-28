@@ -5040,7 +5040,21 @@ Não há limites para as formas de manipulação de bilionários. São pessoas s
 Os bilionários, portanto, são a fonte maior de todos os problemas sociais. E, quando calados em um lado, tentam se manifestar de outro. Quando retirados da política, usam o crime; quando retirados do crime, podem até mesmo usar pesquisas científicas. Sempre que se tapar um vazamento, o bilionário vai procurar outras táticas. A solução é eliminar totalmente a existência de bilionários — ou seja, impedir a formação de fortunas centralizadas. E tomar cuidado até mesmo com os multi-milionários.
 O homem comum não deve ter em arma tanto poder quanto quantidades enormes de dinheiro. Desta forma, os indivíduos problemáticos, sendo identificados e eliminados de cargos políticos, ficam sujeitos aos cuidados e à vigilância da comunidade, que pode deter a ação destes, pois os ataques niilistas seriam isolados e não possuiriam uma força econômica de apoio. Assim, os ataques niilistas seriam expressões do cotidiano e não manipulações e degradações massivas ao humano, à sociedade e à natureza.
 
-#### **§ 44.16 – A convivência social do niilista (NOVO)**
+#### **§ 44.17 – O calar dos artistas (NOVO)**
+
+Estamos num mundo em que o artista é perseguido. Se passa bons valores em sua música, tentam calá-lo. Invadem seu espaço. Estressam-no ao máximo. Abusam de sua boa vontade e, tudo isso — todo esse abuso — é pago. Os repórteres que atormentam o artista em seu período de descanso são pagos pelos bilionários; as difamações públicas, os memes, tudo que ridiculariza o artista é pago pelos bilionários. Todas as ameaças, as pessoas que se aproximam em tom de intimidação, as fofocas que viralizam e incomodam o artista — tudo isso é pago.
+
+Páginas de fofocas, redes de televisão… há centenas de armadilhas para capturar o ânimo do artista, para jogá-lo ao chão, para fazê-lo abandonar a sociedade ao léu de músicas frias e sem sentimento, construídas por interesses econômicos.
+
+E não é só o artista que tentam calar. Os bilionários tentam calar as universidades, que são polos de pensamento; tentam calar a Igreja Católica, armando difamações; tentam calar os bons políticos. Há um poder na mão de poucos que possibilita fomentar episódios de hostilidade e violência contra tudo o que é bom, tudo que promove o bem, tudo que incentiva a família, tudo que torna a sociedade mais forte.
+
+As instituições são difíceis de calar, e cada tentativa de silenciamento denuncia que alguém está tentando fazê-lo. Por isso, as investidas precisam ser discretas — disfarçadas de crime, de polêmica, de notícia em jornal que constrange o artista. A tentativa de calar não pode ter rosto: seu objetivo deve estar completamente oculto, latente — escondido em um laboratório de pensamento, em uma reunião de bilionários realizada no mais completo sigilo.
+
+O artista, de fato, é mais frágil, mais fácil de silenciar do que uma instituição, do que uma faculdade, do que um centro de ensino. Por isso é a camada que mais enfrenta, de forma direta, a hostilidade dos bilionários. O artista é oprimido por fotógrafos, pelo sensacionalismo, pela zombaria, por pesquisadores que, frenéticos, tentam achar em seu histórico algo para o denegrir — e depois patrocinam anúncios e divulgações massivas para criar ódio contra o artista.
+
+Há um mentor por trás disso — uma inteligência, a inteligência que move as massas: o mais alto escalão das empresas bilionárias.
+
+#### **§ 44.18 – A convivência social do niilista (NOVO)**
 
 O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
 
@@ -5056,7 +5070,7 @@ A relação humana produz uma sensação de normalidade, amizade e harmonia, e i
 
 Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
 
-#### **§ 44.17 – A salvação do homem (NOVO)**
+#### **§ 44.19 – A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
 
