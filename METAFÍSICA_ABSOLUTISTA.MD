@@ -5074,8 +5074,16 @@ Em uma eleição, por exemplo, não havendo como comprar votos ou manipular a so
 
 Ou até mesmo pode acolher estratégias que fogem do sentido psicológico e atuam numa camada estratégica, como a compra de políticos, ganho de incentivos fiscais, compra de grandes influenciadores, etc.
 
+§ 44.19 – A verdadeira necessidade do niilista (NOVO)
 
-#### **§ 44.18 – A convivência social do niilista (NOVO)**
+O niilista não precisa de milhões ou bilhões. Precisa ser lembrado do que realmente busca, do que realmente tem valor para ele. Precisa ser evangelizado. Não deve ser entregue na mão do niilista poder econômico, mas à palavra de Deus, à esperança para não precisar substituir aquilo que lhe é essencial por fortunas e ilusões. O niilista se ilude em meio a tanta potência que alcança, em meio ao poder, e se perde de si mesmo. Quem concedeu-lhe tanta glória não está a par de sua situação, não está realmente o enxergando. Não entende o que lhe dói nem sua loucura. O niilista deve ser compreendido e não enchido de poder. O niilista, se extremamente perspicaz e cheio de poder econômico, se torna não somente um assombro de si mesmo, mas o terror social. 
+
+O niilista precisa da proteção de si mesmo, e a sociedade precisa se proteger da ação niilista. Há loucos no poder, pessoas totalmente desqualificadas e esvaziadas, lunáticas para se estar nesse patamar. Não é normal alguém acumular tanto dinheiro e não é normal a sociedade deixar desta forma. A sociedade trata como jocosa ou brincadeira a existência de multimilionários e bilionários, mas é algo muito sério.
+
+Quando empoderado, o próprio niilista se elimina da capacidade de recuperação, impedindo que a sociedade o alcance, destruindo o mundo, impedindo o progresso onde as pessoas poderiam o amparar, desvinculadas de preocupações materiais.
+
+
+#### **§ 44.20 – A convivência social do niilista (NOVO)**
 
 O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
 
