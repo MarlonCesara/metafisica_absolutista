@@ -5004,10 +5004,39 @@ Enquanto o caos é espalhado, a atenção da população é desviada das verdade
 
 #### **1 – Chief Psychopath Officer (CPO)**
 
-Este é o nível mais obscuro — aquele que permanece nas sombras.
-Sua função é **mascarar os propósitos reais da empresa**, ganhando tempo enquanto promove **pesquisas científicas voltadas ao controle global**, por meio de **máquinas e tecnologia de indução cerebral** — como os estudos que lembram o conceito por trás do *Neuralink*.
-
+Este é o nível mais obscuro — aquele que permanece nas sombras. Sua função é **mascarar os propósitos reais da empresa**, ganhando tempo enquanto promove **pesquisas científicas voltadas ao controle global**, por meio de **máquinas e tecnologia de indução cerebral** — como os estudos que lembram o conceito por trás do *Neuralink*.
 **É o verdadeiro arquiteto da Matrix**: não aparece, mas está em todos os lugares.
+
+
+### **§ 44.16 – A associação entre empresas bilionárias e o crime organizado (REVISTO)**
+
+Há uma hierarquia no crime tal como nas empresas. As empresas necessitam da ação criminal. Porém, isso não ocorre de forma contrária: o crime não necessita das grandes empresas necessariamente. Contudo, ambas podem colaborar mutuamente. O crime recebe dinheiro para tornar-se ideológico, ou seja, um movimento em prol da anarquia social, do absurdo social, e não apenas do comércio de drogas.
+
+Todo o teatro — mortes, armas expostas nas ruas — pode estar a favor da propaganda do crime, que mantém o cidadão comum num estado de torpor, de medo constante. O crime necessita apenas de escravos: crianças e adolescentes que são aliciados pois não tiveram apoio familiar.
+
+Essas crianças e adolescentes precisam receber pouco para que o crime realmente renda; então são aliciadas por um aparente amparo familiar que o criminoso dá a elas. Existe a técnica do apadrinhamento, quando um “tutor” leva o jovem à facção, o apresenta e lhe dá responsabilidades, prometendo ser uma família para ele. O jovem desenvolve uma lealdade cega e não vê que teve uma má formação familiar e, por isso, é induzido.
+
+Da mesma forma, as músicas – funk, sertanejo e outros ritmos – exortam a inversão de valores. Valores contra a família, que é justamente o que ajuda a produzir um exército de jovens no tráfico, vendendo mão de obra barata ao crime, com a promessa de um dia serem donos de boca.
+
+Há uma rede de interligação: as empresas precisam da violência, o tráfico precisa de jovens. As empresas cedem inteligência na manipulação midiática para incentivar o crime e a inversão de valores sociais, produzindo um exército de crianças com falta de paternidade.
+
+É uma teia que se ajuda mutuamente. O tráfico comum pode também ter seu CMO; o tráfico pode pensar por si mesmo para produzir mão de obra barata através das músicas, do silenciamento de artistas que transmitem valores — por meio de cyber-cancelamentos, difamação paga nas redes sociais e até mesmo ameaças.
+
+Porém, um subsídio do próprio crime à mídia só aconteceria se o crime fosse realmente uma empresa centralizada, com um único dono que dispõe de todos os recursos para gastar milhões em propaganda. Geralmente, o crime acontece em “ilhas” de facções, e não necessariamente um líder vai dispor de todo o dinheiro para pensar sobre os outros. Ou seja, **não há um CEO global do crime** que detém fortunas e que pode pensar em estratégias massivas, pois o crime é subdividido.
+
+Podemos traçar a teoria de que há um centralizador de todo o crime, alguém que comanda todas as facções e pensa em estratégias CMO. Ou podemos imaginar o mais óbvio: **esse autor não existe**, são as empresas bilionárias que têm essa tecnologia de manipulação das massas e incentivo ao crime. Portanto, se o crime troca seus chefes a todo instante e não há um poder centralizado, somente interessa às empresas bilionárias a divulgação deste mesmo crime como elemento de manipulação massiva.
+
+Sendo o crime uma atitude de insegurança — pois os líderes podem morrer do dia para a noite — não há como construir um monopólio que centralize uma linha de pensamento. Chefes faturam milhões, morrem e dão lugar a outros. Assim, não faz tanto sentido pensar que um dos chefes do crime iria desenvolver uma estratégia de manipulação em massa. Mas **essa intenção já se vê em uso nas empresas.**
+
+Quando se fala que as facções estão até mesmo na política, de fato pode haver ações criminosas comprando alguns benefícios. Porém, isto já se remete à ação de empresas e não mais ao tráfico. O dinheiro que o tráfico movimenta não é articulado para um “bem comum” dos traficantes; não há uma linha de raciocínio como poderia haver oriunda de empresas ricas e internacionais, que conservam as mesmas lideranças por anos e não são ameaçadas em sua integridade. Isto é: **um CEO bilionário permanece o mesmo por anos — e este sim tem motivos para manipulação massiva**, pois não se beneficia de um dinheiro rápido e instável.
+
+Conclui-se que convém às empresas bilionárias eleger fantoches no crime, criar guerras entre facções criminosas. A venda de drogas poderia ser competitiva e pacífica, mas por que há todo um teatro neste intermédio? Armas envolvidas? Armas de guerra para “moderadores”, crianças nas periferias? Realmente é o crime quem cede essas armas — sendo que muitas delas excedem até a capacidade local da própria boca de fumo para comprar? Todo o teatro de armamentos é patrocinado por bilionários, que terceirizam seus comandos até se tornarem invisíveis. O crime é apenas um movimento de compra e venda de mercadorias proibidas; porém, **todo o teatro social que se faz a partir dele é de interesse de bilionários.**
+
+Basta patrocinar armas para que o crime se torne violento. Basta patrocinar músicas e destruir os artistas que impõem valores sociais para que se torne mais fácil aliciar fantoches que portem essas armas. E quanto mais armas e violência, mais o povo esquece da existência de bilionários e demora para articular formas de destituí-los do poder.
+
+Os bilionários usam todas as formas possíveis para manter seus bilhões — até mesmo o crime. Usam a política, a violência, a guerra, as políticas internacionais. Toda a sociedade é movida por essas mentes que desejam a posse desenfreadamente e que, se obtiverem realmente todo o poder, podem desdobrar toda a sua loucura contra a sociedade, tal como já aconteceu em outras ocasiões no mundo.
+
+Não há limites para as formas de manipulação de bilionários. São pessoas sujeitas à loucura do niilismo e com um potencial enorme. Não há ética nem mesmo na obtenção dos bilhões — muito menos haverá na manutenção desses bilhões.
 
 #### **§ 44.16 – A convivência social do niilista (NOVO)**
 
