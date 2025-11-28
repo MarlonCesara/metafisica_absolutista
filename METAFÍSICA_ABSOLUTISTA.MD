@@ -5007,7 +5007,6 @@ Enquanto o caos é espalhado, a atenção da população é desviada das verdade
 Este é o nível mais obscuro — aquele que permanece nas sombras. Sua função é **mascarar os propósitos reais da empresa**, ganhando tempo enquanto promove **pesquisas científicas voltadas ao controle global**, por meio de **máquinas e tecnologia de indução cerebral** — como os estudos que lembram o conceito por trás do *Neuralink*.
 **É o verdadeiro arquiteto da Matrix**: não aparece, mas está em todos os lugares.
 
-
 ### **§ 44.16 – A associação entre empresas bilionárias e o crime organizado (REVISTO)**
 
 Há uma hierarquia no crime tal como nas empresas. As empresas necessitam da ação criminal. Porém, isso não ocorre de forma contrária: o crime não necessita das grandes empresas necessariamente. Contudo, ambas podem colaborar mutuamente. O crime recebe dinheiro para tornar-se ideológico, ou seja, um movimento em prol da anarquia social, do absurdo social, e não apenas do comércio de drogas.
@@ -5037,6 +5036,9 @@ Basta patrocinar armas para que o crime se torne violento. Basta patrocinar mús
 Os bilionários usam todas as formas possíveis para manter seus bilhões — até mesmo o crime. Usam a política, a violência, a guerra, as políticas internacionais. Toda a sociedade é movida por essas mentes que desejam a posse desenfreadamente e que, se obtiverem realmente todo o poder, podem desdobrar toda a sua loucura contra a sociedade, tal como já aconteceu em outras ocasiões no mundo.
 
 Não há limites para as formas de manipulação de bilionários. São pessoas sujeitas à loucura do niilismo e com um potencial enorme. Não há ética nem mesmo na obtenção dos bilhões — muito menos haverá na manutenção desses bilhões.
+
+Os bilionários, portanto, são a fonte maior de todos os problemas sociais. E, quando calados em um lado, tentam se manifestar de outro. Quando retirados da política, usam o crime; quando retirados do crime, podem até mesmo usar pesquisas científicas. Sempre que se tapar um vazamento, o bilionário vai procurar outras táticas. A solução é eliminar totalmente a existência de bilionários — ou seja, impedir a formação de fortunas centralizadas. E tomar cuidado até mesmo com os multi-milionários.
+O homem comum não deve ter em arma tanto poder quanto quantidades enormes de dinheiro. Desta forma, os indivíduos problemáticos, sendo identificados e eliminados de cargos políticos, ficam sujeitos aos cuidados e à vigilância da comunidade, que pode deter a ação destes, pois os ataques niilistas seriam isolados e não possuiriam uma força econômica de apoio. Assim, os ataques niilistas seriam expressões do cotidiano e não manipulações e degradações massivas ao humano, à sociedade e à natureza.
 
 #### **§ 44.16 – A convivência social do niilista (NOVO)**
 
@@ -5196,7 +5198,6 @@ Quando pronunciou a palavra **“amor”**, sua voz suavizou de forma grotesca, 
 Então, num tom de desespero que beirava a súplica, ele completou:
 
 > “Nossos corpos estão em decomposição. A única coisa que importa é a vida eterna. Até mesmo Deus veio à Terra e transmitiu a vocês a tecnologia final — e vocês não compreenderam. Não era somente uma mensagem religiosa, essa mensagem muda tudo. Está no seu código, encapsulado! E você nem sequer soube ler!”
-
 
 O cérebro agarrou Neo com seus tentáculos e falou num tom histérico, tentando manter um ar de sanidade:
 
