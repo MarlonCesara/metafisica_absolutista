@@ -5074,7 +5074,21 @@ Em uma eleição, por exemplo, não havendo como comprar votos ou manipular a so
 
 Ou até mesmo pode acolher estratégias que fogem do sentido psicológico e atuam numa camada estratégica, como a compra de políticos, ganho de incentivos fiscais, compra de grandes influenciadores, etc.
 
-§ 44.19 – A verdadeira necessidade do niilista (NOVO)
+§ 44.19 – O renascer do empreenderorismo (NOVO)
+
+Com os partidos de direita fora do poder e o cidadão consciente de sua exploração, ocorre um fenômeno na classe média dos empresários: simplesmente o conceito de empresa se desfaz se não for exploração. O prática do velho empresarismo de ceder rios de dinheiro aos patrões se desfalece quando o cidadão se dá conta de que há um lucro exorbitante em cima de sua mão de obra.
+
+Porém, o patrão permanece rígido, não querendo de nenhuma forma ceder seu lucro. E isto faz com que, se não houver novos empreendimentos, haja a aceleração dos funcionários da empresa. Se não houver mão de obra que aceite condições análogas à escravidão, os patrões sobrecarregam aqueles que ganham dignamente. Esse fenômeno vai ocorrendo até que comecem a surgir empresas colaborativas.
+
+Ou seja, se o patrão não quiser pagar mais ou dar condições boas ao funcionário, e o funcionário não quer trabalhar sobre um ritmo incessante e ganhando pouco, a saída são as empresas colaborativas, alem, é claro, do trabalho autônomo. 
+
+São empresas formadas por funcionários que querem montar um negócio e corresponder a uma demanda social, porém não estão voltados para o lucro ou objetivos de extremo crescimento — simplesmente desejam trabalhar e se reúnem para tal.
+
+Essas empresas colaborativas têm uma enorme vantagem no que tange a valores, pois não repassam para o cliente, nem para si mesmos, o acúmulo de dinheiro dos antigos patrões. São equipes mais descansadas, prestam um serviço melhor e repassam um melhor preço para o cliente final. Isto é, não fazem como as antigas empresas que outrora cobravam mais dos funcionários ou cobravam mais do cliente final para sobrar fortunas para o patrão.
+
+Isto remonta à queda não só das pequenas empresas que lucravam muito mais do que o merecido, mas das grandes também. Pois o cidadão comum encontra maneiras de driblar e substituir os grandes monopólios com ações privadas.
+
+§ 44.20 – A verdadeira necessidade do niilista (NOVO)
 
 O niilista não precisa de milhões ou bilhões. Precisa ser lembrado do que realmente busca, do que realmente tem valor para ele. Precisa ser evangelizado. Não deve ser entregue na mão do niilista poder econômico, mas à palavra de Deus, à esperança para não precisar substituir aquilo que lhe é essencial por fortunas e ilusões. O niilista se ilude em meio a tanta potência que alcança, em meio ao poder, e se perde de si mesmo. Quem concedeu-lhe tanta glória não está a par de sua situação, não está realmente o enxergando. Não entende o que lhe dói nem sua loucura. O niilista deve ser compreendido e não enchido de poder. O niilista, se extremamente perspicaz e cheio de poder econômico, se torna não somente um assombro de si mesmo, mas o terror social. 
 
