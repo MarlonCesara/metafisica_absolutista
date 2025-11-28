@@ -5054,6 +5054,27 @@ O artista, de fato, é mais frágil, mais fácil de silenciar do que uma institu
 
 Há um mentor por trás disso — uma inteligência, a inteligência que move as massas: o mais alto escalão das empresas bilionárias.
 
+#### **§ 44.18 – O alto nível do pensamento empresarial (NOVO)**
+
+O CMO está num nível que ultrapassa qualquer estratégia empresarial; ele não pensa em finanças, pensa em manipulações em massa. Tem um poder psicológico, centros de estudo, técnicas que já funcionam e que ficam armazenadas, sendo usadas reiteradamente a cada reação da sociedade. Há um material, anotações, práticas comuns que funcionam ao longo dos anos, tal como o livro A Arte da Guerra, porém voltado para as massas.
+
+Portanto, o mais alto nível de empresário não pensa mais em negócios, pensa em fazer com que esses negócios continuem funcionando de forma absurdamente lucrativa, de forma facilitadíssima. A manutenção da alta lucratividade envolve mais a alienação do povo do que a promoção dos produtos em si.
+
+O povo com medo, sem recursos, torna-se uma criança querendo entretenimento barato, apoiando qualquer causa que fuja ligeiramente da aterradora violência, dos estados pós-traumáticos. O homem moderno procura a fórmula mágica da riqueza, mas seu erro é pensar individualmente: a riqueza acontece coletivamente. A única riqueza que acontece de forma individual é a conquistada por violência e manipulação. Todos os seres humanos estão numa média de inteligência; se um se alavanca de forma extraordinária a mais que o outro, isso envolve manipulação. A bonança não é individual, ela está nas facilidades que o trabalho coletivo nos traz.
+
+Portanto, havendo o CMO que é alavancado pelo excesso de poder de uma empresa — considerando que, se não fosse bilionária, esse cargo não faria sentido pelo seu baixo poder — há grandes manipulações e formas científicas de exercê-las, já testadas e reiteradas a cada ciclo na sociedade.
+
+Uma hora se incentiva o crime, outrora a guerra, outrora o tráfico. Se não é possível comprar políticos, assombra-se o mundo de outras formas. Enfim, o bilionário sempre encontra escapes, e o papel do CMO é garantir esses escapes ou a manutenção deles.
+
+Não basta o acúmulo; é preciso justificar o acúmulo, acalmar a ira do povo frente a tanta riqueza contrastando com tanta miséria. E isso é tarefa de uma psicologia pesada, de uma indução severa à manutenção de um estado de apatia coletiva frente ao instinto natural da revolta.
+
+Os meios de provocar a apatia, por enquanto, parecem ser sempre os mesmos: incentivo da violência, pressão contra bons parlamentares e compra de políticos para criar ainda mais benefícios para a empresa. Essa também é uma estratégia. O CMO está num nível de estratégia que extrapola a competitividade, a identidade de marca, e parte para a sujeira — para a mais sórdida desonestidade com a sociedade.
+
+Em uma eleição, por exemplo, não havendo como comprar votos ou manipular a sociedade em favor de determinado político, o CMO pensará em fraudar os votos e investigará formas de fazê-lo. O CMO é um perito em psicologia, sociologia e filosofia, que usa todos os recursos — até mesmo conhecimento histórico, técnicas de hipnose, manipulação de todo tipo e PNL — para atuar no psicológico de um povo.
+
+Ou até mesmo pode acolher estratégias que fogem do sentido psicológico e atuam numa camada estratégica, como a compra de políticos, ganho de incentivos fiscais, compra de grandes influenciadores, etc.
+
+
 #### **§ 44.18 – A convivência social do niilista (NOVO)**
 
 O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
