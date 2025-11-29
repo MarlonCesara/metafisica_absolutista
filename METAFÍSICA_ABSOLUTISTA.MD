@@ -194,11 +194,12 @@ A Impossibilidade constitui a classe de entes ou proposições cuja própria def
 #### **§ 4.4 – Tipologia da Impossibilidade: A Violação dos Princípios**
 
 A análise da impossibilidade revela sua natureza através de violações específicas:
-000 - lido
+
 **1. Contradições Explícitas (Violação Direta dos Princípios Lógicos)**
 -   *Exemplo Paradigmático:* "Círculo quadrado".
 -   **Violação da Não-Contradição (¬(A ∧ ¬A)):** Um círculo, por definição, *não possui vértices ou lados retos*, enquanto um quadrado, necessariamente, *possui quatro vértices e quatro lados retos*. Afirmar que algo é simultaneamente "círculo (não-quadrado) e quadrado (não-círculo)" é uma contradição lógica direta.
 -   **Violação da Não-Disformidade (¬(A = B)):** A essência de um círculo (curva contínua, sem ângulos) é radicalmente incompatível com a de um quadrado (quatro segmentos retos, quatro ângulos). Portanto, um ente não pode **tornar-se** ou **ser identificado como** ambos sem deixar de ser um deles, violando a lei da persistência da identidade.
+000 - lido
 -   **Consequência Ontológica:** Como a definição do "círculo quadrado" exige a coexistência de propriedades mutuamente excludentes, ele não apenas *não existe* em nosso universo, mas **não pode existir** em nenhum mundo metafisicamente possível. Sua existência destruiria os alicerces da realidade inteligível.
 
 **Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência que, para nós, permanece eternamente fechado no mistério.
