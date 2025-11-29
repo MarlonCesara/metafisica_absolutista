@@ -207,7 +207,7 @@ A análise da impossibilidade revela sua natureza através de violações espec�
 
 **Definição Ontológica:**
 A Incognoscibilidade constitui a dimensão do real que excede permanentemente qualquer estruturação conceitual, seja ela plena ou parcial, permanecendo além dos aparatos lógicos, ilógicos e linguísticos. É o domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.
-000 - lido
+
 **Modos de Manifestação:**
 - **Transcendência Positiva:** Aquilo que é "mais que o fenômeno" (o Bem em Platão, que está "além da essência" - _ἐπέκεινα τῆς οὐσίας_)
 - **Transcendência Negativa:** Aquilo que escapa a toda determinação (Deus em Mestre Eckhart, o "Deus além de Deus")
@@ -238,7 +238,7 @@ A análise revela uma estrutura hierárquica que não é meramente classificató
 3. **Impossível** (limite do possível)
    ↓
 4. **Incognoscível** (limite do racionalizável)
-
+000 - lido
 **Significado Ontológico:**
 - O **Cognoscível** revela os limites do Absoluto mentalizável
 - O **Possível** manifesta-se como ordem no seio do Absoluto
