@@ -199,16 +199,15 @@ A análise da impossibilidade revela sua natureza através de violações espec�
 -   *Exemplo Paradigmático:* "Círculo quadrado".
 -   **Violação da Não-Contradição (¬(A ∧ ¬A)):** Um círculo, por definição, *não possui vértices ou lados retos*, enquanto um quadrado, necessariamente, *possui quatro vértices e quatro lados retos*. Afirmar que algo é simultaneamente "círculo (não-quadrado) e quadrado (não-círculo)" é uma contradição lógica direta.
 -   **Violação da Não-Disformidade (¬(A = B)):** A essência de um círculo (curva contínua, sem ângulos) é radicalmente incompatível com a de um quadrado (quatro segmentos retos, quatro ângulos). Portanto, um ente não pode **tornar-se** ou **ser identificado como** ambos sem deixar de ser um deles, violando a lei da persistência da identidade.
-000 - lido
 -   **Consequência Ontológica:** Como a definição do "círculo quadrado" exige a coexistência de propriedades mutuamente excludentes, ele não apenas *não existe* em nosso universo, mas **não pode existir** em nenhum mundo metafisicamente possível. Sua existência destruiria os alicerces da realidade inteligível.
 
-**Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência que, para nós, permanece eternamente fechado no mistério.
+**Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência.
 
 #### **§ 4.5 – O Domínio da Incognoscibilidade: A Transcendência Radical**
 
 **Definição Ontológica:**
 A Incognoscibilidade constitui a dimensão do real que excede permanentemente qualquer estruturação conceitual, seja ela plena ou parcial, permanecendo além dos aparatos lógicos, ilógicos e linguísticos. É o domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.
-
+000 - lido
 **Modos de Manifestação:**
 - **Transcendência Positiva:** Aquilo que é "mais que o fenômeno" (o Bem em Platão, que está "além da essência" - _ἐπέκεινα τῆς οὐσίας_)
 - **Transcendência Negativa:** Aquilo que escapa a toda determinação (Deus em Mestre Eckhart, o "Deus além de Deus")
