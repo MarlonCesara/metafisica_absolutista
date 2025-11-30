@@ -3736,6 +3736,42 @@ Tudo se torna transparente. O homem, mais desperto, vê as ilusões se dissolver
 
 O mundo, em sua aparência física, seguirá seu curso natural — mas o **verdadeiro apocalipse** se cumprirá no interior das consciências, na representação individual da realidade que agora será rasgada pela luz do conhecimento.
 
+#### **§ 44.19 – A salvação do homem (NOVO)**
+
+Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
+
+Jesus eleva o potencial humano ao seu máximo, como se tornasse irrevogável a cura para aquele que se volta ao seu consolo. Isto é, Jesus ofereceu uma proposta: *“Creia em mim e será salvo.”* Quer dizer que a simples inclinação da vontade humana ao divino já o alivia do niilismo.
+
+A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jamais fora. O homem alcançou um patamar de graça especial — uma elevação singular — através do sacrifício de Cristo, que pode levá-lo inevitavelmente à salvação.
+
+O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
+
+E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### **CAPÍTULO 30 – O EXISTÊNCIALISMO**
 
 #### **§ 30.1 – A estranha cidade das almas perdidas**
@@ -4812,7 +4848,23 @@ Neste ínterim nasce a obsessão por bens materiais, por validação social. De 
 
 Todas essas imagens mentais pejorativas não correspondem, de fato, ao niilista, que também é um ser humano digno de compaixão e respeito. Contudo, é uma tendência do niilista conceber ideias negativas a respeito de si mesmo.
 
-#### **§ 44.9 – A busca por visibilidade (NOVO)**
+#### **§ 44.9 – A convivência social do niilista (NOVO)**
+
+O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
+
+O niilista quer causar a diferença social, a diferença espiritual que enxerga entre si e o outro. O niilista quer externalizar a diferença social e, como último ato de rebeldia, pode até mesmo tirar a própria vida, num último ato de tentar equiparar. Em sua mentalidade, tirar a própria vida causa miséria social, pois está tirando da vida uma personalidade. Está negando ao outro sua convivência, sua estadia na vida. E, se for um ato definitivo, isso é irreparável. Se o recurso do niilista não é mais financeiro, o único que lhe restaria é tornar escasso o mundo de sua própria vida.
+
+O niilista precisa das diferenças sociais não somente como pedido de uma cultura que aprendeu, que o faz ter sempre que se sentir imponente e impoderado perante o outro, mas necessita para esconder seu emocional, para tornar a convivência humana possível, para que o lidar com o outro não gaste tanta energia emocional. Pois intuitar o próprio fim e ter que conviver com o outro que tem bens eternos é, de fato, um ato que exige um grande mascaramento da própria intenção.
+
+O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
+
+A capacidade de convivência do niilista com o não niilista depende de um certo equilíbrio — e esse equilíbrio ele tenta encontrar nos bens materiais. Assim, torna-se exibicionista: precisa sempre estar em uma posição superior à do outro para não ser ferido em sua autoestima, devido à sua própria condição.
+
+A relação humana produz uma sensação de normalidade, amizade e harmonia, e isso obriga o niilista a encarar o absurdo de sua postura, fazendo-o sentir-se mal; essa lucidez gera uma dissonância entre sua condição existencial e a realidade à sua volta. Essa dissonância se manifesta na tentativa de afirmar superioridade — seja material, afetiva ou até mesmo no lazer.
+
+Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
+
+#### **§ 44.10 – A busca por visibilidade (NOVO)**
 
 O niilista quer ser o holofote. Deseja que o mundo pare diante de sua dor, que até as famílias deixem de florescer, que os novos nascimentos se suspendam — como se toda a atenção e energia da vida devessem convergir para ele e sua causa urgente. A mentalidade niilista não aceita que a vida continue, que o fluxo do existir siga expandindo-se mesmo diante de sua desesperança. O niilista observa o progresso, vê que o mundo prossegue apesar de sua intenção, e isso o incita à revolta.
 
@@ -4828,7 +4880,7 @@ Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transfo
 
 Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
 
-#### **§ 44.10 – O existencialismo dos privilégios (NOVO)**
+#### **§ 44.11 – O existencialismo dos privilégios (NOVO)**
 
 O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê à sua volta nas pessoas. Sente-se revoltado ao ver, ao seu redor, pessoas com um tom de comportamento tão despreocupado — amantes se amando nas praças, pessoas vivendo em paz — aparentemente indiferentes à sua realidade conflituosa. O niilista, por isso, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Vê-se distante de sua paz e tranquilidade e quer repor isso por meio de privilégios. Ao perceber-se com tal postura, o niilista quer repor sua estima, quer tentar, de alguma forma, suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa autoestima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
 
@@ -4854,7 +4906,7 @@ Porém, o cúmulo do desespero para converter o outro também não é uma atitud
 
 O rico se vê incomodado com o pobre sendo feliz com qualquer coisa, qualquer distração, qualquer detalhe, pois o peso do niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realidade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortável ao estar sob defesas mentais — que é o caso de estar sob privilégios — pois, quando a mente do niilista o protege da informação de sua intenção, ele tem um pouco de alívio. Porém, precisa sempre de um escape de si mesmo para tal.
 
-#### **§ 44.11 – A solução dos males sociais (NOVO)**
+#### **§ 44.12 – A solução dos males sociais (NOVO)**
 
 A humanidade, oprimida pelos bilionários e pela violência, tenta praticar o exemplo, de forma a bater, prender e desolar os que causam os males. Porém, ainda que com o exemplo, o mal continua. Mesmo que os bilionários sejam assassinados, outros herdarão sua herança, e mesmo que os que praticam a violência sejam mortos, serão substituídos. Isto acontece porque os nascimentos não param e a liberdade humana não deixa de tomar seus rumos próprios.
 
@@ -4884,7 +4936,7 @@ O bilionário é um sedento pela vida eterna, enquanto não instruido ele não d
 
 Até a presente data desta escrita, a sociedade esta tentando vencer os males sociais por reforço negativo, matando bilioonários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
 
-#### **§ 44.12 – Um cenário de êxito nas lutas sociais (NOVO)**
+#### **§ 44.13 – Um cenário de êxito nas lutas sociais (NOVO)**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
 
@@ -4903,7 +4955,7 @@ O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as
 Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
 Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
 
-#### **§ 44.13 – Um cair das defesas mentais (NOVO)**
+#### **§ 44.14 – Um cair das defesas mentais (NOVO)**
 
 O homem, sob o jugo da regra do pecado com base na ação e não na intenção, protege-se da tomada de consciência de sua liberdade perante a revelação metafísica de sua alma. Isso quer dizer que imaginar um conjunto de ações calculadas — chamadas de pecado em suas diferentes magnitudes — confere ao indivíduo um cerco no qual pode imaginar-se salvo de si mesmo.
 
@@ -4911,7 +4963,7 @@ Isso quer dizer que, ainda que o indivíduo busque sua própria morte, pode, por
 
 Quando o indivíduo se dá conta de que responde por si só, e não perante uma força maior, é arremessado diretamente contra sua autorresponsabilidade, e nela pode sentir-se mais ou menos assegurado. É dentro dessa nova percepção que as barreiras entre o mundo terreno e o mundo espiritual se quebram, de forma a já nos identificarmos no mundo espiritual. A partir da vida terrena, é possível assumir o risco da liberdade e antever o destino que cada indivíduo intenta. Sob a perspectiva comportamental também é possível observar na sociedade e diferenciar os indivíduos, de forma a enxergá-los como potenciais pessoas em crise existencial ou pessoas que já optaram, em seu âmago, pela vida de forma definitiva.
 
-#### **§ 44.14 – A loucura dos ricos (NOVO)**
+#### **§ 44.15 – A loucura dos ricos (NOVO)**
 
 O super rico é um louco, um louco que tenta enxergar a vida a todo instante, ainda que esta esteja diante de seus olhos. O bilionário é um fanático. Um indivíduo omisso a qualquer empatia que não esteja voltada para a sua autoempatia, o desejo de não ser quem se é diante do querer do que se quer. O rico é o único e exclusivo agente de miséria. É um louco que tira dos demais a visão de que aqui mesmo é o paraíso, em favor de nutrir uma ilusão vazia em si com tanta riqueza. O segredo do bilionário é a loucura. A sociedade, quando compreender que são indivíduos sem mérito algum, a mudança acontecerá totalmente. A sociedade percebe a existência de milionários e bilionários como algo natural, algo fruto da competição capitalista. Imagina que é um lugar que se chegou por uma estratégia inteligente e que tem um propósito bom para o mundo, como é transmitido pelas figuras que servem como máscara para esses acionistas.
 
@@ -5096,34 +5148,56 @@ O niilista precisa da proteção de si mesmo, e a sociedade precisa se proteger 
 
 Quando empoderado, o próprio niilista se elimina da capacidade de recuperação, impedindo que a sociedade o alcance, destruindo o mundo, impedindo o progresso onde as pessoas poderiam o amparar, desvinculadas de preocupações materiais.
 
+§ 44.20 – A tentativa do niilista de destruir o paraíso (NOVO)
 
-#### **§ 44.20 – A convivência social do niilista (NOVO)**
+A tentativa de abalar o status quo do mundo, de produzir um anti-paraíso, é evidenciada na direita política, que não quer propriamente se elevar acima dos demais, mas também quer destruir a sociedade. Corromper o paraíso de que muitos participaram, mas o indivíduo quer renunciar. Os políticos, líderes, precisam sempre dizer o óbvio, precisam tentar explicar ao cidadão qual sua essência e sua vontade primordial pelo bem. Os discursos políticos, até o tempo em que este documento foi escrito, foram pautados por uma certa curiosidade, um certo absurdo de tentar entender porque algumas pessoas negam o próprio paraíso.
 
-O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
+Os políticos tratam isso como uma forma de não entendimento da realidade, não levam em consideração o niilismo prático, o niilista que está em conflito, não está lidando bem consigo, não está se sentindo bem, então tem atitudes desmedidas, aleatórias, omissas ao bem-estar comum e social.
 
-O niilista quer causar a diferença social, a diferença espiritual que enxerga entre si e o outro. O niilista quer externalizar a diferença social e, como último ato de rebeldia, pode até mesmo tirar a própria vida, num último ato de tentar equiparar. Em sua mentalidade, tirar a própria vida causa miséria social, pois está tirando da vida uma personalidade. Está negando ao outro sua convivência, sua estadia na vida. E, se for um ato definitivo, isso é irreparável. Se o recurso do niilista não é mais financeiro, o único que lhe restaria é tornar escasso o mundo de sua própria vida.
+A normalidade é partida quando se percebe que há indivíduos com dificuldade no aprendizado do próprio existir, um aprendizado anterior a qualquer técnica ou erudição. E o indivíduo dotado de tal dificuldade não colabora para a inteligência política e nem para seu sentido político de autopreservação, o sentido que o possibilita não deixar se dominar pelos seus algozes e nem mesmo seus semelhantes.
 
-O niilista precisa das diferenças sociais não somente como pedido de uma cultura que aprendeu, que o faz ter sempre que se sentir imponente e impoderado perante o outro, mas necessita para esconder seu emocional, para tornar a convivência humana possível, para que o lidar com o outro não gaste tanta energia emocional. Pois intuitar o próprio fim e ter que conviver com o outro que tem bens eternos é, de fato, um ato que exige um grande mascaramento da própria intenção.
+O discurso político visa tratar o humano como exercedor de seu instinto natural de não preservar somente a si, mas preservar seu semelhante. E isso é ferido pelo niilismo, que intenta não somente contra si, mas contra seu semelhante, num instinto desenfreado de competição social, formação de pequenas e grandes elites, e violência de todas as formas.
 
-O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
+O niilista não quer ter seu choro apagado, não quer ter seu intento calado, não quer deixar a sociedade em paz, tem a mania de sempre querer ser lembrado, de tentar fazer o mundo se empatizar consigo, causando o estrago social que lembra a ideia do estrago que quer causar em si.
 
-A capacidade de convivência do niilista com o não niilista depende de um certo equilíbrio — e esse equilíbrio ele tenta encontrar nos bens materiais. Assim, torna-se exibicionista: precisa sempre estar em uma posição superior à do outro para não ser ferido em sua autoestima, devido à sua própria condição.
 
-A relação humana produz uma sensação de normalidade, amizade e harmonia, e isso obriga o niilista a encarar o absurdo de sua postura, fazendo-o sentir-se mal; essa lucidez gera uma dissonância entre sua condição existencial e a realidade à sua volta. Essa dissonância se manifesta na tentativa de afirmar superioridade — seja material, afetiva ou até mesmo no lazer.
 
-Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
 
-#### **§ 44.19 – A salvação do homem (NOVO)**
 
-Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
 
-Jesus eleva o potencial humano ao seu máximo, como se tornasse irrevogável a cura para aquele que se volta ao seu consolo. Isto é, Jesus ofereceu uma proposta: *“Creia em mim e será salvo.”* Quer dizer que a simples inclinação da vontade humana ao divino já o alivia do niilismo.
 
-A partir do sacrifício de Jesus, essa proposta tornou-se mais eficaz do que jamais fora. O homem alcançou um patamar de graça especial — uma elevação singular — através do sacrifício de Cristo, que pode levá-lo inevitavelmente à salvação.
 
-O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de se elevar diante de tão grande gesto de amor. O amor tornou-se inegável diante do desejo de Deus de que todo homem tenha vida em abundância.
 
-E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
