@@ -4433,6 +4433,8 @@ As almas do purgatório constituem aqueles indivíduos dominados por paixões in
 
 Estas almas temiam sua própria insanidade, receavam o monstro que traziam dentro de si. Uma ira quase unânime as consumia, um instinto irracional que as impelia a buscar, no alívio da agressividade latente, uma sabedoria ilusória.
 
+A partir do momento que uma alma abandona o corpo, abandona também todos os instintos associados ao corpo, que são o instinto de autopreservação, o medo da morte e o instinto pela preservação da vida. A alma é guiada completamente pelas próprias aspirações, que são desligadas das aspirações que a biologia proporciona ao corpo. Portanto, o indivíduo, se falece com um grande ressentimento, tão grande que se destruiria por tal ressentimento, esse desejo é desvelado de forma mais simplificada no estado puro da alma.
+
 #### **§ 40.3 – A Busca pelo Alívio e o Engano da Vingança**
 
 As almas do purgatório apoiavam estruturas opressoras de poder, na tentativa equivocada de encontrar na destruição o alívio para sua ira. Não lhes faltava o impulso vital, mas a paz interior. Anelavam pelo sentido do perdão, por aquilo que destravasse o paraíso de forma clara e inequívoca. Desejavam libertar-se dos vícios comportamentais que as destruíam.
