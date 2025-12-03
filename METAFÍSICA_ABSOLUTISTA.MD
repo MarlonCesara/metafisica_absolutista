@@ -5160,44 +5160,21 @@ O discurso político visa tratar o humano como exercedor de seu instinto natural
 
 O niilista não quer ter seu choro apagado, não quer ter seu intento calado, não quer deixar a sociedade em paz, tem a mania de sempre querer ser lembrado, de tentar fazer o mundo se empatizar consigo, causando o estrago social que lembra a ideia do estrago que quer causar em si.
 
+§ 44.20 – O enrriquecimento rápido dos bilionários (NOVO)
 
+Não, os milionários e bilionários não precisam pensar demais, nem criar ideias geniais, nem passar noites em claro trabalhando. E isso não é um manual, tampouco algo que alguém deva imitar. Mas, uma vez revelado, esse segredo muda completamente nossa percepção da sociedade. Espalhe essa mensagem.
 
+O segredo da riqueza rápida é simples: é um pacto com o mal. Mas não qualquer pacto. Não se trata de mantras motivacionais vendidos em cursos, como “eu me permito ter dinheiro”. Não é um truque psicológico. É algo muito mais sombrio.
 
+O bilionário é, antes de tudo, um niilista. Renuncia à eternidade, abre mão da alma e se entrega ao abismo. Ele se considera vazio, sem qualquer vínculo moral. Por isso, enxerga a vida como uma selva, onde se pode devorar o outro sem culpa, sem limites, sem valores morais. É assim que o pacto se sela: pela negação da própria humanidade.
 
+O pensamento do bilionário não é estratégico, é enganoso. Ele não perde tempo refletindo; o roubo não exige contemplação. Ele simplesmente age.
 
+Quando um indivíduo abandona completamente seus sentimentos, sua humanidade, sua empatia e seu senso de autovalor, ele se torna capaz de fazer aquilo que a imensa maioria jamais aceitaria: matar, roubar, traficar. É aí que começa a riqueza rápida.
 
+Existem, sim, métodos de enriquecimento mais “sofisticados”, baseados em manipulação política, midiática, fraudes — mas estes só vêm depois, quando o indivíduo já ascendeu ao topo. Uma vez bilionário, o roubo muda de forma: torna-se exploração da mão de obra, controle de narrativas e manipulação de massas.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Porém, o preço desse pensamento é a própria alma. Não me refiro a que o niilista troca a eternidade por dinheiro, mas que sua busca por dinheiro é reflexo de sua perdição. O niilista é movido pelo ódio e não pelo desejo de riqueza. Todo desejo remete a algo que existe, e o niilista não tem nenhum desejo que sustente sua existência. Portanto, a frase “pacto” não remete a nada, mas se refere à consequência do niilismo, que é a facilidade em acumular riquezas de forma rápida, pois, uma vez niilista, ao indivíduo nada mais interessa; é capaz de renunciar facilmente à sua humanidade, considerando que esta já não faz jus ao seu desejo pela autodestruição.
 
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
