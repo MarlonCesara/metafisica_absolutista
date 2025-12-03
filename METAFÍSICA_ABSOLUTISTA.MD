@@ -1147,6 +1147,10 @@ A autodeterminação sob o indiferenciado gera uma realidade viva — a realidad
 
 Uma vez entendida a existência não causada do absoluto, se dá também entendida a autocausalidade em si. O absoluto se dá naturalmente sem causa externa. É naturalmente a substância de si e autor de si. Se existe e é relativo, seu próprio existir lhe confere teor autocausal. Pois a existência por si só traz em si a necessidade do causal. A existência por si só é causada, se não por fonte externa, por si mesma.
 
+Toda existência pressupõe em si uma causa inevitável, o autocausal é homogêneo ao relativo, pois a existência pressupõe em si sua própria definição. Temos então o relativo como contrapar te da causalidade.
+
+Podemos citar como exemplo que se A existe, então A é como A segundo uma razão. A existencia de A não pode segregar a causa de A ser tal como A. Portanto, a própria causa é homogenea ao relativo. O causado é uma contra parte do causal. 
+
 #### **§ 9.13 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
