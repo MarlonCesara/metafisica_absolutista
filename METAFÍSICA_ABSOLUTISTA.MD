@@ -1145,6 +1145,8 @@ Isto é dificil de mentalizar, no entanto, se faz mais facil quando usamos o nad
 
 A autodeterminação sob o indiferenciado gera uma realidade viva — a realidade que, por si mesma, tem como contraparte o indiferenciado. Temos uma pureza viva, uma pureza real, e a realidade ontológica é a polarização dessa pureza. Tal como o preto se dilui em várias cores, ou a luz branca se torna várias cores num prisma, o indiferenciado se traduz em qualquer existência.
 
+Uma vez entendida a existência não causada do absoluto, se dá também entendida a autocausalidade em si. O absoluto se dá naturalmente sem causa externa. É naturalmente a substância de si e autor de si. Se existe e é relativo, seu próprio existir lhe confere teor autocausal. Pois a existência por si só traz em si a necessidade do causal. A existência por si só é causada, se não por fonte externa, por si mesma.
+
 #### **§ 9.13 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
