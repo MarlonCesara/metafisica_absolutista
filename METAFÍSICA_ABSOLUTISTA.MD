@@ -826,6 +826,18 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 
 > A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. A personalidade detém a ação que está desligada de traços pessoais e determinísticos, como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
+#### **§ 8.4 – A ação trinária**
+
+Sendo o absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operante no absoluto, de forma que já se deu como tal de forma incausada e atemporal. O absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si. Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada, é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do absoluto como tal.
+
+A forma personalizadora do absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
+
+Isto significa que a ação do Espírito Perfeito está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação.
+
+A ação de fundamentação e a de plenificação se dão em conjunto no absoluto, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o fundamentador e o personalizador que é o Espírito da plenitude.
+
+O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independente. Atemporalmente o Personalizador não agiu, ao passo que existia. Ao passo que temporalmente o Fundamentador e o Plenificador não poderiam agir como via única. As três ações se divergem, portanto, na esfera do Absoluto.
+
 #### **§ 8.5 – Conclusão do Capítulo**
 
 -   O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.
