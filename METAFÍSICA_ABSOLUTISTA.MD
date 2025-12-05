@@ -3692,9 +3692,9 @@ Jesus falava do coração e de seus desejos. Falava de como a vida convidava o h
 
 O ideal de um jovem pregador para um mundo que não sabia muito bem quem era. As pessoas não se lembravam muito bem do que realmente a vida representava até que Jesus as relembrou do sentido original de suas vidas.
 
-Jesus era um melhor amigo do que um homem do discurso. Por isso, não deixou tantas coisas escritas por ele mesmo. Jesus falava dos desejos do coração, dos sonhos infinitos. E quem o seguia eram seus amigos.
+Jesus era um melhor amigo do que um homem do discurso. Por isso, não deixou tantas coisas escritas por ele mesmo. Jesus falava dos desejos do coração, dos sonhos infinitos. E quem o seguia eram seus amigos. Ele tentava ser um homem comum, viver uma vida comum, mas o seu ato de ser comum era diferente. 
 
-Ele tentava ser um homem comum, viver uma vida comum, mas o seu ato de ser comum era diferente. 
+Jesus constantemente falava do impossível. A graça que Jesus concedeu à humanidade não se restringia à liberdade comum dos homens, mas a uma graça que ultrapassava até mesmo a liberdade, indo em direção a algo ainda maior. Jesus se predispôs a elevar o ser humano a um patamar em que não haveria chance de se perder segundo a própria liberdade. De forma não destrutiva, o milagre de Jesus foi salvar o homem de si mesmo, de forma que não corrompesse a liberdade do homem e de forma que o homem não fosse levado por qualquer mal.
 
 > Se o desejo pela vida for infinito, a alma torna-se imortal pela infinitude de seu desejo.
 
