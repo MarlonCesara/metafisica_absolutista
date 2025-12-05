@@ -3698,6 +3698,10 @@ Jesus constantemente falava do impossível. A graça que Jesus concedeu à human
 
 > Se o desejo pela vida for infinito, a alma torna-se imortal pela infinitude de seu desejo.
 
+#### **§ 29.5 – A descida de Jesus ao reino dos mortos**
+
+Isto simboliza que Jesus realizou o impossível, abriu as portas para o paraíso de forma que sua graça alcança até mesmo o inalcançável, abre o coração mais duro, tem o segredo dos que desistiram de si mesmo, de forma que seu amor é arrasador. O reino dos mortos representa a possibilidade dos infernos, significa a possibilidade da anulação. Jesus opera até mesmo nesse contexto.
+
 #### **§ 29.5 – Porque Deus Permitiria o Apocalipse?**
 
 A pergunta "Por que Deus permitiria o Apocalipse?" encontra uma resposta profunda e, em sua essência, simples: **Deus respeita incondicionalmente o potencial e a liberdade da alma humana.**
