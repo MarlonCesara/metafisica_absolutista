@@ -3682,6 +3682,22 @@ A libertação do corpo de barro é uma amplitude de possibilidades para a alma,
 
 **Noções como condenação e julgamento também têm seu peso atenuado pela reflexão metafísica**, que os compreende não como castigos arbitrários, mas como fenômenos naturais e consequências inevitáveis da liberdade humana — alinhando-se com a visão de São Tomás de Aquino de que a pena do inferno segue intrinsicamente à opção pelo pecado (S.Th., Suppl., q.99, a.1).
 
+#### **§ 29.4 – A comunicação de Jesus**
+
+Uma criança esteve conversando com Jesus, por longas horas ouvia as palavras de Jesus e o seguia constantemente. Anos após a crucificação, um erudito perguntou à criança se sabia sobre relatos do que o homem de Nazaré dizia.
+
+A criança, que agora era jovem, disse: Ele não falava de regras ou de sistemas religiosos. Não falava muito de dogmas. Ele falava de sonhos, de sonhos infinitos. Ele animava o coração da multidão de forma que dava tanta esperança que as pessoas saíam com um sorriso que não cabia em seus rostos. Jesus as livrava do cotidiano e as introduzia num mundo extraordinário, no qual qualquer coisa era possível.
+
+Jesus falava do coração e de seus desejos. Falava de como a vida convidava o homem para a eternidade. As falas de Jesus se conectavam muito mais com o coração do homem do que o discurso religioso moderno. Ele conectava o mundo com a eternidade. Suas palavras tinham um reflexo eternal.
+
+O ideal de um jovem pregador para um mundo que não sabia muito bem quem era. As pessoas não se lembravam muito bem do que realmente a vida representava até que Jesus as relembrou do sentido original de suas vidas.
+
+Jesus era um melhor amigo do que um homem do discurso. Por isso, não deixou tantas coisas escritas por ele mesmo. Jesus falava dos desejos do coração, dos sonhos infinitos. E quem o seguia eram seus amigos.
+
+Ele tentava ser um homem comum, viver uma vida comum, mas o seu ato de ser comum era diferente. 
+
+> Se o desejo pela vida for infinito, a alma torna-se imortal pela infinitude de seu desejo.
+
 #### **§ 29.5 – Porque Deus Permitiria o Apocalipse?**
 
 A pergunta "Por que Deus permitiria o Apocalipse?" encontra uma resposta profunda e, em sua essência, simples: **Deus respeita incondicionalmente o potencial e a liberdade da alma humana.**
