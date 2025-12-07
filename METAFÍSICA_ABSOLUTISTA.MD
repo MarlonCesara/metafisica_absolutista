@@ -5478,7 +5478,13 @@ Aqui está o texto **corrigido minimamente**, mantendo **todas as palavras origi
 
 A branding pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico, vários conhecimentos são necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., formam uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
 
+§ 44.20 – A branding artificial (NOVO)
+
 Elementos químicos como drogas dão maior poder de brand no sentido de que permitem à pessoa receber críticas, comentários, de diversos grupos. Drogas que amortizam os pensamentos, antidepressivos ou substâncias químicas que inibem o processo de reflexão e, por sua vez, é inibida da pessoa a dor emocional que palavras e comportamentos não assimilados lhe acarretam. Portanto, há medicações que dão uma brand artificial ao indivíduo.
+
+Muitos artistas são construídos por medicamentos, simplesmente usam a ciência neuroquímica e um grupo de psicólogos para manter o ser humano num patamar onde se sente inatingível por qualquer crítica ou comentário ou pela exposição abusiva de sua autoimagem. Um coquetel de antidepressivos e remédios mantém a estima do indivíduo alta e o mantém alheio a tudo que está acontecendo, pois o que não é refletido não traz dor. Há um grupo de psicólogos encarregados de reforçar o potencial do remédio, tornando o indivíduo alheio a tudo o que acontece ou que dizem a respeito dele, preservando-o do real impacto social, fazendo-o pensar de uma forma grande, com uma grandeza distorcida de tal maneira que prejudique até os relacionamentos desse suposto artista.
+
+Através da distorção de pensamentos normais que envolvam o senso de realidade do indivíduo e através de um coquetel de elementos químicos, se fabrica o artista moderno, totalmente desprovido de talento ou reflexões que movam a sociedade de uma forma positiva. Simplesmente um fantoche induzido por um grupo de ricos que lucram milhões e até bilhões com uma brand pessoal, controlando tudo que um indivíduo faz e até o que este indivíduo pensa. Não é incomum ver artistas o tempo todo em quadros depressivos, por a longa exposição a estes métodos que os mantêm alheios a tudo ter levado-os a uma depressão profunda.
 
 § 44.20 – Os bilionários por usurpação da imagem alheia (NOVO)
 
