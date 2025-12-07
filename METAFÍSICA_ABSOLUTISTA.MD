@@ -5452,3 +5452,56 @@ Lentamente, um monopólio tecnológico se formou. Trilionários passaram a contr
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada.
 
 A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
+
+Aqui está o texto **corrigido minimamente**, mantendo **todas as palavras originais** e **não alterando o estilo**, apenas ajustando ortografia, concordância e pequenos pontos de clareza **sem trocar palavras**:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Rascunhos
+
+§ 44.20 – A branding pessoal dos milionários (NOVO)
+
+A branding pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico, vários conhecimentos são necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., formam uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
+
+Elementos químicos como drogas dão maior poder de brand no sentido de que permitem à pessoa receber críticas, comentários, de diversos grupos. Drogas que amortizam os pensamentos, antidepressivos ou substâncias químicas que inibem o processo de reflexão e, por sua vez, é inibida da pessoa a dor emocional que palavras e comportamentos não assimilados lhe acarretam. Portanto, há medicações que dão uma brand artificial ao indivíduo.
+
+§ 44.20 – Os bilionários por usurpação da imagem alheia (NOVO)
+
+Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas onde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Cada passo é calculado.
+
+E quando saem da linha, precisam compensar criando algo “verdadeiramente artístico”, como se a autenticidade fosse uma moeda de troca dentro de um sistema altamente controlado. É curioso perceber que artistas com alcance gigantesco raramente usam esse poder para gerar um impacto real no mundo. Na prática, acabam impulsionando principalmente empresas bilionárias, especialmente da indústria da beleza, enquanto a promessa de influência positiva se dissolve no marketing.
+
+
+§ 44.20 – A emergência de bilionários (NOVO)
+
+Quando qualquer projeto novo, que não tenha concorrência, se mostra no mercado, este ganha muito investimento por ser novo e muito lucro por não ter concorrência. Então o indivíduo que inventa algo novo sofre uma explosão de recursos financeiros ao conseguir embalar um grupo pequeno e seleto ou um grande grupo de pessoas com sua ideia. Ainda que não tenha exploração de mão de obra, o consumidor de seu produto se vê na necessidade urgente de adquiri-lo, e, por ser novidade ou às vezes não copiável, os preços podem ser elevados ao ponto de enriquecer o indivíduo.
+
+Vamos citar o exemplo de bancos digitais que eram novidades no mercado e levantaram milhões do dia para a noite. O grande perigo é: uma vez que um indivíduo pode levantar grandes quantias tendo branding pessoal e ideias, qual potencial desse acúmulo de dinheiro e quais investidores podem tomar fatia deles fazendo outros bilhões de dólares?
+
+O indivíduo que é capaz de ter inovadoras ideias e divulgá-las com branding pessoal, que tem uma visão tão abrangente da sociedade que pode olhar para onde ninguém ainda olhou, de fato, se não tiver má índole, pode estar rodeado de pessoas que tenham.
+
+O fato é: nos dias de hoje, não poderíamos direcionar a energia criativa do bilionário às políticas? Suas ideias de fato poderiam ser usadas para aprimorar o Estado ou até o país, focando no que é mais emergente para a sociedade, uma vez que eles têm branding e grande inteligência. Porém, fora da função política, estes teriam maior capacidade de criação, uma vez que seus objetivos não necessariamente estariam atrelados a objetivos mais emergentes da sociedade, e também não estão bloqueados pelo entendimento do público do seu propósito. Não necessitam mostrar ao povo o objetivo do empreendimento, e esta é a maior vantagem ou o maior perigo.
+
+Se o objetivo do empreendimento for bom e a explicação for tão complexa que se faz de difícil entendimento para o público comum, sem guardar milhões, o idealista talvez não poderia exercer seu projeto pela política, pois talvez não encontraria comoção popular ou aceitação do grande investimento em sua ideia. Por outro lado, se essa ideia estiver má intencionada, influenciada por pessoas paralelas que adquiriram milhões segundo ideias criativas, ou até mesmo o idealista tiver má índole, então a liberdade de criar sem passar pela aprovação política e popular pode ser uma ruína.
+
+O bilionário pode ser um bom gênio incompreendido que fará boas coisas ou um gênio do mal imparável com os mesmos milhões que dispõe. A solução mais prática é não haver o acúmulo de extremas fortunas, como por exemplo 100 bilhões acumulados no domínio de poucas pessoas. De fato, alguns milhões não são capazes de levantar grandes pesquisas científicas ao passo que não bloqueiam o potencial criativo.
+
+De fato, a inovação traz uma grande vantagem social; sem, por exemplo, o Facebook e o Instagram, o protesto social era muito mais difícil, e são empreendimentos que renderam muito pelo fato de serem uma novidade.
+
+A ideia é estimular a livre concorrência para haver cada vez menos monopólios, até mesmo de redes sociais, e impedir que fortunas gigantescas sejam reunidas para que não possam tocar projetos monumentais, como é o caso da SpaceX. O governo pode tratar de projetos gigantes e que exijam investimentos massivos. O investimento massivo conduz muita energia social e realmente precisa passar por um acordo coletivo, e não somente por pensamentos mirabolantes de um visionário ou de pessoas ligadas a ele que adquiriram proveito de seu potencial.
+
