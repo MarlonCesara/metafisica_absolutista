@@ -5474,6 +5474,10 @@ Aqui está o texto **corrigido minimamente**, mantendo **todas as palavras origi
 
 # Rascunhos
 
+§ 44.20 – A antiga visão popular da direita política (NOVO)
+
+O povo via a direita como um partido progressista, um grupo de pessoas que apostavam no avanço empresarial como solução definitiva para os problemas sociais. Porém, a direita política não se mostrou eficaz; pelo contrário, provou estar a favor da riqueza de um grupo seleto em detrimento das demais, e não apenas a favor da riqueza desse grupo seleto, como também da destruição do mundo e da sociedade. A direita está em favor da completa desordem e da desolação do humano, em prol da loucura de um pequeno grupo de pessoas. A direita, por si só, é um grupo liderado pela loucura. A esquerda, por outro lado, não é apenas um grupo político, mas simboliza a normalidade, a política voltada para o humano e não para a loucura de poucos.
+
 § 44.20 – A branding pessoal dos milionários (NOVO)
 
 A branding pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico, vários conhecimentos são necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., formam uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
