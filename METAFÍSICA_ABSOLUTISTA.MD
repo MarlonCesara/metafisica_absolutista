@@ -5488,10 +5488,9 @@ Através da distorção de pensamentos normais que envolvam o senso de realidade
 
 § 44.20 – Os bilionários por usurpação da imagem alheia (NOVO)
 
-Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas onde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Cada passo é calculado.
+Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas onde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Se separam dos relacionamentos que o empresário sugerem separação. Fazem as modificações corporais que os empresários sugerem. Cada passo é calculado. 
 
 E quando saem da linha, precisam compensar criando algo “verdadeiramente artístico”, como se a autenticidade fosse uma moeda de troca dentro de um sistema altamente controlado. É curioso perceber que artistas com alcance gigantesco raramente usam esse poder para gerar um impacto real no mundo. Na prática, acabam impulsionando principalmente empresas bilionárias, especialmente da indústria da beleza, enquanto a promessa de influência positiva se dissolve no marketing.
-
 
 § 44.20 – A emergência de bilionários (NOVO)
 
