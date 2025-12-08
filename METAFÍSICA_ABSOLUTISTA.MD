@@ -5322,7 +5322,7 @@ O niilista queria saber:
 
 Neo sabia que essa resposta não podia ser simplesmente transmitida. Como ensinar alguém a amar? A ser grato pela vida?
 
-### **§ O CONVITE AO ABISMO**
+### **§ O CONVITE**
 
 Ele voltou-se para Morpheus, encontrando-o na sala de comando do Nabucodonosor, à sombra de telas que mostravam o fluxo interminável de dados da Matrix.
 
