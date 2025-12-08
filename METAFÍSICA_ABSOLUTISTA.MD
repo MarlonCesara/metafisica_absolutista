@@ -5497,18 +5497,18 @@ A destruição do mundo simbolizava, na Matrix, o apocalipse das ideias. Toda a 
 
 Porém, a verdade teve um preço: o indivíduo humano necessitou encarar a verdade, encarar sua liberdade e sua intenção, uma vez revelado seu potencial. Encarar tudo que sua liberdade lhe proporcionaria, as possibilidades que poderiam condená-lo ou salvá-lo. Os amores que poderiam ser sua queda ou seu consolo. Precisou encarar o infinito aval de possibilidades, que só era doce se seu coração fosse tranquilo, se pudesse olhar para a eternidade com um olhar manso e sereno.
 
-## Chamado do Neo pelas redes sociais:
+**CENA 6 – A vida do autor deste livro**
+
+Eu acordei com o choro da minha filha Ísis. Estava na hora de ir trabalhar. A última empresa em que trabalhei se chama NEO Business Consulting. Eu tomava uma pílula azul que se chama Concerta, para déficit de atenção. E hoje em dia já me livrei dessas pílulas. Eu sempre terminei o código mais rápido que os outros programadores. Sempre orei a Deus para que tudo ocorresse bem e que me livrasse de todo o mal. 
+
+> A humanidade se verá livre de toda a escravidão a partir do entendimento amplo da realidade. Se cada indivíduo entender ao menos razoavelmente o que é o niilismo, as pessoas irão parar de pensar que existe uma fórmula mágica para a riqueza, algo que faz com que a humanidade tente competir com os ricos ou tentar vencê-los pelo próprio capitalismo. Usando o próprio capitalismo não é possível competir com os ricos, pois as formas que eles usam são desonestas, o campo de ação de quem pratica atrocidades é maior, portanto, não se vencem os bilionários tentando competir em empreedimentos, mas identificando as técnicas irregulares que usam e tornando-as passíveis de punição. Também é necessário fazer imediata pressão popular para que entreguem suas fortunas, pois a fortuna, como já disse, nas mãos erradas é uma arma terrível.
+
+## Chamado de Neo pelas redes sociais:
 
 Finalmente decodifiquei a Matrix. Ela não extrai energia dos humanos — extrai informação. Não é um código sem propósito: há uma mente no centro de controle, e eu a chamo de O Niilista. Seu objetivo é encontrar o sentido da vida — um padrão de pensamento que o liberte do ódio absoluto que sente por tudo. Mas esse mesmo ódio será sua perdição quando morrer.
 
-Em minhas investigações metafísicas, descobri que após a morte existe o que chamo de relativo da alma: um domínio de infinitas possibilidades, onde tudo o que se decide se realiza instantaneamente — até mesmo a morte eterna. É isso que o Niilista teme... e por isso se torna tão ambicioso e desumano.
+Em minhas investigações metafísicas, descobri que após a morte existe o que chamo de relativo da alma: um domínio de infinitas possibilidades, onde tudo o que se decide se realiza instantaneamente — até mesmo a morte eterna. É isso que o Niilista teme... e por isso se torna tão ambicioso e desumano. Seu próprio ódio o enlouquece diante da liberdade. Ele tenta espelhar a vida que perderá em suas dominações e riquezas materiais.
 
-Seu próprio ódio o enlouquece diante da liberdade. Ele tenta espelhar a vida que perderá em suas dominações e riquezas materiais.
+A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global. Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
 
-A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global.
-
-Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
-
-Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada.
-
-A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
+Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
