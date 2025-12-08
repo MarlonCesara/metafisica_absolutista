@@ -5166,7 +5166,7 @@ Em uma eleição, por exemplo, não havendo como comprar votos ou manipular a so
 
 Ou até mesmo pode acolher estratégias que fogem do sentido psicológico e atuam numa camada estratégica, como a compra de políticos, ganho de incentivos fiscais, compra de grandes influenciadores, etc.
 
-§ 44.19 – O renascer do empreenderorismo (NOVO)
+### **§44.19 – O renascer do empreenderorismo (NOVO)**
 
 Com os partidos de direita fora do poder e o cidadão consciente de sua exploração, ocorre um fenômeno na classe média dos empresários: simplesmente o conceito de empresa se desfaz se não for exploração. O prática do velho empresarismo de ceder rios de dinheiro aos patrões se desfalece quando o cidadão se dá conta de que há um lucro exorbitante em cima de sua mão de obra.
 
@@ -5180,7 +5180,7 @@ Essas empresas colaborativas têm uma enorme vantagem no que tange a valores, po
 
 Isto remonta à queda não só das pequenas empresas que lucravam muito mais do que o merecido, mas das grandes também. Pois o cidadão comum encontra maneiras de driblar e substituir os grandes monopólios com ações privadas.
 
-§ 44.20 – A verdadeira necessidade do niilista (NOVO)
+### **§44.20 – A verdadeira necessidade do niilista (NOVO)**
 
 O niilista não precisa de milhões ou bilhões. Precisa ser lembrado do que realmente busca, do que realmente tem valor para ele. Precisa ser evangelizado. Não deve ser entregue na mão do niilista poder econômico, mas à palavra de Deus, à esperança para não precisar substituir aquilo que lhe é essencial por fortunas e ilusões. O niilista se ilude em meio a tanta potência que alcança, em meio ao poder, e se perde de si mesmo. Quem concedeu-lhe tanta glória não está a par de sua situação, não está realmente o enxergando. Não entende o que lhe dói nem sua loucura. O niilista deve ser compreendido e não enchido de poder. O niilista, se extremamente perspicaz e cheio de poder econômico, se torna não somente um assombro de si mesmo, mas o terror social. 
 
@@ -5188,7 +5188,7 @@ O niilista precisa da proteção de si mesmo, e a sociedade precisa se proteger 
 
 Quando empoderado, o próprio niilista se elimina da capacidade de recuperação, impedindo que a sociedade o alcance, destruindo o mundo, impedindo o progresso onde as pessoas poderiam o amparar, desvinculadas de preocupações materiais.
 
-§ 44.20 – A tentativa do niilista de destruir o paraíso (NOVO)
+### **§44.20 – A tentativa do niilista de destruir o paraíso (NOVO)**
 
 A tentativa de abalar o status quo do mundo, de produzir um anti-paraíso, é evidenciada na direita política, que não quer propriamente se elevar acima dos demais, mas também quer destruir a sociedade. Corromper o paraíso de que muitos participaram, mas o indivíduo quer renunciar. Os políticos, líderes, precisam sempre dizer o óbvio, precisam tentar explicar ao cidadão qual sua essência e sua vontade primordial pelo bem. Os discursos políticos, até o tempo em que este documento foi escrito, foram pautados por uma certa curiosidade, um certo absurdo de tentar entender porque algumas pessoas negam o próprio paraíso.
 
@@ -5200,7 +5200,7 @@ O discurso político visa tratar o humano como exercedor de seu instinto natural
 
 O niilista não quer ter seu choro apagado, não quer ter seu intento calado, não quer deixar a sociedade em paz, tem a mania de sempre querer ser lembrado, de tentar fazer o mundo se empatizar consigo, causando o estrago social que lembra a ideia do estrago que quer causar em si.
 
-§ 44.20 – O enrriquecimento rápido dos bilionários (NOVO)
+### **§44.20 – O enrriquecimento rápido dos bilionários (NOVO)**
 
 Não, os milionários e bilionários não precisam pensar demais, nem criar ideias geniais, nem passar noites em claro trabalhando. E isso não é um manual, tampouco algo que alguém deva imitar. Mas, uma vez revelado, esse segredo muda completamente nossa percepção da sociedade. Espalhe essa mensagem.
 
@@ -5224,17 +5224,17 @@ Ainda nos dias de hoje essa forma de enriquecimento rápido tenta emergir na soc
 
 Uma das formas de deter os bilionários é por pressão social, quando a sociedade se move em direção a requisitar dos mesmos que doem suas fortunas. Uma segunda solução é a atuação política, a taxação de impostos. Táticas mais assertivas e rápidas são a expropriação de mão de obra e de compra de produtos de empresas multimilionárias. Enfim, a sociedade necessita criar tática para exaurir a fortuna do bilionário, tirar dele seu poder social por meio de diversos recursos.
 
-§ 44.21 – A antiga visão popular da direita política (NOVO)
+### **§44.21 – A antiga visão popular da direita política (NOVO)**
 
 O povo via a direita como um partido progressista, um grupo de pessoas que apostavam no avanço empresarial como solução definitiva para os problemas sociais. Porém, a direita política não se mostrou eficaz; pelo contrário, provou estar a favor da riqueza de um grupo seleto em detrimento das demais, e não apenas a favor da riqueza desse grupo seleto, como também da destruição do mundo e da sociedade. A direita está em favor da completa desordem e da desolação do humano, em prol da loucura de um pequeno grupo de pessoas. A direita, por si só, é um grupo liderado pela loucura. A esquerda, por outro lado, não é apenas um grupo político, mas simboliza a normalidade, a política voltada para o humano e não para a loucura de poucos.
 
 Os bilionários não são um fenômeno natural como uma tempestade, mas algo permitido e consentido pela sociedade. Muitas pessoas enxergam isso como natural, uma livre competição que se sucedeu de tal forma que elevou o patrimônio do indivíduo, mas isto primeiramente foi consentido, e foi explorado e especulado. É entendível um indivíduo levantar alguns milhões por uma ideia inovadora, mas não é natural pensar em um ser humano que conserva uma fortuna equivalente à riqueza que o país produz num ano inteiro.
 
-§ 44.22 – A branding pessoal dos milionários (NOVO)
+### **§44.22 – A branding pessoal dos milionários (NOVO)**
 
 A branding pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico, vários conhecimentos são necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., formam uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
 
-§ 44.23 – A branding artificial (NOVO)
+### **§44.23 – A branding artificial (NOVO)**
 
 Elementos químicos como drogas dão maior poder de brand no sentido de que permitem à pessoa receber críticas, comentários, de diversos grupos. Drogas que amortizam os pensamentos, antidepressivos ou substâncias químicas que inibem o processo de reflexão e, por sua vez, é inibida da pessoa a dor emocional que palavras e comportamentos não assimilados lhe acarretam. Portanto, há medicações que dão uma brand artificial ao indivíduo.
 
@@ -5254,13 +5254,13 @@ O artista famoso ousou, em sua mentalidade, em ser livre e por isso inevitavelme
 
 Através dessas técnicas, bilionários alavancam artistas que servem como máscaras para seu produto, alavancam pessoas com uma capacidade artificial de promover suas marcas. Toda indústria fonográfica que promove artistas de sucesso, em quase maioria, produz esses artistas artificialmente. Tratam a voz, a aparência do artista, o psicológico e os receitam substâncias químicas para produzir indivíduos que incentivam o consumismo desenfreado, que servem de arquétipo para um modelo de beleza que exige dispendiosos gastos, elegem um padrão estético que favorece a indústria da beleza de uma forma covarde. Os bilionários não somente exploram mão de obra, mas usam de artistas para incentivar o constante consumo desproposital, um consumo que somente provoca lesões financieras nas pessoas sem realmente lhes ceder algum benefício.
 
-§ 44.24 – Os bilionários por usurpação da imagem alheia (NOVO)
+### **§44.24 – Os bilionários por usurpação da imagem alheia (NOVO)**
 
 Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas onde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Se separam dos relacionamentos que o empresário sugerem separação. Fazem as modificações corporais que os empresários sugerem. Cada passo é calculado. 
 
 E quando saem da linha, precisam compensar criando algo “verdadeiramente artístico”, como se a autenticidade fosse uma moeda de troca dentro de um sistema altamente controlado. É curioso perceber que artistas com alcance gigantesco raramente usam esse poder para gerar um impacto real no mundo. Na prática, acabam impulsionando principalmente empresas bilionárias, especialmente da indústria da beleza, enquanto a promessa de influência positiva se dissolve no marketing.
 
-§ 44.25 – A emergência de bilionários (NOVO)
+### **§44.25 – A emergência de bilionários (NOVO)**
 
 Quando qualquer projeto novo, que não tenha concorrência, se mostra no mercado, este ganha muito investimento por ser novo e muito lucro por não ter concorrência. Então o indivíduo que inventa algo novo sofre uma explosão de recursos financeiros ao conseguir embalar um grupo pequeno e seleto ou um grande grupo de pessoas com sua ideia. Ainda que não tenha exploração de mão de obra, o consumidor de seu produto se vê na necessidade urgente de adquiri-lo, e, por ser novidade ou às vezes não copiável, os preços podem ser elevados ao ponto de enriquecer o indivíduo.
 
@@ -5294,7 +5294,7 @@ A paz torna-se uma quimera distante, diante de experimentos horríveis como os d
 
 A Matrix é a previsão de uma Terceira Guerra Mundial, composta não de trincheiras, mas de torturas que ultrapassam a imaginação. São técnicas de devastação em massa renovadas, novas formas de mutilar o humano em busca de uma resposta — desta vez, por meio de métodos mais refinados e letais. Empresas como a Neuralink, livres de amarras éticas, promoverão testes em humanos, bebês de proveta e todo tipo de horror tecnológico, tudo para manter o status quo do terror.
 
-**CENA 1 – A DESCONEXÃO**
+### **§ A DESCONEXÃO**
 
 O ar nos servidores era frio e parado, cheirando a ozônio e pó de circuitos. Neo afastou-se do terminal principal, seus dedos deixando a superfície gelada do console. O ruído de fundo — um zumbido branco de dados fluindo — silenciou-se em sua mente não por um ato técnico, mas por um esforço de vontade. Ele não estava mais *dentro* do código; estava *além* dele. Desconectado dos computadores, sua percepção se expandiu. A Matrix, outrora uma teia complexa de luz verde e lógica implacável, agora lhe parecia um conjunto de padrões vazios, sem alma, um espelho quebrado refletindo uma realidade maior e mais assustadora que ele começava a enxergar.
 
@@ -5322,7 +5322,7 @@ O niilista queria saber:
 
 Neo sabia que essa resposta não podia ser simplesmente transmitida. Como ensinar alguém a amar? A ser grato pela vida?
 
-**CENA 2 – O CONVITE AO ABISMO**
+### **§ O CONVITE AO ABISMO**
 
 Ele voltou-se para Morpheus, encontrando-o na sala de comando do Nabucodonosor, à sombra de telas que mostravam o fluxo interminável de dados da Matrix.
 
@@ -5339,7 +5339,7 @@ Neo entregou-lhe um datapad, onde um único arquivo piscava.
 
 E começou a narrar, sua voz ecoando na sala metálica:
 
-**CENA 3 – A GÊNESE DA SOMBRA**
+### **§ A GÊNESE DA SOMBRA**
 
 Antes da construção da Matrix, partidos de direita ganharam força global. O povo, despreparado, desconhecia o niilismo e acreditava nas boas intenções de seus líderes da direita política. Isso fortaleceu os bilionários, que, nas sombras, assumiram o poder global — e a humanidade ainda não compreendia a natureza e a sintomática niilista, a doença da alma que os motivava.
 
@@ -5380,7 +5380,7 @@ A Matrix é a culminação do niilismo: o reflexo final de sua loucura. Uma tent
 
 Nos tempos atuais, observamos o surgimento de grupos minoritários de bilionários que concentram cada vez mais poder tecnológico. Empresas como a Neuralink, por exemplo, propõem a integração entre o cérebro humano e máquinas — uma invasão direta na última fronteira da liberdade humana: a mente. Paralelamente, esses mesmos grupos afirmam que, em breve, toda a mão de obra humana será substituída por robôs. A justificativa é o progresso… mas o progresso para quem? E a serviço de qual poder? A história já registrou, inúmeras vezes, o perigo de um poder tecnológico nas mãos erradas. Desde as primeiras armas, passando pela bomba atômica e pelas técnicas de vigilância em massa, ficou evidente que a tecnologia, quando controlada por poucos, gera dominação — não liberdade.
 
-**CENA 4 – O ENCONTRO NO CÉREBRO DO MUNDO**
+### **§ O ENCONTRO NO CÉREBRO DO MUNDO**
 
 A localização "Elysium Fields" levou-os a uma cidadela subterrânea, um santuário high-tech esculpido em rocha basáltica, longe dos olhos da Matrix. No centro, dentro de uma câmara criogênica adaptada, estava o que restava do líder. Não um homem, mas um **cérebro**, preservado em fluido nutritivo, conectado a uma teia de fibras ópticas que pulsava com luzes amarelas e vermelhas. Era o núcleo, a mente niilista.
 
@@ -5456,7 +5456,7 @@ Com voz firme, Neo pronunciou suas últimas palavras dentro da Matrix, um eco qu
 
 Do lado de fora, na escuridão do mundo real, as primeiras luzes de uma nova aurora começavam a raiar.
 
-**CENA 5 – O DESPERTAR DO PESADELO**
+### **§ O DESPERTAR DO PESADELO**
 
 O triunfo de Neo durou menos de um minuto.
 
@@ -5497,9 +5497,16 @@ A destruição do mundo simbolizava, na Matrix, o apocalipse das ideias. Toda a 
 
 Porém, a verdade teve um preço: o indivíduo humano necessitou encarar a verdade, encarar sua liberdade e sua intenção, uma vez revelado seu potencial. Encarar tudo que sua liberdade lhe proporcionaria, as possibilidades que poderiam condená-lo ou salvá-lo. Os amores que poderiam ser sua queda ou seu consolo. Precisou encarar o infinito aval de possibilidades, que só era doce se seu coração fosse tranquilo, se pudesse olhar para a eternidade com um olhar manso e sereno.
 
+A Matrix era um sonho, um devaneio projetado no inconsciente coletivo, devido a história do mundo ter se mostrado ruim no quesito de inovação, pois esta muitas vezes esteve no controle de uma elite que aterrorizou os povos. E o explodir do mundo é o apocalipse tardio, se tivesse ocorrido antes das dominações, tudo poderia ter sido diferente. Isto é, a ação era necessária antes de tudo. Depois de ocorrido, era necessário não mais apenas um homem comum, mas um semi-deus para resgatar a humanidade.
+Neo venceu a Matrix, mas era tarde. Ele gostaria de ter acordado daquele sonho, gostaria que alguém tivesse decifrado o código antes de tudo ocorrer.
+
+### **§ A PONTE**
+
+Ele acordou. Tomou uma pilula azul de Atentah, um rémedio para deficit de atenção. Sua filha estava chorando. Pegou o computador, e começou a trabalhar. A empresa se chamava Neo Businnes Consulting. Ele sempre era o melhor programador onde trabalhava... Gostava de ler sobre o Ser e o Nada. E, quando olhava para o horizonte, não enxergava o horizonte, enxergava o relativo. Ele escreveu muitos livros...e, jamais aconteceu nenhum tipo de dominação global pelas máquinas. Pois havia o completo entendimento do niilista e sua ação.
+
 > A humanidade se verá livre de toda a escravidão a partir do entendimento amplo da realidade. Se cada indivíduo entender ao menos razoavelmente o que é o niilismo, as pessoas pararão de pensar que existe uma fórmula mágica para a riqueza, algo que faz com que a humanidade tente competir com os ricos ou tentar vencê-los pelo próprio capitalismo. Usando o próprio capitalismo não é possível competir com os ricos, pois as formas que eles usam são desonestas, o campo de ação de quem pratica atrocidades é maior, portanto, não se vencem os bilionários tentando competir em empreedimentos, mas identificando as técnicas irregulares que usam e tornando-as passíveis de punição. Também é necessário fazer imediata pressão popular para que entreguem suas fortunas, pois a fortuna, como já disse, nas mãos erradas é uma arma terrível. Um entendimento do emocional de quem perde sua identidade e seu instinto de humanidade, a partir de uma ótica metafísica, é essencial para despertar no povo um norte para que intensifiquem as lutas sociais, uma vez que ganhem mais precisão. Pois, a partir do conhecimento, o opositor da paz é identificado e seu propósito revelado.
 
-## Chamado de Neo pelas redes sociais:
+### **§ O CHAMADO PELAS REDES SOCIAS**
 
 Finalmente decodifiquei a Matrix. Ela não extrai energia dos humanos — extrai informação. Não é um código sem propósito: há uma mente no centro de controle, e eu a chamo de O Niilista. Seu objetivo é encontrar o sentido da vida — um padrão de pensamento que o liberte do ódio absoluto que sente por tudo. Mas esse mesmo ódio será sua perdição quando morrer.
 
