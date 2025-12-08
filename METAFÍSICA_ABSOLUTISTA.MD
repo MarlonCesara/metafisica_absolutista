@@ -5512,26 +5512,3 @@ Lentamente, um monopólio tecnológico se formou. Trilionários passaram a contr
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada.
 
 A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
-
-Aqui está o texto **corrigido minimamente**, mantendo **todas as palavras originais** e **não alterando o estilo**, apenas ajustando ortografia, concordância e pequenos pontos de clareza **sem trocar palavras**:
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# Rascunhos
-
-
