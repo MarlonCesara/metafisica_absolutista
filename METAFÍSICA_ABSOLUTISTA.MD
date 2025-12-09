@@ -5300,6 +5300,18 @@ Em síntese, se o capitalismo é um jogo, os bilionários e seus antepassados, q
 
 E não basta somente popular partidos de esquerda de forma majoritária como líderes políticos, pois o poderio dos bilionários envolve ameaças a estes. E há, de fato, outras formas de violência. É necessário erradicar, de uma vez por todas, o poder de quem pode patrocinar, de uma forma marcante, a violência em diversos cenários sociais.
 
+### **§44.27 – O segredo dos bilionários (NOVO)**
+
+Para realmente fazer o primeiro bilhão, é necessário ter algumas características empreendedoras, certa inteligência, porém, ainda assim não é suficiente. É necessário recitar um mantra diversas vezes. E não é o mantra convencional de aceitar a fortuna. Mas é um mantra obscuro, um mantra que é a renúncia de qualquer esperança. É o mantra que abre a porta do inferno. 
+
+O niilista renuncia qualquer compaixão. Renuncia a visão de que o outro sofre, considera que não existe a alma. Renuncia qualquer valor. Renuncia qualquer crença. Renuncia qualquer fé. O niilista se pensa repetidamente como um animal na selva, dominador, assassino, tirano. Onde não há regras e há ignorância social a respeito do niilismo, há um campo grande de possibilidades para se ganhar dinheiro. Há crimes não passíveis de punição. O niilista se aproveita da ignorância popular a respeito de quem ele é e qual sua intenção. O niilista trabalha num âmbito invisível. Ninguém enxerga sua ação, sua motivação, sua técnica.
+
+O niilista urbano, longe ainda de ser um bilionário, começa no voto pela direita, tirando proveito da ignorância alheia, monta um empreendimento e se destaca por saber escravizar, por saber tirar vantagem. Quando bilionário, não necessita do voto próprio, mas necessita que as pessoas votem em seus candidatos. Então, de atuante no voto, passa a manipulador.
+
+O niilista aproveita a ação em grupo, pois o grupo tem o poder de abrir brechas sociais, como a fome, o desemprego. O voto na direita significa desvantagens para alguns, e o niilista aproveita dessa desvantagem. Se só houver vantagens e igualdade, niilistas emergentes não se aproveitam, mas ainda há os niilistas bilionários que se aproveitaram das fases em que a direita tinha atuação política. E estes vão tomar as providências para agir no que conseguirem tomar.
+
+O voto do esquerdista é intencional, ele tem a malícia de construir empreendimentos e se aproveitar da escravidão alheia. Ele sabe que, se apoiar a esquerda, isto não poderá ocorrer no futuro. O direitinha não é ignorante, ele possui uma índole de tentar dominar.
+
 ### **§44.28 O verdadeiro Neo**
 
 Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática niilista. Sobre a obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta. 
