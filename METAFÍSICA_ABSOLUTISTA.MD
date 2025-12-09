@@ -5298,6 +5298,8 @@ O povo tenta viver de forma a se pensar burro, ignorante, desprovido de intelect
 
 Em síntese, se o capitalismo é um jogo, os bilionários e seus antepassados, que lhes concederam heranças, não jogaram limpo. Por mais que sejam brilhantes os jogadores que jogam honestamente, quando as cartas são lançadas, sempre são lançadas erradas ou em desfavor, e a inteligência dos honestos não opera no que é jogo sujo. Só opera quando enxerga o jogo sujo.
 
+E não basta somente popular partidos de esquerda de forma majoritária como líderes políticos, pois o poderio dos bilionários envolve ameaças a estes. E há, de fato, outras formas de violência. É necessário erradicar, de uma vez por todas, o poder de quem pode patrocinar, de uma forma marcante, a violência em diversos cenários sociais.
+
 ### **§44.28 O verdadeiro Neo**
 
 Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática niilista. Sobre a obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta. 
