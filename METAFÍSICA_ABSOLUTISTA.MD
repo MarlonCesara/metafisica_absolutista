@@ -5296,26 +5296,21 @@ Em palavras mais claras, os bilionários são criminosos ou têm como herança o
 
 O povo tenta viver de forma a se pensar burro, ignorante, desprovido de intelecto, e pensa a riqueza ser de quem tem visão, de quem mereceu. Alguns no povo, aqueles que se esforçam incessantemente ou que têm até mesmo certo brilhantismo, se destacam e têm uma escravidão menos agressiva: podem viajar, comer bem, ter boa saúde, educação e até descanso; porém, o inimigo que assola a todos não deixa de os espreitar. No menor deslize, podem cair de novo na escravidão, como no caso de adoecerem e dependerem de um sistema de saúde ou de um auxílio que ainda não foi bem constituído socialmente. Viver desta forma não é viver, é ainda a escravidão moderna que não abandonou o homem, ainda com toda a tecnologia para tal, e ainda com tanta força popular para tal. O que realmente falta? O que falta é a tecnologia metafísica, é o entendimento acerca do que é o bilionário, de como as fortunas se formam.
 
-### **§ A SINTESE ENTRE FÉ E METAFÍSICA**
+Em síntese, se o capitalismo é um jogo, os bilionários e seus antepassados, que lhes concederam heranças, não jogaram limpo. Por mais que sejam brilhantes os jogadores que jogam honestamente, quando as cartas são lançadas, sempre são lançadas erradas ou em desfavor, e a inteligência dos honestos não opera no que é jogo sujo. Só opera quando enxerga o jogo sujo.
+
+### **§44.28 O verdadeiro Neo**
+
+Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática niilista. Sobre a obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta. 
+
+Há um despertar coletivo que carece de ser realizado. O Neo já veio, não é necessário outro, mas é necessária conscientização. É necessário o ser humano enxergar a realidade, para parar de preservar bilionários como algo normal. Talvez Jesus soubesse que, em algum momento, a humanidade pudesse despertar, mais cedo ou mais tarde. Poderia ser naquele tempo em que esteve de corpo presente no mundo, ou poderia ser em qualquer outro tempo. Mas um dia a humanidade despertaria. Jesus já mostrou ao homem qual é o verdadeiro jogo do negócio dos bilionários, já revelou, escancarou a verdade. Porém, a humanidade ouvia, mas ainda não entendia ou não queria ainda entender. 
+
+Conceitos como morte eterna e um aval infinito de possibilidades talvez fossem difíceis ainda de se digerir para a jovem humanidade. E a escravidão, como fuga, foi a melhor maneira de lidar com isso. Se evadir do verdadeiro conhecimento é estar sem defesas, estar alheio à existência do niilismo atuante na sociedade. Por vezes, seria melhor a escravidão do que aceitar a verdade? Talvez esse tenha sido o real significado da frase: "Conhecereis a verdade, e a verdade vos libertará".
+
+### **§44.27 A sintese entre fé e metafísica**
 
 O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível, portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
 
 Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realidade difícil de digerir não faz com que a salvação aconteça; o medo não leva ao amor. O discurso de Jesus não é metafísico, é amoroso. Preocupa-se em oferecer o melhor, a visão mais otimista e realmente livre: a liberdade acontece quando gera necessariamente para a vida. A verdadeira liberdade não acontece quando o ser humano é lançado ao seu próprio querer somente.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -5547,11 +5542,7 @@ Neo venceu a Matrix, mas era tarde. Ele gostaria de ter acordado daquele sonho, 
 
 Ele acordou. Tomou uma pílula azul de Atentah, um remédio para déficit de atenção. Sua filha estava chorando. Pegou o computador para trabalhar. Já eram oito horas da manhã. A empresa se chamava Neo Business Consulting. Ele sempre era o melhor programador onde trabalhava... Gostava de ler sobre o Ser e o Nada. E, quando olhava para o horizonte, não enxergava o horizonte, enxergava o relativo. Ele costumava ir à igreja todos os domingos e lia constantemente a Bíblia. Era uma pessoa espiritualizada. Ele escreveu muitos livros... e jamais aconteceu nenhum tipo de dominação global pelas máquinas. Pois havia o completo entendimento do niilista e sua ação. Não era um deus, era um homem comum que contribuiu para o avanço filosófico de forma a complementar e sintetizar todo o pensamento filosófico já construído pela humanidade em um só documento. E o fez com a ajuda de Deus, pois foi um milagre conseguir olhar de uma forma tão abrangente, sempre foi Deus quem lhe inspirou. Os acontecimentos de seu dia a dia lhe mostravam o que deveria escrever. Era Deus lhe guiando passo a passo em suas descobertas. Com a ajuda de Deus, ele também se livrou das pílulas azuis, pois desenvolveu uma certa dependência química em razão de uma grande depressão que sofreu, e que lhe prejudicava o aprendizado. A mulher dele também tinha problemas com remédios, teve um vício em ansiolíticos, ambos se ajudaram a se libertar. Ambos acordaram de um sono, de um mundo em que eram escravos. Ela também ajudou na construção de seus textos. Seus dois filhos foram, também, parte essencial desse processo, pois precisaram melhorar para cuidar deles.
 
-### **§ O verdadeiro NEO**
 
-Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática niilista. A obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta. Então, sim, há um despertar coletivo que carece de ser realizado. O Neo já veio, não é necessário outro, mas é necessária conscientização. É necessário o ser humano enxergar a realidade, para parar de preservar bilionários como algo normal. Talvez Jesus soubesse que, em algum momento, a humanidade pudesse despertar, mais cedo ou mais tarde. Poderia ser naquele tempo em que esteve de corpo presente no mundo, ou poderia ser em qualquer outro tempo. Mas um dia a humanidade despertaria. Jesus já mostrou ao homem qual é o verdadeiro jogo do negócio dos bilionários, já revelou, escancarou a verdade. Porém, a humanidade ouvia, mas ainda não entendia ou não queria ainda entender. 
-
-Conceitos como morte eterna e um aval infinito de possibilidades talvez fossem difíceis ainda de se digerir para a jovem humanidade. E a escravidão, como fuga, foi a melhor maneira de lidar com isso. Se evadir do verdadeiro conhecimento é estar sem defesas, estar alheio à existência do niilismo atuante na sociedade. Por vezes, seria melhor a escravidão do que aceitar a verdade? Talvez esse tenha sido o real significado da frase: "Conhecereis a verdade, e a verdade vos libertará".
 
 ### **§ O chamado pelas redes sociais**
 
