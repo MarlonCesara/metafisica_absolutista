@@ -5314,7 +5314,17 @@ Um fenômeno curioso é quando um herdeiro ganha fortunas de seus antepassados, 
 
 A chave para a libertação da escravidão moderna é entender como funciona a mentalidade do escravista, e isto, por vezes, nem mesmo os herdeiros dos bilionários conseguem compreender. Dizem que ganhar dinheiro parece fácil para as pessoas das quais herdaram, mas o difícil é entender a mentalidade que enxerga que ganhar dinheiro é fácil, e essa mentalidade é o niilismo, o qual, muitas vezes, oculta suas ações. Se vê na superfície o bilionário em seu requinte, mas suas ações por trás da fortuna não são vistas, nem ações modernas nem históricas. Então, pela ótica deste documento, é fácil compreender por que foi "fácil" construir os bilhões, enquanto uma multidão julga complexa a cabeça do bilionário, ele usa do sarcasmo pelas pessoas não entenderem o que é muito simples: ele é um niilista.
 
-### **§44.28 O verdadeiro Neo**
+§44.28 – A nova sociedade (NOVO)
+
+Após a libertação da escravidão, a falência dos milionários e o cessar do pagamento a grandes dívidas inventadas na história pelos países, haverá um problema estrutural: empresas e produções voltadas para bens de consumo inúteis, tecnologias inúteis à sobrevivência, tais como produção de carros de luxo, de artigos que somente bilionários aproveitam. Armas bélicas, iates, etc. Há toda uma indústria do luxo que não prioriza em nada as necessidades mais básicas populares. Se houver toda força aplicada em construir tecnologias inúteis, o mundo continua na pobreza, uma vez que a produção é voltada para artigos fúteis, artigos que quebram rápido, artigos que poluem o meio ambiente e custam caro para ser descartados e reciclados.
+
+O que deve haver é um foco em tecnologias sociais, como ceder terras gratuitas para a população; a produtividade, por lei, deve ser voltada a produtos que duram e que não poluem o ambiente se descartados. Enfim, não é suficiente acabar com todos os bilionários, mas é preciso desfazer esse modelo de construção social voltado para a competição e para a indústria do luxo, e voltá-lo para o benefício da população e da natureza.
+
+É preciso criar leis que proíbam a poluição, ao passo que reformar toda produção de insumos de uma forma benéfica à natureza, eliminando toda produção de artigos inúteis e poluentes, tais como artigos de luxo. Cortar a produção de plástico. E até de artigos que em nada entretêm e só estragam rapidamente, como brinquedos de plástico ou todos os artigos de plástico que são feitos para o descarte proposital e para uma nova compra rápida.
+
+Tudo deve ser produzido com materiais resistentes para longa duração, e todos os produtos pensados da forma mais inteligente possível em durabilidade, preservação e até em seu descarte.
+
+### **§44.29 O verdadeiro Neo**
 
 Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática niilista. Sobre a obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta. 
 
@@ -5324,7 +5334,7 @@ Conceitos como morte eterna e um aval infinito de possibilidades talvez fossem d
 
 A verdade seria mais pesada do que o jugo da escravidão? Um olhar infantil para a eternidade seria melhor do que um olhar maduro? A humanidade ainda não está pronta para visualizar a verdadeira intenção dos bilionários? Não quer acordar de um sono no qual é confortável uma visão limitante da realidade?
 
-### **§44.27 A sintese entre fé e metafísica**
+### **§44.30 A sintese entre fé e metafísica**
 
 O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível, portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
 
