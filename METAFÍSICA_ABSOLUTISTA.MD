@@ -5312,10 +5312,6 @@ O Absoluto não necessariamente pode ser representado pela razão; a forma com q
 
 Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realidade difícil de digerir não faz com que a salvação aconteça; o medo não leva ao amor. O discurso de Jesus não é metafísico, é amoroso. Preocupa-se em oferecer o melhor, a visão mais otimista e realmente livre: a liberdade acontece quando gera necessariamente para a vida. A verdadeira liberdade não acontece quando o ser humano é lançado ao seu próprio querer somente.
 
-
-
-
-
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
 Num cenário pós-apocalíptico, uma nova crença se ergue: a de um ser humano capaz de compreender todo o sistema e dominar as máquinas a ponto de aliviar o sofrimento de milhões de pessoas conectadas a ele. O desejo humano pelo paraíso na Terra, pela paz absoluta, chegou ao extremo de atribuir a esse homem poderes sobre-humanos, transformando-o em uma singularidade — uma entidade que transcende os limites da própria humanidade. Assim nasce a figura de Neo, um heroi moderno. No mundo pós-apocalíptico que se segue, manifesta-se a grande ilusão: a espera por uma libertação. O mecanismo político e tecnológico que se sucedeu estava tão proliferado que se tornou complexo de ser driblado depois de estabelecido, e por isso Neo precisou ser criado com capacidades quase sobre-humanas. 
@@ -5541,8 +5537,6 @@ Neo venceu a Matrix, mas era tarde. Ele gostaria de ter acordado daquele sonho, 
 ### **§ A ponte**
 
 Ele acordou. Tomou uma pílula azul de Atentah, um remédio para déficit de atenção. Sua filha estava chorando. Pegou o computador para trabalhar. Já eram oito horas da manhã. A empresa se chamava Neo Business Consulting. Ele sempre era o melhor programador onde trabalhava... Gostava de ler sobre o Ser e o Nada. E, quando olhava para o horizonte, não enxergava o horizonte, enxergava o relativo. Ele costumava ir à igreja todos os domingos e lia constantemente a Bíblia. Era uma pessoa espiritualizada. Ele escreveu muitos livros... e jamais aconteceu nenhum tipo de dominação global pelas máquinas. Pois havia o completo entendimento do niilista e sua ação. Não era um deus, era um homem comum que contribuiu para o avanço filosófico de forma a complementar e sintetizar todo o pensamento filosófico já construído pela humanidade em um só documento. E o fez com a ajuda de Deus, pois foi um milagre conseguir olhar de uma forma tão abrangente, sempre foi Deus quem lhe inspirou. Os acontecimentos de seu dia a dia lhe mostravam o que deveria escrever. Era Deus lhe guiando passo a passo em suas descobertas. Com a ajuda de Deus, ele também se livrou das pílulas azuis, pois desenvolveu uma certa dependência química em razão de uma grande depressão que sofreu, e que lhe prejudicava o aprendizado. A mulher dele também tinha problemas com remédios, teve um vício em ansiolíticos, ambos se ajudaram a se libertar. Ambos acordaram de um sono, de um mundo em que eram escravos. Ela também ajudou na construção de seus textos. Seus dois filhos foram, também, parte essencial desse processo, pois precisaram melhorar para cuidar deles.
-
-
 
 ### **§ O chamado pelas redes sociais**
 
