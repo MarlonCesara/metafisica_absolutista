@@ -5322,7 +5322,9 @@ O que deve haver é um foco em tecnologias sociais, como ceder terras gratuitas 
 
 É preciso criar leis que proíbam a poluição, ao passo que reformar toda produção de insumos de uma forma benéfica à natureza, eliminando toda produção de artigos inúteis e poluentes, tais como artigos de luxo. Cortar a produção de plástico. E até de artigos que em nada entretêm e só estragam rapidamente, como brinquedos de plástico ou todos os artigos de plástico que são feitos para o descarte proposital e para uma nova compra rápida.
 
-Tudo deve ser produzido com materiais resistentes para longa duração, e todos os produtos pensados da forma mais inteligente possível em durabilidade, preservação e até em seu descarte.
+Tudo deve ser produzido com materiais resistentes para longa duração, e todos os produtos pensados da forma mais inteligente possível em durabilidade, preservação e até em seu descarte. A produção deve ser voltada para os bens e insumos mais essenciais, primeiramente, e, quando houver super hávit destes, pode-se produzir objetos para fins de entretenimento.
+
+Ao imaginarmos que temos cem trabalhadores, se noventa e nove deles produzir coisas fúteis, tecnologia ainda não necessária, e somente um deles produzir alimentos, temos novamente a miséria. Então, a miséria não é só falta de recursos financeiros, mas possui relação íntima com a estrutura tecnológica e de fabricação de insumos. Toda a energia social deve estar voltada às necessidades mais urgentes, para, somente depois de todas as necessidades urgentes humanas serem sanadas, se focar em outros tipos de produção menos essenciais.
 
 ### **§44.29 O verdadeiro Neo**
 
