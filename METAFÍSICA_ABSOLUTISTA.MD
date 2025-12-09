@@ -5296,6 +5296,31 @@ Em palavras mais claras, os bilionários são criminosos ou têm como herança o
 
 O povo tenta viver de forma a se pensar burro, ignorante, desprovido de intelecto, e pensa a riqueza ser de quem tem visão, de quem mereceu. Alguns no povo, aqueles que se esforçam incessantemente ou que têm até mesmo certo brilhantismo, se destacam e têm uma escravidão menos agressiva: podem viajar, comer bem, ter boa saúde, educação e até descanso; porém, o inimigo que assola a todos não deixa de os espreitar. No menor deslize, podem cair de novo na escravidão, como no caso de adoecerem e dependerem de um sistema de saúde ou de um auxílio que ainda não foi bem constituído socialmente. Viver desta forma não é viver, é ainda a escravidão moderna que não abandonou o homem, ainda com toda a tecnologia para tal, e ainda com tanta força popular para tal. O que realmente falta? O que falta é a tecnologia metafísica, é o entendimento acerca do que é o bilionário, de como as fortunas se formam.
 
+### **§ A SINTESE ENTRE FÉ E METAFÍSICA**
+
+O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível, portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
+
+Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realidade difícil de digerir não faz com que a salvação aconteça; o medo não leva ao amor. O discurso de Jesus não é metafísico, é amoroso. Preocupa-se em oferecer o melhor, a visão mais otimista e realmente livre: a liberdade acontece quando gera necessariamente para a vida. A verdadeira liberdade não acontece quando o ser humano é lançado ao seu próprio querer somente.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
 Num cenário pós-apocalíptico, uma nova crença se ergue: a de um ser humano capaz de compreender todo o sistema e dominar as máquinas a ponto de aliviar o sofrimento de milhões de pessoas conectadas a ele. O desejo humano pelo paraíso na Terra, pela paz absoluta, chegou ao extremo de atribuir a esse homem poderes sobre-humanos, transformando-o em uma singularidade — uma entidade que transcende os limites da própria humanidade. Assim nasce a figura de Neo, um heroi moderno. No mundo pós-apocalíptico que se segue, manifesta-se a grande ilusão: a espera por uma libertação. O mecanismo político e tecnológico que se sucedeu estava tão proliferado que se tornou complexo de ser driblado depois de estabelecido, e por isso Neo precisou ser criado com capacidades quase sobre-humanas. 
@@ -5531,12 +5556,3 @@ Em minhas investigações metafísicas, descobri que após a morte existe o que 
 A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global. Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
-
-### **§ A SINTESE ENTRE FÉ E METAFÍSICA**
-
-O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível, portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
-
-Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realidade difícil de digerir não faz com que a salvação aconteça; o medo não leva ao amor. O discurso de Jesus não é metafísico, é amoroso. Preocupa-se em oferecer o melhor, a visão mais otimista e realmente livre: a liberdade acontece quando gera necessariamente para a vida. A verdadeira liberdade não acontece quando o ser humano é lançado ao seu próprio querer somente.
-
-
-
