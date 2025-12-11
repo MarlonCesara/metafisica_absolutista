@@ -5588,3 +5588,8 @@ Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um cent
 
 
 
+
+
+## Rascunhos
+
+- As almas do purgatório conservam um certo ódio, obsessões, perseguições, desejo de punir e até um estilo de vida imprudente. Porém, se diferem muito das almas mais aflingindas pelo ódio, essas tem um comportamento mais frio, mais direcionado ao auto esquecimento, não conservam nenhum tipo de caridade, essas tem um nível de empatia extremamente mais diminuido, um nível de vicios muito alto. Tem sintomas evidentes.
