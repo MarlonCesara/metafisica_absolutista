@@ -3201,6 +3201,8 @@ O filósofo os observava com compaixão silenciosa. Aproximou-se de um deles, es
 E então ele entendeu:
 Aqueles homens estavam presos na sombra do paraíso — não no paraíso em si. Viviam num reflexo pálido, numa recordação fragmentada de algo sagrado, mas inalcançável para quem já não sente. O barro nos olhos não era barro comum — era o esquecimento da essência, o peso das formas sem espírito. Eles haviam se fechado à transparência do mundo, à música do vento, ao canto das coisas vivas. Eles estavam ali, mas não estavam realmente ali. E o sábio, mesmo entre eles, caminhava sozinho — uma alegoria do estado das almas no purgatório, que já estão salvas mas não ainda plenamente purificadas (cf. CIC §1030-1032).
 
+> As almas do purgatório conservam um certo ódio, obsessões, perseguições, desejo de punir e até um estilo de vida imprudente. Porém, se diferem muito das almas mais afligidas pelo ódio, essas têm um comportamento mais frio, mais direcionado ao autoesquecimento, não conservam nenhum tipo de caridade, essas têm um nível de empatia extremamente mais diminuído, um nível de vícios muito alto. Têm sintomas evidentes.
+
 Os pequenos homens de argila moviam-se em padrões circulares, emitindo murmúrios que ecoavam como preces esquecidas. Seus passos marcavam a areia luminosa com sulcos que se apagavam logo em seguida, como se o próprio solo se recusasse a guardar memória de seu trânsito. Seus rostos, esculpidos em expressões perenes de angústia, contemplavam um horizonte invisível - um tempo que fluía sem direção, uma eternidade que não conseguiam habitar plenamente.
 
 O filósofo observou que seus olhos, embora abertos, pareciam velados por um véu de esquecimento. Eles sabiam que existiam, mas haviam perdido a conexão com o onde e o quando de sua existência. Cada movimento carregava o peso de uma dúvida primordial, como crianças perdidas num bosque infinito que temem cada sombra porque esqueceram como enxergar a luz — uma imagem da *ignorância* resultante do pecado original.
@@ -5585,11 +5587,3 @@ Em minhas investigações metafísicas, descobri que após a morte existe o que 
 A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global. Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
-
-
-
-
-
-## Rascunhos
-
-- As almas do purgatório conservam um certo ódio, obsessões, perseguições, desejo de punir e até um estilo de vida imprudente. Porém, se diferem muito das almas mais aflingindas pelo ódio, essas tem um comportamento mais frio, mais direcionado ao auto esquecimento, não conservam nenhum tipo de caridade, essas tem um nível de empatia extremamente mais diminuido, um nível de vicios muito alto. Tem sintomas evidentes.
