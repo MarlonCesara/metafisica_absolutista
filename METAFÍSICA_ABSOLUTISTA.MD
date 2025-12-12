@@ -5591,3 +5591,18 @@ Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um cent
 ## Rascunho
 
 Os políticos têm branding, os artistas, e muitos CEOs também o têm. Porém, há aqueles que se utilizam da branding, do ideal que algumas pessoas conseguem passar, e ficam de rapina como investidores ocultos, enquanto o verdadeiro CEO faz todo o trabalho de comoção popular, de conquista de novos clientes, de comerciais, etc. A empresa cresce em cima da branding pessoal de alguém que pensou numa ideia e atraiu pessoas para essa ideia. Porém, quando essa ideia se formaliza, os acumuladores de fortunas herdadas dos antepassados devido à escravidão, investem nessas ideias. Correm às pressas para aproveitar e ter controle. O dinheiro, portanto, que o CEO levantou não foi diretamente do público, mas o crescimento da empresa do CEO é interceptado por acionistas de rapina. E dessa forma alguém com dinheiro acumulado o multiplica sem ao menos precisar ter branding ou alguma ideia. Ou até mesmo aparecer na mídia ou na internet. Basta ter uma fortuna acumulada e oferecê-la à ideia que está crescendo.
+
+Nas médias e pequenas empresas também acontece de o dono usar até clientes e, principalmente, funcionários para suprir a coragem que não desenvolveu, o carisma e a necessidade de liderança que não possui. É uma forma de ganhar dinheiro sem o próprio esforço, sem construir a própria identidade. E esses funcionários ficam sobrecarregados, vendo-se na necessidade de criar a identidade da empresa ao mesmo tempo em que trabalham nela. São usurpadores de autoimagem, de estima e de poder emocional.
+
+
+## A guerra
+
+A guerra é usada como um teatro. Não há necessidade alguma de guerra. E, por vezes, nem mesmo para interesses econômicos diretos, como a obtenção de territórios — que, na verdade, funciona apenas como desculpa para manter o conflito. O único e exclusivo motivo claro é o teatro do terror: o distrator absoluto e mais eficaz, o abominável que espalha no ar a visão do absurdo, a ponto de retirar dos olhos do homem os absurdos menores da desigualdade social, disfarçados de um suposto merecimento.
+
+Para que exista esse teatro, é preciso primeiro haver pessoas embrutecidas pela baixa qualidade da alimentação, por ideias inventadas para elas, por medos infiltrados em suas vidas e, principalmente, por mecanismos capazes de atrair o niilista — aquele com potencial destrutivo. Há técnicas para atrair esse tipo de pessoa, como fazem em Gaza, ou simplesmente pagam bem por isso.
+
+
+
+
+
+
