@@ -5601,8 +5601,6 @@ A guerra é usada como um teatro. Não há necessidade alguma de guerra. E, por 
 
 Para que exista esse teatro, é preciso primeiro haver pessoas embrutecidas pela baixa qualidade da alimentação, por ideias inventadas para elas, por medos infiltrados em suas vidas e, principalmente, por mecanismos capazes de atrair o niilista — aquele com potencial destrutivo. Há técnicas para atrair esse tipo de pessoa, como fazem em Gaza, ou simplesmente pagam bem por isso.
 
-
-
-
+Na guerra, o niilista acha sua via máxima de expressão, um ambiente onde pode matar e não ser punido. Uma justificativa esdrúxula que lhe dá aval para mostrar seu potencial, para tentar ridicularizar o estado alheio do mundo enquanto toma a decisão mais inaceitável para si mesmo. O niilista que mata e tortura é um niilista que não somente luta contra seu próprio niilismo, mas quer protestar contra a aceitação social do niilista. Quer despojar nas pessoas a culpa por sua intenção para consigo mesmo; quer depositar nelas a responsabilidade por não terem feito algo por ele, porém não quer assumir a culpa de ter tomado tal decisão sozinho. Quer jogar na sociedade o peso de sua decisão. O niilista até mesmo se tatua como forma de expressar a diferença social; os símbolos que tatua o ridicularizam, o desenham como uma alma perdida. Sente-se ridículo por sua decisão frente à normalidade. Enquanto todas as pessoas querem um destino bom, o niilista vê a si mesmo fechado em si.
 
 
