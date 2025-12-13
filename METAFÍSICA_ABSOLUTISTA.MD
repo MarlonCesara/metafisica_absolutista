@@ -3106,7 +3106,9 @@ O filósofo desejou um mundo parecido com o anterior, mas com total certeza de q
 
 Da mesma forma, se a alma se autoanulasse, o fogo que a consumia era visível, pois também não seria a intimidade da alma; o fogo não é a alma, pois a alma se consome. E, por isto, as almas que eram destinadas ao inferno não tinham um brilho natural e cheio de encanto, mas tinham um fogo incessante. Um consumir que se dava para o vazio. O ato de desejar se consumir envolvia o ato do “quem” da consumição, e o quem, para a alma destinada ao inferno, era o corpo antigo. Era quem ela foi. 
 
-Somente a graça de Deus poderia convencer a alma a não se findar; somente Deus teria a chave para destrancar um coração sem amor. Qualquer centelha de amor livraria a alma da danação: uma mínima fagulha, qualquer sinal de amor. Qualquer fragrância de amor na alma já elimina toda possibilidade de danação. Para quem possui o amor, a perdição é impossível.
+Somente a graça de Deus poderia convencer a alma a não se findar; somente Deus teria a chave para destrancar um coração sem amor. Qualquer centelha de amor livraria a alma da danação: uma mínima fagulha, qualquer sinal de amor. Qualquer fragrância de amor na alma já elimina toda possibilidade de danação. Para quem possui o amor, a perdição é impossível. 
+
+> No reino dos céus, todas as almas brilham, ainda que com um brilho pequeno, pois todo brilho, por menor que seja, livra e apaga completamente qualquer escuridão. Todo aquele que ama a vida ama a Deus e faz a vontade de Deus, que é que todos tenham vida em abundância.
 
 > O desígnio natural do homem é a glorificação, não por imposição, mas porque é harmonica ao desejo mais profundo da alma.
 
