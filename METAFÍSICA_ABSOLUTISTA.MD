@@ -5600,3 +5600,33 @@ Em minhas investigações metafísicas, descobri que após a morte existe o que 
 A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global. Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
+
+## Rascunho
+
+
+===
+O filósofo desejou um mundo parecido com o anterior, mas com total certeza de que a morte não existiria. Então, neste novo mundo, a alma ainda não poderia ser visível, pois isto revelaria a intimidade de cada indivíduo, mas o brilho da alma poderia ser visível, pois o brilho vem de Deus. Da mesma forma, a total falta de brilho também era visível. Portanto, era como um corpo glorioso, cheio de brilho.
+
+Da mesma forma, se a alma se autoanulasse, o fogo que a consumia era visível, pois também não seria a intimidade da alma; o fogo não é a alma, pois a alma se consome. E, por isto, as almas que eram destinadas ao inferno não tinham um brilho natural e cheio de encanto, mas tinham como fogo de sombras, um fogo obscuro, como uma chama negra. Pois é um consumir que se dava para o vazio. O ato de desejar se consumir envolvia o ato do “quem” da consumição, e o quem, para a alma destinada ao inferno, era o corpo antigo. Era quem ela foi.
+
+Somente a graça de Deus poderia convencer a alma a não se findar, somente Deus poderia ter a chave para destrancar um coração tão sem amor. Qualquer centelha de amor livraria a alma da danação. Uma minima fagulha, qualquer sinal de amor.
+
+===
+O indivíduo niilista tem plena consciência do fato, e o seu intuito tem como resposta uma grave sintomática em seu comportamento social. Isso deixa evidente o teor de sua inclinação. Se é verdadeira a sintomática, então é evidente seu intuito autoexcludente.
+
+O niilista antecipa até mesmo a saudade de si mesmo, e antecipa seu autoabandono fazendo personagens para conviver no dia a dia. Na sua convivência cotidiana, costuma incorporar personagens, pois já antecipa para si a perda de sua identidade. Incorpora trejeitos que não são seus, demonstrando a autoperda.
+
+O convívio do niilista com quem lhe aparenta tranquilidade é conflituoso, marcado por grande competição, por querer que o outro tenha menos, por tentar transmitir ao outro o que sente a todo custo. Pois o enfrentamento com o outro em um estado de tranquilidade dá ao niilista um enorme desespero, revolta e discordância com seu próprio propósito.
+
+O estado de autoluto de si mesmo faz o niilista supor que as pessoas devam compreendê-lo e respeitá-lo. Quando amizades se aproximam, notícias boas, qualquer coisa que lembre o niilista do valor de viver, ele se irrita profundamente e tenta afastar de si tais ideias, pois quer defender seu propósito autoexcludente. A convivência com o niilista se torna angustiante, pois o niilista exige muito “respeito” ao seu luto, pois conservar tal decisão é, ao mesmo tempo, conseguir conviver e tentar ser uma pessoa normal, o que gasta grande energia mental.
+
+===
+
+
+
+
+
+
+
+
+
