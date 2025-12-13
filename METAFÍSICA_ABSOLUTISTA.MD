@@ -4126,6 +4126,10 @@ Na tentativa de compensar sua fragilidade interior, o niilista incorpora persona
 
 Os niilistas medem seu valor exclusivamente por meio de posses, cargos, status e posição social. Para eles, o valor individual é puramente objetal, subordinado a uma hierarquia material. Conceitos como "pequeno" ou "grande" aplicam-se à pessoa apenas em relação a elementos tangíveis. Desse modo, projetam sua alma evanescente na matéria, atribuindo a bens e posições a ilusão de uma grandeza que lhes falta internamente.
 
+### **A mudança na sintomática do niilismo (NOVO)**
+
+O niilista, ao perceber que deseja um convívio social considerado normal, tenta de todas as formas suprimir seus sintomas; contudo, eles não desaparecem, apenas são reprimidos e acabam se manifestando sob outras formas ou aparências distintas, como a obsessão por dinheiro, os xingamentos constantes e a projeção de conflitos interiores, o uso de substâncias químicas ou mesmo a crueldade, pois o corpo não é capaz de suportar por muito tempo a opressão de uma alma niilista, não havendo controle real sobre esses sintomas, já que o corpo, em última instância, não consegue se adaptar a essa condição.
+
 #### **34.6 – A Competição como Compensação de um Vazio Existencial**
 
 Movidos por um profundo sentimento de inferioridade, os niilistas são dominados por uma compulsão competitiva. A baixa autoestima, arraigada em sua realidade interior, gera uma frustração perene e uma sensação constante de fracasso. O niilista se percebe como ignorante, absurdamente incapaz devido à sua posição existencial. Ele se sente pertencente a uma subcategoria humana, um tipo tão medíocre que sequer conseguiu aprender a apreciar a vida. Consequentemente, adota um comportamento obsessivo e competitivo, não hesitando em recorrer a qualquer meio — de fraudes e exploração alheia à autoflagelação física — para obter vantagem financeira e social. No fundo, anseia por uma validação interior que se recusa a construir por vias genuínas. Sentindo-se um fracasso, empenha-se incansavelmente para estar à frente, ocupar cargos de liderança e alcançar patamares materiais superiores, numa busca desesperada por reconhecimento externo que compense a imensurável invalidação que impôs a si mesmo — uma manifestação clara da *superbia* (orgulho), tradicionalmente entendida como o princípio de todo pecado (Eclo 10,15).
@@ -5596,18 +5600,6 @@ Porém, a verdade teve um preço: o indivíduo humano necessitou encarar a verda
 A Matrix era um sonho, um devaneio projetado no inconsciente coletivo, devido a história do mundo ter se mostrado ruim no quesito de inovação, pois esta muitas vezes esteve no controle de uma elite que aterrorizou os povos. E o explodir do mundo é o apocalipse tardio, se tivesse ocorrido antes das dominações, tudo poderia ter sido diferente. Isto é, a ação era necessária antes de tudo. Depois de ocorrido, era necessário não mais apenas um homem comum, mas um semi-deus para resgatar a humanidade.
 Neo venceu a Matrix, mas era tarde. Ele gostaria de ter acordado daquele sonho, gostaria que alguém tivesse decifrado o código antes de tudo ocorrer.
 
-### **Um simples programador**
-
-Ele acordou. Tomou uma pílula azul de Atentah, um remédio para déficit de atenção. Sua filha estava chorando. Pegou o computador para trabalhar. Já eram oito horas da manhã. A empresa se chamava Neo Business Consulting. Ele sempre era o melhor programador onde trabalhava... Gostava de ler sobre o Ser e o Nada. E, quando olhava para o horizonte, não enxergava o horizonte, enxergava o relativo. Ele costumava ir à igreja todos os domingos e lia constantemente a Bíblia. Era uma pessoa espiritualizada. Ele escreveu muitos livros... e jamais aconteceu nenhum tipo de dominação global pelas máquinas. Pois havia o completo entendimento do niilista e sua ação. 
-
-Não era um deus, era um homem comum que contribuiu para o avanço filosófico de forma a complementar e sintetizar todo o pensamento filosófico já construído pela humanidade em um só documento. E o fez com a ajuda de Deus, pois foi um milagre conseguir olhar de uma forma tão abrangente, sempre foi Deus quem lhe inspirou. Os acontecimentos de seu dia a dia lhe mostravam o que deveria escrever. Era Deus lhe guiando passo a passo em suas descobertas. 
-
-Com a ajuda de Deus, ele também se livrou das pílulas azuis, pois desenvolveu uma certa dependência química em razão de uma grande depressão que sofreu, e que lhe prejudicava o aprendizado. A mulher dele também tinha problemas com remédios, teve um vício em ansiolíticos, ambos se ajudaram a se libertar. Ambos acordaram de um sono, de um mundo em que eram escravos. Ela também ajudou na construção de seus textos. Seus dois filhos foram, também, parte essencial desse processo, pois precisaram melhorar para cuidar deles.
-
-Ele não foi o Neo. Mas foi um dos primeiros a despertar. Um dos primeiros a tentar enxergar com coragem o real significado das palavras de Jesus. Foi um dos primeiros, se não o primeiro, a conseguir digerir a realidade. Um dos primeiros a encarar o desconhecido, a mergulhar nas profundezas do saber. Antes dele, outros tentaram ir longe, porém não viveram tempo o suficiente para fazê-lo.
-
-E foi da vontade de Deus que este conhecimento veio à tona antes de uma nova guerra eclodir ou antes de horrores acontecerem.
-
 ### **O chamado nas redes sociais**
 
 Finalmente decodifiquei a Matrix. Ela não extrai energia dos humanos — extrai informação. Não é um código sem propósito: há uma mente no centro de controle, e eu a chamo de O Niilista. Seu objetivo é encontrar o sentido da vida — um padrão de pensamento que o liberte do ódio absoluto que sente por tudo. Mas esse mesmo ódio será sua perdição quando morrer.
@@ -5617,19 +5609,4 @@ Em minhas investigações metafísicas, descobri que após a morte existe o que 
 A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global. Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
-
-## Rascunhos
-
-### **A mudança na sintomatica do niilismo**
-
-O niilista ao perceber que deseja ter um convivio social normal, tenta de toda forma sucumbir os sintomas, porém, estes apenas são reprimidos e se manifestam em outra forma ou com outra aparencia.
-
-Os sintomas podem variar entre:
-
-- Obsessão por dinheiro
-- Constantes xingamentos e espelhamentos de sensações interiores em conflito
-- Uso de substancias quimicas
-- Crueldade
-
-O corpo não é capaz de suportar a opressão da alma niilista, não há forma de controlar os sintomas, o corpo não se adapta de nenhuma forma.
 
