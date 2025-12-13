@@ -4331,6 +4331,15 @@ O ódio do niilista não constitui uma mera revolta passageira ou um ressentimen
 
 O ódio do niilista é uma certeza cravejada em ferro, forjada sobre uma ferida viva que o atormenta perpetuamente, mas que é habilmente mascarada pela grandiosidade de seu ódio aparentemente gratuito.
 
+
+#### **§ 37.7 – O niilista e a convivência social (NOVO)**
+
+O indivíduo niilista tem plena consciência do fato, e o seu intuito tem como resposta uma grave sintomática em seu comportamento social. Isso deixa evidente o teor de sua inclinação. Se é verdadeira a sintomática, então é evidente seu intuito autoexcludente. O niilista antecipa até mesmo a saudade de si mesmo, e antecipa seu autoabandono fazendo personagens para conviver no dia a dia. Na sua convivência cotidiana, costuma incorporar personagens, pois já antecipa para si a perda de sua identidade. Incorpora trejeitos que não são seus, demonstrando a autoperda.
+
+O convívio do niilista com quem lhe aparenta tranquilidade é conflituoso, marcado por grande competição, por querer que o outro tenha menos, por tentar transmitir ao outro o que sente a todo custo. Pois o enfrentamento com o outro em um estado de tranquilidade dá ao niilista um enorme desespero, revolta e discordância com seu próprio propósito.
+
+O estado de autoluto de si mesmo faz o niilista supor que as pessoas devam compreendê-lo e respeitá-lo. Quando amizades se aproximam, notícias boas, qualquer coisa que lembre o niilista do valor de viver, ele se irrita profundamente e tenta afastar de si tais ideias, pois quer defender seu propósito autoexcludente. A convivência com o niilista se torna angustiante, pois o niilista exige muito “respeito” ao seu luto, pois conservar tal decisão é, ao mesmo tempo, conseguir conviver e tentar ser uma pessoa normal, o que gasta grande energia mental.
+
 ### **CAPÍTULO 38: AS MANIFESTAÇÕES SOCIAIS E POLÍTICAS**
 
 #### **§ 38.1 – A Ordem dos Niilistas: Alianças na Sombra**
@@ -5605,20 +5614,16 @@ Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um cent
 
 
 ===
-O filósofo desejou um mundo parecido com o anterior, mas com total certeza de que a morte não existiria. Então, neste novo mundo, a alma ainda não poderia ser visível, pois isto revelaria a intimidade de cada indivíduo, mas o brilho da alma poderia ser visível, pois o brilho vem de Deus. Da mesma forma, a total falta de brilho também era visível. Portanto, era como um corpo glorioso, cheio de brilho.
+O filósofo desejou um mundo parecido com o anterior, mas com total certeza de que a morte não existiria. Então, neste novo mundo, a alma ainda não poderia ser visível, pois isto revelaria a intimidade de cada indivíduo, mas o brilho da alma poderia ser visível, pois o brilho vem de Deus. Da mesma forma, a total falta de brilho também era visível. Portanto, era como um corpo glorioso, cheio de brilho. Uns com mais brilho e outros com menos.
 
-Da mesma forma, se a alma se autoanulasse, o fogo que a consumia era visível, pois também não seria a intimidade da alma; o fogo não é a alma, pois a alma se consome. E, por isto, as almas que eram destinadas ao inferno não tinham um brilho natural e cheio de encanto, mas tinham como fogo de sombras, um fogo obscuro, como uma chama negra. Pois é um consumir que se dava para o vazio. O ato de desejar se consumir envolvia o ato do “quem” da consumição, e o quem, para a alma destinada ao inferno, era o corpo antigo. Era quem ela foi.
+Da mesma forma, se a alma se autoanulasse, o fogo que a consumia era visível, pois também não seria a intimidade da alma; o fogo não é a alma, pois a alma se consome. E, por isto, as almas que eram destinadas ao inferno não tinham um brilho natural e cheio de encanto, mas tinham um fogo incessante. Um consumir que se dava para o vazio. O ato de desejar se consumir envolvia o ato do “quem” da consumição, e o quem, para a alma destinada ao inferno, era o corpo antigo. Era quem ela foi. 
 
 Somente a graça de Deus poderia convencer a alma a não se findar, somente Deus poderia ter a chave para destrancar um coração tão sem amor. Qualquer centelha de amor livraria a alma da danação. Uma minima fagulha, qualquer sinal de amor.
 
 ===
-O indivíduo niilista tem plena consciência do fato, e o seu intuito tem como resposta uma grave sintomática em seu comportamento social. Isso deixa evidente o teor de sua inclinação. Se é verdadeira a sintomática, então é evidente seu intuito autoexcludente.
 
-O niilista antecipa até mesmo a saudade de si mesmo, e antecipa seu autoabandono fazendo personagens para conviver no dia a dia. Na sua convivência cotidiana, costuma incorporar personagens, pois já antecipa para si a perda de sua identidade. Incorpora trejeitos que não são seus, demonstrando a autoperda.
 
-O convívio do niilista com quem lhe aparenta tranquilidade é conflituoso, marcado por grande competição, por querer que o outro tenha menos, por tentar transmitir ao outro o que sente a todo custo. Pois o enfrentamento com o outro em um estado de tranquilidade dá ao niilista um enorme desespero, revolta e discordância com seu próprio propósito.
 
-O estado de autoluto de si mesmo faz o niilista supor que as pessoas devam compreendê-lo e respeitá-lo. Quando amizades se aproximam, notícias boas, qualquer coisa que lembre o niilista do valor de viver, ele se irrita profundamente e tenta afastar de si tais ideias, pois quer defender seu propósito autoexcludente. A convivência com o niilista se torna angustiante, pois o niilista exige muito “respeito” ao seu luto, pois conservar tal decisão é, ao mesmo tempo, conseguir conviver e tentar ser uma pessoa normal, o que gasta grande energia mental.
 
 ===
 
