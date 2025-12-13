@@ -5077,6 +5077,13 @@ O bilionário é capaz de calar artistas, jornalistas e até líderes políticos
 
 Enquanto **poucos acumulam riquezas inimagináveis**, a grande maioria luta para sobreviver — e mesmo diante dessa desigualdade absurda, **quase não há revolta**. Por quê?Porque fomos **condicionados a permanecer sem reação**, submetidos a uma influência sutil, porém poderosa: **existe ciência dedicada à manipulação das massas**, capaz de controlar comportamentos, crenças e até emoções coletivas. Dentro dessa lógica, surge uma **estrutura de poder que vai além do que os olhos veem** — uma pirâmide cuidadosamente organizada, onde cada nível tem um papel específico:
 
+A guerra é usada como um teatro. Não há necessidade alguma de guerra. E, por vezes, nem mesmo para interesses econômicos diretos, como a obtenção de territórios — que, na verdade, funciona apenas como desculpa para manter o conflito. O único e exclusivo motivo claro é o teatro do terror: o distrator absoluto e mais eficaz, o abominável que espalha no ar a visão do absurdo, a ponto de retirar dos olhos do homem os absurdos menores da desigualdade social, disfarçados de um suposto merecimento.
+
+Para que exista esse teatro, é preciso primeiro haver pessoas embrutecidas pela baixa qualidade da alimentação, por ideias inventadas para elas, por medos infiltrados em suas vidas e, principalmente, por mecanismos capazes de atrair o niilista — aquele com potencial destrutivo. Há técnicas para atrair esse tipo de pessoa, como fazem em Gaza, ou simplesmente pagam bem por isso.
+
+Na guerra, o niilista acha sua via máxima de expressão, um ambiente onde pode matar e não ser punido. Uma justificativa esdrúxula que lhe dá aval para mostrar seu potencial, para tentar ridicularizar o estado alheio do mundo enquanto toma a decisão mais inaceitável para si mesmo. O niilista que mata e tortura é um niilista que não somente luta contra seu próprio niilismo, mas quer protestar contra a aceitação social do niilista. Quer despojar nas pessoas a culpa por sua intenção para consigo mesmo; quer depositar nelas a responsabilidade por não terem feito algo por ele, porém não quer assumir a culpa de ter tomado tal decisão sozinho. Quer jogar na sociedade o peso de sua decisão. O niilista até mesmo se tatua como forma de expressar a diferença social; os símbolos que tatua o ridicularizam, o desenham como uma alma perdida. Sente-se ridículo por sua decisão frente à normalidade. Enquanto todas as pessoas querem um destino bom, o niilista vê a si mesmo fechado em si.
+
+
 #### **4 – Chief Executive Officer (CEO)**
 
 Responsável por garantir o funcionamento **financeiro e operacional** da empresa. É o rosto público da organização — aquele que mantém a máquina girando e transmite segurança aos investidores e funcionários.
@@ -5596,11 +5603,5 @@ Nas médias e pequenas empresas também acontece de o dono usar até clientes e,
 
 
 ## A guerra
-
-A guerra é usada como um teatro. Não há necessidade alguma de guerra. E, por vezes, nem mesmo para interesses econômicos diretos, como a obtenção de territórios — que, na verdade, funciona apenas como desculpa para manter o conflito. O único e exclusivo motivo claro é o teatro do terror: o distrator absoluto e mais eficaz, o abominável que espalha no ar a visão do absurdo, a ponto de retirar dos olhos do homem os absurdos menores da desigualdade social, disfarçados de um suposto merecimento.
-
-Para que exista esse teatro, é preciso primeiro haver pessoas embrutecidas pela baixa qualidade da alimentação, por ideias inventadas para elas, por medos infiltrados em suas vidas e, principalmente, por mecanismos capazes de atrair o niilista — aquele com potencial destrutivo. Há técnicas para atrair esse tipo de pessoa, como fazem em Gaza, ou simplesmente pagam bem por isso.
-
-Na guerra, o niilista acha sua via máxima de expressão, um ambiente onde pode matar e não ser punido. Uma justificativa esdrúxula que lhe dá aval para mostrar seu potencial, para tentar ridicularizar o estado alheio do mundo enquanto toma a decisão mais inaceitável para si mesmo. O niilista que mata e tortura é um niilista que não somente luta contra seu próprio niilismo, mas quer protestar contra a aceitação social do niilista. Quer despojar nas pessoas a culpa por sua intenção para consigo mesmo; quer depositar nelas a responsabilidade por não terem feito algo por ele, porém não quer assumir a culpa de ter tomado tal decisão sozinho. Quer jogar na sociedade o peso de sua decisão. O niilista até mesmo se tatua como forma de expressar a diferença social; os símbolos que tatua o ridicularizam, o desenham como uma alma perdida. Sente-se ridículo por sua decisão frente à normalidade. Enquanto todas as pessoas querem um destino bom, o niilista vê a si mesmo fechado em si.
 
 
