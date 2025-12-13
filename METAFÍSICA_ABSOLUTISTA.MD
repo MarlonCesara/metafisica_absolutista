@@ -750,7 +750,7 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológic
 Esta tríplice dimensão da ação do Espírito não representa uma divisão, mas uma **unidade dinâmica** que manifesta a plenitude do Ser divino:
 
 1.  **Como Fundamentador,** Deus é o **Pai** - fonte incriada de toda existência.
-2.  **Como Plenificador,** Deus é o **Espírito Santo **- razão e sabedoria que estrutura a realidade.
+2.  **Como Plenificador,** Deus é o **Espírito Santo**- razão e sabedoria que estrutura a realidade.
 3.  **Como Personalizador,** Deus é o **Filho/Logos** - amor pessoal e dom que personaliza.
 
 ### **CAPÍTULO 8: AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
