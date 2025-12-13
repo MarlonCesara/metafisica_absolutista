@@ -5618,8 +5618,18 @@ A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o de
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
 
+## Rascunhos
 
+### **A mudança na sintomatica do niilismo**
 
+O niilista ao perceber que deseja ter um convivio social normal, tenta de toda forma sucumbir os sintomas, porém, estes apenas são reprimidos e se manifestam em outra forma ou com outra aparencia.
 
+Os sintomas podem variar entre:
 
+- Obsessão por dinheiro
+- Constantes xingamentos e espelhamentos de sensações interiores em conflito
+- Uso de substancias quimicas
+- Crueldade
+
+O corpo não é capaz de suportar a opressão da alma niilista, não há forma de controlar os sintomas, o corpo não se adapta de nenhuma forma.
 
