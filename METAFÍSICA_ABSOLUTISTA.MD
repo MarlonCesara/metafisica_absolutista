@@ -4126,10 +4126,6 @@ Na tentativa de compensar sua fragilidade interior, o niilista incorpora persona
 
 Os niilistas medem seu valor exclusivamente por meio de posses, cargos, status e posição social. Para eles, o valor individual é puramente objetal, subordinado a uma hierarquia material. Conceitos como "pequeno" ou "grande" aplicam-se à pessoa apenas em relação a elementos tangíveis. Desse modo, projetam sua alma evanescente na matéria, atribuindo a bens e posições a ilusão de uma grandeza que lhes falta internamente.
 
-### **A mudança na sintomática do niilismo (NOVO)**
-
-O niilista, ao perceber que deseja um convívio social considerado normal, tenta de todas as formas suprimir seus sintomas; contudo, eles não desaparecem, apenas são reprimidos e acabam se manifestando sob outras formas ou aparências distintas, como a obsessão por dinheiro, os xingamentos constantes e a projeção de conflitos interiores, o uso de substâncias químicas ou mesmo a crueldade, pois o corpo não é capaz de suportar por muito tempo a opressão de uma alma niilista, não havendo controle real sobre esses sintomas, já que o corpo, em última instância, não consegue se adaptar a essa condição.
-
 #### **34.6 – A Competição como Compensação de um Vazio Existencial**
 
 Movidos por um profundo sentimento de inferioridade, os niilistas são dominados por uma compulsão competitiva. A baixa autoestima, arraigada em sua realidade interior, gera uma frustração perene e uma sensação constante de fracasso. O niilista se percebe como ignorante, absurdamente incapaz devido à sua posição existencial. Ele se sente pertencente a uma subcategoria humana, um tipo tão medíocre que sequer conseguiu aprender a apreciar a vida. Consequentemente, adota um comportamento obsessivo e competitivo, não hesitando em recorrer a qualquer meio — de fraudes e exploração alheia à autoflagelação física — para obter vantagem financeira e social. No fundo, anseia por uma validação interior que se recusa a construir por vias genuínas. Sentindo-se um fracasso, empenha-se incansavelmente para estar à frente, ocupar cargos de liderança e alcançar patamares materiais superiores, numa busca desesperada por reconhecimento externo que compense a imensurável invalidação que impôs a si mesmo — uma manifestação clara da *superbia* (orgulho), tradicionalmente entendida como o princípio de todo pecado (Eclo 10,15).
@@ -4167,6 +4163,10 @@ A crença niilista confina-os a um patamar de irrelevância ontológica, reduzin
 À beira da eternidade, o bilionário niilista profere: “Abriguei um ódio absoluto em vida. Gerei miséria, e a miséria, por sua vez, pariu toda sorte de atrocidades. Agora, neste plano de possibilidades infinitas, meu próprio ódio me consumirá, pois, sendo absoluto, dirige-se inclusive contra mim mesmo. E por que não usei esse ódio para autodestruir-me em vida? Para cometer suicídio? A resposta é simples: o ápice do ódio no ser humano, com frequência, não se manifesta no autoextermínio físico, mas na loucura da megalomania.”
 
 O super-rico causa miséria numa tentativa desesperada de proclamar que a vida o despedirá de mãos vazias, que nada lhe será concedido. O reflexo de sua própria indigência interior revela-se na intensidade com que acumula bens. Ele tenta extinguir a vida alheia de modo a espelhar sua própria condição, denunciando, silenciosamente, o abismo entre os que possuirão a vida plena e os que a perderão. Oprime porque é oprimido pelo ditador interior que carrega consigo. Projeta no sofrimento alheio a forma como se relaciona com seu próprio ser. Busca exibir sua suposta “alta cultura”, seu modelo mental, através do acúmulo e da inflição de dor.
+
+### **34.13 – A mudança na sintomática do niilismo (NOVO)**
+
+O niilista, ao perceber que deseja um convívio social considerado normal, tenta de todas as formas suprimir seus sintomas; contudo, eles não desaparecem, apenas são reprimidos e acabam se manifestando sob outras formas ou aparências distintas, como a obsessão por dinheiro, os xingamentos constantes e a projeção de conflitos interiores, o uso de substâncias químicas ou mesmo a crueldade, pois o corpo não é capaz de suportar por muito tempo a opressão de uma alma niilista, não havendo controle real sobre esses sintomas, já que o corpo, em última instância, não consegue se adaptar a essa condição.
 
 ### **CAPÍTULO 35: A DINÂMICA RELACIONAL E PROJETIVA**
 
