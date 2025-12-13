@@ -1012,7 +1012,7 @@ Desta análise, depreende-se que a expressão "criar do nada" deve ser compreend
 
 O "nada", portanto, longe de ser um conceito ontológico primário, revela-se uma ferramenta linguística que aponta para a **auto-evidência da Presença autocausal**. A verdade última é que o Espírito Absoluto não necessita de um fundamento externo porque Ele próprio é a atualização do Campo Relativo — a Potência pura que se autodetermina como ato puro. Criar é o ato pelo qual o Ser, a partir de sua própria plenitude indiferenciada, traz à existência determinada todas as coisas.
 
-** 9.11 – O Relativo como Pureza Absoluta: A Gênese Dialética do Fundamento Indiferenciado**
+**9.11 – O Relativo como Pureza Absoluta: A Gênese Dialética do Fundamento Indiferenciado**
 
 A investigação metafísica nos confronta com um paradoxo fundamental: a concepção do nada como realidade pura revela-se autodestrutiva. Ao negarmos o nada, emerge inevitavelmente a presença; ao negarmos esta presença, recaímos no nada, estabelecendo um ciclo infinito de negações que não logra atingir o fundamento último. Esta circularidade evidencia a inadequação do nada como princípio explicativo.
 
