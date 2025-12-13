@@ -3102,6 +3102,12 @@ Isto é possível porque, no atemporal, a percepção individual de tempo existe
 
 > O "Relativo" é um espelho que mostra à alma sua própria verdade essencial. As almas não são julgadas - elas se veem e reagem de acordo com quem são. O mar de espelhos no início é o juízo - cada alma vê refletido o que cultivou em vida. Ojuízo não é punição, mas revelação. Cada alma recebe exatamente a eternidade que preparou para si mesma.
 
+O filósofo desejou um mundo parecido com o anterior, mas com total certeza de que a morte não existiria. Então, neste novo mundo, a alma ainda não poderia ser visível, pois isto revelaria a intimidade de cada indivíduo, mas o brilho da alma poderia ser visível, pois o brilho vem de Deus. Da mesma forma, a total falta de brilho também era visível. Portanto, era como um corpo glorioso, cheio de brilho. Uns com mais brilho e outros com menos.
+
+Da mesma forma, se a alma se autoanulasse, o fogo que a consumia era visível, pois também não seria a intimidade da alma; o fogo não é a alma, pois a alma se consome. E, por isto, as almas que eram destinadas ao inferno não tinham um brilho natural e cheio de encanto, mas tinham um fogo incessante. Um consumir que se dava para o vazio. O ato de desejar se consumir envolvia o ato do “quem” da consumição, e o quem, para a alma destinada ao inferno, era o corpo antigo. Era quem ela foi. 
+
+Somente a graça de Deus poderia convencer a alma a não se findar; somente Deus teria a chave para destrancar um coração sem amor. Qualquer centelha de amor livraria a alma da danação: uma mínima fagulha, qualquer sinal de amor.
+
 > O desígnio natural do homem é a glorificação, não por imposição, mas porque é harmonica ao desejo mais profundo da alma.
 
 #### **§ 26.3 – Uma memória do eterno**
@@ -5609,26 +5615,6 @@ Em minhas investigações metafísicas, descobri que após a morte existe o que 
 A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o desespero metafísico poderia levar uma elite bilionária. Na mão de poucos, a riqueza extrema tornou-se uma arma mais perigosa que qualquer bomba: o poder de patrocinar tecnologias neurais e I.As que permitiram a dominação global. Lentamente, um monopólio tecnológico se formou. Trilionários passaram a controlar as redes de comunicação e a tecnologia mais avançada. Enquanto isso, de forma misteriosa e coordenada, a democracia foi sendo minada, as redes sociais silenciadas e o caos semeado com guerras e miséria. Ninguém entendia o que acontecia, até ser tarde demais.
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
-
-## Rascunho
-
-
-===
-O filósofo desejou um mundo parecido com o anterior, mas com total certeza de que a morte não existiria. Então, neste novo mundo, a alma ainda não poderia ser visível, pois isto revelaria a intimidade de cada indivíduo, mas o brilho da alma poderia ser visível, pois o brilho vem de Deus. Da mesma forma, a total falta de brilho também era visível. Portanto, era como um corpo glorioso, cheio de brilho. Uns com mais brilho e outros com menos.
-
-Da mesma forma, se a alma se autoanulasse, o fogo que a consumia era visível, pois também não seria a intimidade da alma; o fogo não é a alma, pois a alma se consome. E, por isto, as almas que eram destinadas ao inferno não tinham um brilho natural e cheio de encanto, mas tinham um fogo incessante. Um consumir que se dava para o vazio. O ato de desejar se consumir envolvia o ato do “quem” da consumição, e o quem, para a alma destinada ao inferno, era o corpo antigo. Era quem ela foi. 
-
-Somente a graça de Deus poderia convencer a alma a não se findar, somente Deus poderia ter a chave para destrancar um coração tão sem amor. Qualquer centelha de amor livraria a alma da danação. Uma minima fagulha, qualquer sinal de amor.
-
-===
-
-
-
-
-===
-
-
-
 
 
 
