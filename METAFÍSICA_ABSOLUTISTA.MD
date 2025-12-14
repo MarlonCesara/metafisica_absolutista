@@ -1225,7 +1225,6 @@ O Absoluto não é um "vazio que se preenche", mas uma **presença** que:
 1.  **Autoconhecimento**: O Absoluto não "pensa" – ele **é** o ato de conhecer a si mesmo como fonte de todas as possibilidades.
 2.  **Autodomínio**: Sua liberdade não é escolha, mas **soberania ontológica** – a capacidade de ser, simultaneamente, o indiferenciado e o diferenciado.
 3.  **Autoexpressão**: As manifestações (formas, fenômenos) são **atos de sua autodeterminação contínua**.
-4. **Personalização**: O Espírito Personalizador manifesta-se no tempo como unidade determinada, embora sempre tenha sido inerente à completude indiferenciada.
 
 #### **10.3 – Conclusão: Do Nada ao Absoluto Autoconsciente**
 
@@ -1239,7 +1238,7 @@ A tentativa de fundamentar a realidade revela que:
 -   Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
 #### **10.4 – O Tempo e o Relativo**
-000
+
 O futuro, do ponto de vista de um observador temporal, é uma suspensão temporal das possibilidades ainda não vividas ou testemunhadas. Dessa forma, o Espírito, sendo a consumação do processo determinístico, ainda assim se constitui como base causal de toda determinação.
 
 O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:
@@ -1248,7 +1247,7 @@ O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenci
 -   **A determinação é imanente e relativa** — há uma "externalidade" indiferenciada e uma internalidade testemunhada no mesmo ato. A totalidade autodetermina-se internamente em relação ao observador, revelando-se em seu referencial como um ato de progressão e definição contínua.
 
 #### **10.5 – A Perspectiva do Observador no Tempo do Espírito**
-
+000
 O observador atemporal, portanto, enxerga o relativo pelo referencial do Espírito em ato, ou seja, percebe a infinitude na externalidade do Espírito; enquanto, internamente, testemunha o presente e um futuro indefinido para si. Esse futuro, porém, é uma suspensão para o Espírito, assim como o seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em um único ato, o qual é determinado pelo referencial do observador temporal e indeterminado pelo referencial do observador atemporal, existindo em ato e em progressão interna.
 
 O Espírito faz escolhas para testemunhar temporalmente um evento já ocorrido. Tudo já aconteceu, mas está sendo reconhecido. O Espírito faz novas escolhas e evidencia uma das possibilidades em suspensão. Ele vivifica no tempo, autentica para si sua vivência, sua decisão. Dessa forma, o tempo funciona como uma localização da alma no decorrer temporal do Espírito, enquanto a suspensão representa a realização de todas as possibilidades de modo simultâneo.
