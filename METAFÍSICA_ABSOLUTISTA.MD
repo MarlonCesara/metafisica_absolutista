@@ -436,7 +436,7 @@ O Absoluto, enquanto realidade autocausada, não requer justificação externa �
 
 #### **5.13 – A Personalização do Absoluto como Espírito**
 
-Se a autocausalidade implica **autoconhecimento**, **autodomínio** e **autopresença**, então o Absoluto não é uma força impessoal, mas um **princípio pessoal** em seu nível mais radical. Definimos essa pessoalidade metafísica como **Espírito**:
+Se a autocausalidade implica **autoconhecimento (onisciência) **, **autodomínio (onipotência) ** e **autopresença (onipresença)**, então o Absoluto não é uma força impessoal, mas um **princípio pessoal** em seu nível mais radical. Definimos essa pessoalidade metafísica como **Espírito**:
 
 1.  **Espírito como Autoconsciência Causal**
     -   O Absoluto não "tem" autoconsciência como um atributo acrescentado; **ele é autoconsciência em ato**.
