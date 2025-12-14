@@ -4035,6 +4035,8 @@ Desse modo, não cultivavam sequer um esboço de ética. A compaixão era por el
 
 Esta é a mentalidade que permeia super-ricos, traficantes, assassinos e todos aqueles que escravizam ou praticam o mal sem remorso, sem comoção e sem consideração. São indivíduos que descreem radicalmente tanto de si mesmos quanto do próximo. Pessoas que se percebem como meros produtos de uma evolução biológica, incapazes de comover-se precisamente porque não acreditam em Deus, na liberdade humana ou na eternidade.
 
+Os bilionários, no cúmulo de suas fortunas, dizem a si mesmos que esta é a lógica natural da selva; instintivamente, acreditam ser mais perspicazes e dignos de reinar como leões sobre a savana. Assim, dividir a fortuna, para eles, é equivalente à fraqueza, sinônimo de não imperar pela força, como o leão impera na savana. Para aqueles que provocam tanta miséria pelo acúmulo de bens, a divisão contraria seu instinto de orgulho e dominação.
+
 #### **33.2 – A Antecipação da Autopunição: O Esquecimento de Si como Estratégia Existencial**
 
 O niilista busca antecipar sua autopunição através de um esquecimento metódico de si mesmo e de suas faculdades espirituais. Lança-se numa existência puramente carnal, convence-se de sua própria falta de significado último e isola seu pensamento de qualquer questão transcendente que possa elevá-lo acima da condição animal. Esta não é uma mera abdicação, mas uma revolta ativa contra aquilo que ele secretamente mais teme: a descoberta de que sua vida poderia ter um significado que transcende a materialidade.
