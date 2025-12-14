@@ -5630,3 +5630,8 @@ A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o de
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
 
+
+
+## Rascunhos
+
+- Para a infintude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus.
