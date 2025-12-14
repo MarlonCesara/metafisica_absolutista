@@ -1056,7 +1056,7 @@ Não existe justificação racional para rejeitar o impossível ao nível do Abs
 A formulação do Relativo exige que quebremos esta parametrização convencional, estas regras implícitas sobre como a realidade "deve ser". Apenas assim o nada transforma-se de constante afirmador do ser - sua negação necessária - em elemento suspensível, manipulável conceptualmente.
 
 O nada, portanto, não sendo capturável pela razão, não necessita existir de fato quando se aceita o impossível. A afirmação do impossível para absoluto já se resolve no próprio absoluto, não havendo dependência do nada existente para resolvê-lo. Isto é, ao lançarmos o impossível ao absoluto, não é necessário nem mesmo o nada para obtermos, como substrato ontológico, o indiferenciado. O impossível, por si só, se resolve para absoluto de uma forma não disruptiva. Se é possível que exista o nada — em outras palavras, se o impossível existe — é de cunho do absoluto resolvê-lo, estando tal tarefa para além da conceptualização humana.
-(000 - revisado até aqui)
+
 **A Libertação da Determinação Lógica**
 
 As próprias leis lógicas constituem determinações da realidade, e toda determinação impede a realização da indeterminação. Ao definirmos que "uma coisa é uma coisa", impedimos que essa coisa seja qualquer coisa ou o seu antagónico. Se o Absoluto estiver confinado à dicotomia "coisa ou não-coisa", tal limitação impossibilita a suspensão completa.
@@ -1096,7 +1096,7 @@ A lógica aristotélica está vinculada a uma observação intuitiva da realidad
 
 **Síntese Final**
 
-Produzimos o indiferenciado afirmando o impossível, tal como produzimos a realidade autocausada afirmando o espírito. O nada não constitui um segundo estado do Ser, mas antes a afirmação do impossível para o Ser - o movimento de "soltura" do impossível no ser, sem definir previamente o resultado, deixando que a definição emerja como Relativo.
+Produzimos o indiferenciado afirmando o impossível, tal como produzimos a realidade autocausada afirmando o Espírito. O nada não constitui um segundo estado do Ser, mas antes a afirmação do impossível para o Ser - o movimento de "soltura" do impossível no ser, sem definir previamente o resultado, deixando que a definição emerja como Relativo.
 
 Da mesma forma, os princípios causais são transcendidos ao nível absoluto: se antes "tudo precisa ter uma causa", agora "apenas o que começou precisa ter causa". A necessidade de um ente que não tem causa, sendo simultaneamente causa de si mesmo, quebra as regras observáveis.
 
@@ -1121,7 +1121,7 @@ Chegamos assim a uma justificação totalmente pura e positiva para o Absoluto: 
 
 A aceitação do impossível não provoca alteração disruptiva no Ser, mas dilui-se nele de forma não disruptiva. O Princípio do Terceiro Excluído mantém a sua validade, porém a critério do Absoluto, não da lógica clássica.
 
-Não há definição sobre a existência ou não de um "terceiro excluído", pois esta questão situa-se no campo da impossibilidade. Porém, o campo da possibilidade está aberto para o Absoluto e nele diluído.
+Não há definição sobre a existência ou não de um "terceiro excluído", pois esta questão situa-se no campo da impossibilidade. Porém, o campo da impossibilidade está aberto para o Absoluto e nele diluído.
 
 **Conclusão Dialéctica**
 
@@ -1145,15 +1145,15 @@ Ao entendermos o indiferenciado como o conceito que mais se aproxima do nada exi
 
 A existencia do indiferenciado já é a existencia de tudo. O substrato sai do relativo, pois o relativo já é um substrato. Tal como a cor preta já é uma mistura de outras cores, ou como a luz branca é uma mistura de cores mistas. O indiferenciado por si só, por sua proprio conteudo é substancia. Toda existencia, é uma existencia secundaria ao relativo que tem uma supremacia ao que causa como existencia. 
 
-Isto é dificil de mentalizar, no entanto, se faz mais facil quando usamos o nada existente como analogia, ao passo que o nada é nada, se existisse de fato (não existe), teria toda a gama de possibilidades em si, pois é a anulação de possibilidades previas de forma a totaliza-las num unico momento e estado. O nada seria a transcendencia de toda a forma e de todo tempo. Porem, o nada não existente não traria essas possibilidades, e provamos que o conceito de nada existente não faz sentido. Para o conceito de nada eixstente o que temos de mais próximo é o indiferenciado que não não é nada, mas uma pureza. O nada continua não existindo, ao passo que a pureza tem a propriedade autocausal e existe. E a pureza total é o relativo.
+Isto é dificil de mentalizar, no entanto, se faz mais facil quando usamos o nada existente como analogia, ao passo que o nada é nada, se existisse de fato (não existe), teria toda a gama de possibilidades em si, pois é a anulação de possibilidades previas de forma a totaliza-las num unico momento e estado. O nada seria a transcendencia de toda a forma e de todo tempo. Porem, o nada não existente não traria essas possibilidades, e provamos que o conceito de nada existente não faz sentido. Para o conceito de um “nada existente”, o que há de mais próximo é o indiferenciado, que não é o nada, mas uma pureza. O nada, propriamente dito, continua a não existir; já a pureza possui a propriedade de ser autocausal e, por isso, existe. A pureza total, por sua vez, é o relativo.
 
 A autodeterminação sob o indiferenciado gera uma realidade viva — a realidade que, por si mesma, tem como contraparte o indiferenciado. Temos uma pureza viva, uma pureza real, e a realidade ontológica é a polarização dessa pureza. Tal como o preto se dilui em várias cores, ou a luz branca se torna várias cores num prisma, o indiferenciado se traduz em qualquer existência.
 
 Uma vez entendida a existência não causada do absoluto, se dá também entendida a autocausalidade em si. O absoluto se dá naturalmente sem causa externa. É naturalmente a substância de si e autor de si. Se existe e é relativo, seu próprio existir lhe confere teor autocausal. Pois a existência por si só traz em si a necessidade do causal. A existência por si só é causada, se não por fonte externa, por si mesma.
 
-Toda existência pressupõe em si uma causa inevitável, o autocausal é homogêneo ao relativo, pois a existência pressupõe em si sua própria definição. Temos então o relativo como contrapar te da causalidade.
+Toda existência pressupõe em si uma causa inevitável, o autocausal é homogêneo ao relativo, pois a existência pressupõe em si sua própria definição. Temos então o relativo como contraparte da causalidade.
 
-Podemos citar como exemplo que se A existe, então A é como A segundo uma razão. A existencia de A não pode segregar a causa de A ser tal como A. Portanto, a própria causa é homogenea ao relativo. O causado é uma contra parte do causal. 
+Podemos citar como exemplo que se "A" existe, então "A" é como "A" segundo uma razão. A existencia de "A" não pode segregar a causa de "A" ser tal como "A". Portanto, a própria causa é homogenea ao relativo. O causado é uma contra parte do causal. 
 
 #### **9.13 – O Absoluto Indiferenciado como Fundamento Dinâmico**
 
@@ -1177,6 +1177,19 @@ Essa existência não se reduz a fenômenos, mas é **pura pessoalidade** (subje
 
 Trata-se de uma existência de caráter pessoal e dotada de potência causal, mas que não se manifesta como forma ou aparência, e que é exterior ou superior a toda determinação em sua internalidade. Ou seja, se existe uma ação — oriunda de uma existência capaz de justificar uma realidade autocausada —, essa ação não pode comprometer a qualidade da totalidade, isto é, não pode comprometer a existência verdadeira e autêntica que origina todas as coisas internamente à sua temporalidade.
 
+Isto significa que, no Absoluto, tudo está consumado em sua totalidade atemporal; porém, o ato de liberdade do Espírito permanece imprevisível dentro do fluxo temporal. Todas as possibilidades existem como potências, mas nem todas foram ainda vivificadas, eleitas ou trazidas à luz a partir do indiferenciado.
+
+Assim, ainda há uma ação deliberada do Espírito Perfeito e do Espírito Personalizador na esfera do tempo: essas ações já estão contidas em potência no indiferenciado, mas ainda não se realizaram nem foram determinadas pela perspectiva de um observador temporal.
+
+A completude do indiferenciado pressupõe a consumação de todas as ações possíveis, mas não a atualização de cada ato eleito. A temporalidade, em sua estrutura última, já está concluída — mas se revela e se vivifica a cada instante.
+
+Temos, portanto, a possibilidade em potência — dissolvida na completude indiferenciada — e a possibilidade atualizada — trazida à existência pelo ato livre do Espírito no tempo.
+
+A primeira habita a eternidade como pura latência; a segunda desdobra-se no devir como ato vivo e eleito. Ambas coexistem no Absoluto, sem contradição: a plenitude não diminui a liberdade, e a liberdade não rompe a plenitude.
+
+> “E aquele que estava assentado no trono disse: Eis que faço novas todas as coisas.” 
+- Apocalipse 21:5
+000
 #### **9.15 – O Relativo como Infinito de Possibilidades**
 
 O relativo, portanto, é um infinito de possibilidades; as quais não se assumem por si de forma que não haja unidade ou multiplicidade, mas um estado indiferente, o qual é existente, porém puro. Um estado de completude no qual não há definição, número, dimensão, ou forma, porém, tudo que é possível em uma suspensão.
