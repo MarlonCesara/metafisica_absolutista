@@ -533,7 +533,7 @@ Esta visão supera as dicotomias tradicionais, revelando um **Deus que é ao mes
 -   **Não-temporalidade:** O Espírito não "torna-se", mas **é** em ato pleno.
 -   **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).
 -   **"O Espírito não precisa buscar a si mesmo — Ele é, em cada 'instante', a totalidade que se autossustenta."**
-000 - lido
+
 No ato imediato causal, o Espírito não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:
 
 -   **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.
@@ -542,7 +542,7 @@ No ato imediato causal, o Espírito não se causa em um processo temporal sucess
 -   **Não há regressão infinita,** pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.
 -   O Espírito **já é** plenamente si mesmo em um eterno presente.
 -   Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).
-
+000 - lido
 ##### **O Ser em Ato (Consumação)**
 O **Espírito** é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.
 
