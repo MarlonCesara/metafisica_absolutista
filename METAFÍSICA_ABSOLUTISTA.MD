@@ -863,7 +863,7 @@ Tendo estabelecido os princípios da autocausalidade absoluta, adentramos agora 
 Não exploraremos mais a causalidade, mas a natureza do autocausado. Ou seja, sabemos que o autocausado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
 
 #### **9.2 – O Nada como Existência Relacional**
-(000 - revisado até aqui)
+
 Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando ainda dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial. Nesse sentido, o **nada** poderia ser interpretado como existência, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**.
 
 ##### **Definição por Negação**
@@ -904,8 +904,6 @@ O nada, enquanto conceito, **não possui autonomia ontológica** — sua defini�
 **Em síntese:**
 > _"O nada é a negação que revela, por oposição, a primazia irredutível do Ser. Sua própria ideia é um testemunho involuntário da realidade que pretende negar."_
 
-Esta conclusão dissolve a aparente "discrepância lógica", mostrando que o nada não compete com o Absoluto, mas **é um subproduto de sua manifestação**.
-
 #### **9.4 – Implicações para a Doutrina da Criação**
 
 Esta compreensão do nada como negação relacional tem profundas implicações para a doutrina da criação:
@@ -926,7 +924,7 @@ Esta compreensão do nada como negação relacional tem profundas implicações 
 > _— Gênesis 1:1-2_
 
 #### **9.5 – O Nada Auto-Supressor**
-
+(
 Mesmo se considerarmos o nada como uma realidade existente, esta realidade seria imediatamente extingível. Ou seja, se esgotarmos a existência anulada no nada—isto é, se removermos sua dependência de um referencial—, ele deixa de ser uma negação e se torna uma **pura auto-supressão**, sem auto fundamentação.
 
 -   **O Nada referencial não se Sustenta:**
@@ -993,7 +991,7 @@ Esta análise revela que a criação _ex nihilo_ não deve ser compreendida como
 
 Antes, a criação _ex nihilo_ significa:
 
-1.  **Posição absoluta do ser** sem meio termo ou material preexistente
+1.  **Posição absoluta do ser** sem meio termo ou material determinado.
 2.  **Ato puro da liberdade divina** que estabelece a distinção radical entre Criador e criatura
 3.  **Manifestação gratuita** da plenitude divina
 
@@ -1022,7 +1020,7 @@ O "nada", portanto, longe de ser um conceito ontológico primário, revela-se um
 
 A investigação metafísica nos confronta com um paradoxo fundamental: a concepção do nada como realidade pura revela-se autodestrutiva. Ao negarmos o nada, emerge inevitavelmente a presença; ao negarmos esta presença, recaímos no nada, estabelecendo um ciclo infinito de negações que não logra atingir o fundamento último. Esta circularidade evidencia a inadequação do nada como princípio explicativo.
 
-Para transcender este impasse, devemos conceber uma realidade afirmativa que preserve a pureza do nada - sua indeterminação essencial - mas que simultaneamente se constitua como presença auto-fundamentadora. Tal realidade não pode ser o nada propriamente dito, pois este, quando afirmado como entidade metafísica, transforma-se paradoxalmente em "algo", demandando justificação externa.
+Para transcender este impasse, devemos conceber uma realidade afirmativa que preserve a pureza do "nada" - sua indeterminação aparente - mas que simultaneamente se constitua como presença auto-fundamentadora. Tal realidade não pode ser o nada propriamente dito, pois este, quando afirmado como entidade metafísica, transforma-se paradoxalmente em "algo", demandando justificação externa.
 
 A solução emerge através de um movimento dialético radical: a **suspensão total de todas as determinações**. Ao possibilitarmos a negação do próprio nada - transformando-o de conceito autoaniquilante em elemento passível de suspensão - alcançamos o estado de **indiferenciação pura**, onde nem mesmo o nada subsiste como definição. Esta é a verdadeira pureza metafísica.
 
@@ -1058,7 +1056,7 @@ Não existe justificação racional para rejeitar o impossível ao nível do Abs
 A formulação do Relativo exige que quebremos esta parametrização convencional, estas regras implícitas sobre como a realidade "deve ser". Apenas assim o nada transforma-se de constante afirmador do ser - sua negação necessária - em elemento suspensível, manipulável conceptualmente.
 
 O nada, portanto, não sendo capturável pela razão, não necessita existir de fato quando se aceita o impossível. A afirmação do impossível para absoluto já se resolve no próprio absoluto, não havendo dependência do nada existente para resolvê-lo. Isto é, ao lançarmos o impossível ao absoluto, não é necessário nem mesmo o nada para obtermos, como substrato ontológico, o indiferenciado. O impossível, por si só, se resolve para absoluto de uma forma não disruptiva. Se é possível que exista o nada — em outras palavras, se o impossível existe — é de cunho do absoluto resolvê-lo, estando tal tarefa para além da conceptualização humana.
-
+(000 - revisado até aqui)
 **A Libertação da Determinação Lógica**
 
 As próprias leis lógicas constituem determinações da realidade, e toda determinação impede a realização da indeterminação. Ao definirmos que "uma coisa é uma coisa", impedimos que essa coisa seja qualquer coisa ou o seu antagónico. Se o Absoluto estiver confinado à dicotomia "coisa ou não-coisa", tal limitação impossibilita a suspensão completa.
