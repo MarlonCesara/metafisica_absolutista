@@ -643,7 +643,7 @@ O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas um
 -   **No Espírito**, o tempo é **encontro perpétuo consigo mesmo**.
 
 Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — não como duração infinita, mas como **presença absoluta que transcende toda medida**.
-000 - lido
+
 > *— Eclesiastes 3:1*
 >
 > *"Mas não se esqueçam de uma coisa, amados: para o Senhor um dia é como mil anos, e mil anos como um dia."*
@@ -664,7 +664,7 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 **Formulação Final:**
 O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
 
-### **CAPÍTULO 7: A ESTRUTURA TRIDIMENSIONAL DA AÇÃO DIVINA**
+### **CAPÍTULO 7: A ESTRUTURA DA AÇÃO DIVINA**
 #### **7.1 – A Estrutura dos Eventos Temporais**
 
 ##### **Determinação Numerável**
@@ -759,9 +759,9 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 3.  **Como Personalizador,** Deus é o **Filho/Logos** - amor pessoal e dom que personaliza.
 
 ### **CAPÍTULO 8: AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
-#### **8.1 – As Personas da Autocausalidade Divina**
+#### **8.1 – As Pessoas da Autocausalidade Divina**
 
-A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três personas ou modos de relação consigo mesmo, que correspondem às Pessoas da Santíssima Trindade.
+A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, que correspondem às Pessoas da Santíssima Trindade.
 
 ##### **1. O Poder Fundante (Espírito Fundamentador) - Deus Pai**
 -   **Atributos:**
@@ -769,7 +769,7 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
     -   **Inabalabilidade:** Não se curva a contingências; sua natureza é *autossustentação pura*.
     -   **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
 -   **Símbolo:** O Trovão (a irrupção incontestável do Ser).
--   **Princípio:** *"Antes de toda forma, há o Fogo que a sustenta."*
+-   **Princípio:** *"Antes de toda forma, há a fortaleza que a sustenta."*
 -   **Fundamento Bíblico:**
     -   *"Porque dele, e por meio dele, e para ele são todas as coisas."* (Romanos 11:36)
     -   *"Eu sou o Alfa e o Ômega, diz o Senhor Deus, aquele que é, que era e que há de vir, o Todo-Poderoso."* (Apocalipse 1:8)
@@ -805,9 +805,6 @@ Essas personas não são divisões, mas **modos de relação do Espírito consig
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
-> _"Portanto, ide e fazei discípulos de todas as nações, batizando-os em nome do Pai, e do Filho, e do Espírito Santo."_
-> _— Mateus 28:19_
-
 #### **8.3 – Correlação Sistemática com a Autocausalidade**
 
 A relação entre as autodeterminações do Espírito e as Pessoas da Trindade manifesta-se assim:
@@ -829,19 +826,23 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 > _"Há um só corpo e um só Espírito, assim como a esperança para a qual vocês foram chamados é uma só; há um só Senhor, uma só fé, um só batismo, um só Deus e Pai de todos, que é sobre todos, por meio de todos e em todos."_
 > _— Efésios 4:4-6_
 
-> A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. A personalidade detém a ação que está desligada de traços pessoais e determinísticos, como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
+A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
 #### **8.4 – A ação trinária**
 
-Sendo o absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operante no absoluto, de forma que já se deu como tal de forma incausada e atemporal. O absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si. Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada, é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do absoluto como tal.
+Sendo o absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operante no absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o absoluto é existente, é pleno em sua existência. O absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si. Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada, é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do absoluto como tal.
 
 A forma personalizadora do absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
 
-Isto significa que a ação do Espírito Perfeito está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação.
+Isto significa que a ação do Espírito Perfeito está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular.
 
-A ação de fundamentação e a de plenificação se dão em conjunto no absoluto, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o fundamentador e o personalizador que é o Espírito da plenitude.
+A ação de fundamentação e a de plenificação se dão em conjunto no absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o fundamentador e o personalizador que é o Espírito da plenitude.
 
-O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independente. Atemporalmente o Personalizador não agiu, ao passo que existia. Ao passo que temporalmente o Fundamentador e o Plenificador não poderiam agir como via única. As três ações se divergem, portanto, na esfera do Absoluto.
+O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como como via única. As três ações se divergem, portanto, na esfera do Absoluto.
+
+O Espírito Fundamentador e o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador e o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto.
+
+> O Espírito Santo é o amor entre o Pai e o Filho.
 
 #### **8.5 – Conclusão do Capítulo**
 
@@ -862,7 +863,7 @@ Tendo estabelecido os princípios da autocausalidade absoluta, adentramos agora 
 Não exploraremos mais a causalidade, mas a natureza do autocausado. Ou seja, sabemos que o autocausado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
 
 #### **9.2 – O Nada como Existência Relacional**
-
+(000 - revisado até aqui)
 Ao concebermos o nada como uma existência potencialmente manifestável—isto é, como uma nulidade ou neutralização do existente—, estamos operando ainda dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial. Nesse sentido, o **nada** poderia ser interpretado como existência, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**.
 
 ##### **Definição por Negação**
