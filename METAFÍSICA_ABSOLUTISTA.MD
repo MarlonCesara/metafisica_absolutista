@@ -1189,10 +1189,10 @@ A primeira habita a eternidade como pura latência; a segunda desdobra-se no dev
 
 > “E aquele que estava assentado no trono disse: Eis que faço novas todas as coisas.” 
 - Apocalipse 21:5
-000
+
 #### **9.15 – O Relativo como Infinito de Possibilidades**
 
-O relativo, portanto, é um infinito de possibilidades; as quais não se assumem por si de forma que não haja unidade ou multiplicidade, mas um estado indiferente, o qual é existente, porém puro. Um estado de completude no qual não há definição, número, dimensão, ou forma, porém, tudo que é possível em uma suspensão.
+O relativo, portanto, é um infinito de possibilidades; as quais não se assumem por si de forma que não haja unidade ou multiplicidade, mas um estado indiferente, o qual é existente, porém puro. Um estado de completude no qual não há definição, número, dimensão, ou forma, porém, tudo que é possível e impossível em uma suspensão.
 
 O relativo está em relação ao infinito, ou seja, o infinito de espaço e tempo é uma suspensão do espaço e tempo. Temos, portanto, o relativo como transcendência da forma. O Ser, no relativo, não é um ser, mas simplesmente é. O ato de "Ser", transcende a determinação "Sou", para uma pureza que chamamos de indiferenciação.
 
@@ -1225,10 +1225,11 @@ O Absoluto não é um "vazio que se preenche", mas uma **presença** que:
 1.  **Autoconhecimento**: O Absoluto não "pensa" – ele **é** o ato de conhecer a si mesmo como fonte de todas as possibilidades.
 2.  **Autodomínio**: Sua liberdade não é escolha, mas **soberania ontológica** – a capacidade de ser, simultaneamente, o indiferenciado e o diferenciado.
 3.  **Autoexpressão**: As manifestações (formas, fenômenos) são **atos de sua autodeterminação contínua**.
+4. **Personalização**: O Espírito Personalizador manifesta-se no tempo como unidade determinada, embora sempre tenha sido inerente à completude indiferenciada.
 
 #### **10.3 – Conclusão: Do Nada ao Absoluto Autoconsciente**
 
-A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
+A tentativa de fundamentar a realidade revela que:
 -   O não fenômeno ou o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis.
 -   O fundamento "criador" é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.
 
@@ -1238,7 +1239,7 @@ A tentativa de fundamentar a realidade no nada revela, paradoxalmente, que:
 -   Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
 #### **10.4 – O Tempo e o Relativo**
-
+000
 O futuro, do ponto de vista de um observador temporal, é uma suspensão temporal das possibilidades ainda não vividas ou testemunhadas. Dessa forma, o Espírito, sendo a consumação do processo determinístico, ainda assim se constitui como base causal de toda determinação.
 
 O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:
