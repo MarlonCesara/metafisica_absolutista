@@ -610,7 +610,7 @@ O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua co
 #### **6.2 – O Tempo do Espírito vs. O Tempo Fenomênico**
 
 O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se.
-000 - lido
+
 O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente.
 
 ##### **1. Natureza do Tempo Fenomênico**
@@ -643,7 +643,7 @@ O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas um
 -   **No Espírito**, o tempo é **encontro perpétuo consigo mesmo**.
 
 Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — não como duração infinita, mas como **presença absoluta que transcende toda medida**.
-
+000 - lido
 > *— Eclesiastes 3:1*
 >
 > *"Mas não se esqueçam de uma coisa, amados: para o Senhor um dia é como mil anos, e mil anos como um dia."*
