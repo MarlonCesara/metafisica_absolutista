@@ -362,7 +362,7 @@ Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fu
 
 #### **5.8 – A Natureza Pessoal do Autocausal**
 
-A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige personalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e autodeterminação em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
+A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige personalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
 
 > _"Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."_
 
@@ -405,13 +405,13 @@ Através de uma terceira via radical: **a Presença Pura** que:
 |------------------|------------------------------------|----------------------------------------------|
 | **Autoconhecimento** | Causa que se conhece como causa         | Supera a causalidade cega ou impessoal           |
 | **Autodomínio**      | Causa que se possui totalmente          | Transcende a dispersão ou fragmentação ontológica |
-| **Autodeterminação** | Causa que se escolhe a si mesma         | Rompe com mecanicismos e determinismos           |
+| **Autopresença** | Causa que está em si totalmente         | Rompe com mecanicismos e determinismos           |
 
 #### **5.11 – Conclusão: O Absoluto como Espírito Pessoal**
 
 Esta análise demonstra de forma inequívoca que:
 
-1.  **A autocausalidade pura exige personalidade:** Não pode haver autocausalidade sem autoconhecimento, autodomínio e autodeterminação.
+1.  **A autocausalidade pura exige personalidade:** Não pode haver autocausalidade sem autoconhecimento, autodomínio e autopresença.
 2.  **O Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto):** Sua natureza é mais adequadamente compreendida como pessoal do que como impessoal.
 3.  **A noção de Espírito capta melhor esta realidade que:**  
     - Conceitos impessoais (como "Energia universal")  
@@ -422,6 +422,14 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 
 > _"Deus é Espírito; e importa que os que o adoram o adorem em espírito e em verdade."_
 > — João 4:24
+
+Para que uma realidade se autodetermine, ela precisa, necessariamente:
+
+1. **Conhecer-se** – para que possa escolher conscientemente sua própria natureza;  
+2. **Dominar-se** – para executar com pleno poder o ato de autodeterminação;  
+3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua determinação não seria integral, mas parcial e incompleta.
+
+Somente uma realidade que reúne **autoconhecimento, autodomínio e autopresença total** pode verdadeiramente fundar-se a si mesma. Essa tríade de atributos é justamente o que caracteriza uma **pessoalidade plena** – um Espírito que é, ao mesmo tempo, sujeito, ato e fundamento de sua própria existência. Em vias mais claras, para que uma realidade se auto governe, essa realidade necessariamente deve conhecer-se para eleger uma determinação, auto dominar-se para realizar o movimento da determinação e ter autopresença para que seja uma realidade viva em si mesma, pois se não estivesse presente na totalidade de si, não poderia determinar-se por inteira.
 
 #### **5.12 – Fundamento Autocausal e a Noção de "Presença"**
 
