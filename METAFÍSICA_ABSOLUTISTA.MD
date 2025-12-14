@@ -542,7 +542,7 @@ No ato imediato causal, o Espírito não se causa em um processo temporal sucess
 -   **Não há regressão infinita,** pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.
 -   O Espírito **já é** plenamente si mesmo em um eterno presente.
 -   Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).
-000 - lido
+
 ##### **O Ser em Ato (Consumação)**
 O **Espírito** é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.
 
@@ -594,7 +594,7 @@ Isso unifica:
 
 A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Determinador é puro até para Si mesmo. Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato. 
 
-Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão. Sua pureza dispensa essa oscilação — pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translúcido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da distinção entre existência potencial e atual. 
+O Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão. Sua pureza dispensa essa oscilação — pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translúcido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da distinção entre existência potencial e atual. 
 
 Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido). Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento.
 
@@ -610,7 +610,7 @@ O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua co
 #### **6.2 – O Tempo do Espírito vs. O Tempo Fenomênico**
 
 O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se.
-
+000 - lido
 O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente.
 
 ##### **1. Natureza do Tempo Fenomênico**
