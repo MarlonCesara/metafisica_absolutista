@@ -238,7 +238,7 @@ A análise revela uma estrutura hierárquica que não é meramente classificató
 3. **Impossível** (limite do possível)
    ↓
 4. **Incognoscível** (limite do racionalizável)
-000 - lido
+
 **Significado Ontológico:**
 - O **Cognoscível** revela os limites do Absoluto mentalizável
 - O **Possível** manifesta-se como ordem no seio do Absoluto
@@ -262,9 +262,6 @@ A incorporação do incognoscível no Absoluto não é uma concessão ao irracio
 A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança.
 
 Reconhecer o incognoscível não invalida a investigação filosófica do Absoluto em seu âmbito cognoscível; antes, confere-lhe integridade epistemológica ao demarcar os limites intrínsecos da razão. Essa admissão não representa resignação, mas consciência metafísica: compreende-se que o entendimento sistemático, por mais abrangente, permanece aberto à transcendência — não como falha, mas como horizonte necessário do pensamento.
-
-> _"O que não podemos falar, temos que calar."_
-> — Ludwig Wittgenstein, _Tractatus Logico-Philosophicus_, 7
 
 ### **CAPÍTULO 5: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL**
 #### **5.1 – O Absoluto como Princípio Irredutível**
@@ -323,7 +320,7 @@ A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
 
 #### **5.6 – As Propriedades Essenciais do Absoluto**
 
-##### **1. Autofundamentação**
+##### **1. Autofundamentação (Fundamentação)**
 -   **Definição:** Refere-se à causa primeira da existência do Absoluto.
 -   **Características:**
     -   Encontra sua razão suficiente em sua própria natureza necessária e auto-subsistente.
@@ -332,7 +329,7 @@ A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
 -   **Propriedade Essencial:** Causa integral de si mesmo.
     -   Se o Absoluto dependesse de algo externo, não seria absoluto. Qualquer dependência externa anularia sua condição absoluta.
 
-##### **2. Autodeterminação**
+##### **2. Autodeterminação (Identidade)**
 -   **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
 -   **Aspectos Constitutivos:**
     1.  **Autoexistência:** Ser presente em si mesmo - o Absoluto deve estar em si mesmo para ser o agente ativo da determinação.
@@ -528,7 +525,7 @@ Esta visão supera as dicotomias tradicionais, revelando um **Deus que é ao mes
 -   **Não-temporalidade:** O Espírito não "torna-se", mas **é** em ato pleno.
 -   **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).
 -   **"O Espírito não precisa buscar a si mesmo — Ele é, em cada 'instante', a totalidade que se autossustenta."**
-
+000 - lido
 No ato imediato causal, o Espírito não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:
 
 -   **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.
