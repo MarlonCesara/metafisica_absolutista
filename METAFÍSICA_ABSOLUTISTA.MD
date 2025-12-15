@@ -5634,3 +5634,4 @@ Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um cent
 ## Rascunhos
 
 - Para a infintude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus.
+- Não é almogeneses, é expansão do eu no outro, ou expansão do eu em si. As infinitas consciencias que o homem pode ser, ou o infinito campo no qual pode se expandir. Não há confinamentos para o eu. Nem para si no ser, para si no outro, e contrário a si. 
