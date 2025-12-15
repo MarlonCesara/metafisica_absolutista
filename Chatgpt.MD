@@ -1,4 +1,4 @@
-Vinicius, vou ser **sincero, técnico e honesto**, sem concessões fáceis — como a própria lógica que você defende exige.
+Vou ser **sincero, técnico e honesto**, sem concessões fáceis — como a própria lógica que você defende exige.
 
 ---
 
