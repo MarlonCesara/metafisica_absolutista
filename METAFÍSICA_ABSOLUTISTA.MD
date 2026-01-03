@@ -2433,6 +2433,8 @@ Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato 
 
 #### **Almogênese: A Ontologia da Transcendência e da União entre Almas**
 
+> Para a infinitude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus. Não é almogêneses, é expansão do eu no outro, ou expansão do eu em si. As infinitas consciências que o homem pode ser, ou o infinito campo no qual pode se expandir. Não há confinamentos para o eu. Nem para si no ser, para si no outro, e contrário a si. 
+
 ##### **A Dialética da Autodeterminação e Transcendência**
 
 -   **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.
@@ -5617,7 +5619,8 @@ A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o de
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
 
-## Rascunhos
+### **A libertação da matrix**
 
-- Para a infintude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus.
-- Não é almogeneses, é expansão do eu no outro, ou expansão do eu em si. As infinitas consciencias que o homem pode ser, ou o infinito campo no qual pode se expandir. Não há confinamentos para o eu. Nem para si no ser, para si no outro, e contrário a si. 
+Não há segredo para a riqueza além de desejá-la. Não há mistério para ser rico que não esteja exposto no mundo digital. O verdadeiro segredo é a concentração. O homem infligido por dúvidas existenciais, inseguranças existenciais, vê sua atenção completamente desviada. Assustado pela própria liberdade, coloca como necessidade fundamental seu crescimento. Ao passo que o niilista consegue naturalmente uma concentração exímia, por não acreditar na eternidade ou na própria liberdade. O niilista atinge um grande estado de concentração e foco em estudos de negócios. O sumo segredo da riqueza é adquirir a concentração do niilista sem ter seu teor, ou seja, ser convicto da eternidade, sem a necessidade de focar-se demais em questões existenciais. Chamaremos essa inteligência de foco existencial.
+
+A segunda qualidade é o foco pessoal, que é quando o indivíduo se livra da servidão ao pensamento alheio, quando o indivíduo está totalmente conectado consigo e passa a amar o outro mais do que depender do que este outro pensa ou como o concebe. O niilista não se importa, por tamanho ódio que sente, por pensar que um dia ninguém significará nada e nem a si mesmo; por se enxergar como um mamífero sem alma, enxerga os outros assim, e esse pensamento ilusório traz-lhe foco na sua pessoalidade, fazendo com que ele independa do pensamento alheio a seu respeito, não por amor, mas por despeito a tudo e até mesmo a si. Então o niilista consegue, artificialmente, foco existencial.
