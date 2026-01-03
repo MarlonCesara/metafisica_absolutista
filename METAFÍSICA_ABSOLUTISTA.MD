@@ -4180,6 +4180,10 @@ O super-rico causa miséria numa tentativa desesperada de proclamar que a vida o
 
 O niilista, ao perceber que deseja um convívio social considerado normal, tenta de todas as formas suprimir seus sintomas; contudo, eles não desaparecem, apenas são reprimidos e acabam se manifestando sob outras formas ou aparências distintas, como a obsessão por dinheiro, os xingamentos constantes e a projeção de conflitos interiores, o uso de substâncias químicas ou mesmo a crueldade, pois o corpo não é capaz de suportar por muito tempo a opressão de uma alma niilista, não havendo controle real sobre esses sintomas, já que o corpo, em última instância, não consegue se adaptar a essa condição.
 
+### **O niilista e a vingança como tentativa de liberdade (NOVO)**
+
+O indivíduo niilista projeta nas ocasiões passadas em que se viu prejudicado de alguma forma uma abertura para a libertação de seu ódio primordial, instaurado pela própria decisão neste vício espiritual. Portanto, elege acontecimentos do passado, pessoas ou fatos, para descarregar uma grande quantia de frustração. Como se a abertura, a descarga de ira em um ponto específico do passado ou em uma pessoa específica, pudesse aplacar toda sua posição antagônica e relutante.
+
 ### **CAPÍTULO 35: A DINÂMICA RELACIONAL E PROJETIVA**
 
 #### **O Niilista por Contrato: A Inveja da Vida**
