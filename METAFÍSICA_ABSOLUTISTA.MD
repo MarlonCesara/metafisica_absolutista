@@ -5826,4 +5826,8 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 ### **A busca de um valor artificial**
 
-O niilista projeta em pequenas conquistas, não exatamente em riquezas, o auto valor perdido. Ou seja, tenta suprir as consequencias da postura niilista em sua vida, com a aquição e obsessão em posses materiais, como heranças, adquirir bens de consumo que realmente não pode pagar, e assumir situações que sustentam uma auto imagem para si de valor.
+O niilista projeta, em pequenas conquistas — não exatamente em riquezas —, o autovalor perdido. Ou seja, tenta suprir as consequências da postura niilista em sua vida com a aquisição e a obsessão por posses materiais, como heranças, adquirir bens de consumo que realmente não pode pagar e assumir situações que sustentam uma autoimagem de valor para si.
+
+### **A projeção do vilão niilista**
+
+O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
