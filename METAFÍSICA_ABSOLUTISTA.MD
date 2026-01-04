@@ -5815,7 +5815,7 @@ O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto c
 
 ### **A descarga de energia do niilismo no outro**
 
-O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo.
+O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e por isto o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
 
 > O absoluto é pleno em si, em sua integridade, é personificavel no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável. 
 
