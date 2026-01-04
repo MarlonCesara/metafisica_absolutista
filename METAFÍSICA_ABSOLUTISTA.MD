@@ -1322,16 +1322,12 @@ No estado relativo o Espírito já contempla todas as decisões; portanto, estas
 000
 #### **O primeiro ato do Espírito**
 
-Se o primeiro ato é da suspensão perfeita, ou seja, da plenitude indiferenciada. Em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha e chamaremos esse momento de tempo do Espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
-
-> Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o start da existência. Porém, o que haveria anterior ao Big Bang seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa.
+E como o Espírito escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é da suspensão perfeita, ou seja, da plenitude indiferenciada, em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha e chamaremos esse momento de tempo do Espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
 
 Portanto, o start da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora, isto é, atemporalmente este momento já existia segundo a plenitude do Espírito. Foi, portanto, num momento perfeito dentro da temporalidade linear, ou seja, infinita, que se deu o start da ação determinada. Isto é, o Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indifereciament havia, por natureza da plenitude, uma ação perfeita para o start da ação do Espírito no tempo.
+
+Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências; mas apenas em seu aspecto relativo poderia fazer uma atualização abrangente. Assim, o Espírito se consuma no relativo, ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora contenha em si o relativo, também se manifesta no tempo. Assim age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único, por meio de seu relativo.
 000
-Onde, portanto, se encontra a consciência do Espírito em seu âmbito temporal? Temporalmente, o Espírito nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, está consumado no relativo, ao mesmo tempo em que possui uma vivência temporal. E como o Espírito escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato?
-
-O tempo do Espírito ainda existe; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora contenha em si o relativo, também se manifesta no tempo. Assim age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único, por meio de seu relativo.
-
 E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer estado da alma corresponde à sua essência, à sua persona. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua persona, considerando que sua persona é o reflexo de seu proceder.
 
 A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que tempo és tu?”. Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
@@ -1345,6 +1341,8 @@ O Espírito se dissolve na completude, pois gera em favor da perfeição já ins
 Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, no sentido de que agia antes por intermédio de seu Espírito perfeito, mas teve sua ação temporal concretizada a partir de um momento único. Assim, não houve um processo de criação da alma de Jesus diretamente do relativo, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora. O que houve foi uma ativação da ação personalizadora da segunda pessoa da Trindade. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo, ao passo que também sempre existiu atemporalmente.
 
 > *“Todas as coisas foram feitas por meio dele, e sem ele nada foi feito do que foi feito.”*
+
+> Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o start da existência. Porém, o que haveria anterior ao Big Bang seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa.
 
 ##### **2. A Dualidade do Conhecimento Divino**
 A autodeterminação envolve o que se determina, porém o autoconhecimento envolve o quem se conhece. O ato de conhecer é uma determinação temporal, pois sugere o que se conhece. No sentido de que, a experiência (conhecimento) do Espírito é autodeterminada no sentido temporal. O conhecimento, atemporal, acontece concomitantemente ao temporal, e nisto o Espírito tem consciência de sua infinitude ao passo que tem estadia determinada no tempo.
