@@ -1253,9 +1253,9 @@ O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenci
 000
 O observador atemporal, portanto, enxerga o relativo pelo referencial do Espírito em ato, ou seja, percebe a infinitude na externalidade do Espírito; enquanto, internamente, testemunha o presente e um futuro indefinido para si. Esse futuro, porém, é uma suspensão para o Espírito, assim como o seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em um único ato, o qual é determinado pelo referencial do observador temporal e indeterminado pelo referencial do observador atemporal, existindo em ato e em progressão interna.
 
-O Espírito faz escolhas para testemunhar temporalmente um evento já ocorrido. Tudo já aconteceu, mas está sendo reconhecido. O Espírito faz novas escolhas e evidencia uma das possibilidades em suspensão. Ele vivifica no tempo, autentica para si sua vivência, sua decisão. Dessa forma, o tempo funciona como uma localização da alma no decorrer temporal do Espírito, enquanto a suspensão representa a realização de todas as possibilidades de modo simultâneo.
+O Espírito faz escolhas para testemunhar temporalmente um evento já ocorrido por suspensão, e não por determinação e vivência do mesmo. Tudo já aconteceu em suspensão no relativo, mas está sendo reconhecido. O Espírito faz novas escolhas e evidencia uma das possibilidades em suspensão. Ele vivifica no tempo, autentica para si sua vivência, sua decisão. Dessa forma, o tempo funciona como uma localização da alma no decorrer temporal do Espírito, enquanto a suspensão representa a realização de todas as possibilidades de modo simultâneo.
 
-Portanto, olhar para o futuro não significa olhar para o nada, nem ir em direção a ele implica reconhecer um vazio, pois todas as opções já existem e estão consumadas. Assim, ao olhar para o futuro, olha-se para o relativo, para todas as opções do Absoluto. Todas as ações já existem, mas a existência é a confirmação, a realização temporal na qual o observador se adequa — é o pulsar da vida que viaja no tempo do Espírito.
+Portanto, olhar para o futuro não significa olhar para o nada, nem ir em direção a ele implica reconhecer um vazio, pois todas as opções já existem e estão consumadas. Assim, ao olhar para o futuro, olha-se para o relativo, para todas as opções do Absoluto. Todas as ações já existem suspensas, mas a vivência é a confirmação das ações suspensas, a realização temporal na qual o observador se adequa — é o pulsar da vida que viaja no tempo do Espírito.
 
 -   **A determinação é imanente** — não há uma "externalidade" determinada, apenas a totalidade autotestemunhando-se internamente, ainda que indeterminada em sua completude em ato.
 
@@ -1267,7 +1267,7 @@ Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade
 > _— Apocalipse 22:13_
 
 ### **Os Modos de Ser do Absoluto**
-
+000
 | Modo de Ser          | Descrição                                                                 | Manifestação Temporal      |
 |----------------------|---------------------------------------------------------------------------|----------------------------|
 | **Absoluto Indiferenciado** | Estado de pura potencialidade, todas as possibilidades em suspensão           | Eternidade atemporal           |
