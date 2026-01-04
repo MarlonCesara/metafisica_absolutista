@@ -4367,7 +4367,9 @@ O niilista, ao perceber que deseja um convívio social considerado normal, tenta
 
 ### **O niilista e a vingança como tentativa de liberdade (NOVO)**
 
-O indivíduo niilista projeta nas ocasiões passadas em que se viu prejudicado de alguma forma uma abertura para a libertação de seu ódio primordial, instaurado pela própria decisão neste vício espiritual. Portanto, elege acontecimentos do passado, pessoas ou fatos, para descarregar uma grande quantia de frustração. Como se a abertura, a descarga de ira em um ponto específico do passado ou em uma pessoa específica, pudesse aplacar toda sua posição antagônica e relutante.
+O indivíduo niilista projeta nas ocasiões passadas em que se viu prejudicado de alguma forma uma abertura para a libertação de seu ódio primordial, instaurado pela própria decisão neste vício espiritual. Portanto, elege acontecimentos do passado, pessoas ou fatos, para descarregar uma grande quantia de frustração. Como se a abertura, a descarga de ira em um ponto específico do passado ou em uma pessoa específica, pudesse aplacar toda sua posição antagônica e relutante. 
+
+É como se seu ato de vingança pudesse adequar o mundo ao que considera aceitável para a sua mudança interior; como se a força da vingança, e não somente a descarga de ódio, pudesse provocar a mudança — não exterior, mas interior — que necessita. Como se a força da vingança pudesse mover o mundo, necessariamente, a uma concordância que, na verdade, necessita acontecer por dentro, e não por fora.
 
 ### **CAPÍTULO 35: A DINÂMICA RELACIONAL E PROJETIVA**
 
