@@ -1250,7 +1250,7 @@ O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenci
 -   **A determinação é imanente e relativa** — há uma "externalidade" indiferenciada e uma internalidade testemunhada no mesmo ato. A totalidade autodetermina-se internamente em relação ao observador, revelando-se em seu referencial como um ato de progressão e definição contínua.
 
 #### **A Perspectiva do Observador no Tempo do Espírito**
-000
+
 O observador atemporal, portanto, enxerga o relativo pelo referencial do Espírito em ato, ou seja, percebe a infinitude na externalidade do Espírito; enquanto, internamente, testemunha o presente e um futuro indefinido para si. Esse futuro, porém, é uma suspensão para o Espírito, assim como o seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em um único ato, o qual é determinado pelo referencial do observador temporal e indeterminado pelo referencial do observador atemporal, existindo em ato e em progressão interna.
 
 O Espírito faz escolhas para testemunhar temporalmente um evento já ocorrido por suspensão, e não por determinação e vivência do mesmo. Tudo já aconteceu em suspensão no relativo, mas está sendo reconhecido. O Espírito faz novas escolhas e evidencia uma das possibilidades em suspensão. Ele vivifica no tempo, autentica para si sua vivência, sua decisão. Dessa forma, o tempo funciona como uma localização da alma no decorrer temporal do Espírito, enquanto a suspensão representa a realização de todas as possibilidades de modo simultâneo.
