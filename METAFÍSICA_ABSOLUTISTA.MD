@@ -1308,10 +1308,10 @@ Esta análise revela uma hierarquia de acesso à realidade:
 - **Objeto:** O Incausado em sua auto-fundamentação
 - **Método:** Intuição intelectual, experiência mística, revelação
 - **Exemplo:** A contemplação do *Ipsum Esse Subsistens* – o Ser que existe por si mesmo
-000
+
 ## **A Unidade do Método Metafísico**
 
-A verdadeira sabedoria metafísica consiste em **articular harmoniosamente** estes três níveis:
+Para uma compreensão mais robusta, torna-se necessário articular harmoniosamente estes três níveis:
 
 1. **Usar a lógica clássica** para garantir o rigor do pensamento, evitando contradições reais.
 2. **Empregar a lógica superior** para transcender os limites do meramente formal, abrindo-se ao mistério.
@@ -1370,7 +1370,6 @@ Entre o pensamento lógico (representação formal) e o pensamento causal (busca
 2. **Segundo: A Inteligibilidade** (a estrutura que permite o conhecimento)
    - Manifesta-se como lógica (princípios formais do pensamento)
    - Revela-se como ordem no real (princípios metafísicos)
-   - É a "luz natural" que irradia da Presença
 
 3. **Terceiro: As Ferramentas Discursivas**
    - **Lógica**: sistema para pensar corretamente sobre a Presença
@@ -1378,7 +1377,7 @@ Entre o pensamento lógico (representação formal) e o pensamento causal (busca
 
 ## **4. A SUPERAÇÃO DA DICOTOMIA**
 
-A aparente oposição entre sua primeira afirmação ("a lógica aristotélica é mais fundamental") e a objeção ("sem causalidade não haveria entes para serem pensados") dissolve-se quando compreendemos que:
+A aparente oposição entre a afirmação ("a lógica aristotélica é mais fundamental") e a objeção ("sem causalidade não haveria entes para serem pensados") dissolve-se quando compreendemos que:
 
 **Ambas estão certas em planos diferentes:**
 
@@ -1412,27 +1411,9 @@ Mas somente a CONTEMPLAÇÃO nos dá o ACESSO direto a Ele.**
 
 Esta contemplação não é irracional, mas **trans-racional**: usa a razão para reconhecer seus próprios limites e abrir-se ao Mistério que a transcende. Neste momento, todas as distinções - entre lógica e causalidade, entre forma e substância, entre pensamento e ser - dissolvem-se na unidade simples da **Presença que é, conhece-se e fundamenta-se a si mesma**.
 
-> *"Porque dele, e por meio dele, e para ele são todas as coisas. A ele, pois, a glória eternamente. Amém."*  
-> *(Romanos 11:36)*
-
 Assim concluímos não com uma resposta, mas com um convite: da argumentação à adoração, da análise à contemplação, do esforço racional ao repouso no Ser que, sendo a fonte de toda lógica e de toda causalidade, permanece sempre mais íntimo a nós do que nós mesmos, e mais transcendente do que tudo o que podemos conceber.
 
 **A verdadeira sabedoria metafísica não é possuir respostas definitivas, mas habitar a interrogação radical que nos mantém abertos ao Mistério do Ser - Mistério que se revela não como problema a ser resolvido, mas como Presença a ser acolhida.**
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 #### **A Perspectiva do Observador no Tempo do Espírito**
 000
