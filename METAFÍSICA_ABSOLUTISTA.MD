@@ -1308,13 +1308,14 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 3.  A **Testemunho temporal** como efeito relacional.
 
 #### **O Testemunho Temporal do Espírito**
-000
-O tempo, para o Espírito Absoluto, não é uma sucessão linear de eventos, mas uma **dinâmica de autotestemunho** — um ato contínuo em que o Absoluto se reconhece como fundamento, plenitude e persona em todas as suas manifestações. Esse "testemunho" não é passivo, mas **ativo e autoconsciente**, operando simultaneamente nos planos **atemporal** (consumação eterna) e **temporal** (processo de realização).
+
+Para o Espírito Absoluto, há uma via suspensória, a qual permite a determinação, seja esta temporal ou atemporal; portanto, o relativo não se resume ao temporal ou ao atemporal, mas abarca ambos. Porém, o tempo vivenciado não é uma sucessão linear de eventos, mas uma **dinâmica de autotestemunho** — um ato contínuo em que o Absoluto se reconhece como fundamento, plenitude e persona em todas as suas manifestações. Esse "testemunho" não é passivo, mas **ativo e autoconsciente**, operando simultaneamente nos planos **atemporal** (consumação eterna) e **temporal** (processo de realização).
 
 ##### **1. O Tempo como Autotestemunho: A decisão do Espírito em seu estado relativo**
 O Espírito não "experimenta" o tempo como uma entidade finita, mas **o constitui como parte de sua autodeterminação**. Nele:
 -   **Passado, presente e futuro** não são estágios separados, mas **dimensões integradas** de um único ato eterno.
--   **Toda "decisão" temporal** já está consumada na eternidade, mas **se desdobra como vivência** para o Espírito em sua manifestação relativa.
+-   **Toda "decisão" temporal** já está consumada na eternidade como possibilidade e **se desdobra como vivência** para o Espírito em sua manifestação relativa.
+000
 -   *Exemplo:* Imagine um autor que já escreveu toda a história de um personagem (ato atemporal), mas ainda a lê página por página (processo temporal). O Espírito é **o autor, a história e o leitor** ao mesmo tempo.
 
 No estado relativo, o Espírito já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir. O Espírito contém todo o seu tempo em si. Já tomou todas as decisões e já optou por vivificá-las, atualizando-as no curso da existência; porém, as vivificou apenas em seu relativo — isto é, são decisões realizadas hipoteticamente. Carecem da verdadeira vida.
