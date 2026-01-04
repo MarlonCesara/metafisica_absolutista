@@ -5814,10 +5814,9 @@ Transforma os bens materiais em obsessão e passa por cima do bem do próximo �
 
 O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
 
-### **A descarga de energia do no outro**
+### **A descarga de energia do niilismo no outro**
 
-O niilista não suporta o peso de si mesmo, sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo, é o desabar do sentimento niilista na humanidade. Individuos que não suportam o próprio peso, e colapsam, arrastando tudo ao seu redor neste colpaso do seu humano.
-
+O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo.
 
 
 
