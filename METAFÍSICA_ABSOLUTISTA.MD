@@ -5827,8 +5827,7 @@ O pecado representa partida. A partida eterna do existir. Não representa atos i
 
 O pecado é um conceito que visa tentar descrever a sintomática, e não a intenção. Porém, o pecado contra o Espírito Santo é uma representação aprimorada, refletindo a ideia de que o pecado é realmente pecado se for um atentado contra a plenitude do indivíduo, que concorre unidirecionalmente para a sua permanência na existência.
 
-
-
+O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é uma tentativa de construir um padrão sintomático para o niilista, que convoca o indivíduo a questionar sua posição interior e, por esta posição, inferir sobre seu próprio destino.
 
 
 
