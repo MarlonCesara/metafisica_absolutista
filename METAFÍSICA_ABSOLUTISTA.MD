@@ -1322,13 +1322,13 @@ No estado relativo o Espírito já contempla todas as decisões; portanto, estas
 000
 #### **O primeiro ato do Espírito**
 
-Se o primeiro ato é a suspensão perfeita, ou seja, a plenitude indiferenciada. Em que tempo se deu o primeiro ato de vivificação do Espírito?
-
-O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha. E que chamaremos de tempo do espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
+Se o primeiro ato é da suspensão perfeita, ou seja, da plenitude indiferenciada. Em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha e chamaremos esse momento de tempo do Espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
 
 > Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o start da existência. Porém, o que haveria anterior ao Big Bang seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa.
 
-Mas onde, então, se encontra a consciência do Espírito em seu âmbito temporal? Temporalmente, o Espírito nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, está consumado no relativo, ao mesmo tempo em que possui uma vivência temporal. E como o Espírito escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato?
+Portanto, o start da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora, isto é, atemporalmente este momento já existia segundo a plenitude do Espírito. Foi, portanto, num momento perfeito dentro da temporalidade linear, ou seja, infinita, que se deu o start da ação determinada. Isto é, o Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indifereciament havia, por natureza da plenitude, uma ação perfeita para o start da ação do Espírito no tempo.
+000
+Onde, portanto, se encontra a consciência do Espírito em seu âmbito temporal? Temporalmente, o Espírito nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, está consumado no relativo, ao mesmo tempo em que possui uma vivência temporal. E como o Espírito escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato?
 
 O tempo do Espírito ainda existe; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora contenha em si o relativo, também se manifesta no tempo. Assim age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único, por meio de seu relativo.
 
