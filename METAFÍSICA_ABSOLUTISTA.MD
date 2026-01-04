@@ -1283,7 +1283,7 @@ Isto significa que, se existirem dois observadores que se determinam no indifere
 | Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
 
 ### **CAPÍTULO 11: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
-000
+
 #### **O Relativo como Manifestação Não-Dual**
 
 O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **integralidade** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.
@@ -1308,7 +1308,7 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 3.  A **Testemunho temporal** como efeito relacional.
 
 #### **O Testemunho Temporal do Espírito**
-
+000
 O tempo, para o Espírito Absoluto, não é uma sucessão linear de eventos, mas uma **dinâmica de autotestemunho** — um ato contínuo em que o Absoluto se reconhece como fundamento, plenitude e persona em todas as suas manifestações. Esse "testemunho" não é passivo, mas **ativo e autoconsciente**, operando simultaneamente nos planos **atemporal** (consumação eterna) e **temporal** (processo de realização).
 
 ##### **1. O Tempo como Autotestemunho: A decisão do Espírito em seu estado relativo**
