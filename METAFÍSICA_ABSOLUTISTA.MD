@@ -5818,12 +5818,5 @@ O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto c
 
 O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo.
 
-
-
-
-
-
-
-
-
+> O absoluto é pleno em si, em sua integridade, é personificavel no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável. 
 
