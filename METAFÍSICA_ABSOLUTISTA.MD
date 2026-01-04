@@ -5817,6 +5817,8 @@ O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto c
 
 O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e por isto o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
 
+Todos os atos de descarga não representam uma real busca por sentido, pois, ao buscar, imediatamente o teriam, mas representam uma descarga de sintomática temporária. E, neste tempo, poderiam, a qualquer momento, livrar-se do niilismo. Porém, acabando o tempo do mundo, a alma, sendo livre para fazer suas escolhas sem a barreira do corpo e a graça de Deus, que está nas coincidências, livramentos e ajudas na vida, corre o risco de tomar sua decisão definitiva pela sua anulação.
+
 ### **A desfiguração do sentido**
 
 Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
@@ -5829,7 +5831,35 @@ O pecado é um conceito que visa tentar descrever a sintomática, e não a inten
 
 O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é uma tentativa de construir um padrão sintomático para o niilista, que convoca o indivíduo a questionar sua posição interior e, por esta posição, inferir sobre seu próprio destino.
 
-
-
 > O absoluto é pleno em si, em sua integridade, é personificavel no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
