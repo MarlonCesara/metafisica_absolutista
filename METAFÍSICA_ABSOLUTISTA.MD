@@ -1266,17 +1266,24 @@ Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade
 > _"Eu sou o Alfa e o Ômega, o Primeiro e o Último, o Princípio e o Fim."_
 > _— Apocalipse 22:13_
 
-### **Os Modos de Ser do Absoluto**
-000
-| Modo de Ser          | Descrição                                                                 | Manifestação Temporal      |
-|----------------------|---------------------------------------------------------------------------|----------------------------|
-| **Absoluto Indiferenciado** | Estado de pura potencialidade, todas as possibilidades em suspensão           | Eternidade atemporal           |
-| **Absoluto Diferenciado**   | Autoexpressão determinada, manifestação fenomênica                           | Tempo criado                   |
-| **Espírito Consumado**      | Síntese de todos os modos, ato único que contém toda a temporalidade          | Tempo do Espírito              |
+#### **O salto atemporal**
 
+É possível transitar da vivência atemporal para a vivência temporal, e da temporal para a atemporal, considerando que a experiência da infinitude pode ser alcançada no tempo e retornar ao tempo partindo de um estado atemporal. Ao dividirmos a completude em suspensão da vivência da determinação dentro de um determinado tempo, temos um atemporal determinado. Ou seja, temos uma determinação do observador que pode se fazer temporal ou atemporal, porém em duas linhas diferentes.
+
+O observador não pode anteceder escolhas vivenciadas ainda não tomadas, mas pode vivenciar todas as possibilidades simultaneamente que poderão ser dadas para o relativo e para atos futuros. Isto é, temos então uma antecipação, não da decisão, mas das possibilidades. Isto quer dizer que se tem a experiência da suspensão das possibilidades, e não das possibilidades determinadas através da suspensão.
+
+Isto significa que, se existirem dois observadores que se determinam no indiferenciado, e um deles se determinar temporalmente e outro atemporalmente, não necessariamente o que se determinou atemporalmente está alheio ao tempo transcorrido, de forma que não possa se inserir no tempo transcorrido vivenciado. Isto é, seria como se o observador temporal soubesse da existência e do retorno do observador atemporal, e o observador atemporal pudesse retornar temporalmente no tempo vivenciado pelo observador temporal. Isto se dá pelo fato de que o plano atemporal também é uma determinação para o relativo.
+
+### **Os Modos de Ser do Absoluto**
+
+| **Modo de Ser** | **Condição**   | **Determinação** | **Descrição**                                                        | **Manifestação Temporal** |
+| --------------- | -------------- | ---------------- | -------------------------------------------------------------------- | ------------------------- |
+| Absoluto        | Indiferenciado | Indeterminado    | Estado de pura potencialidade, todas as possibilidades em suspensão  | Eternidade atemporal      |
+| Absoluto        | Diferenciado   | Determinado      | Autoexpressão determinada, manifestação fenomênica                   | Tempo criado              |
+| Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
 
 ### **CAPÍTULO 11: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
-
+000
 #### **O Relativo como Manifestação Não-Dual**
 
 O relativo não é um "degrau inferior" ao Absoluto, mas sua **manifestação imediata e não-dual**. Nele, a **integralidade** (indiferenciação) e a **ação** (diferença) coexistem sem conflito, pois a totalidade não está dividida entre "ser" e "agir" — ela **é** o ato puro de ser.
