@@ -5821,3 +5821,9 @@ Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga
 3- O terceiro pilar é o foco pessoal, que é quando o indivíduo se livra da servidão ao pensamento alheio, quando o indivíduo está totalmente conectado consigo e passa a amar o outro mais do que depender do que este outro pensa ou como o concebe. O niilista não se importa, por tamanho ódio que sente, por pensar que um dia ninguém significará nada e nem a si mesmo; por se enxergar como um mamífero sem alma, enxerga os outros assim, e esse pensamento ilusório traz-lhe foco na sua pessoalidade, fazendo com que ele independa do pensamento alheio a seu respeito, não por amor, mas por despeito a tudo e até mesmo a si. Então o niilista consegue, artificialmente, uma grande branding: capacidade de exposição, de venda e marketing com a imagem pessoal.
 
 Em síntese, o niilista atinge os três pilares através do niilismo: a sede pelo poder, motivada pelo desejo de destruição e não pelo desejar de bonança. Tem o pilar da concentração por julgar qualquer pensamento elevado desnecessário a si, que está fadado ao nada. E tem o foco pessoal, por despeito a todos e por narcisismo, não por erudição e excesso de reflexão. O rico niilista, portanto, tem um pensamento rico artificialmente provocado; seu pensamento, na verdade, não está atrás de riqueza, mas acidentalmente a atrai.
+
+## Rascunhos
+
+### **A busca de um valor artificial**
+
+O niilista projeta em pequenas conquistas, não exatamente em riquezas, o auto valor perdido. Ou seja, tenta suprir as consequencias da postura niilista em sua vida, com a aquição e obsessão em posses materiais, como heranças, adquirir bens de consumo que realmente não pode pagar, e assumir situações que sustentam uma auto imagem para si de valor.
