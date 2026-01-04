@@ -1315,11 +1315,10 @@ Para o Espírito Absoluto, há uma via suspensória, a qual permite a determina�
 O Espírito não "experimenta" o tempo como uma entidade finita, mas **o constitui como parte de sua autodeterminação**. Nele:
 -   **Passado, presente e futuro** não são estágios separados, mas **dimensões integradas** de um único ato eterno.
 -   **Toda "decisão" temporal** já está consumada na eternidade como possibilidade e **se desdobra como vivência** para o Espírito em sua manifestação relativa.
-000
--   *Exemplo:* Imagine um autor que já escreveu toda a história de um personagem (ato atemporal), mas ainda a lê página por página (processo temporal). O Espírito é **o autor, a história e o leitor** ao mesmo tempo.
+-   *Exemplo:* Imagine um autor que já escreveu uma história em todas as suas versões possíveis (absoluto indiferenciado), mas ainda a lê página por página (determinação) escolhendo qual versão será realizada. O Espírito é **o autor, a história e o leitor** ao mesmo tempo.
 
 No estado relativo, o Espírito já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir. O Espírito contém todo o seu tempo em si. Já tomou todas as decisões e já optou por vivificá-las, atualizando-as no curso da existência; porém, as vivificou apenas em seu relativo — isto é, são decisões realizadas hipoteticamente. Carecem da verdadeira vida.
-
+000
 Mas onde, então, se encontra a consciência do espírito em seu âmbito temporal? Temporalmente, o Espírito nunca se atualiza de modo absoluto, mas apenas em seu aspecto relativo. Assim, está consumado no relativo, ao mesmo tempo em que possui uma vivência temporal. E como o Espírito escolhe o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato?
 
 O tempo do Espírito ainda existe; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora contenha em si o relativo, também se manifesta no tempo. Assim age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único, por meio de seu relativo.
