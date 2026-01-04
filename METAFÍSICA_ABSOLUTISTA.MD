@@ -5817,5 +5817,20 @@ O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto c
 
 O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e por isto o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
 
+### **A desfiguração do sentido**
+
+Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
+
+Ou seja, o pecado, em si, é pecado quando parte da nítida motivação do indivíduo de destruir o sentido das coisas boas, em favor de perpetuar e tornar mais confortável seu luto por si mesmo. A tentativa de desfigurar o sentido das coisas representa, de fato, o verdadeiro sentido do pecado.
+
+O pecado representa partida. A partida eterna do existir. Não representa atos isolados, falta de sabedoria ou evolução espiritual. O propósito, portanto, do pecado define se é realmente mortal ou não. Se o propósito é realmente desfigurar o sentido das coisas boas da vida, então realmente se faz um indício de niilismo.
+
+O pecado é um conceito que visa tentar descrever a sintomática, e não a intenção. Porém, o pecado contra o Espírito Santo é uma representação aprimorada, refletindo a ideia de que o pecado é realmente pecado se for um atentado contra a plenitude do indivíduo, que concorre unidirecionalmente para a sua permanência na existência.
+
+
+
+
+
+
 > O absoluto é pleno em si, em sua integridade, é personificavel no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável. 
 
