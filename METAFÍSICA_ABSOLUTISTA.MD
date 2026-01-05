@@ -4126,6 +4126,8 @@ Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua l
 
 Em determinados momentos, o homem percebia, em seu delírio, indícios de que nem mesmo os demônios existiam ali de fato. O demônio, na verdade, era uma idealização de uma causa exterior ao seu sofrimento, que afastava de si o jugo de ter se fadado a tal situação. A visão do demônio era uma projeção de si, e quem o lembrava constantemente de si era seu próprio cérebro, que procurava a liberdade em suas ações. O corpo flamejante nem mesmo sentia ódio, pois já não sentia nada. Não havia ninguém ali, e nem a si mesmo.
 
+O corpo já não sabia se o pior sofrimento era a perda total da sanidade, a dor que lhe corria por dentro ou o terror da auto visão. O corpo flamejante clamava por vida, tinha sede do seu próprio espírito, queria ver a sua própria luz. Somente isso lhe livraria de tamanho sofrimento, insanidade e terror. Um segundo apenas naquela situação parecia uma infinitude. A dor, ali, é simplesmente inarrável.
+
 ### **CAPÍTULO 32: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
 #### **O Perfil do Niilista Existencial: Uma Cartografia da Autoaniquilação**
