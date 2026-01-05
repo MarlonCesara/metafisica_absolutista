@@ -5915,7 +5915,7 @@ Quando a ciência metafísica atinge seu clímax, a revelação acontece, e ela 
 
 ## Desenvolver
 
-> O inferno é uma projeção da anulação. A alma anula onde e a forma. Ou seja, há o quem da anulação. Atemporal e temporal. O salto do tempo do mundo para o relativo, e o salto do relativo para a temporalidade. No primeiro salto a alma já padece de um apagão de sua decisão, que ocorre no exato instante de seu salto temporal. 
+> O inferno é uma projeção da anulação. A alma anula onde e a forma. Ou seja, há o quem da anulação. Atemporal e temporal. O salto do tempo do mundo para o relativo, e o salto do relativo para a temporalidade. No primeiro salto a alma já padece de um apagão de sua decisão, que ocorre no exato instante de seu salto temporal. Porém, o salto temporal ocorre novamente pela decisão e projeção da alma no que se refere ao seu ideal de vingança. Sua vingança, portanto, é intuitivamente projetavel que não seria somente silenciosa, mas estaria a amostra. A alma não se satisfaria apenas em se oculpar, mas teria o intento de revelar seu corpo em chamas. E essa é uma projeção intuitiva.
 
 
 
