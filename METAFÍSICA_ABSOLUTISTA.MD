@@ -5912,3 +5912,12 @@ Pode passar para a pessoa a impressão de fatalidade, uma vez que o indivíduo p
 Quando a ciência metafísica atinge seu clímax, a revelação acontece, e ela só pode chegar a este clímax por inspiração do Espírito Santo, pois é extremamente complexa. Até então, a imagem passada por Jesus do além provoca um paraíso inevitável, pois tudo está sob o jugo de Deus; quando a revelação metafísica é realizada, a verdade vem à tona e o homem ganha a capacidade de enxergar com clareza o além. E isto se concebe como o apocalipse. A verdade totalmente à tona. A humanidade exposta à total clareza dos fatos. O livro do apocalipse parece uma explanação de devaneios inconscientes, de defesas mentais que serão rompidas. O anticristo representa a contrariedade à forma amorosa e leve que Jesus passou a verdade. E o reaparecimento de Jesus representa o conforto a essa verdade.
 
 > O paraíso é uma projeção do ideal humano, e não uma projeção para o humano. Isto significa que o paraíso é uma construção sobre o ideal máximo do homem, e não o ideal máximo de um paraíso somente. No paraíso haverá todas as aspirações para a alma humana.
+
+## Desenvolver
+
+> O inferno é uma projeção da anulação. A alma anula onde e a forma. Ou seja, há o quem da anulação. Atemporal e temporal. O salto do tempo do mundo para o relativo, e o salto do relativo para a temporalidade. No primeiro salto a alma já padece de um apagão de sua decisão, que ocorre no exato instante de seu salto temporal. 
+
+
+
+
+
