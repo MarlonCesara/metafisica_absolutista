@@ -5843,6 +5843,14 @@ A convivencia com um niilista é implacavel, são constantes cobranças por dinh
 
 O niilista é um humano que se aterroriza constantemente, esta constantemente apanhando de si mesmo, é constantemente rigido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refem. O niilista teme perder a pessoa que mais lhe é preciosa que é a si mesmo. Sente que esta perdendo um amor para sempre. Se sente constantemente exausto e atormentado mentalmente pelo niilismo. A sensação de auto traição existe para o niilista, que se interpreta como seu maior ininmigo, seu maior algoz, alguém intimo a si que lhe ataca com uma adaga, é uma sensação de desconexão de si, de auto traição. O niilista vive magoado consigo mesmo constantemente.
 
+O niilista trai no casamento para expressair sua auto traicao, se afasta defitivamente de seu amor para expressar o afastamentondefinitivo de si, o pecado no casamento, por vezes, é um expressao do nilismo, o divorcio representa a traicao da crianca interior, e o distanciamento definitivo do niilista consigo msm. A ausencia de contato fisico  no casamento é a represrntacao niilista do auto afastamento ate mesmo do prazer de existir. O prazer da conexao consigo. 
+
+O niilista pratica o mal socialmente não por tentação, medo, ou qualquer outro motivo que não seja a expressao de uma inaceitação interior, uma tentativa de se fazer entender para aliviar a carga de si, o mal causado pelo niilista muitas vezes é um desabafo de algo insusportavel, algo que ja não sustenta. 
+
+O niilista quer provocar a sensação que esta sentindo, provoca a miseria para expressar que não consegue sustentar o proprio corpo, seu pensamento o sucumbe, é pesado demais para ele, custa caro demais.
+
+É inviavel pensar que um ser humano é tão futil que prefere uma fortuna ainda que precise ver o outro na miséria, um ser humano nao poderia chegar a tal grau de imbecilidade, de ignorancia sem que tenha um aparato para tal atrocidade, e este aparato é a tendencia de expressão. 
+
 Vive sem prazer de vida, pois o niilismo é como um espinho em sua mente. Vive em desarmonia consigo, sem relação intima consigo, sem dialogo consigo, sem contato consigo mesmo. Não tem uma relação intima consigo. Vive traindo sua criança interior, sente que vai perder sua criança, sem bem precioso, sua alegria, sua infancia.
 
 ### **A desfiguração do sentido**
