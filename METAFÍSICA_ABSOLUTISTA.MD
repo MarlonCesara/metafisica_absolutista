@@ -5849,33 +5849,42 @@ O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é u
 
 > O absoluto é pleno em si, em sua integridade, é personificavel no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável. 
 
+### **Os prezeres da porta do inferno e a tortura**
+
+Um homem chega até o relativo, em vida era ume empresário mesquinho, opressor, o um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no alem. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer.
+
+Tinha a ideologia que o pouco nunca era o suficinete, e que o muito, idealizado e pensado no próximo, também não era satisfatório. Gostava de descarregar seu ódio até o limite, via um prazer em degustar o sofrimento do outro, o rebaixar do outro. Frequentemente estralava os lábios ao ver que o outro era oprimido e que podia imperar sobre os demais como um leão, como se pudesse degustar o fracasso do outro no nivel sensorial do sabor. Sua vitoria como rico não era uma superação pessoal ou um bem social, mas um poderio de dominação.
+
+Quando morreu viu dois caminhos, um para o céu e o outro para um lugar escuro em chamas. O empresário já não dispunha de seu corpo, não tinha medo de morrer, e nem mesmo da perdição. O coração se guiava pelos seus instuitos sem estar atrelado ao desejo de sobrevivencia e auto preservação do corpo. Portanto, não havia fatores quimicos, hormonais ou instintivos operando no seu intento. O homem, visualizou o caminho escuro e sentiu que aquilo satisfaria sua sede por vingança, pois seria a total vingança de todos, até contra si mesmo. E ali adentrou. Não poderia ter adentrado no paraíso e ter tamanha gratidão, seu ódio o consumia e equeria seguir a tendencia deste mesmo ódio. O mesmo ódio que o fazia provocar a miséria para tantos, foi o mesmo que tirou sua própria vida e o fez se lançar nas chamas infernais.
+
+Na porta do inferno estava escrito: eis que ao entrar aqui, abandai toda a esperança.
+
+E isso satisfazia o ódio do empresário rico de uma forma avassaladora. Sorria endiabradamente, com uma face sombria e travejada por sombras. Sua gargalhada antes de adentrar no fogarel foi insana e morbida.
+
+Ao adentrar no fogarel pouco a pouco, como tamanha insanidade, viu um apagão. E neste apagão, seu corpo sobreviveu e podia narrar as torturas do inferno. Porém, era um corpo mecanico, um corpo biológico que não tinha realmente consciencia de si, mas tinha consciencia do sofrimento do que um dia fora. Tinha consciencia do reflexo do sofrimento do seu eu perdido. Isto é, era um corpo que um dia existirá para si podendo narrar o que estava vendo.
+
+E sua narrativa, era perturbadora. Entre suas narrações insanas e espelho de um inconscienciete perturbado e aterrorizado, era possível ouvir a mais terrivei descrição de uma dor sem fim. A alma flamejante narrava suas perturbações da seguinte forma:
+
+- Este é o mais terrivel sofrimento, é um pesadelo do qual não se pode despertar e é real. Jamais uma dor seria grande o suficiente para se comparar a este terror.
+
+- Procuro por mim mesmo, alguém teria me visto? Onde estou, estou quase chegando a mim.
+
+- O vazio que me consome é uma escuridão sem final, é como cair num peço sem fim num terror absoluto.
+
+- Tenho saudade de alguém, uma saudade tão grande que é inarravel, choro incessantemente por essa pessoa.
 
 
 
 
 
+### **A revelação do relativo**
+
+Pode passar para a pessoa a impressão de fatalidade, uma vez que o individuo pensa que não será realmente livre, que estará fadado a ajuda inevitável, ou a corrupção de sua própria liberdade em favor de sua salvação. O conhhecimento do relativo pode provocar grande sensão de estresse. O individuo niilista que se enquadrava e baseava sua segurança em se omitir dos pecados designados nos mandamentos, ao perceber que são uma sintomatica e que há outros sintomas visíveis, pode se encerrar numa grande crise, pois se pensava amparado de forma independente de si mesmo.
+
+Quando a ciencia metafisica atinge seu culpe, a revelação acontece, e ela só pode chegar a este culme por inspiração do Espírito Santo, pois é extremamente complexa. Até então a imagem passada por Jesus do alem provoca um paraíso inevitável, pois tudo está sob o julgo de Deus, quando a revelação metafisica é realizada, a verdade vem a tona e o homem ganha a capacidade de enxergar com clareza o alem. E isto se concebe como o apocalipse. A verdade totalmente a tona. A humanidade exposta a total clareza dos fatos. O livro do apocalipse parece uma explanação de devaneios inconscientes, de defesas mentais que serão rompidas. O anti cristo representa a contrariedade a forma amorosa e leve que Jesus passou a verdade. E o reaparecimento de Jesus representa o conforto a essa verdade.
 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+> O paraíso é uma projeção do ideal humano, e não uma projeção para o humano. Isto significa que o paraíso é uma construção sobre o ideal maxímo do homem, e não o ideal maxímo de um paraíso somente. No paraíso haverá todas as aspirações para a alma humana.
 
