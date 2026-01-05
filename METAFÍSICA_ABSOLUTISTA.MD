@@ -3282,6 +3282,10 @@ Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas
 **Premissa 4: O paraíso do homem**
 O relativo do Ser e o relativo do sou podem se expandir de forma misteriosa a todas as possibilidades. Não se pode reter as possibilidades mediante ao desconhecido. Então, o leque está aberto para um aval infinito de possibilidades, ainda que ilógicas (impossíveis) e até mesmo incognoscíveis (impensáveis). O paraíso do homem é ter suas aspirações concretizadas. O paraíso de Deus é que tenhamos vida em abundância.
 
+> O paraíso é uma projeção do ideal humano, e não uma projeção para o humano. Isto significa que o paraíso é uma construção sobre o ideal máximo do homem, e não o ideal máximo de um paraíso somente. No paraíso haverá todas as aspirações para a alma humana.
+
+> O inferno é uma projeção da anulação intencional da alma. O salto do tempo do mundo para o relativo, e o salto do relativo para a temporalidade. No primeiro salto, a alma já padece de um apagão de sua decisão, que ocorre no exato instante de seu salto temporal. Porém, o salto temporal ocorre novamente pela decisão e projeção da alma, no que se refere ao seu ideal de vingança. Sua vingança, portanto, é intuitivamente projetável, que não seria somente silenciosa, mas estaria à amostra. A alma não se satisfaria apenas em se ocultar, mas teria o intento de revelar seu corpo em chamas. E essa é uma projeção intuitiva do além, baseada no instinto ou ideal da alma vingativa.
+
 #### **O Relativo da Alma: O Juízo Particular**
 
 Era um filósofo de presença silenciosa, mais conhecido por seus olhos contemplativos que pareciam ver além das formas. Vestindo sempre um manto simples, ele vivia imerso em seus pensamentos, estudando a natureza da alma e da existência. Nascido no século XIX, ele carregava consigo a gravidade e a profundidade de uma era que já se findava quando seu pensamento começou a florescer. Sua vida foi um constante exame da condição humana, uma busca pela essência por trás da realidade aparente. Ele morreu de forma serena e solitária em seu modesto aposento, durante o sono. 
@@ -3998,6 +4002,10 @@ Tudo se torna transparente. O homem, mais desperto, vê as ilusões se dissolver
 
 O mundo, em sua aparência física, seguirá seu curso natural — mas o **verdadeiro apocalipse** se cumprirá no interior das consciências, na representação individual da realidade que agora será rasgada pela luz do conhecimento.
 
+A visão metafísica que este livro propõe pode transmitir a impressão de fatalidade, uma vez que o indivíduo niilista pensa que não será realmente livre de seu próprio julgo, que estará fadado à ajuda inevitável de Deus ou à corrupção de sua própria liberdade em favor de sua salvação. O conhecimento do relativo pode provocar grande sensação de estresse. O indivíduo niilista que se enquadrava e baseava sua segurança em se omitir dos pecados designados nos mandamentos, ao perceber que são uma sintomática e que há outros sintomas visíveis, pode se encerrar numa grande crise, pois se pensava amparado de forma independente de si mesmo.
+
+Quando a ciência metafísica atinge seu clímax, a revelação acontece, e ela só pode chegar a este clímax por inspiração do Espírito Santo, pois é extremamente complexa. Até então, a imagem passada por Jesus do além provoca um paraíso inevitável, pois tudo está sob o jugo de Deus; quando a revelação metafísica é realizada, a verdade vem à tona, e o homem ganha a capacidade de enxergar com clareza o além. E isto se concebe como o apocalipse: a verdade totalmente à tona. A humanidade exposta à total clareza dos fatos. O livro do Apocalipse parece uma explanação de devaneios inconscientes, de defesas mentais que serão rompidas. O anticristo representa a contrariedade à forma amorosa e leve com que Jesus passou a verdade. E o reaparecimento de Jesus representa o conforto a essa verdade.
+
 #### **A salvação do homem (NOVO)**
 
 Jesus, com sua cruz e ressurreição, objetivou o impossível: salvar toda a humanidade. E toda salvação é salvação de uma realidade maléfica — e a realidade conflituosa que podemos identificar é o niilismo. O amor transubstanciado em um ato de total entrega: a expressão da capacidade do impossível, onde Jesus entra no coração de forma a levar o amor a todo aquele que nele crê.
@@ -4061,6 +4069,58 @@ Tudo o que lhe restava era compreendê-las. Movido por uma compaixão inquisitiv
 Com seu olhar que penetrava além das formas, o filósofo discerniu o fio negro que unia todas aquelas almas condenadas ao esquecimento voluntário: um ódio primordial, dirigido não contra o mundo ou os outros, mas contra o próprio ato de existir. Era um veneno que corroía por dentro, lento e implacável, até que nada restasse senão o desejo puro de apagar-se completamente.
 
 > "O niilista, após ser fadado pelo anjo mais poderoso do céu aos infernos, manifestou uma estrondosa risada. Essa risada foi ouvida por muitos anjos, mas nenhum deles sabia de fato, descrever aquela risada com exatidão. O niilista não tem ódio da vida, ele tem ódio da vida não ter mudado quem ele é. O mal culpa a Deus por sua condição, sob o pensamento de que, se Deus é realmente poderoso, devia tê-lo criado feliz. Então, a risada do mal, na verdade, é uma imitação de felicidade na qual o mal acredita ser realmente feliz. É a imitação de um sentimento de infância não manifestado. É o ápice da loucura, a ponto de não carregar nem mesmo mais malicia, e sim a completa insanidade na expressão. É uma risada que não carrega mais consciência da realidade. Que emerge das profundezas escuras do abismo onde o mal está, e lá emite uma risada que considera ser para si sua felicidade. A risada do niilista nasce da falsidade. É a imitação de alguém feliz, porem uma imitação completamente insana. O mal, somente dizia, se é Deus, então nos salve de nós mesmos. Se não nos salva, então é porque não quis. O mal é como uma criança birrenta. Sua risada é sombria, sarcástica e carrega um ódio absoluto— uma vingança travestida de ironia, uma falsa autopiedade, um instante de prazer antes de atravessar a porta do inferno, de onde jamais contemplará a si mesmo novamente e onde toda esperança será abandonada.É uma risada mecânica, vazia, tão profana que enoja os ouvidos de quem a escuta, despertando um mal-estar profundo. É a voz abafada de uma alma delirante, perdida em uma loucura que nem ela própria compreende. Uma alma na qual nunca brilhou sequer uma centelha de amor.
+
+### **O fruto da vingança**
+
+Na porta do inferno, uma criatura de chifres tortos, nariz curvado para cima, corpo magro e aparência horripilante aguardava pacientemente os que se aproximavam. Quando o empresário chegou, ouviu da besta:
+
+— Este é o fruto da vingança. Coma-o e arrebate todos os seus inimigos. É a vingança total e irremediável contra todos. Saboreie-o e terá vitória em qualquer guerra que tenha travado. No paraíso, não há vingança mais eficaz do que esta.
+
+— E o que exatamente esse fruto faz? — perguntou o homem.
+
+— Ele concede a vingança mais cruel possível. Você terá poder definitivo sobre tudo e todos. Seu ódio encontrará fim neste fruto. Basta comer, sem questionar, e sua vingança se cumprirá.
+
+Com os olhos tomados pela ânsia de vingança, o homem mordeu o fruto. Seu corpo foi elevado ao alto como se fosse conduzido à vitória. Por um breve instante, seus olhos brilharam com o sabor do triunfo; sentiu-se poderoso, convicto de que sua vingança havia sido consumada.
+
+Mas, logo em seguida, o demônio lançou seu corpo violentamente contra o chão. Seus olhos começaram a perder o brilho, tomados por um terror profundo e indizível. O corpo passou a se debater, como se fosse golpeado por punhos invisíveis, arremessado contra o solo com tamanha violência que suas entranhas pareciam se romper por dentro.
+
+Labaredas envolveram-no por completo, enquanto um ruído insuportável invadia sua mente. O mundo à sua volta se dissolvia, como num sono forçado e profundo. Antes de perder totalmente a consciência, soltou um último grito de socorro — tão desesperado que parecia rasgar-lhe a própria garganta.
+
+O homem já não era mais homem. Tornara-se um corpo de olhos escuros, movido por uma força exterior, sem vontade própria. Não se movia porque queria, não falava porque decidia. Era como uma marionete nas mãos do demônio, que agora conduzia seus gestos e sua existência. Sua consciência parecia aprisionada para sempre, e sua vida reduzida a uma incessante destruição de si mesmo.
+
+Sua carne ardia sem cessar, consumida por chamas que nunca o deixavam perecer. Ainda assim, a dor física era menor que o desespero de ter perdido o próprio eu — a solidão absoluta e irremediável de si mesmo.
+
+Em delírios, fazia imitações de sua vida passada, na qual falava com funcionários, perguntava de horários e fazia cartas de demissão com o rosto ávido de vingança. Uma risada que mais parecia um choro de desespero inarrável, cortada pela dor física das labaredas, ecoava entupida e intercalada por gritos que se emudeciam de tamanha dor. Mas o fazia como quem quisesse relembrar o motivo de ter se lançado no inferno, como se buscasse uma concordância ou uma conformação, mas logo se desesperava e se abraçava, olhando temerosamente para os arredores, com a boca entreaberta e torta, como se estivesse paralisado por um terror sem fim.
+
+Quando o homem conseguia concentrar-se apenas na dor física do fogo ardente, o demônio o agarrava pelo pescoço, o chacoalhava copiosamente e perguntava-lhe qual é seu nome. Neste momento, o homem se colocava a debater-se num grito inarrável de desespero, saltando de um lado para o outro como se levasse facadas mortais de sua consciência ao entrar em contato com a visão vazia de si mesmo.
+
+O demônio degustava a visão de sua dor, cheio de ódio e frustração; quanto mais o torturava, mais o demônio se enchia de raiva. Em certo momento, chamou outros demônios para se unir ao tormento daquele homem. Os demônios, todos ao redor, começaram a pronunciar o nome daquele homem incessantemente. Neste instante, o homem passou a tentar rasgar sua própria carne para provocar a morte, ou ao menos distrair sua consciência do que era pior do que a própria dor lancinante que sentia.
+
+Porém, seu corpo não podia morrer, pois assim teria decidido ao comer do fruto. O homem, se pudesse ser interrogado em um breve momento de paz, se questionaria por que teria escolhido aquilo para si. Seus olhos eram mortos, pois ali não havia esperança.
+
+Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua liberdade havia sido adormecida para sempre. Um corpo desesperado, prisioneiro da decisão de uma alma que desapareceu e deixou seu vestígio de dor.
+
+### **Os prazeres da porta do inferno e a tortura**
+
+Um homem chega até o relativo; em vida era um empresário mesquinho, opressor, um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no além. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer. Tudo que desejava era uma arma para opressão, e essa arma era a riqueza abundante. Não sabia realmente apreciar as coisas belas, mas sabia tirar proveito do dinheiro para oprimir, e sem oprimir, este mesmo dinheiro não faria diferença.
+
+Tinha a ideologia de que o pouco nunca era o suficiente, e que o muito, idealizado e pensado no próximo, também não era satisfatório. Gostava de descarregar seu ódio até o limite, via um prazer em degustar o sofrimento do outro, o rebaixar do outro. Frequentemente estralava os lábios ao ver que o outro era oprimido e que podia imperar sobre os demais como um leão, como se pudesse degustar o fracasso do outro no nível sensorial do sabor. Sua vitória como rico não era uma superação pessoal ou um bem social, mas um poderio de dominação.
+
+Quando morreu, viu dois caminhos: um para o céu e o outro para um lugar escuro em chamas. O empresário já não dispunha de seu corpo, não tinha medo de morrer, e nem mesmo da perdição. O coração se guiava pelos seus instintos sem estar atrelado ao desejo de sobrevivência e auto preservação do corpo. Portanto, não havia fatores químicos, hormonais ou instintivos operando no seu intento. O homem visualizou o caminho escuro e sentiu que aquilo satisfaria sua sede por vingança, pois seria a total vingança de todos, até contra si mesmo. E ali adentrou. Não poderia ter adentrado no paraíso e ter tamanha gratidão; seu ódio o consumia e queria seguir a tendência deste mesmo ódio. O mesmo ódio que o fazia provocar a miséria para tantos, foi o mesmo que tirou sua própria vida e o fez se lançar nas chamas infernais. Na porta do inferno estava escrito: ao entrar aqui, abandone toda a esperança.
+
+E isso satisfazia o ódio do empresário rico de uma forma avassaladora. Sorria endiabradamente, com uma face sombria e tarjada por sombras. Sua gargalhada antes de adentrar no fogaréu foi insana e mórbida.
+
+Ao adentrar no fogaréu, pouco a pouco, com tamanha insanidade, viu um apagão. E neste apagão, seu corpo sobreviveu e podia narrar as torturas do inferno. Porém, era um corpo mecânico, um corpo biológico que não tinha realmente consciência de si, mas tinha consciência do sofrimento do que um dia fora. Tinha consciência do reflexo do sofrimento do seu eu perdido. Isto é, era um corpo que um dia existirá para si podendo narrar o que estava vendo.
+
+E sua narrativa era perturbadora. Entre suas narrações insanas e espelho de um inconsciente perturbado e aterrorizado, era possível ouvir a mais terrível descrição de uma dor sem fim. A alma flamejante narrava suas perturbações da seguinte forma:
+
+- Este é o mais terrível sofrimento, é um pesadelo do qual não se pode despertar e é real. Jamais uma dor seria grande o suficiente para se comparar a este terror.
+- Procuro por mim mesmo, alguém teria me visto? Onde estou, estou quase chegando a mim.
+- O vazio que me consome é uma escuridão sem final, é como cair num poço sem fim num terror absoluto.
+- Tenho saudade de alguém, uma saudade tão grande que é inarrável, choro incessantemente por essa pessoa.
+- Sinto algo me dilacerando incessantemente por dentro, sinto cair num abismo incessantemente. Chamas apagam o meu ser a todo momento, o dilacerando num desespero sem fim.
+- Aqui não há esperança, nunca vou me encontrar novamente; aquilo que mais amo e mais necessito está infinitamente longe de mim.
+- Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta-cabeça.
 
 ### **CAPÍTULO 32: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
@@ -5884,72 +5944,3 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 
 > O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
-
-### **O fruto da vingança**
-
-Na porta do inferno, uma criatura de chifres tortos, nariz curvado para cima, corpo magro e aparência horripilante aguardava pacientemente os que se aproximavam. Quando o empresário chegou, ouviu da besta:
-
-— Este é o fruto da vingança. Coma-o e arrebate todos os seus inimigos. É a vingança total e irremediável contra todos. Saboreie-o e terá vitória em qualquer guerra que tenha travado. No paraíso, não há vingança mais eficaz do que esta.
-
-— E o que exatamente esse fruto faz? — perguntou o homem.
-
-— Ele concede a vingança mais cruel possível. Você terá poder definitivo sobre tudo e todos. Seu ódio encontrará fim neste fruto. Basta comer, sem questionar, e sua vingança se cumprirá.
-
-Com os olhos tomados pela ânsia de vingança, o homem mordeu o fruto. Seu corpo foi elevado ao alto como se fosse conduzido à vitória. Por um breve instante, seus olhos brilharam com o sabor do triunfo; sentiu-se poderoso, convicto de que sua vingança havia sido consumada.
-
-Mas, logo em seguida, o demônio lançou seu corpo violentamente contra o chão. Seus olhos começaram a perder o brilho, tomados por um terror profundo e indizível. O corpo passou a se debater, como se fosse golpeado por punhos invisíveis, arremessado contra o solo com tamanha violência que suas entranhas pareciam se romper por dentro.
-
-Labaredas envolveram-no por completo, enquanto um ruído insuportável invadia sua mente. O mundo à sua volta se dissolvia, como num sono forçado e profundo. Antes de perder totalmente a consciência, soltou um último grito de socorro — tão desesperado que parecia rasgar-lhe a própria garganta.
-
-O homem já não era mais homem. Tornara-se um corpo de olhos escuros, movido por uma força exterior, sem vontade própria. Não se movia porque queria, não falava porque decidia. Era como uma marionete nas mãos do demônio, que agora conduzia seus gestos e sua existência. Sua consciência parecia aprisionada para sempre, e sua vida reduzida a uma incessante destruição de si mesmo.
-
-Sua carne ardia sem cessar, consumida por chamas que nunca o deixavam perecer. Ainda assim, a dor física era menor que o desespero de ter perdido o próprio eu — a solidão absoluta e irremediável de si mesmo.
-
-Em delírios, fazia imitações de sua vida passada, na qual falava com funcionários, perguntava de horários e fazia cartas de demissão com o rosto ávido de vingança. Uma risada que mais parecia um choro de desespero inarrável, cortada pela dor física das labaredas, ecoava entupida e intercalada por gritos que se emudeciam de tamanha dor. Mas o fazia como quem quisesse relembrar o motivo de ter se lançado no inferno, como se buscasse uma concordância ou uma conformação, mas logo se desesperava e se abraçava, olhando temerosamente para os arredores, com a boca entreaberta e torta, como se estivesse paralisado por um terror sem fim.
-
-Quando o homem conseguia concentrar-se apenas na dor física do fogo ardente, o demônio o agarrava pelo pescoço, o chacoalhava copiosamente e perguntava-lhe qual é seu nome. Neste momento, o homem se colocava a debater-se num grito inarrável de desespero, saltando de um lado para o outro como se levasse facadas mortais de sua consciência ao entrar em contato com a visão vazia de si mesmo.
-
-O demônio degustava a visão de sua dor, cheio de ódio e frustração; quanto mais o torturava, mais o demônio se enchia de raiva. Em certo momento, chamou outros demônios para se unir ao tormento daquele homem. Os demônios, todos ao redor, começaram a pronunciar o nome daquele homem incessantemente. Neste instante, o homem passou a tentar rasgar sua própria carne para provocar a morte, ou ao menos distrair sua consciência do que era pior do que a própria dor lancinante que sentia.
-
-Porém, seu corpo não podia morrer, pois assim teria decidido ao comer do fruto. O homem, se pudesse ser interrogado em um breve momento de paz, se questionaria por que teria escolhido aquilo para si. Seus olhos eram mortos, pois ali não havia esperança.
-
-Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua liberdade havia sido adormecida para sempre. Um corpo desesperado, prisioneiro da decisão de uma alma que desapareceu e deixou seu vestígio de dor.
-
-### **Os prazeres da porta do inferno e a tortura**
-
-Um homem chega até o relativo; em vida era um empresário mesquinho, opressor, um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no além. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer. Tudo que desejava era uma arma para opressão, e essa arma era a riqueza abundante. Não sabia realmente apreciar as coisas belas, mas sabia tirar proveito do dinheiro para oprimir, e sem oprimir, este mesmo dinheiro não faria diferença.
-
-Tinha a ideologia de que o pouco nunca era o suficiente, e que o muito, idealizado e pensado no próximo, também não era satisfatório. Gostava de descarregar seu ódio até o limite, via um prazer em degustar o sofrimento do outro, o rebaixar do outro. Frequentemente estralava os lábios ao ver que o outro era oprimido e que podia imperar sobre os demais como um leão, como se pudesse degustar o fracasso do outro no nível sensorial do sabor. Sua vitória como rico não era uma superação pessoal ou um bem social, mas um poderio de dominação.
-
-Quando morreu, viu dois caminhos: um para o céu e o outro para um lugar escuro em chamas. O empresário já não dispunha de seu corpo, não tinha medo de morrer, e nem mesmo da perdição. O coração se guiava pelos seus instintos sem estar atrelado ao desejo de sobrevivência e auto preservação do corpo. Portanto, não havia fatores químicos, hormonais ou instintivos operando no seu intento. O homem visualizou o caminho escuro e sentiu que aquilo satisfaria sua sede por vingança, pois seria a total vingança de todos, até contra si mesmo. E ali adentrou. Não poderia ter adentrado no paraíso e ter tamanha gratidão; seu ódio o consumia e queria seguir a tendência deste mesmo ódio. O mesmo ódio que o fazia provocar a miséria para tantos, foi o mesmo que tirou sua própria vida e o fez se lançar nas chamas infernais. Na porta do inferno estava escrito: ao entrar aqui, abandone toda a esperança.
-
-E isso satisfazia o ódio do empresário rico de uma forma avassaladora. Sorria endiabradamente, com uma face sombria e tarjada por sombras. Sua gargalhada antes de adentrar no fogaréu foi insana e mórbida.
-
-Ao adentrar no fogaréu, pouco a pouco, com tamanha insanidade, viu um apagão. E neste apagão, seu corpo sobreviveu e podia narrar as torturas do inferno. Porém, era um corpo mecânico, um corpo biológico que não tinha realmente consciência de si, mas tinha consciência do sofrimento do que um dia fora. Tinha consciência do reflexo do sofrimento do seu eu perdido. Isto é, era um corpo que um dia existirá para si podendo narrar o que estava vendo.
-
-E sua narrativa era perturbadora. Entre suas narrações insanas e espelho de um inconsciente perturbado e aterrorizado, era possível ouvir a mais terrível descrição de uma dor sem fim. A alma flamejante narrava suas perturbações da seguinte forma:
-
-- Este é o mais terrível sofrimento, é um pesadelo do qual não se pode despertar e é real. Jamais uma dor seria grande o suficiente para se comparar a este terror.
-- Procuro por mim mesmo, alguém teria me visto? Onde estou, estou quase chegando a mim.
-- O vazio que me consome é uma escuridão sem final, é como cair num poço sem fim num terror absoluto.
-- Tenho saudade de alguém, uma saudade tão grande que é inarrável, choro incessantemente por essa pessoa.
-- Sinto algo me dilacerando incessantemente por dentro, sinto cair num abismo incessantemente. Chamas apagam o meu ser a todo momento, o dilacerando num desespero sem fim.
-- Aqui não há esperança, nunca vou me encontrar novamente; aquilo que mais amo e mais necessito está infinitamente longe de mim.
-- Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta-cabeça.
-
-
-
-
-
-
-
-
-### **A revelação do relativo**
-
-Pode passar para a pessoa a impressão de fatalidade, uma vez que o indivíduo pensa que não será realmente livre, que estará fadado à ajuda inevitável, ou à corrupção de sua própria liberdade em favor de sua salvação. O conhecimento do relativo pode provocar grande sensação de estresse. O indivíduo niilista que se enquadrava e baseava sua segurança em se omitir dos pecados designados nos mandamentos, ao perceber que são uma sintomática e que há outros sintomas visíveis, pode se encerrar numa grande crise, pois se pensava amparado de forma independente de si mesmo.
-
-Quando a ciência metafísica atinge seu clímax, a revelação acontece, e ela só pode chegar a este clímax por inspiração do Espírito Santo, pois é extremamente complexa. Até então, a imagem passada por Jesus do além provoca um paraíso inevitável, pois tudo está sob o jugo de Deus; quando a revelação metafísica é realizada, a verdade vem à tona e o homem ganha a capacidade de enxergar com clareza o além. E isto se concebe como o apocalipse. A verdade totalmente à tona. A humanidade exposta à total clareza dos fatos. O livro do apocalipse parece uma explanação de devaneios inconscientes, de defesas mentais que serão rompidas. O anticristo representa a contrariedade à forma amorosa e leve que Jesus passou a verdade. E o reaparecimento de Jesus representa o conforto a essa verdade.
-
-> O paraíso é uma projeção do ideal humano, e não uma projeção para o humano. Isto significa que o paraíso é uma construção sobre o ideal máximo do homem, e não o ideal máximo de um paraíso somente. No paraíso haverá todas as aspirações para a alma humana.
-
-> O inferno é uma projeção da anulação. O salto do tempo do mundo para o relativo, e o salto do relativo para a temporalidade. No primeiro salto, a alma já padece de um apagão de sua decisão, que ocorre no exato instante de seu salto temporal. Porém, o salto temporal ocorre novamente pela decisão e projeção da alma, no que se refere ao seu ideal de vingança. Sua vingança, portanto, é intuitivamente projetável, que não seria somente silenciosa, mas estaria à amostra. A alma não se satisfaria apenas em se ocultar, mas teria o intento de revelar seu corpo em chamas. E essa é uma projeção intuitiva do além, baseada no instinto ou ideal da alma vingativa.
