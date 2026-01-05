@@ -5843,6 +5843,8 @@ A convivencia com um niilista é implacavel, são constantes cobranças por dinh
 
 O niilista é um humano que se aterroriza constantemente, esta constantemente apanhando de si mesmo, é constantemente rigido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refem. O niilista teme perder a pessoa que mais lhe é preciosa que é a si mesmo. Sente que esta perdendo um amor para sempre. Se sente constantemente exausto e atormentado mentalmente pelo niilismo. A sensação de auto traição existe para o niilista, que se interpreta como seu maior ininmigo, seu maior algoz, alguém intimo a si que lhe ataca com uma adaga, é uma sensação de desconexão de si, de auto traição. O niilista vive magoado consigo mesmo constantemente.
 
+Vive sem prazer de vida, pois o niilismo é como um espinho em sua mente. Vive em desarmonia consigo, sem relação intima consigo, sem dialogo consigo, sem contato consigo mesmo. Não tem uma relação intima consigo. Vive traindo sua criança interior, sente que vai perder sua criança, sem bem precioso, sua alegria, sua infancia.
+
 ### **A desfiguração do sentido**
 
 Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
