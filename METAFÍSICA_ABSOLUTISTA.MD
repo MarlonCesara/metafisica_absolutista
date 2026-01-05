@@ -5841,6 +5841,8 @@ O querer de si é o que realmente o rico ganancioso ou a mulher com mania por be
 
 A convivencia com um niilista é implacavel, são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e tem seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua o outro o auto valor extraido pelo niilismo. O niilista precisa ver a sua familai arrasada, a sociedade arrasada, tudo em caos para estar em conformidade com seu luto interior.
 
+O niilista é um humano que se aterroriza constantemente, esta constantemente apanhando de si mesmo, é constantemente rigido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refem. O niilista teme perder a pessoa que mais lhe é preciosa que é a si mesmo. Sente que esta perdendo um amor para sempre. Se sente constantemente exausto e atormentado mentalmente pelo niilismo.
+
 ### **A desfiguração do sentido**
 
 Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
