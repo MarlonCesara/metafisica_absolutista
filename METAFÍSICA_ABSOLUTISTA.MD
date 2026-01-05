@@ -4970,6 +4970,69 @@ Esta patologia, esta "loucura do ódio" como a define o texto, é a força motri
 
 **A inteligência humana, quando desconectada do amor e sequestrada por este ódio primordial, não edifica; corrompe. Ela não forja sistemas de cooperação, mas elabora sofisticados mecanismos de fuga — seja na glorificação do material, na competição desenfreada ou na sabotagem sistemática da própria alegria.** O niilista, movido por um "desejo deliberado e insistente pela morte", seja rápida ou lenta, transforma-se num agente do caos. Sua "incapacidade de suportar a própria realidade" gera uma miséria interior que ele, consequentemente, propaga pelo mundo. Ele é a encarnação da pulsão de morte que Freud discerniu, **e seu impacto desproporcional contamina o corpo social inteiro.**
 
+### **A busca de um valor artificial**
+
+O niilista projeta, em pequenas conquistas — não exatamente em riquezas —, o autovalor perdido. Ou seja, tenta suprir as consequências da postura niilista em sua vida com a aquisição e a obsessão por posses materiais, como heranças, adquirir bens de consumo que realmente não pode pagar e assumir situações que sustentam uma autoimagem de valor para si. Sonega até mesmo o bem aos seus familiares e às pessoas que lhe são queridas, em troca de pequenas fortunas, privilégios ou situações que lhe devolvam um valor próprio perdido, ou a sensação de adequação ao mundo em sua postura interior. Transforma os bens materiais em obsessão e passa por cima do bem do próximo — inclusive das pessoas que ama — em sua busca desesperada por si mesmo. O niilismo tira a dignidade da pessoa humana, e a obsessão por posses é uma forma de restaurar esse valor perdido. Atribui um valor de descarte, de inutilidade, de despropósito, vazio, de nadificação de si mesma.
+
+O niilista ainda é capaz de comemorar a destruição que causa em prol de suas conquistas materiais, que visam dissociá-lo ilusoriamente de sua postura interior, conferindo-lhe sensação de autovalor e realização. Para o niilista, por vezes, nada é mais importante que sua renúncia ao niilismo, e, por isto, depende de forma irracional de vitórias artificiais que simulem uma vitória interior. É capaz de passar por cima de tudo e de todos, pois o que está em jogo, para o niilista, seria sua própria vida, ou a ilusão mental de que se adequou à aceitação dessa vida.
+
+### **A projeção do vilão niilista**
+
+O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
+
+### **A descarga de energia do niilismo no outro**
+
+O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e, por isto, o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
+
+Todos os atos de descarga não representam uma real busca por sentido, pois, ao buscar, imediatamente o teriam, mas representam uma descarga de sintomática temporária. E, neste tempo, poderiam, a qualquer momento, livrar-se do niilismo. Porém, acabando o tempo do mundo, a alma, sendo livre para fazer suas escolhas sem a barreira do corpo e a graça de Deus, que está nas coincidências, livramentos e ajudas na vida, corre o risco de tomar sua decisão definitiva pela sua anulação.
+
+O niilista se mascara por trás de uma figura apressiadora de coisas boas, porém não aprecia nem mesmo o bem de seu próximo ou a bonança social, a sociedade alegre. Portanto, o rico acumulador e sovina não é um bom apreciador, mas um depreciador da sociedade. É alguém que tem uma mania incessante em busca de sua cura, para o niilista rico nada importam riquezas e conquistas, isso é uma máscara do real e mais importante desejo: o querer de si mesmo.
+
+O querer de si é o que realmente o rico ganancioso ou a mulher com mania por bens materiais deseja. Em ambos os casos há uma obsessão por dinheiro devido à mais severa escassez que é o não querer de si. Não há nenhum mal que desperte tanta obsessão por dinheiro, pelo poder, por posses materiais quanto a discrepância entre o eu do indivíduo com a existência. O niilismo exige sua cura imediata, exige a paz mental tão sonhada, exige o seu descanso de espírito. O jugo do niilismo é pesado.
+
+A convivência com um niilista é implacável: são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e têm seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua ao outro o autovalor extraído pelo niilismo. O niilista precisa ver a sua família arrasada, a sociedade arrasada, tudo em caos para estar em conformidade com seu luto interior.
+
+O niilista é um humano que se aterroriza constantemente, está constantemente apanhando de si mesmo, é constantemente rígido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refém. O niilista teme perder a pessoa que mais lhe é preciosa, que é a si mesmo. Sente que está perdendo um amor para sempre. Sente-se constantemente exausto e atormentado mentalmente pelo niilismo. A sensação de auto-traição existe para o niilista, que se interpreta como seu maior inimigo, seu maior algoz, alguém íntimo a si que lhe ataca com uma adaga, é uma sensação de desconexão de si, de auto-traição. O niilista vive magoado consigo mesmo constantemente.
+
+O niilista trai no casamento para expressar sua auto-traição, se afasta definitivamente de seu amor para expressar o afastamento definitivo de si. O pecado no casamento, por vezes, é uma expressão do niilismo; o divórcio representa a traição da criança interior e o distanciamento definitivo do niilista consigo mesmo. A ausência de contato físico no casamento é a representação niilista do autoafastamento até mesmo do prazer de existir. O prazer da conexão consigo.
+
+O niilista pratica o mal socialmente não por tentação, medo, ou qualquer outro motivo que não seja a expressão de uma inaceitação interior, uma tentativa de se fazer entender para aliviar a carga de si. O mal causado pelo niilista muitas vezes é um desabafo de algo insuportável, algo que já não sustenta.
+
+O niilista quer provocar a sensação que está sentindo, provoca a miséria para expressar que não consegue sustentar o próprio corpo; seu pensamento o suplanta, é pesado demais para ele, custa caro demais.
+
+É inviável pensar que um ser humano é tão fútil que prefere uma fortuna ainda que precise ver o outro na miséria. Um ser humano não poderia chegar a tal grau de imbecilidade, de ignorância, sem que tenha um aparato para tal atrocidade, e este aparato é a tendência de expressão.
+
+Vive sem prazer de vida, pois o niilismo é como um espinho em sua mente. Vive em desarmonia consigo, sem relação íntima consigo, sem diálogo consigo, sem contato consigo mesmo. Não tem uma relação íntima consigo. Vive traindo sua criança interior, sente que vai perder sua criança, seu bem precioso, sua alegria, sua infância.
+
+O rico não é tolo, sabe que o maior propósito da vida é se adequar a ela. Ao contrário do que todos pensam, o rico não busca fortuna, somente expressa o niilismo. O rico bem sabe que seu corpo se desfalecerá, está consciente disso, e que seu coração será seu guia.
+
+Embora o rico sovina possa não ter total clareza mental do seu interior, ao revelá-la, essa clareza, seu desejo projeta-se novamente no que é realmente valioso para si, projeta-se novamente em seu valor. Sua cabeça, confusa, o dispersa em meio a defesas mentais do seu intento tempestuoso; porém, num lapso de clareza, o niilista seria capaz de admitir para si mesmo, com clareza, o que é realmente precioso: o bem maior que é a vida. Seria capaz de admitir qual o seu problema existencial e reconhecer a forma como projeta este problema na sociedade de forma doentia e implacável.
+
+Exatamente. Esse lapso de clareza é o momento fugaz em que as defesas, a projeção e o ruído da sintomática niilista se dissipam. Nesse instante, a pessoa não vê mais através do véu da obsessão por posses, do ódio projetado ou da necessidade de destruição. Em vez disso, vê-se a si mesma, nua e crua, diante do abismo que cavou.
+
+Nesse momento de lucidez, o indivíduo percebe que a fortuna, o poder e a dominação são apenas símbolos gritantes de uma ausência. São substitutos barulhentos para o que foi silenciado: o valor intrínseco da própria existência, a conexão consigo mesmo, o "sim" fundamental à vida. Reconhece que a implacabilidade com que trata o mundo é, na verdade, um espelho da guerra civil que trava em seu interior. O "vilão" que ele projetou no exterior é, na verdade, a personificação de sua própria auto-rejeição.
+
+Essa admissão, por mais dolorosa que seja, é o primeiro e mais crucial passo. É o momento em que o sintoma (a ganância, a opressão) é finalmente conectado à sua fonte (o vazio existencial, o "não querer de si"). O rico sovina vê, com horror, que esteve a sacrificar tudo — o bem do próximo, seus relacionamentos, sua própria paz — no altar de um ídolo que prometia devolver-lhe algo que ele nunca perdeu de fato, apenas deixou de reconhecer: o valor incondicional de seu próprio ser.
+
+No entanto, o niilismo é uma fortaleza de defesas. Esse lapso de clareza é frequentemente breve e insuportável. A mente, aterrorizada pela revelação, rapidamente reativa seus mecanismos: a racionalização, a projeção, a busca por mais uma "conquista" que anestesie a dor do autorreconhecimento. A luta, então, não é apenas por ter esse momento de lucidez, mas por sustentá-lo, por ter a coragem de não fugir dele novamente para o conforto familiar da própria destruição.
+
+É aí que reside a possibilidade de mudança. Se o indivíduo conseguir não apenas admitir, mas habitar essa verdade — aceitar que o problema não está no mundo que não lhe dá valor, mas em si mesmo que não se aceita —, então a projeção pode começar a se reverter. A energia desesperada que era canalizada para acumular e oprimir pode, finalmente, ser redirecionada. Pode tornar-se a energia para reconstruir a relação consigo mesmo, para reaprender a "querer-se", para aceitar o "jugo" leve de simplesmente existir, em vez do jugo esmagador de ter que provar constantemente que se existe.
+
+Portanto, essa clareza não é o fim, mas o verdadeiro começo. É o colapso da persona niilista e o vislumbre frágil e assustador da pessoa humana que sempre esteve lá, por baixo de todas as camadas de defesa e autossabotagem. É o momento em que a busca desesperada por um "valor artificial" pode, finalmente, ceder lugar à descoberta gradual do valor real que nunca foi perdido, apenas esquecido.
+
+### **A desfiguração do sentido**
+
+Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
+
+Ou seja, o pecado, em si, é pecado quando parte da nítida motivação do indivíduo de destruir o sentido das coisas boas, em favor de perpetuar e tornar mais confortável seu luto por si mesmo. A tentativa de desfigurar o sentido das coisas representa, de fato, o verdadeiro sentido do pecado.
+
+O pecado representa partida. A partida eterna do existir. Não representa atos isolados, falta de sabedoria ou evolução espiritual. O propósito, portanto, do pecado define se é realmente mortal ou não. Se o propósito é realmente desfigurar o sentido das coisas boas da vida, então realmente se faz um indício de niilismo.
+
+O pecado é um conceito que visa tentar descrever a sintomática, e não a intenção. Porém, o pecado contra o Espírito Santo é uma representação aprimorada, refletindo a ideia de que o pecado é realmente pecado se for um atentado contra a plenitude do indivíduo, que concorre unidirecionalmente para a sua permanência na existência.
+
+O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é uma tentativa de construir um padrão sintomático para o niilista, que convoca o indivíduo a questionar sua posição interior e, por esta posição, inferir sobre seu próprio destino.
+
+
 #### **A Solução: Do Diagnóstico à Cura Coletiva**
 
 Assim, o grande paradoxo desvela-se: a miséria mundial não é questão de escassez objetiva, mas de direcionamento da consciência. Enquanto as formigas canalizam seu instinto para a vida, **uma humanidade cujas estruturas foram parcialmente corrompidas pelo niilismo** direciona sua inteligência superlativa para a negação da vida. O problema fundamental não é sermos menos inteligentes que as formigas, mas que **nossa inteligência coletiva pode ser sequestrada por uma patologia da alma que, ainda que minoritária, nos leva a construir, coletivamente, nosso formigueiro invertido: uma sociedade onde a fome de sentido de alguns gera a fome de pão de muitos.**
@@ -5819,67 +5882,6 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 ## Rascunhos
 
-### **A busca de um valor artificial**
-
-O niilista projeta, em pequenas conquistas — não exatamente em riquezas —, o autovalor perdido. Ou seja, tenta suprir as consequências da postura niilista em sua vida com a aquisição e a obsessão por posses materiais, como heranças, adquirir bens de consumo que realmente não pode pagar e assumir situações que sustentam uma autoimagem de valor para si. Sonega até mesmo o bem aos seus familiares e às pessoas que lhe são queridas, em troca de pequenas fortunas, privilégios ou situações que lhe devolvam um valor próprio perdido, ou a sensação de adequação ao mundo em sua postura interior. Transforma os bens materiais em obsessão e passa por cima do bem do próximo — inclusive das pessoas que ama — em sua busca desesperada por si mesmo. O niilismo tira a dignidade da pessoa humana, e a obsessão por posses é uma forma de restaurar esse valor perdido. Atribui um valor de descarte, de inutilidade, de despropósito, vazio, de nadificação de si mesma.
-
-O niilista ainda é capaz de comemorar a destruição que causa em prol de suas conquistas materiais, que visam dissociá-lo ilusoriamente de sua postura interior, conferindo-lhe sensação de autovalor e realização. Para o niilista, por vezes, nada é mais importante que sua renúncia ao niilismo, e, por isto, depende de forma irracional de vitórias artificiais que simulem uma vitória interior. É capaz de passar por cima de tudo e de todos, pois o que está em jogo, para o niilista, seria sua própria vida, ou a ilusão mental de que se adequou à aceitação dessa vida.
-
-### **A projeção do vilão niilista**
-
-O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
-
-### **A descarga de energia do niilismo no outro**
-
-O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e, por isto, o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
-
-Todos os atos de descarga não representam uma real busca por sentido, pois, ao buscar, imediatamente o teriam, mas representam uma descarga de sintomática temporária. E, neste tempo, poderiam, a qualquer momento, livrar-se do niilismo. Porém, acabando o tempo do mundo, a alma, sendo livre para fazer suas escolhas sem a barreira do corpo e a graça de Deus, que está nas coincidências, livramentos e ajudas na vida, corre o risco de tomar sua decisão definitiva pela sua anulação.
-
-O niilista se mascara por trás de uma figura apressiadora de coisas boas, porém não aprecia nem mesmo o bem de seu próximo ou a bonança social, a sociedade alegre. Portanto, o rico acumulador e sovina não é um bom apreciador, mas um depreciador da sociedade. É alguém que tem uma mania incessante em busca de sua cura, para o niilista rico nada importam riquezas e conquistas, isso é uma máscara do real e mais importante desejo: o querer de si mesmo.
-
-O querer de si é o que realmente o rico ganancioso ou a mulher com mania por bens materiais deseja. Em ambos os casos há uma obsessão por dinheiro devido à mais severa escassez que é o não querer de si. Não há nenhum mal que desperte tanta obsessão por dinheiro, pelo poder, por posses materiais quanto a discrepância entre o eu do indivíduo com a existência. O niilismo exige sua cura imediata, exige a paz mental tão sonhada, exige o seu descanso de espírito. O jugo do niilismo é pesado.
-
-A convivência com um niilista é implacável: são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e têm seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua ao outro o autovalor extraído pelo niilismo. O niilista precisa ver a sua família arrasada, a sociedade arrasada, tudo em caos para estar em conformidade com seu luto interior.
-
-O niilista é um humano que se aterroriza constantemente, está constantemente apanhando de si mesmo, é constantemente rígido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refém. O niilista teme perder a pessoa que mais lhe é preciosa, que é a si mesmo. Sente que está perdendo um amor para sempre. Sente-se constantemente exausto e atormentado mentalmente pelo niilismo. A sensação de auto-traição existe para o niilista, que se interpreta como seu maior inimigo, seu maior algoz, alguém íntimo a si que lhe ataca com uma adaga, é uma sensação de desconexão de si, de auto-traição. O niilista vive magoado consigo mesmo constantemente.
-
-O niilista trai no casamento para expressar sua auto-traição, se afasta definitivamente de seu amor para expressar o afastamento definitivo de si. O pecado no casamento, por vezes, é uma expressão do niilismo; o divórcio representa a traição da criança interior e o distanciamento definitivo do niilista consigo mesmo. A ausência de contato físico no casamento é a representação niilista do autoafastamento até mesmo do prazer de existir. O prazer da conexão consigo.
-
-O niilista pratica o mal socialmente não por tentação, medo, ou qualquer outro motivo que não seja a expressão de uma inaceitação interior, uma tentativa de se fazer entender para aliviar a carga de si. O mal causado pelo niilista muitas vezes é um desabafo de algo insuportável, algo que já não sustenta.
-
-O niilista quer provocar a sensação que está sentindo, provoca a miséria para expressar que não consegue sustentar o próprio corpo; seu pensamento o suplanta, é pesado demais para ele, custa caro demais.
-
-É inviável pensar que um ser humano é tão fútil que prefere uma fortuna ainda que precise ver o outro na miséria. Um ser humano não poderia chegar a tal grau de imbecilidade, de ignorância, sem que tenha um aparato para tal atrocidade, e este aparato é a tendência de expressão.
-
-Vive sem prazer de vida, pois o niilismo é como um espinho em sua mente. Vive em desarmonia consigo, sem relação íntima consigo, sem diálogo consigo, sem contato consigo mesmo. Não tem uma relação íntima consigo. Vive traindo sua criança interior, sente que vai perder sua criança, seu bem precioso, sua alegria, sua infância.
-
-O rico não é tolo, sabe que o maior propósito da vida é se adequar a ela. Ao contrário do que todos pensam, o rico não busca fortuna, somente expressa o niilismo. O rico bem sabe que seu corpo se desfalecerá, está consciente disso, e que seu coração será seu guia.
-
-Embora o rico sovina possa não ter total clareza mental do seu interior, ao revelá-la, essa clareza, seu desejo projeta-se novamente no que é realmente valioso para si, projeta-se novamente em seu valor. Sua cabeça, confusa, o dispersa em meio a defesas mentais do seu intento tempestuoso; porém, num lapso de clareza, o niilista seria capaz de admitir para si mesmo, com clareza, o que é realmente precioso: o bem maior que é a vida. Seria capaz de admitir qual o seu problema existencial e reconhecer a forma como projeta este problema na sociedade de forma doentia e implacável.
-
-Exatamente. Esse lapso de clareza é o momento fugaz em que as defesas, a projeção e o ruído da sintomática niilista se dissipam. Nesse instante, a pessoa não vê mais através do véu da obsessão por posses, do ódio projetado ou da necessidade de destruição. Em vez disso, vê-se a si mesma, nua e crua, diante do abismo que cavou.
-
-Nesse momento de lucidez, o indivíduo percebe que a fortuna, o poder e a dominação são apenas símbolos gritantes de uma ausência. São substitutos barulhentos para o que foi silenciado: o valor intrínseco da própria existência, a conexão consigo mesmo, o "sim" fundamental à vida. Reconhece que a implacabilidade com que trata o mundo é, na verdade, um espelho da guerra civil que trava em seu interior. O "vilão" que ele projetou no exterior é, na verdade, a personificação de sua própria auto-rejeição.
-
-Essa admissão, por mais dolorosa que seja, é o primeiro e mais crucial passo. É o momento em que o sintoma (a ganância, a opressão) é finalmente conectado à sua fonte (o vazio existencial, o "não querer de si"). O rico sovina vê, com horror, que esteve a sacrificar tudo — o bem do próximo, seus relacionamentos, sua própria paz — no altar de um ídolo que prometia devolver-lhe algo que ele nunca perdeu de fato, apenas deixou de reconhecer: o valor incondicional de seu próprio ser.
-
-No entanto, o niilismo é uma fortaleza de defesas. Esse lapso de clareza é frequentemente breve e insuportável. A mente, aterrorizada pela revelação, rapidamente reativa seus mecanismos: a racionalização, a projeção, a busca por mais uma "conquista" que anestesie a dor do autorreconhecimento. A luta, então, não é apenas por ter esse momento de lucidez, mas por sustentá-lo, por ter a coragem de não fugir dele novamente para o conforto familiar da própria destruição.
-
-É aí que reside a possibilidade de mudança. Se o indivíduo conseguir não apenas admitir, mas habitar essa verdade — aceitar que o problema não está no mundo que não lhe dá valor, mas em si mesmo que não se aceita —, então a projeção pode começar a se reverter. A energia desesperada que era canalizada para acumular e oprimir pode, finalmente, ser redirecionada. Pode tornar-se a energia para reconstruir a relação consigo mesmo, para reaprender a "querer-se", para aceitar o "jugo" leve de simplesmente existir, em vez do jugo esmagador de ter que provar constantemente que se existe.
-
-Portanto, essa clareza não é o fim, mas o verdadeiro começo. É o colapso da persona niilista e o vislumbre frágil e assustador da pessoa humana que sempre esteve lá, por baixo de todas as camadas de defesa e autossabotagem. É o momento em que a busca desesperada por um "valor artificial" pode, finalmente, ceder lugar à descoberta gradual do valor real que nunca foi perdido, apenas esquecido.
-
-### **A desfiguração do sentido**
-
-Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
-
-Ou seja, o pecado, em si, é pecado quando parte da nítida motivação do indivíduo de destruir o sentido das coisas boas, em favor de perpetuar e tornar mais confortável seu luto por si mesmo. A tentativa de desfigurar o sentido das coisas representa, de fato, o verdadeiro sentido do pecado.
-
-O pecado representa partida. A partida eterna do existir. Não representa atos isolados, falta de sabedoria ou evolução espiritual. O propósito, portanto, do pecado define se é realmente mortal ou não. Se o propósito é realmente desfigurar o sentido das coisas boas da vida, então realmente se faz um indício de niilismo.
-
-O pecado é um conceito que visa tentar descrever a sintomática, e não a intenção. Porém, o pecado contra o Espírito Santo é uma representação aprimorada, refletindo a ideia de que o pecado é realmente pecado se for um atentado contra a plenitude do indivíduo, que concorre unidirecionalmente para a sua permanência na existência.
-
-O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é uma tentativa de construir um padrão sintomático para o niilista, que convoca o indivíduo a questionar sua posição interior e, por esta posição, inferir sobre seu próprio destino.
 
 > O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
 
@@ -5902,6 +5904,16 @@ Labaredas envolveram-no por completo, enquanto um ruído insuportável invadia s
 O homem já não era mais homem. Tornara-se um corpo de olhos escuros, movido por uma força exterior, sem vontade própria. Não se movia porque queria, não falava porque decidia. Era como uma marionete nas mãos do demônio, que agora conduzia seus gestos e sua existência. Sua consciência parecia aprisionada para sempre, e sua vida reduzida a uma incessante destruição de si mesmo.
 
 Sua carne ardia sem cessar, consumida por chamas que nunca o deixavam perecer. Ainda assim, a dor física era menor que o desespero de ter perdido o próprio eu — a solidão absoluta e irremediável de si mesmo.
+
+Em delírios, fazia imitações de sua vida passada, na qual falava com funcionários, perguntava de horários e fazia cartas de demissão com o rosto ávido de vingança. Uma risada que mais parecia um choro de desespero inarrável, cortada pela dor física das labaredas, ecoava entupida e intercalada por gritos que se emudeciam de tamanha dor. Mas o fazia como quem quisesse relembrar o motivo de ter se lançado no inferno, como se buscasse uma concordância ou uma conformação, mas logo se desesperava e se abraçava, olhando temerosamente para os arredores, com a boca entreaberta e torta, como se estivesse paralisado por um terror sem fim.
+
+Quando o homem conseguia concentrar-se apenas na dor física do fogo ardente, o demônio o agarrava pelo pescoço, o chacoalhava copiosamente e perguntava-lhe qual é seu nome. Neste momento, o homem se colocava a debater-se num grito inarrável de desespero, saltando de um lado para o outro como se levasse facadas mortais de sua consciência ao entrar em contato com a visão vazia de si mesmo.
+
+O demônio degustava a visão de sua dor, cheio de ódio e frustração; quanto mais o torturava, mais o demônio se enchia de raiva. Em certo momento, chamou outros demônios para se unir ao tormento daquele homem. Os demônios, todos ao redor, começaram a pronunciar o nome daquele homem incessantemente. Neste instante, o homem passou a tentar rasgar sua própria carne para provocar a morte, ou ao menos distrair sua consciência do que era pior do que a própria dor lancinante que sentia.
+
+Porém, seu corpo não podia morrer, pois assim teria decidido ao comer do fruto. O homem, se pudesse ser interrogado em um breve momento de paz, se questionaria por que teria escolhido aquilo para si. Seus olhos eram mortos, pois ali não havia esperança.
+
+Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua liberdade havia sido adormecida para sempre, e a si mesmo era somente o que havia sobrado de si: uma sombra existente, mas irreal, de um eu que partiu de si mesmo para todo o sempre.
 
 ### **Os prazeres da porta do inferno e a tortura**
 
