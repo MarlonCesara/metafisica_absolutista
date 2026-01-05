@@ -5851,7 +5851,7 @@ O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é u
 
 ### **Os prezeres da porta do inferno e a tortura**
 
-Um homem chega até o relativo, em vida era ume empresário mesquinho, opressor, o um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no alem. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer.
+Um homem chega até o relativo, em vida era ume empresário mesquinho, opressor, o um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no alem. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer. Tudo que desejava era uma arma para opressão, e essa arma era a riqueza abundante. Não sabia realmente apreciar as coisas belas, mas sabia tirar proveito do dinheiro para o primir, e sem oprimir, este mesmo dinheiro não faria diferença.
 
 Tinha a ideologia que o pouco nunca era o suficinete, e que o muito, idealizado e pensado no próximo, também não era satisfatório. Gostava de descarregar seu ódio até o limite, via um prazer em degustar o sofrimento do outro, o rebaixar do outro. Frequentemente estralava os lábios ao ver que o outro era oprimido e que podia imperar sobre os demais como um leão, como se pudesse degustar o fracasso do outro no nivel sensorial do sabor. Sua vitoria como rico não era uma superação pessoal ou um bem social, mas um poderio de dominação.
 
@@ -5873,9 +5873,9 @@ E sua narrativa, era perturbadora. Entre suas narrações insanas e espelho de u
 
 - Tenho saudade de alguém, uma saudade tão grande que é inarravel, choro incessantemente por essa pessoa.
 
+- Sinto algo me dilascerando incessantemente por dentro, sinto cair num abismo incessantemente.
 
-
-
+- Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta cabeça.
 
 ### **A revelação do relativo**
 
