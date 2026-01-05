@@ -5913,7 +5913,7 @@ O demônio degustava a visão de sua dor, cheio de ódio e frustração; quanto 
 
 Porém, seu corpo não podia morrer, pois assim teria decidido ao comer do fruto. O homem, se pudesse ser interrogado em um breve momento de paz, se questionaria por que teria escolhido aquilo para si. Seus olhos eram mortos, pois ali não havia esperança.
 
-Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua liberdade havia sido adormecida para sempre, e a si mesmo era somente o que havia sobrado de si: uma sombra existente, mas irreal, de um eu que partiu de si mesmo para todo o sempre.
+Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua liberdade havia sido adormecida para sempre. Um corpo desesperado, prisioneiro da decisão de uma alma que desapareceu e deixou seu vestígio de dor.
 
 ### **Os prazeres da porta do inferno e a tortura**
 
