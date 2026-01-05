@@ -4070,6 +4070,28 @@ Com seu olhar que penetrava além das formas, o filósofo discerniu o fio negro 
 
 > "O niilista, após ser fadado pelo anjo mais poderoso do céu aos infernos, manifestou uma estrondosa risada. Essa risada foi ouvida por muitos anjos, mas nenhum deles sabia de fato, descrever aquela risada com exatidão. O niilista não tem ódio da vida, ele tem ódio da vida não ter mudado quem ele é. O mal culpa a Deus por sua condição, sob o pensamento de que, se Deus é realmente poderoso, devia tê-lo criado feliz. Então, a risada do mal, na verdade, é uma imitação de felicidade na qual o mal acredita ser realmente feliz. É a imitação de um sentimento de infância não manifestado. É o ápice da loucura, a ponto de não carregar nem mesmo mais malicia, e sim a completa insanidade na expressão. É uma risada que não carrega mais consciência da realidade. Que emerge das profundezas escuras do abismo onde o mal está, e lá emite uma risada que considera ser para si sua felicidade. A risada do niilista nasce da falsidade. É a imitação de alguém feliz, porem uma imitação completamente insana. O mal, somente dizia, se é Deus, então nos salve de nós mesmos. Se não nos salva, então é porque não quis. O mal é como uma criança birrenta. Sua risada é sombria, sarcástica e carrega um ódio absoluto— uma vingança travestida de ironia, uma falsa autopiedade, um instante de prazer antes de atravessar a porta do inferno, de onde jamais contemplará a si mesmo novamente e onde toda esperança será abandonada.É uma risada mecânica, vazia, tão profana que enoja os ouvidos de quem a escuta, despertando um mal-estar profundo. É a voz abafada de uma alma delirante, perdida em uma loucura que nem ela própria compreende. Uma alma na qual nunca brilhou sequer uma centelha de amor.
 
+### **A porta do inferno**
+
+Um homem chega até o relativo; em vida era um empresário mesquinho, opressor, um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no além. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer. Tudo que desejava era uma arma para opressão, e essa arma era a riqueza abundante. Não sabia realmente apreciar as coisas belas, mas sabia tirar proveito do dinheiro para oprimir, e sem oprimir, este mesmo dinheiro não faria diferença.
+
+Tinha a ideologia de que o pouco nunca era o suficiente, e que o muito, idealizado e pensado no próximo, também não era satisfatório. Gostava de descarregar seu ódio até o limite, via um prazer em degustar o sofrimento do outro, o rebaixar do outro. Frequentemente estralava os lábios ao ver que o outro era oprimido e que podia imperar sobre os demais como um leão, como se pudesse degustar o fracasso do outro no nível sensorial do sabor. Sua vitória como rico não era uma superação pessoal ou um bem social, mas um poderio de dominação.
+
+Quando morreu, viu dois caminhos: um para o céu e o outro para um lugar escuro em chamas. O empresário já não dispunha de seu corpo, não tinha medo de morrer, e nem mesmo da perdição. O coração se guiava pelos seus instintos sem estar atrelado ao desejo de sobrevivência e auto preservação do corpo. Portanto, não havia fatores químicos, hormonais ou instintivos operando no seu intento. O homem visualizou o caminho escuro e sentiu que aquilo satisfaria sua sede por vingança, pois seria a total vingança de todos, até contra si mesmo. E ali adentrou. Não poderia ter adentrado no paraíso e ter tamanha gratidão; seu ódio o consumia e queria seguir a tendência deste mesmo ódio. O mesmo ódio que o fazia provocar a miséria para tantos, foi o mesmo que tirou sua própria vida e o fez se lançar nas chamas infernais. Na porta do inferno estava escrito: ao entrar aqui, abandone toda a esperança.
+
+E isso satisfazia o ódio do empresário rico de uma forma avassaladora. Sorria endiabradamente, com uma face sombria e tarjada por sombras. Sua gargalhada antes de adentrar no fogaréu foi insana e mórbida.
+
+Ao adentrar no fogaréu, pouco a pouco, com tamanha insanidade, viu um apagão. E neste apagão, seu corpo sobreviveu e podia narrar as torturas do inferno. Porém, era um corpo mecânico, um corpo biológico que não tinha realmente consciência de si, mas tinha consciência do sofrimento do que um dia fora. Tinha consciência do reflexo do sofrimento do seu eu perdido. Isto é, era um corpo que um dia existirá para si podendo narrar o que estava vendo.
+
+E sua narrativa era perturbadora. Entre suas narrações insanas e espelho de um inconsciente perturbado e aterrorizado, era possível ouvir a mais terrível descrição de uma dor sem fim. A alma flamejante narrava suas perturbações da seguinte forma:
+
+- Este é o mais terrível sofrimento, é um pesadelo do qual não se pode despertar e é real. Jamais uma dor seria grande o suficiente para se comparar a este terror.
+- Procuro por mim mesmo, alguém teria me visto? Onde estou, estou quase chegando a mim.
+- O vazio que me consome é uma escuridão sem final, é como cair num poço sem fim num terror absoluto.
+- Tenho saudade de alguém, uma saudade tão grande que é inarrável, choro incessantemente por essa pessoa.
+- Sinto algo me dilacerando incessantemente por dentro, sinto cair num abismo incessantemente. Chamas apagam o meu ser a todo momento, o dilacerando num desespero sem fim.
+- Aqui não há esperança, nunca vou me encontrar novamente; aquilo que mais amo e mais necessito está infinitamente longe de mim.
+- Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta-cabeça.
+
 ### **O fruto da vingança**
 
 Na porta do inferno, uma criatura de chifres tortos, nariz curvado para cima, corpo magro e aparência horripilante aguardava pacientemente os que se aproximavam. Quando o empresário chegou, ouviu da besta:
@@ -4096,31 +4118,13 @@ Quando o homem conseguia concentrar-se apenas na dor física do fogo ardente, o 
 
 O demônio degustava a visão de sua dor, cheio de ódio e frustração; quanto mais o torturava, mais o demônio se enchia de raiva. Em certo momento, chamou outros demônios para se unir ao tormento daquele homem. Os demônios, todos ao redor, começaram a pronunciar o nome daquele homem incessantemente. Neste instante, o homem passou a tentar rasgar sua própria carne para provocar a morte, ou ao menos distrair sua consciência do que era pior do que a própria dor lancinante que sentia.
 
+O homem cutucava suas inervações, arrancava pedaços de sua carne, que se regenerava, como tentativa de alívio da auto visão, da visão daquele ínterim. E, conforme sua carne era dilacerada até chegar a seus ossos por suas próprias unhas, o homem tentava se desviar dos demônios que lhe faziam inúmeras indagações que o levavam à visão de si mesmo.
+
 Porém, seu corpo não podia morrer, pois assim teria decidido ao comer do fruto. O homem, se pudesse ser interrogado em um breve momento de paz, se questionaria por que teria escolhido aquilo para si. Seus olhos eram mortos, pois ali não havia esperança.
 
 Ele não podia mandar em seu corpo, não podia mandar em seu destino, pois sua liberdade havia sido adormecida para sempre. Um corpo desesperado, prisioneiro da decisão de uma alma que desapareceu e deixou seu vestígio de dor.
 
-### **Os prazeres da porta do inferno e a tortura**
-
-Um homem chega até o relativo; em vida era um empresário mesquinho, opressor, um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no além. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer. Tudo que desejava era uma arma para opressão, e essa arma era a riqueza abundante. Não sabia realmente apreciar as coisas belas, mas sabia tirar proveito do dinheiro para oprimir, e sem oprimir, este mesmo dinheiro não faria diferença.
-
-Tinha a ideologia de que o pouco nunca era o suficiente, e que o muito, idealizado e pensado no próximo, também não era satisfatório. Gostava de descarregar seu ódio até o limite, via um prazer em degustar o sofrimento do outro, o rebaixar do outro. Frequentemente estralava os lábios ao ver que o outro era oprimido e que podia imperar sobre os demais como um leão, como se pudesse degustar o fracasso do outro no nível sensorial do sabor. Sua vitória como rico não era uma superação pessoal ou um bem social, mas um poderio de dominação.
-
-Quando morreu, viu dois caminhos: um para o céu e o outro para um lugar escuro em chamas. O empresário já não dispunha de seu corpo, não tinha medo de morrer, e nem mesmo da perdição. O coração se guiava pelos seus instintos sem estar atrelado ao desejo de sobrevivência e auto preservação do corpo. Portanto, não havia fatores químicos, hormonais ou instintivos operando no seu intento. O homem visualizou o caminho escuro e sentiu que aquilo satisfaria sua sede por vingança, pois seria a total vingança de todos, até contra si mesmo. E ali adentrou. Não poderia ter adentrado no paraíso e ter tamanha gratidão; seu ódio o consumia e queria seguir a tendência deste mesmo ódio. O mesmo ódio que o fazia provocar a miséria para tantos, foi o mesmo que tirou sua própria vida e o fez se lançar nas chamas infernais. Na porta do inferno estava escrito: ao entrar aqui, abandone toda a esperança.
-
-E isso satisfazia o ódio do empresário rico de uma forma avassaladora. Sorria endiabradamente, com uma face sombria e tarjada por sombras. Sua gargalhada antes de adentrar no fogaréu foi insana e mórbida.
-
-Ao adentrar no fogaréu, pouco a pouco, com tamanha insanidade, viu um apagão. E neste apagão, seu corpo sobreviveu e podia narrar as torturas do inferno. Porém, era um corpo mecânico, um corpo biológico que não tinha realmente consciência de si, mas tinha consciência do sofrimento do que um dia fora. Tinha consciência do reflexo do sofrimento do seu eu perdido. Isto é, era um corpo que um dia existirá para si podendo narrar o que estava vendo.
-
-E sua narrativa era perturbadora. Entre suas narrações insanas e espelho de um inconsciente perturbado e aterrorizado, era possível ouvir a mais terrível descrição de uma dor sem fim. A alma flamejante narrava suas perturbações da seguinte forma:
-
-- Este é o mais terrível sofrimento, é um pesadelo do qual não se pode despertar e é real. Jamais uma dor seria grande o suficiente para se comparar a este terror.
-- Procuro por mim mesmo, alguém teria me visto? Onde estou, estou quase chegando a mim.
-- O vazio que me consome é uma escuridão sem final, é como cair num poço sem fim num terror absoluto.
-- Tenho saudade de alguém, uma saudade tão grande que é inarrável, choro incessantemente por essa pessoa.
-- Sinto algo me dilacerando incessantemente por dentro, sinto cair num abismo incessantemente. Chamas apagam o meu ser a todo momento, o dilacerando num desespero sem fim.
-- Aqui não há esperança, nunca vou me encontrar novamente; aquilo que mais amo e mais necessito está infinitamente longe de mim.
-- Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta-cabeça.
+Em determinados momentos, o homem percebia, em seu delírio, indícios de que nem mesmo os demônios existiam ali de fato. O demônio, na verdade, era uma idealização de uma causa exterior ao seu sofrimento, que afastava de si o jugo de ter se fadado a tal situação. A visão do demônio era uma projeção de si, e quem o lembrava constantemente de si era seu próprio cérebro, que procurava a liberdade em suas ações. O corpo flamejante nem mesmo sentia ódio, pois já não sentia nada. Não havia ninguém ali, e nem a si mesmo.
 
 ### **CAPÍTULO 32: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
