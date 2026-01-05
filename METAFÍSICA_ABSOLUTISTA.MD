@@ -5883,6 +5883,26 @@ O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é u
 
 > O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
 
+### **O fruto da vingança**
+
+Na porta do inferno, uma criatura de chifres tortos, nariz curvado para cima, corpo magro e aparência horripilante aguardava pacientemente os que se aproximavam. Quando o empresário chegou, ouviu da besta:
+
+— Este é o fruto da vingança. Coma-o e arrebate todos os seus inimigos. É a vingança total e irremediável contra todos. Saboreie-o e terá vitória em qualquer guerra que tenha travado. No paraíso, não há vingança mais eficaz do que esta.
+
+— E o que exatamente esse fruto faz? — perguntou o homem.
+
+— Ele concede a vingança mais cruel possível. Você terá poder definitivo sobre tudo e todos. Seu ódio encontrará fim neste fruto. Basta comer, sem questionar, e sua vingança se cumprirá.
+
+Com os olhos tomados pela ânsia de vingança, o homem mordeu o fruto. Seu corpo foi elevado ao alto como se fosse conduzido à vitória. Por um breve instante, seus olhos brilharam com o sabor do triunfo; sentiu-se poderoso, convicto de que sua vingança havia sido consumada.
+
+Mas, logo em seguida, o demônio lançou seu corpo violentamente contra o chão. Seus olhos começaram a perder o brilho, tomados por um terror profundo e indizível. O corpo passou a se debater, como se fosse golpeado por punhos invisíveis, arremessado contra o solo com tamanha violência que suas entranhas pareciam se romper por dentro.
+
+Labaredas envolveram-no por completo, enquanto um ruído insuportável invadia sua mente. O mundo à sua volta se dissolvia, como num sono forçado e profundo. Antes de perder totalmente a consciência, soltou um último grito de socorro — tão desesperado que parecia rasgar-lhe a própria garganta.
+
+O homem já não era mais homem. Tornara-se um corpo de olhos escuros, movido por uma força exterior, sem vontade própria. Não se movia porque queria, não falava porque decidia. Era como uma marionete nas mãos do demônio, que agora conduzia seus gestos e sua existência. Sua consciência parecia aprisionada para sempre, e sua vida reduzida a uma incessante destruição de si mesmo.
+
+Sua carne ardia sem cessar, consumida por chamas que nunca o deixavam perecer. Ainda assim, a dor física era menor que o desespero de ter perdido o próprio eu — a solidão absoluta e irremediável de si mesmo.
+
 ### **Os prazeres da porta do inferno e a tortura**
 
 Um homem chega até o relativo; em vida era um empresário mesquinho, opressor, um grande acumulador de bens sem que usasse esses a favor de ninguém. Tinha um ódio que o consumia por dentro pelo outro, por isto, não se importava com nada do que pensavam de si. Também não acreditava no além. Nem mesmo pensava nada a respeito da vida espiritual. Apoiava a direita pois queria ver o outro sofrer. Tudo que desejava era uma arma para opressão, e essa arma era a riqueza abundante. Não sabia realmente apreciar as coisas belas, mas sabia tirar proveito do dinheiro para oprimir, e sem oprimir, este mesmo dinheiro não faria diferença.
@@ -5904,6 +5924,13 @@ E sua narrativa era perturbadora. Entre suas narrações insanas e espelho de um
 - Sinto algo me dilacerando incessantemente por dentro, sinto cair num abismo incessantemente. Chamas apagam o meu ser a todo momento, o dilacerando num desespero sem fim.
 - Aqui não há esperança, nunca vou me encontrar novamente; aquilo que mais amo e mais necessito está infinitamente longe de mim.
 - Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta-cabeça.
+
+
+
+
+
+
+
 
 ### **A revelação do relativo**
 
