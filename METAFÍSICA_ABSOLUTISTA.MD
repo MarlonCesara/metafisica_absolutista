@@ -5873,7 +5873,9 @@ E sua narrativa, era perturbadora. Entre suas narrações insanas e espelho de u
 
 - Tenho saudade de alguém, uma saudade tão grande que é inarravel, choro incessantemente por essa pessoa.
 
-- Sinto algo me dilascerando incessantemente por dentro, sinto cair num abismo incessantemente.
+- Sinto algo me dilascerando incessantemente por dentro, sinto cair num abismo incessantemente. Chamas apagam o meu ser a todo momento o dilascerando num desespero sem fim. 
+
+- Aqui não há esperança, nunca vou me encontrar novamente, aquilo que mais amo e mais necessito está infinitamente longe de mim.
 
 - Vejo coisas paradoxais, as coisas existem e não existem ao mesmo tempo. Vejo o mundo de ponta cabeça.
 
