@@ -5839,7 +5839,7 @@ O niilista se mascara por trás de uma figura apressiadora de coisas boas, porem
 
 O querer de si é o que realmente o rico ganancioso ou a mulher com mania por bens materiais deseja. Em ambos os casos há uma obsessão por dinheiro devido a mais severa escassez que é o não querer de si. Não há nenhum mal que desperte tanta obsessão por dinheiro, pelo poder, por posses materiais que a discrepancia entre o eu do individuo com a existência. O niilismo exige sua cura imediata, exige a paz mental tão sonhada, exige o seu descanso de espirito. O julgo do niilismo é pesado.
 
-A convivencia com um niilista é implacavel, são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e tem seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua o outro o auto valor extraido pelo niilismo.
+A convivencia com um niilista é implacavel, são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e tem seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua o outro o auto valor extraido pelo niilismo. O niilista precisa ver a sua familai arrasada, a sociedade arrasada, tudo em caos para estar em conformidade com seu luto interior.
 
 ### **A desfiguração do sentido**
 
