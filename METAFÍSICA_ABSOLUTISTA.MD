@@ -5835,6 +5835,12 @@ O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no 
 
 Todos os atos de descarga não representam uma real busca por sentido, pois, ao buscar, imediatamente o teriam, mas representam uma descarga de sintomática temporária. E, neste tempo, poderiam, a qualquer momento, livrar-se do niilismo. Porém, acabando o tempo do mundo, a alma, sendo livre para fazer suas escolhas sem a barreira do corpo e a graça de Deus, que está nas coincidências, livramentos e ajudas na vida, corre o risco de tomar sua decisão definitiva pela sua anulação.
 
+O niilista se mascara por trás de uma figura apressiadora de coisas boas, porem não aprecia nem mesmo o bem de seu proximo ou a bonança social, a sociedade alegre. Portanto, o rico acumulador e sovina não é um bom apreciador, mas um depreciador da sociedade. É alguém que tem uma mania incessante em busca de sua cura, para o niilista rico nada importa riquezas e conquistas, isso é uma mascara do real e mais importante desejo: o querer de si mesmo.
+
+O querer de si é o que realmente o rico ganancioso ou a mulher com mania por bens materiais deseja. Em ambos os casos há uma obsessão por dinheiro devido a mais severa escassez que é o não querer de si. Não há nenhum mal que desperte tanta obsessão por dinheiro, pelo poder, por posses materiais que a discrepancia entre o eu do individuo com a existência. O niilismo exige sua cura imediata, exige a paz mental tão sonhada, exige o seu descanso de espirito. O julgo do niilismo é pesado.
+
+A convivencia com um niilista é implacavel, são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e tem seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua o outro o auto valor extraido pelo niilismo.
+
 ### **A desfiguração do sentido**
 
 Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
