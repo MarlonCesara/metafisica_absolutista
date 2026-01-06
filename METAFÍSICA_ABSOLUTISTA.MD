@@ -5996,3 +5996,25 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 
 > O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
+
+
+
+
+
+
+
+### **O uso de drogas no niilismo**
+
+Quando o indivíduo niilista encontra uma barreira entre a aquisição de posses, do bem que gostaria, situação ou pessoa, enraivece-se numa inaceitação inequívoca alimentada por um ódio. Seu intuito vaza para a imaginação, e nisso acontecem as drogas psicoativas, que provocam a ilusão de satisfação do ódio. Esse mecanismo acontece em pessoas que esperam resultados rápidos e óbvios da vida, tal como aproximar uma situação como a riqueza com pouco esforço. Na ausência do sucesso, o indivíduo aproxima de si a ilusão.
+
+Podemos citar o exemplo de um indivíduo que estava acostumado a ganhar dinheiro fácil devido a uma família burguesa e uma tradição burguesa. Ao não obter o seguimento dessa tradição e do dinheiro fácil, e existindo nesse indivíduo barreiras morais fornecidas pelo seu lado instintivo, o indivíduo opta por alcançar o descarrego de seu ódio na ilusão.
+
+Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício, sente estar morrendo, necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
+
+
+
+
+
+
+
+
