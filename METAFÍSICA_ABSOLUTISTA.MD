@@ -4128,6 +4128,50 @@ Em determinados momentos, o homem percebia, em seu delírio, indícios de que ne
 
 O corpo já não sabia se o pior sofrimento era a perda total da sanidade, a dor que lhe corria por dentro ou o terror da auto visão. O corpo flamejante clamava por vida, tinha sede do seu próprio espírito, queria ver a sua própria luz. Somente isso lhe livraria de tamanho sofrimento, insanidade e terror. Um segundo apenas naquela situação parecia uma infinitude. A dor, ali, é simplesmente inarrável.
 
+### **O Fruto da Vingança**
+
+Na entrada do inferno, uma criatura aguardava, paciente e imóvel. Seus chifres retorcidos como raízes secas, o nariz recurvado para o alto, o corpo esguio e demarcado por sombras que pareciam vibrar. Quando uma mulher se aproximou, a voz da besta saiu, rouca e melíflua:
+
+— Este é o fruto da vingança. Coma, e todos os seus inimigos serão arrebatados. É a reparação total, irrevogável. Saboreie, e vencerá toda guerra que já travou. Nem no paraíso existe vingança mais perfeita.
+
+— E o que ele faz, exatamente? — perguntou a mulher, os olhos fixos no fruto negro e brilhante que pairava no ar.
+
+— Concede o poder definitivo. O ódio que você carrega encontrará seu fim aqui. Basta uma mordida, sem hesitar, e tudo se consumará.
+
+Com os olhos incendiados por anos de rancor acumulado, a mulher abriu a boca e mordeu. A polpa era gelada e ácida. Imediatamente, seu corpo foi arremessado para o alto, suspenso como um troféu. Por um instante breve e glorioso, uma onda de triunfo absoluto invadiu seus sentidos. Ela sentiu o gosto da vitória, a certeza de que toda humilhação, toda traição, havia sido paga. Seus olhos brilharam com um fulgor sobrenatural.
+
+Então, o demônio a derrubou.
+
+O impacto contra o solo foi tão violento que seus ossos estalaram como gravetos secos. O brilho nos olhos apagou-se, substituído por um terror primitivo, visceral. Seu corpo começou a se contorcer sozinho, sacudido por golpes invisíveis que a esmurravam, a chutavam, a esmagavam contra a terra repetidamente. Algo dentro dela rompeu — não apenas carne, mas algo como a própria integridade de seu ser.
+
+Chamas surgiram do nada, envolvendo-a por completo. Não queimavam apenas a pele; adentravam poros, fendas, feridas abertas, e lambiam o interior de seus órgãos. Um ruído ensurdecedor, composto de gritos, risadas e sussurros, invadiu sua mente, dissolvendo o mundo exterior. Era como ser afogada em um sono profundo e consciente ao mesmo tempo. Antes de desmaiar, ela soltou um grito — um som tão desesperado que rasgou sua garganta, deixando-a em sangue.
+
+Quando "acordou", a mulher já não era mulher. Era um invólucro de olhos escuros e vazios, movido por uma força externa. Seus gestos eram rígidos, mecânicos, como os de uma marionete cujos fios eram puxados pelo demônio. Sua vontade havia se evaporado; sua consciência, enjaulada em um canto remoto de sua própria mente, assistia, impotente, à destruição de si mesma.
+
+A carne ardia sem parar, regenerando-se apenas para ser carbonizada de novo. Mas a dor física era um alívio perto do desespero psíquico: a absoluta solidão de si, a percepção nua e crua de que seu "eu" havia sido apagado, e apenas um eco agonizante permanecia.
+
+Em surtos de delírio, ela imitava fragmentos de sua vida passada: fofocas murmuradas, olhares cobiçosos para homens ricos, exibições vazias de posses materiais — tudo com uma expressão facial distorcida por um ódio que já não lhe pertencia. Uma risada escapava de sua boca, mas soava como um choro abafado, interrompido por espasmos de dor. Ela tentava, desesperadamente, lembrar o motivo que a trouxera ali, como se buscasse uma justificativa para seu martírio. Mas logo a lucidez fugia, e ela se abraçava, os olhos arregalados, a boca entreaberta e torcida em um ricto de pavor contínuo.
+
+Nos raros momentos em que conseguia focar apenas no fogo que a consumia, o demônio a agarrava pelo pescoço, sacudia-a até seus dentes baterem e perguntava, lentamente:
+
+— Qual é o seu nome?
+
+Então, a mulher se debatia como um animal encurralado, saltando e se atirando contra o chão, como se facas invisíveis a estivessem estripando por dentro. A pergunta não era uma questão — era um gatilho que a forçava a encarar o vazio onde sua identidade deveria estar.
+
+O demônio saboreava cada instante de sua agonia, mas seu ódio não se saciava; crescia, alimentado pela frustração de ver que nem mesmo o sofrimento extremo devolvia a alma que havia sido consumida. Chamou outros demônios, uma corte de figuras retorcidas, que formaram um círculo ao seu redor. Em uníssono, começaram a cantar seu nome, uma ladainha incessante e ritmada.
+
+A mulher, então, começou a arrancar a própria carne.
+
+Com unhas que mais pareciam garras, ela dilacerava braços, pernas, ventre — qualquer parte que pudesse alcançar. A carne se regenerava quase instantaneamente, mas ela continuava, na esperança insana de que a dor física ofuscasse a tortura psicológica. Chegou a expor os ossos, raspando-os com os dedos, num frenesi automutilatório. Tudo para não ouvir a voz dos demônios, que na verdade eram apenas extensões de sua própria consciência dilacerada.
+
+Pois ela percebera, em lampejos de lucidez aterradora, que o demônio não existia. Era uma projeção, uma personificação exterior para algo que vinha de dentro. Quem a torturava era seu próprio cérebro, agora aprisionado em um ciclo de autopunição infinita. O corpo em chamas já não sentia ódio, nem amor, nem nada — apenas um terror puro, impessoal, como um eco em uma câmara vazia.
+
+Não havia "ninguém" ali. E, no entanto, o sofrimento persistia.
+
+Ela já não sabia o que era pior: a perda total da sanidade, a dor física constante ou o horror da autorreconhecimento forçado. O corpo flamejante clamava por vida, por um sopro de espírito próprio, por ver sua própria luz mais uma vez. Apenas isso poderia redimi-la. Mas a redenção era impossível — ela mesma a trocara pela vingança.
+
+Agora, cada segundo era uma eternidade. A dor, inenarrável. A consciência, uma cela. E o fruto, finalmente digerido, não lhe dera vitória alguma — apenas a transformara no próprio instrumento de sua pena perpétua. Um corpo desesperado, governado pelo fantasma de uma decisão passada, preso no fogo que escolheu para os outros e que agora nunca deixaria de queimar a si mesmo.
+
 ### **CAPÍTULO 32: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
 #### **O Perfil do Niilista Existencial: Uma Cartografia da Autoaniquilação**
