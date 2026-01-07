@@ -6052,4 +6052,4 @@ O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, de
 
 O niilista é um indivíduo sensível, que se julga um miserável. Aproximar-se sem entendê-lo, como quem o considera normal e contente, é como despertar grande ira nele. Ele se sente ultrajado por não compreenderem seu sentimento de revolta, por agirem como se não estivessem vendo, quando, na verdade, as pessoas realmente não entendem e consideram algo banal. Porém, para o niilista, isto causa grande sofrimento. Aproximar-se dele apresentando coisas bonitas da vida, por vezes, pode soar uma afronta a ele.
 
-
+A prioridade do corpo do niilista é se salvar, por isso, por vezes, o niilista pode parecer desinteressado em coisas cotidianas normais e mais interessado em algo que o faça mudar de ideia. Ou seja, o niilista pode ficar obsessivo por algo que lhe dê uma ideia de mudança. E, estranhamente, preferir tarefas específicas, ainda que sejam mais tediosas. Pois a calma que lhe traz pensar que mudará lhe provê uma energia vital para continuar sua vida.
