@@ -6013,14 +6013,6 @@ O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras 
 
 O que caracteriza o niilista no uso de drogas é um uso furioso, com o propósito da overdose, e não um uso com limites de segurança.
 
-
-
-
-
-
-
-
-
 ### **A porta do purgatório**
 
 Uma jovem chegou até a porta do purgatório e viu uma inscrição que dizia:
@@ -6034,13 +6026,8 @@ O corpo do purgatório tem uma dor de consciência menos sombria. A dor física 
 
 Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo todo que isso passará. Aguardam o retorno da alma, apesar de ainda sofrerem a privação da auto visão.
 
+### **A diferença entre o niilista e o obsessor**
 
+Diferenciamos em dois grupos, o niilista e o obsessivo. O primeiro grupo pratica tentativas de suicídio reais; o segundo grupo move ações de ódio reais que não atentam contra ele mesmo, mas almejam, de fato, despejar um grande ódio em si mesmo e no outro.
 
-
-
-
-
-
-
-
-
+Podemos citar exemplos rotineiros: enquanto o niilista usa drogas até uma overdose, o obsessivo usa rotineiramente, sem total risco de morte. Enquanto o niilista isola-se totalmente do convívio social, o obsessivo isola certas pessoas. O niilista é a descarga total de um ódio absoluto; já o obsessivo, que é a alma que irá para o purgatório, tem paixões obsessivas, de forma que almeje uma descarga de ódio e não o próprio fim.
