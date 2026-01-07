@@ -6009,10 +6009,9 @@ Quando o indivíduo niilista encontra uma barreira entre a aquisição de posses
 
 Podemos citar o exemplo de um indivíduo que estava acostumado a ganhar dinheiro fácil devido a uma família burguesa e uma tradição burguesa. Ao não obter o seguimento dessa tradição e do dinheiro fácil, e existindo nesse indivíduo barreiras morais fornecidas pelo seu lado instintivo, o indivíduo opta por alcançar o descarrego de seu ódio na ilusão.
 
-Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício, sente estar morrendo, necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
+Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício; sente estar morrendo; necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
 
-
-
+O usuário de drogas guarda uma violência inequívoca, uma destruição de seu próprio cérebro, de suas memórias, em prol de uma ilusão de se vingar, de se satisfazer. Não é nem mesmo o objeto de sua realização que almeja, mas o ataque imediato às discrepâncias sociais, sem ter que passar pela luta contra elas. O ataque não visa destruir o mal no mundo, mas destruir o sentimento de ódio guardado dentro dele; ou seja, o ataque é uma tentativa de amenizar o sentimento construído.
 
 
 
