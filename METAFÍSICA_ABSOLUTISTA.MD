@@ -6050,6 +6050,6 @@ Ao tentar aproximar à força as coisas boas do niilista, as coisas lindas, ele 
 
 O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, deseja mudar essa visão. Algo inconscientemente o tenta levar a acabar com isso.
 
-
+O niilista é um indivíduo sensível, que se julga um miserável. Aproximar-se sem entendê-lo, como quem o considera normal e contente, é como despertar grande ira nele. Ele se sente ultrajado por não compreenderem seu sentimento de revolta, por agirem como se não estivessem vendo, quando, na verdade, as pessoas realmente não entendem e consideram algo banal. Porém, para o niilista, isto causa grande sofrimento. Aproximar-se dele apresentando coisas bonitas da vida, por vezes, pode soar uma afronta a ele.
 
 
