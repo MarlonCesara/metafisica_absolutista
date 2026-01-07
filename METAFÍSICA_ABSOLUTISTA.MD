@@ -6013,7 +6013,5 @@ Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu
 
 O usuário de drogas guarda uma violência inequívoca, uma destruição de seu próprio cérebro, de suas memórias, em prol de uma ilusão de se vingar, de se satisfazer. Não é nem mesmo o objeto de sua realização que almeja, mas o ataque imediato às discrepâncias sociais, sem ter que passar pela luta contra elas. O ataque não visa destruir o mal no mundo, mas destruir o sentimento de ódio guardado dentro dele; ou seja, o ataque é uma tentativa de amenizar o sentimento construído.
 
-
-
-
+O clube de elite, na verdade, é um clube do ódio, e não o clube do requinte, da abundância. É o clube da tortura ao outro, da agressividade, porém é cravejado de objetos de valor, não como algo que exalta, mas como um símbolo de poder sobre o outro; não como um dom de apreciar o que é bom, mas como uma tendência de apreciar que a fartura de uns causa a escassez e a miséria de outros.
 
