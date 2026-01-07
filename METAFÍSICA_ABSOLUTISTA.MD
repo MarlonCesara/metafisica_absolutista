@@ -6015,3 +6015,4 @@ O usuário de drogas guarda uma violência inequívoca, uma destruição de seu 
 
 O clube de elite, na verdade, é um clube do ódio, e não o clube do requinte, da abundância. É o clube da tortura ao outro, da agressividade, porém é cravejado de objetos de valor, não como algo que exalta, mas como um símbolo de poder sobre o outro; não como um dom de apreciar o que é bom, mas como uma tendência de apreciar que a fartura de uns causa a escassez e a miséria de outros.
 
+O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras formas de descarregar seu ódio, tal como a autoagressão, que são as drogas. O indivíduo cheio de ódio tem um grande terror diante desse mesmo ódio, como se o ódio quase estivesse lhe eliminando completamente.
