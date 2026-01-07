@@ -6035,3 +6035,21 @@ Podemos citar exemplos rotineiros: enquanto o niilista usa drogas até uma overd
 Enquanto os sintomas do niilista giram em torno do esquecimento de si mesmo, o obsessor tem sintomas voltados para o pronunciamento demasiado do eu, em opressão ao outro ou como um perseguidor implacável. O obsessor tem medo do que sente, tem medo do tempo, teme a si mesmo e despreza sua própria descarga de ódio depois de cometê-la.
 
 O obsessor é capaz de romper relacionamentos apenas para poder descarregar o ódio na sociedade, como no caso de uma mulher de família que larga o marido para ficar com um homem rico. Muitas vezes, o ódio do obsessor fala mais alto que seus sentimentos e seu propósito de vida. Até mesmo seu ódio é capaz de passar por cima de coisas importantes em sua vida. É capaz até mesmo de passar por mutilações corporais para atingir um propósito de vingança.
+
+### **O segredo do niilista**
+
+O niilista não mata, rouba ou faz o mal porque gosta, por falta de sabedoria ou por tentação. Mas faz o mal para aliviar-lhe a dor de ir embora dessa vida, de desejar a própria anulação. De desejar a autodanação. Deus não obriga ninguém a ir para o inferno.
+
+O niilista quer desfigurar as coisas boas. Sente tanto ódio que não pode conter, a seu redor, o sentido das coisas; não suporta o sentido da vida. Por vezes, nunca quer confidenciar seu segredo. Causa problemas sociais, familiares e parentais sem nunca confidenciar o que realmente sente. Se investigam as causas psicológicas do niilista para entender seus desalinhamentos sociais, porém, o niilista não revela a verdadeira causa: um ódio tão grande que faz ele desejar desaparecer.
+
+O niilista trai, ou exorta a traição do seu cônjuge. Mantém os filhos distantes da família. Ocasiona miséria, pobreza. Precisa sempre ter o sentido desfigurado. Rejeita tudo o que mais gosta. Se faz um extorsor, um malandro, um golpista. Provoca a desordem. Mas mantém em segredo seu verdadeiro intuito. Por trás da máscara de desordeiro, de alguém cheio de problemas psicológicos, por estranhamente rejeitar as coisas boas, está o niilista.
+
+Porém, todo niilista tem o foco em um ódio primordial, em algo que o fez se odiar, em algo que queria livrar de si. Muitas vezes, a autoanulação é o desejo de eliminar algum traço em si, e não, definitivamente, o desejo pela morte. Algo em si que o indivíduo não aprendeu a amar, tamanhas críticas sociais que sofreu. Por vezes, o niilista é alguém que aprendeu o desafeto por si e tomou isso como propósito.
+
+Ao tentar aproximar à força as coisas boas do niilista, as coisas lindas, ele as rejeita com violência e ira. Mantém sua vida no agridoce, nem insuportável, mas nem boa. As coisas que fazem sentido no niilista são rejeitadas, porque sua postura interior é revelada a ele quando as defronta. E as consequências disso podem ser depressão, constante estresse, mas o niilista se permite aliviar por vezes, pois sua intenção não é estritamente a dor, mas desaparecer. Apenas quer que sua vida tenha uma trajetória amena até o fim que deseja para sua vida.
+
+O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, deseja mudar essa visão. Algo inconscientemente o tenta levar a acabar com isso.
+
+
+
+
