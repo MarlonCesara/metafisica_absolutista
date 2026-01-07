@@ -6031,3 +6031,5 @@ Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo t
 Diferenciamos em dois grupos, o niilista e o obsessivo. O primeiro grupo pratica tentativas de suicídio reais; o segundo grupo move ações de ódio reais que não atentam contra ele mesmo, mas almejam, de fato, despejar um grande ódio em si mesmo e no outro.
 
 Podemos citar exemplos rotineiros: enquanto o niilista usa drogas até uma overdose, o obsessivo usa rotineiramente, sem total risco de morte. Enquanto o niilista isola-se totalmente do convívio social, o obsessivo isola certas pessoas. O niilista é a descarga total de um ódio absoluto; já o obsessivo, que é a alma que irá para o purgatório, tem paixões obsessivas, de forma que almeje uma descarga de ódio e não o próprio fim.
+
+Enquanto os sintomas do niilista giram em torno do esquecimento de si mesmo, o obsessor tem sintomas voltados para o pronunciamento demasiado do eu, em opressão ao outro ou como um perseguidor implacável. O obsessor tem medo do que sente, tem medo do tempo, teme a si mesmo e despreza sua própria descarga de ódio depois de cometê-la.
