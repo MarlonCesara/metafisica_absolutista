@@ -5997,12 +5997,6 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 > O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
 
-
-
-
-
-
-
 ### **O uso de drogas no niilismo**
 
 Quando o indivíduo niilista encontra uma barreira entre a aquisição de posses, do bem que gostaria, situação ou pessoa, enraivece-se numa inaceitação inequívoca alimentada por um ódio. Seu intuito vaza para a imaginação, e nisso acontecem as drogas psicoativas, que provocam a ilusão de satisfação do ódio. Esse mecanismo acontece em pessoas que esperam resultados rápidos e óbvios da vida, tal como aproximar uma situação como a riqueza com pouco esforço. Na ausência do sucesso, o indivíduo aproxima de si a ilusão.
@@ -6016,3 +6010,37 @@ O usuário de drogas guarda uma violência inequívoca, uma destruição de seu 
 O clube de elite, na verdade, é um clube do ódio, e não o clube do requinte, da abundância. É o clube da tortura ao outro, da agressividade, porém é cravejado de objetos de valor, não como algo que exalta, mas como um símbolo de poder sobre o outro; não como um dom de apreciar o que é bom, mas como uma tendência de apreciar que a fartura de uns causa a escassez e a miséria de outros.
 
 O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras formas de descarregar seu ódio, tal como a autoagressão, que são as drogas. O indivíduo cheio de ódio tem um grande terror diante desse mesmo ódio, como se o ódio quase estivesse lhe eliminando completamente.
+
+O que caracteriza o niilista no uso de drogas é um uso furioso, com o propósito da overdose, e não um uso com limites de segurança.
+
+
+
+
+
+
+
+
+
+### **A porta do purgatório**
+
+Uma jovem chegou até a porta do purgatório e viu uma inscrição que dizia:
+
+— Entrei e aprecie seus inimigos sendo derrotados, até que finalmente possa encontrar o paraíso.
+
+O purgatório é uma guerra que promete seu fim ao acabar de ser travada, porém o fim não é calculável. O fim do purgatório depende do fim do ódio.
+O corpo, lançado no purgatório, tem sintomas diferentes do corpo lançado ao inferno.
+
+O corpo do purgatório tem uma dor de consciência menos sombria. A dor física chega a se equiparar com a dor do sumiço do seu eu, e cada segundo no purgatório é alimentado pela esperança final de libertação. O terror, portanto, da alma do purgatório é menor, apesar de que a dor física seja igual à do inferno.
+
+Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo todo que isso passará. Aguardam o retorno da alma, apesar de ainda sofrerem a privação da auto visão.
+
+
+
+
+
+
+
+
+
+
+
