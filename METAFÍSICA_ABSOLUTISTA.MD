@@ -6061,3 +6061,10 @@ O niilista tem sua estima tão abalada por sua postura que precisa sempre estar 
 O niilista, através do mal, tenta gritar ao mundo seu infortúnio, corrompendo a união social, deturpando o que pode, para chamar a atenção para seu destino, a atenção da humanidade que parece calada diante dele, que parece conformada. O niilista agarra seu coração e se rejeita, como se o segurasse com garras, como se planejasse que irá matar seu próprio coração, como se não tivesse mais sentimentos nele. O niilista tenta expressar, por palavras ou por atitudes simbólicas, sua auto-renúncia o tempo todo; não guarda somente o conteúdo da sua mente para si. Tenta expressar através de quedas propositais, de acidentes propositais, de palavrões; está constantemente comunicando seu interior.
 
 O niilista é um indivíduo com a completa ausência de amor a si, um indivíduo que não se ama, que quer se punir, que se odeia. Que se considera um descarte, que não enxerga nada de luminoso e bom em si, que não aprendeu a se amar. O niilista se autoignora, ignora seus sonhos, anseios, não admite para si seus desejos, seus anseios.
+
+### **A recuperação do niilista**
+
+É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
+
+
+
