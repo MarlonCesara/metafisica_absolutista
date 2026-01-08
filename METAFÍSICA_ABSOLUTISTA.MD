@@ -6062,6 +6062,14 @@ O niilista, através do mal, tenta gritar ao mundo seu infortúnio, corrompendo 
 
 O niilista é um indivíduo com a completa ausência de amor a si, um indivíduo que não se ama, que quer se punir, que se odeia. Que se considera um descarte, que não enxerga nada de luminoso e bom em si, que não aprendeu a se amar. O niilista se autoignora, ignora seus sonhos, anseios, não admite para si seus desejos, seus anseios.
 
+Quando o niilista não cumpre seu objetivo, por exemplo, de alcançar uma grande quantia de dinheiro rapidamente para vingar as diferenças sociais que não aceita, simplesmente torna-se um fator de tormento social, um corpo distorcido, um monstro social. E isso tem o objetivo de forçar a realidade a se curvar segundo seu objetivo, de forma rápida. Uma das táticas é atingir a zumbização através do uso excessivo de drogas.
+
+O niilista, sem entrar em conformidade, movido pelo ódio, tenta romper as barreiras que existem entre ele e o que o provoca revolta em um ato violento; se não alcança por meios convencionais, tenta alcançá-lo inferindo auto-flagelo. Primeiro, ameaça a estrutura de seus relacionamentos, depois o ambiente familiar e, por fim, o próprio corpo. Atenta contra sua própria saúde.
+
+Quando se bloqueia o niilista de seus objetivos, o bloqueio só acontece externamente, mas o niilista encontra outras formas de expressar sua ação. O niilista não aceita não alcançar o que deseja ou não descarregar seu ódio contra o outro. Em vida, já adianta sua intenção no pós-vida, de exibir um ser humano falido caso não descarregue seu ódio.
+
+Se no além quer se mostrar um zumbi, um projeto de humano em sofrimento extenuante, em vida quer se mostrar um ser humano derrubado, derrotado, como vingança do que lhe traz ódio. E o motivo de seu ódio pode abranger diversos fatores, como diferenças sociais, acontecimentos isolados, etc.
+
 ### **A recuperação do niilista**
 
 É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
