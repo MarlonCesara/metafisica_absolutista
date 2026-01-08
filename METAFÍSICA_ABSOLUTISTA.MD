@@ -6070,7 +6070,11 @@ Quando se bloqueia o niilista de seus objetivos, o bloqueio só acontece externa
 
 Se no além quer se mostrar um zumbi, um projeto de humano em sofrimento extenuante, em vida quer se mostrar um ser humano derrubado, derrotado, como vingança do que lhe traz ódio. E o motivo de seu ódio pode abranger diversos fatores, como diferenças sociais, acontecimentos isolados, etc.
 
-Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos. Ou até mesmo se lançando em mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
+Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos, ou até mesmo lançando-se na mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
+
+A mulher niilista pode se render ao mundo da pornografia, ter inúmeros parceiros como uma tentativa de auto degradação da própria imagem e da figura da mulher. Pode até mesmo desfigurar o próprio corpo com modificações pelas quais ela mesma tem desagrado, para demonstrar sua distorção interior à sociedade. Ou até mesmo negar a própria sexualidade com cirurgias que somente mutilam, sem que haja realmente um fator psicológico necessário. Pode negar a feminilidade com a intenção de negar a própria sexualidade à sociedade, de forma a tentar denegrir a feminilidade e a figura da mulher. Também tenta negar a própria fecundidade, desfigurando o potencial mais bonito do humano.
+
+A mulher niilista corrompe a paz da família querendo lucros imediatos, corrompe o emprego do marido, ou até provoca gravidez precoce querendo prender uma pessoa a si, por achar que na vida se tem imediatamente o que se quer. O niilista não aceita prazos, quer sua vingança imediata. Para o niilista, não há tempo de aprendizado, de crescimento; sua descarga de ódio é imediata no que tange a obter o que se quer para se exibir ou se vingar.
 
 ### **A recuperação do niilista**
 
