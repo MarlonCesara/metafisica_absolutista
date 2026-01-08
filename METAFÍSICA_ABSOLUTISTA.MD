@@ -6070,6 +6070,8 @@ Quando se bloqueia o niilista de seus objetivos, o bloqueio só acontece externa
 
 Se no além quer se mostrar um zumbi, um projeto de humano em sofrimento extenuante, em vida quer se mostrar um ser humano derrubado, derrotado, como vingança do que lhe traz ódio. E o motivo de seu ódio pode abranger diversos fatores, como diferenças sociais, acontecimentos isolados, etc.
 
+Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos. Ou até mesmo se lançando em mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
+
 ### **A recuperação do niilista**
 
 É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
