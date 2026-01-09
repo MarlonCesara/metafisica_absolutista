@@ -6098,6 +6098,8 @@ O niilista somente visualiza o mundo, revolta-se e pede vingança ou a mudança 
 
 Como se a vida ou tivesse um gênio da lâmpada mágica para lhe conceder tudo, ou não fizesse sentido algum para si, tendo como único proveito a ameaça mordaz da morte caso seu desejo não seja atendido.
 
+Falta ao niilista o start do amor, o estalo na consciência que o faz olhar para suas atitudes, olhar para a necessidade de profundidade nas coisas, nos fatos e nas pessoas. É o amor que faz o niilista estudar a vida, estudar o outro, olhar para os olhos do outro, reconhecer-se como humano e errante, para que reconheça o outro também.
 
+É a boa vontade do amor que falta; essa ausência torna o niilista mecanizado sentimentalmente, faz com que aja de forma fria, sem o ímpeto do amor. É o amor que o faz amenizar tudo, relevar, perdoar, abandonar seu anseio de rapidez em tudo. É o amor que o faz lutar por si mesmo, que aumenta sua vontade de sobreviver, de vencer. É o amor que desperta nele o interesse por si mesmo e pelo outro, que o faz olhar para as razões do outro, ao invés de olhar somente para as suas próprias.
 
 
