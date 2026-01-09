@@ -6080,5 +6080,16 @@ A mulher niilista corrompe a paz da família querendo lucros imediatos, corrompe
 
 É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
 
+### **A cúpula de manipulação mundial**
+
+Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes.
+
+### **A magia negra do maligno**
+
+O querer niilista pelo suicídio é uma afronta contra o próprio design que Deus criou; o preço que o niilista cobra por sua vida, muitas vezes, é uma burlagem das leis naturais, uma burlagem do outro. O niilista quer viver, desde que sua vida possa massacrar a do outro e alterar as leis pragmáticas da vida. O niilista quer ter alguma vantagem sobre tudo e sobre o outro; caso contrário, ameaça o próprio Deus, de atentar contra a sua própria vida se não for cumprido o seu desejo. Para o niilista, seu ato é uma espécie de poção mágica que o levará a resultados rápidos; intenta contra o coração de Deus, quer ferir o próprio Deus em troca de ouro, tal como a representatividade de Judas, o apóstolo que trocou seu Mestre por moedas de ouro. Judas era alguém que queria resultados rápidos, que queria reinar rapidamente sobre todos e, para isto, era capaz de qualquer coisa. O niilista usa a morte para se superiorizar, para querer ser maior do que o outro em qualquer aspecto. O niilista deixa-se levar pelo seu ódio de forma que se acredita com poderes mágicos aqui mesmo neste plano; acredita que ameaçar com a própria morte pode levá-lo a qualquer patamar quando, na verdade, é um atentado contra o coração de Deus. O niilista atenta contra a vida por querer demais, e o seu querer demais está vinculado a um ódio por algo; a exaltação que o niilista deseja é a adaga que deseja desferir contra o outro. O niilista não é orgulhoso em prol da exaltação, mas em prol da agressão.
+
+
+
+
 
 
