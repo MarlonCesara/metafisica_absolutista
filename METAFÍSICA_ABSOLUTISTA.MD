@@ -6126,6 +6126,8 @@ Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilion�
 
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
 
+Segue o texto com **melhorias mínimas de português**, corrigindo **acentuação, ortografia, concordância e pontuação**, **sem trocar palavras nem reformular ideias**:
+
 ### **O propósito emocional do niilista**
 
 Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, a posse, o domínio o tornam cercado de pessoas que podem contribuir para o alívio de sua angústia. A sensação de que estão sendo transmitidas coisas boas pela coação de pessoas ao seu redor dá ao niilista uma grande segurança. Serve como amparo e alimento, e o niilista tem grande prioridade nessa tarefa; portanto, não necessariamente a riqueza traz somente a sensação de valor restaurada, mas pode trazer um alicerce emocional de atenção que o niilista usa e necessita em primazia como amparo.
@@ -6133,3 +6135,17 @@ Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, 
 Muitas vezes o niilista não tem ninguém por ele, ninguém que o salve; por vezes, necessita que alguém aguente seu mau humor, sua histeria, sua desavença, suas palavras desafetuosas e seus vícios e, por vezes, não há ninguém para o salvar de si mesmo. A não ser pela graça de Deus, por vezes poucas pessoas se propõem a tal companhia; isso faz com que o niilista busque formas artificiais de alimentar seu dia a dia de pessoas. E essas pessoas podem ser os funcionários que faz subordinados, seus familiares, que de alguma forma obriga a ficar por perto, e até amigos que suborna.
 
 Essa é a luta pelo eu, em que o niilista quer sair vitorioso, quer proclamar sua vitória nem que seja de forma louca ou insana sobre o outro. No alto dos edifícios, o empresário bilionário observa os operários sofrendo, enquanto ele pode desfrutar de todo o luxo; porém, não comemora a vitória verdadeira, comemora apenas o seu poder.
+
+Se o bilionário sovina, em um ato público, fosse obrigado a destituir-se de suas posses, poderíamos descrever uma cena hipotética para melhor entendimento:
+
+* O bilionário arremessa de forma insana todos os seus sacos de dinheiro do alto de um prédio. Seu sorriso é insano, um tanto quanto apático, como se fosse um boneco sorrindo. Sua risada é seca, como se sua cabeça estivesse transbordando e já não comportasse pensamentos normais, como se o estresse interior tivesse revertido em loucura. Todo o estresse que ele guardava em si, toda posição mental que o protegia de seus reais pensamentos, tudo o que o guardava de sua postura interior fora lhe tirado de uma só vez; então, comporta-se como se não tolerasse a si mesmo, não guardasse o próprio estresse, não comportasse o assombro do absurdo que está em sua mente, e nem o cansaço que questionar seus pensamentos lhe impõe.
+
+Enquanto joga todo seu dinheiro, imagina o povo como pessoas miseráveis, como se sugassem toda sua energia de volta, e só restasse a própria energia para saciá-lo, como se viver, para o niilista, fosse muito caro e ninguém quisesse pagar o preço por sua vida.
+
+Como se o povo não soubesse realmente a finalidade do dinheiro e fosse uma subcategoria de humano enquanto ele fosse o superior. Enxerga o povo como se fosse seres voltados para a alimentação e sobrevivência, que só pensam na sua rotina, que aceitam ser criados em cativeiro e reproduzidos. Como se o pensamento do povo se limitasse às funções de animais em criadouro: moram, se alimentam e morrem para servir como produto de consumo dos bilionários.
+
+O bilionário enxerga o povo como desprovido de cultura, como alguém que não atinge categorias elevadas de pensamento, enquanto é ele mesmo que não pensa acerca da existência e dispõe de tanto tempo para traçar estratégias comerciais sem pensar no sentido de sua existência. O bilionário é um devoto de sua vida financeira, de tal forma que não desvia sua atenção para o campo das emoções e dos afetos.
+
+O modelo de pensamento preferido do bilionário é se enxergar acima das nuvens, enquanto enxerga o povo como um gado orientado somente pelo que enxerga ao seu redor, que é a grama verde e o cerco.
+
+Enquanto joga sua fortuna pela janela, o bilionário, aterrorizado pela percepção do povo de que ele deveria dividir seus bens, pensa estar louco ou estar sendo vítima de uma alucinação; então se joga da janela para tentar acabar com este episódio. Como se tivesse perdido toda a sua sanidade.
