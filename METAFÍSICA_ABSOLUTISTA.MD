@@ -6126,9 +6126,9 @@ Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilion�
 
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
 
+### **O propósito emocional do niilista**
 
-
-
+Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, a posse, o domínio o tornam cercado de pessoas que podem contribuir para o alívio de sua angústia. A sensação de que estão sendo transmitidas coisas boas pela coação de pessoas ao seu redor dá ao niilista uma grande segurança. Serve como amparo e alimento, e o niilista tem grande prioridade nessa tarefa; portanto, não necessariamente a riqueza traz somente a sensação de valor restaurada, mas pode trazer um alicerce emocional de atenção que o niilista usa e necessita em primazia como amparo.
 
 
 
