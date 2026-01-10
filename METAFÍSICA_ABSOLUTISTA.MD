@@ -6149,3 +6149,7 @@ O bilionário enxerga o povo como desprovido de cultura, como alguém que não a
 O modelo de pensamento preferido do bilionário é se enxergar acima das nuvens, enquanto enxerga o povo como um gado orientado somente pelo que enxerga ao seu redor, que é a grama verde e o cerco.
 
 Enquanto joga sua fortuna pela janela, o bilionário, aterrorizado pela percepção do povo de que ele deveria dividir seus bens, pensa estar louco ou estar sendo vítima de uma alucinação; então se joga da janela para tentar acabar com este episódio. Como se tivesse perdido toda a sua sanidade.
+
+O niilista, no fundo, sente aversão pelo povo, pois considera que todos estão olhando impassíveis o processo de sua degradação sem fazer nada. Não considera que as pessoas respeitam a liberdade. O niilista esperava grande desespero e comoção popular de sua decisão; porém, ao se deparar com a total normalidade diante de sua atitude, tenta por si mesmo provocar no outro a empatia que ele imaginara que o outro precisa desenvolver, tenta fazer o outro sofrer, tenta matar o outro para tentar despertar no outro a visão do seu conflito.
+
+E essa ânsia por ser compreendido, por estar enraizada em alguma crença de que o outro possa lhe fazer algo, de que o outro possa corromper sua própria liberdade e livrá-lo de quem ele é.
