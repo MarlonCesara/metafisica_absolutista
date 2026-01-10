@@ -6155,3 +6155,22 @@ O niilista, no fundo, sente aversão pelo povo, pois considera que todos estão 
 E essa ânsia por ser compreendido, por estar enraizada em alguma crença de que o outro possa lhe fazer algo, de que o outro possa corromper sua própria liberdade e livrá-lo de quem ele é.
 
 O niilista, por vezes se vê como um palhaço, um intérprete, uma personalidade que se passa por vilão opressor para fins de entretenimento, causando adrenalina no grande público. Sem que deseje esse papel, ele é realizado, pois é uma fatalidade de sua sintomática, e, sem que almeje, faz-se um personagem social, alguém dito em filmes como o lado oposto, como o que dá entusiasmo e tônus ao enredo humano, à aventura social. O niilista, pelo contrário, não se enxerga dessa forma e vê nisso uma forma insultosa de retratá-lo, e às vezes até humilhante. Pois não quer ser visto como um personagem social que gera noticiários, reviravoltas, constrangimento e medo social.
+
+
+### **A mulher niilista**
+
+A mulher niilista ameaça a separação familiar, se faz obsessiva por dinheiro, por descarga de ódio social, escolhe parceiros com base no poder de descarga de ódio. Caso um parceiro tenha dinheiro, mas não esteja em favor do golpeamento social através da exposição, então, para a mulher niilista, não faz diferença. A mulher niilista, quando abandona seu cônjuge sem justificativa nenhuma, está querendo expressar o que a amedronta por dentro, expressar seu suicídio. Quando substitui relações por dinheiro ou quando monetiza relações, está querendo dizer que, para ela, as coisas perderam o valor, pois o próprio ato de viver se fez sem sentido para ela, sendo adepta do niilismo. A mulher niilista tem uma visão mais nítida do seu interior e manifesta, por vezes, até um pavor maior diante da própria verdade, e desenvolve até mesmo uma obsessão aparente por bens materiais e status.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
