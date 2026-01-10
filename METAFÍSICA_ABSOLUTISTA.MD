@@ -6130,6 +6130,4 @@ O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silen
 
 Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, a posse, o domínio o tornam cercado de pessoas que podem contribuir para o alívio de sua angústia. A sensação de que estão sendo transmitidas coisas boas pela coação de pessoas ao seu redor dá ao niilista uma grande segurança. Serve como amparo e alimento, e o niilista tem grande prioridade nessa tarefa; portanto, não necessariamente a riqueza traz somente a sensação de valor restaurada, mas pode trazer um alicerce emocional de atenção que o niilista usa e necessita em primazia como amparo.
 
-
-
-
+Muitas vezes o niilista não tem ninguém por ele, ninguém que o salve; por vezes, necessita que alguém aguente seu mau humor, sua histeria, sua desavença, suas palavras desafetuosas e seus vícios e, por vezes, não há ninguém para o salvar de si mesmo. A não ser pela graça de Deus, por vezes poucas pessoas se propõem a tal companhia; isso faz com que o niilista busque formas artificiais de alimentar seu dia a dia de pessoas. E essas pessoas podem ser os funcionários que faz subordinados, seus familiares, que de alguma forma obriga a ficar por perto, e até amigos que suborna.
