@@ -6120,3 +6120,16 @@ O propósito da cúpula é um só: o caos. É desvelar todo o desespero ao mundo
 
 A cúpula não é uma teoria ou uma metáfora, mas pessoas extremamente afortunadas planejando guerras, manipulação política, ataques, invasões. Se existem essas coisas, certamente alguém as planejou, e se as planejou, a cúpula é real.
 
+### **A porta do céu é estreita**
+
+Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilionários, que muitas vezes causam o mal, não possuem a mesma habilidade. O povo humilde e sofredor, que é oprimido, detém uma habilidade infinita e a mais fundamental de todas: o dom de viver.
+
+O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
+
+
+
+
+
+
+
+
