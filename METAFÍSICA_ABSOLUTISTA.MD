@@ -1319,22 +1319,23 @@ O Espírito não "experimenta" o tempo como uma entidade finita, mas **o constit
 
 No estado relativo o Espírito já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir. O Espírito contém todo o seu tempo em si. Já tomou todas as decisões e já optou por vivificá-las, atualizando-as no curso da existência; porém, as vivificou apenas em seu relativo — isto é, são decisões realizadas em potencial. Carecem da escolha viva do Espírito.
 
-000
-#### **O primeiro ato do Espírito**
+#### **O primeiro ato do Espírito plenificador**
 
 E como o Espírito escolheria o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é da suspensão perfeita, ou seja, da plenitude indiferenciada, em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha e chamaremos esse momento de tempo do Espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
 
 Portanto, o start da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora, isto é, atemporalmente este momento já existia segundo a plenitude do Espírito. Foi, portanto, num momento perfeito dentro da temporalidade linear, ou seja, infinita, que se deu o start da ação determinada. Isto é, o Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indifereciamento havia, por natureza da plenitude, uma ação perfeita para o start da ação do Espírito no tempo.
 
-Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências; mas apenas em seu aspecto relativo poderia fazer uma atualização abrangente. Assim, o Espírito se consuma no relativo, ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora comporte a atemporalidade, também se manifesta no tempo. Assim age o Espírito em sua dimensão temporal: contém sua integralidade, mas permanece vivo em ação e em ato único, por meio de seu relativo.
-000
-E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer estado da alma corresponde à sua essência, à sua persona. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua persona, considerando que sua persona é o reflexo de seu proceder.
+Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências; mas apenas em seu aspecto relativo poderia fazer uma atualização abrangente. Assim, o Espírito se consuma no relativo, ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora comporte a atemporalidade, também se manifesta no tempo. 
+
+E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer estado da alma corresponde à sua essência, à sua persona. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua persona, considerando que sua persona é o reflexo de sua plenitude.
 
 A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que tempo és tu?”. Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
 
-Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito existe temporalmente em seu tempo particular.
+Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
 
-Mas em que tempo estava o Espírito, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência se dá em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem no tempo. A alma de Jesus, portanto, foi gerada no tempo. 
+#### **O primeiro ato do Espírito personalizador**
+000
+Mas em que tempo age o Espírito personalizador, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência se dá em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem no tempo. A alma de Jesus, portanto, foi gerada no tempo. 
 
 O Espírito se dissolve na completude, pois gera em favor da perfeição já instaurada no relativo, que se dá completo como tal, ainda que em constante mudança interna. As mudanças internas não interferem na plenitude, que se instaura ainda sob as constantes e imprevisíveis mudanças. Porém, a ação da alma, não necessariamente baseada numa plenitude estreita, corrompe o relativo, de forma que toda alma se origina com uma idade, isto é, com um tempo em si e perante uma ação temporal do Espírito. A alma de Jesus, desta forma, sempre existiu de forma inativa na Trindade; porém, teve sua ação, ou seja, gerou modificações na realidade a partir do momento de seu revelar no tempo.
 
