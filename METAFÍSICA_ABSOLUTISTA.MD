@@ -6160,3 +6160,8 @@ O niilista, por vezes se vê como um palhaço, um intérprete, uma personalidade
 
 A mulher niilista ameaça a separação familiar, se faz obsessiva por dinheiro, por descarga de ódio social, escolhe parceiros com base no poder de descarga de ódio. Caso um parceiro tenha dinheiro, mas não esteja em favor do golpeamento social através da exposição, então, para a mulher niilista, não faz diferença. A mulher niilista, quando abandona seu cônjuge sem justificativa nenhuma, está querendo expressar o que a amedronta por dentro, expressar seu suicídio. Quando substitui relações por dinheiro ou quando monetiza relações, está querendo dizer que, para ela, as coisas perderam o valor, pois o próprio ato de viver se fez sem sentido para ela, sendo adepta do niilismo. A mulher niilista tem uma visão mais nítida do seu interior e manifesta, por vezes, até um pavor maior diante da própria verdade, e desenvolve até mesmo uma obsessão aparente por bens materiais e status. A mulher niilista expressa o assombro existencial, muitas vezes, nos filhos, fazendo brincadeiras que demonstrem seu medo de se fadar no abismo. Ou, para o marido, com ameaças constantes de separação. Muitas vezes a mulher niilista tenta distorcer o sentido da relação, provocando constantes brigas, isolando o parceiro ou fazendo constantes provocações para destituir de sentido a relação.
 
+### **A dualidade niilista**
+
+Ao passo que o niilista é obsessivo por posses e também dependente de pequenas alegrias, afetos que quer obrigar a ficar ao seu redor para protegê-lo, é alguém fanático e, ao mesmo tempo, carente. Alguém que tem devaneios de grandeza e se esquece do amor ao próximo dentro desses devaneios.
+
+
