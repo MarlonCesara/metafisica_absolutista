@@ -1343,7 +1343,9 @@ Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, 
 
 > *“Todas as coisas foram feitas por meio dele, e sem ele nada foi feito do que foi feito.”*
 
-Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento.
+Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. 
+
+Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
 
 000
 
