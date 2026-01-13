@@ -6189,4 +6189,4 @@ O niilista pode desprender a culpa de seus pensamentos, se fingindo inocente com
 
 Porém, não arquiteta uma romantização complexa como a de um adulto, mas a romantização simplória e simples como a da criança, como observar uma estrela.
 
-
+O niilista deseja coisas sem questionar o propósito, tal como uma criança, que deseja um objeto e logo mais não deseja mais. Pois só obedece a uma vontade inicial, sem projetar o porquê dessa vontade.
