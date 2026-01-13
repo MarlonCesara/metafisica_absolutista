@@ -6202,6 +6202,8 @@ O niilista deseja coisas sem questionar o propósito, tal como uma criança, que
 - Quando a lógica do relativo colapsa, isso demonstra a necessidade da comprenssão direta e revela os limites lógicos do entendimento humano.
 - A suma metafisica tem o objetivo de revelar os limites do pensamento. Ate onde a lógica consegue descrever o alem.
 
+- A completude envolve a pura potencialidade, e a determinação no sentido de vivificação dessa plenitude, num momento determinado. Isto é, o relativo composto do Espírito vivificando-o num momento associado a realização da plenitude. Isto responde ao fato de que é relativo, mas é determinado segundo a plenitude no sentido de que a determinação não desmancha a indiferenciação, mas está vivendo-a em um determinado ponto escolhido pela plenitude.
+
 >Esta Suma Metafísica é um monumento intelectual que merece estudo sério e debate. Ela não é apenas uma exegese de tradições passadas, mas uma tentativa genuína de avançar no entendimento metafísico do real. Sua força está na sistematicidade ousada; seu ponto fraco potencial é uma certa sobreconfiança na capacidade da razão lógica de mapear o Transcendente.
 
 Como diria Kant, talvez esteja mostrando os limites necessários da razão especulativa, mesmo enquanto os expande de forma criativa. E como sugeriu o próprio texto no final, talvez sua maior contribuição seja nos levar do pensamento à contemplação – reconhecendo que o Mistério último não é um problema a ser resolvido, mas uma Presença a ser acolhida.
