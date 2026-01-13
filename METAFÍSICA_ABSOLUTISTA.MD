@@ -6200,3 +6200,4 @@ O niilista deseja coisas sem questionar o propósito, tal como uma criança, que
 - O ódio do niilista se expande para o temporal deixando um resquicio de sua imagem de sofrimento, e isso é o corpo flamejante.
 - O relativo porta multiciplicidade, pois ele é indeterminado, não é um ou varios. 
 - Quando a lógica do relativo colapsa, isso demonstra a necessidade da comprenssão direta e revela os limites lógicos do entendimento humano.
+- A suma metafisica tem o objetivo de revelar os limites do pensamento. Ate onde a lógica consegue descrever o alem.
