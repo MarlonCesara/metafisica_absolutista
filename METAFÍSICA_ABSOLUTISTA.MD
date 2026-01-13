@@ -6180,3 +6180,13 @@ Aqui está o texto com **correções mínimas de português**, mantendo as mesma
 Fatores como obesidade, vícios, comportamentos perigosos no esporte, enfim, podem ser justificados no indivíduo sem que seja necessário recorrer ao niilismo; no entanto, reconhecer o niilismo exige uma união de vários fatores, como fuga das coisas que fazem sentido na vida, desfiguração do âmbito social e afetivo, palavrões constantes, abuso de substâncias químicas, etc. É necessário ao menos mais de um fator reunido para reconhecer o niilista, até mesmo porque não é possível definir um niilista sem que sejam percebidos nele atos suicidas; pode ser um modelo de pensamento ou modo de agir. Não necessariamente alguém que faça um esporte perigoso ou consuma substâncias ilícitas é niilista, em vista que o extremismo, ou o exagero na perfeição, seria até um mal psicológico e não um traço niilista. Muito pelo contrário, o niilista poderia ser identificado até mesmo como uma pessoa rígida demais, que evita afetos e situações aventureiras em sua vida; portanto, o perfeccionismo extremo está mais próximo do niilismo do que o não perfeccionismo.
 
 Desta forma, faz-se necessário identificar vários traços do comportamento niilista no indivíduo para defini-lo como tendência a tal posição existencial. Não basta apenas ser alguém obsessivo, cheio de ira ou cheio de símbolos esotéricos para se definir niilista; é preciso uma análise mais profunda para tentar encontrar a razão de certas atitudes individuais antes de julgá-las niilismo prático.
+
+### **O niilista simulando a infância**
+
+O niilista retrocede ao estado de infância. Apego a atos manuais, obsessão por objetivos como uma birra, raciocínio parecido com o de uma criança em idealizações como: a estrela bonita, o passeio no parque. O niilista passa a esquecer do eu adulto e se coloca num estado de criança no qual adquire, em sua mentalidade, um potencial maior de aprendizado e mudança interior, pois num estado inicial de vida julga ter uma maior abertura de coração.
+
+O niilista pode desprender a culpa de seus pensamentos, se fingindo inocente como uma criança, pois quando criança trama o mal contra si mesma, seus pensamentos seriam desprovidos de peso pelo desconhecimento do mal. Então o niilista faz pequenas menções de poesia em seu pensamento e as sustenta numa posição infantil e encantada da vida que traça para amenizar sua postura interior.
+
+Porém, não arquiteta uma romantização complexa como a de um adulto, mas a romantização simplória e simples como a da criança, como observar uma estrela.
+
+
