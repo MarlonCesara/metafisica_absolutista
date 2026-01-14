@@ -6204,7 +6204,7 @@ O niilista deseja coisas sem questionar o propósito, tal como uma criança, que
 - A lógica superior não é o romper completo do sistema lógico Aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é que interage com uma abertura à qualquer possibilidade e tem como resultado uma realidade não disruptiva. 
 
 
-
+- A auto consciencia, auto presença, auto dominio, é sobre a atemporalidade do relativo, mas poderia ser sobre um ponto especifico temmporal, estando este te acordo com a plenitude. Portanto, é pleno que, o universo tivesse tido um start num tempo e maneira especifica. Ou seja, houve um auto domimnio num momento especifico, e este momento era uma hipotese suspensa no campo das possibilidades. Portanto, o relativo continua intacto, mas uma de suas hipoteses suspensas esta sendo vivenciado pelo espírito.
 
 - A completude envolve a pura potencialidade, e a determinação no sentido de vivificação dessa plenitude, num momento determinado. Isto é, o relativo composto do Espírito vivificando-o num momento associado a realização da plenitude. Isto responde ao fato de que é relativo, mas é determinado segundo a plenitude no sentido de que a determinação não desmancha a indiferenciação, mas está vivendo-a em um determinado ponto escolhido pela plenitude.
 
