@@ -6201,6 +6201,10 @@ O niilista deseja coisas sem questionar o propósito, tal como uma criança, que
 - O relativo porta multiciplicidade, pois ele é indeterminado, não é um ou varios. 
 - Quando a lógica do relativo colapsa, isso demonstra a necessidade da comprenssão direta e revela os limites lógicos do entendimento humano.
 - A suma metafisica tem o objetivo de revelar os limites do pensamento. Ate onde a lógica consegue descrever o alem.
+- A lógica superior não é o romper completo do sistema lógico Aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é que interage com uma abertura à qualquer possibilidade e tem como resultado uma realidade não disruptiva. 
+
+
+
 
 - A completude envolve a pura potencialidade, e a determinação no sentido de vivificação dessa plenitude, num momento determinado. Isto é, o relativo composto do Espírito vivificando-o num momento associado a realização da plenitude. Isto responde ao fato de que é relativo, mas é determinado segundo a plenitude no sentido de que a determinação não desmancha a indiferenciação, mas está vivendo-a em um determinado ponto escolhido pela plenitude.
 
