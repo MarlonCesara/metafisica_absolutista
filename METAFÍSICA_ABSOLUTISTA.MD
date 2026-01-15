@@ -1406,10 +1406,10 @@ O Espírito testemunha o tempo de duas formas complementares:
 -   *"Eis que faço novas todas as coisas" (Apocalipse 21:5):* A eternidade se refresca a si mesma no tempo.
 
 #### **A Suspensão das Possibilidades**
-000
+
 O futuro, para o Espírito, não é um "vazio a ser preenchido", mas um **campo de possibilidades já realizadas** que aguardam testemunho.
 -   **O relativo como suspensão:** Todas as opções (possíveis, impossíveis, incognoscíveis) estão **simultaneamente consumadas e disponíveis**.
--   **A alma como localizadora temporal:** A consciência finita (observador) percebe o tempo como "progressão", mas o Espírito já habita **todas as linhas temporais** como ato único.
+-   **A alma como localizadora temporal:** A consciência (observador) percebe o tempo como "progressão", todavia o Espírito já tem disponível **todas as linhas temporais** como ato único.
 
 #### **Conclusão: O Tempo como contemplação Divina**
 
@@ -1441,7 +1441,7 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 ##### **Não-Coexistência de Opostos Relativos**
 -   A (manifestação) e B (relativo) não podem ocupar a mesma dimensão se forem contraditórios.
     -   *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.
-
+000
 ##### **Referencial Possível**
 -   A manifestação (A) e o relativo (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
 -   Se a manifestação (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço do relativizado (já que potencial implica em manifestação, incompatível com a ausência total).
