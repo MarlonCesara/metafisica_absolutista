@@ -6199,28 +6199,27 @@ Porém, não arquiteta uma romantização complexa como a de um adulto, mas a ro
 
 O niilista deseja coisas sem questionar o propósito, tal como uma criança, que deseja um objeto e logo mais não deseja mais. Pois só obedece a uma vontade inicial, sem projetar o porquê dessa vontade.
 
-### **O niilismo como repressão do impulsso corporal fundamental pela vida**
+### **O niilismo como repressão do impulso corporal fundamental pela vida**
 
-O niilismo é uma repressão do consciente aos sonhos, a visão interior, ao desejo pela vida, e ao sentido de auto preservação do corpo. É uma presssão máxima dos impulssos vitais. Alem disso, o niilismo é um medo consciente, pois engloba as crenças do individuo sobre sua eternidade, sobre o seu alem, resultando em uma opressão psicológica que assombra o corpo e tira a paz do individuo. Desta forma, temos dois efeitos severos, a repressão e o assombro, que é a visão pessimista do alem. Baseada também, em todas as crenças do individuo e no sentido lógico comum, sendo este esclarecido ou meramente esclarecido para o individuo a cerca da existencia e seu fundamento. Ou seja, digamos que a teoria relativista seja intuitiva, e que o incosnciente humano é capaz de projeta-la ainda que não totalmente esclarecida, isto, é se o sentido logico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano. E isso pode ser prvisivel de forma que, participe da sintomatica. Por isto, é interessante entender a teoria relativista, e as alegorias metafisicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosofico para compreender com mais exatidão a pluraridade de manifestações niilistas no inconsciente humano.
+O niilismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o niilismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
+
+Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente esclarecido para o indivíduo acerca da existência e de seu fundamento.
+
+Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano.
+
+E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações niilistas no inconsciente humano.
+
+## **Rascunhos**
+
+* O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
+* O relativo porta multiplicidade, pois ele é indeterminado, não é um ou vários.
+* Quando a lógica do relativo colapsa, isso demonstra a necessidade da compreensão direta e revela os limites lógicos do entendimento humano.
+* A suma metafísica tem o objetivo de revelar os limites do pensamento: até onde a lógica consegue descrever o além.
+* A lógica superior não é o romper completo do sistema lógico aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é, que interage com uma abertura a qualquer possibilidade e tem como resultado uma realidade não disruptiva.
 
 
 
-
-
-
-## Rascunhos
-- O ódio do niilista se expande para o temporal deixando um resquicio de sua imagem de sofrimento, e isso é o corpo flamejante.
-- O relativo porta multiciplicidade, pois ele é indeterminado, não é um ou varios. 
-- Quando a lógica do relativo colapsa, isso demonstra a necessidade da comprenssão direta e revela os limites lógicos do entendimento humano.
-- A suma metafisica tem o objetivo de revelar os limites do pensamento. Ate onde a lógica consegue descrever o alem.
-- A lógica superior não é o romper completo do sistema lógico Aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é que interage com uma abertura à qualquer possibilidade e tem como resultado uma realidade não disruptiva. 
-
-
-
-
->Esta Suma Metafísica é um monumento intelectual que merece estudo sério e debate. Ela não é apenas uma exegese de tradições passadas, mas uma tentativa genuína de avançar no entendimento metafísico do real. Sua força está na sistematicidade ousada; seu ponto fraco potencial é uma certa sobreconfiança na capacidade da razão lógica de mapear o Transcendente.
-
-Como diria Kant, talvez esteja mostrando os limites necessários da razão especulativa, mesmo enquanto os expande de forma criativa. E como sugeriu o próprio texto no final, talvez sua maior contribuição seja nos levar do pensamento à contemplação – reconhecendo que o Mistério último não é um problema a ser resolvido, mas uma Presença a ser acolhida.
+> Esta Suma Metafísica é um monumento intelectual que merece estudo sério e debate. Ela não é apenas uma exegese de tradições passadas, mas uma tentativa genuína de avançar no entendimento metafísico do real. Sua força está na sistematicidade ousada; seu ponto fraco potencial é uma certa sobreconfiança na capacidade da razão lógica de mapear o Transcendente. Como diria Kant, talvez esteja mostrando os limites necessários da razão especulativa, mesmo enquanto os expande de forma criativa. E como sugeriu o próprio texto no final, talvez sua maior contribuição seja nos levar do pensamento à contemplação – reconhecendo que o Mistério último não é um problema a ser resolvido, mas uma Presença a ser acolhida.
 
 > O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
 
