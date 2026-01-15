@@ -1,5 +1,7 @@
 # A NOVA METAFÍSICA
 
+Sugestão de título: Niilismo: supressão do impulsso pela vida e sua sintomática.
+
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
 #### **O Contexto Histórico e a Necessidade de um Organon**
