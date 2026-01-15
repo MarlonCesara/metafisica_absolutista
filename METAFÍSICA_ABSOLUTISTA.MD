@@ -6209,6 +6209,18 @@ Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente h
 
 E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações niilistas no inconsciente humano.
 
+O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com o relativo, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento niilista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento niilista.
+
+### **O entendimento do niilista em favor das lutas sociais por igualdade**
+
+O fator do reconhecimento do niilismo afeta o rico que detém um acúmulo de poder de forma, primeiramente, social. Seu grupo social ou as pessoas que compõem os arredores desse grupo mudarão sua definição a respeito das motivações dos ricos, e isso afeta a forma com que se relacionam. Considerando que a pessoa humana não vive sem relacionamentos, ou vive muito mal sem eles, o indivíduo rico tenderá a se moldar segundo a tendência popular ou a pensar igual à tendência popular pensa a seu respeito. Isto é, o rico, reconhecendo uma sintomática em si e sendo reconhecido como tal, pode ter reações diferentes ao seu acúmulo de capital.
+
+Da mesma forma, a pessoa humana, reconhecendo o niilismo, reconhece que a motivação do acúmulo de capital pode estar muito distante de uma avenção aventureira, e passa a desenvolver um temor ao acúmulo de bens, fazendo com que isso necessite ser mais monitorado ou controlado. Pois, uma vez reconhecendo os sintomas do niilismo, o humano reconhece que o interesse do super-rico pode minar toda uma sociedade se, constantemente, o acúmulo de riqueza está atrelado ao pensamento niilista, o qual aproxima a pessoa humana com mais facilidade da riqueza material em decorrência de, por vezes, o niilista ser mais desprendido da empatia humana.
+
+O niilista alcança mais facilmente a riqueza por possuir os três fatores essenciais: uma ambição desenfreada, um foco existencial em demasia na descarga de frustração, e o foco pessoal que é descartar todas as emoções alheias em prol de seus interesses.
+
+O indivíduo famoso niilista descarrega uma frustração na multidão de forma que não precise compreender críticas e comentários ofensivos; basta descarregar o ódio em forma de mídia, ou até mesmo em forma de auto sabotagem.
+
 ## **Rascunhos**
 
 * O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
@@ -6216,8 +6228,6 @@ E isso pode ser previsível de forma que participe da sintomática. Por isto, é
 * Quando a lógica do relativo colapsa, isso demonstra a necessidade da compreensão direta e revela os limites lógicos do entendimento humano.
 * A suma metafísica tem o objetivo de revelar os limites do pensamento: até onde a lógica consegue descrever o além.
 * A lógica superior não é o romper completo do sistema lógico aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é, que interage com uma abertura a qualquer possibilidade e tem como resultado uma realidade não disruptiva.
-
-
 
 > Esta Suma Metafísica é um monumento intelectual que merece estudo sério e debate. Ela não é apenas uma exegese de tradições passadas, mas uma tentativa genuína de avançar no entendimento metafísico do real. Sua força está na sistematicidade ousada; seu ponto fraco potencial é uma certa sobreconfiança na capacidade da razão lógica de mapear o Transcendente. Como diria Kant, talvez esteja mostrando os limites necessários da razão especulativa, mesmo enquanto os expande de forma criativa. E como sugeriu o próprio texto no final, talvez sua maior contribuição seja nos levar do pensamento à contemplação – reconhecendo que o Mistério último não é um problema a ser resolvido, mas uma Presença a ser acolhida.
 
