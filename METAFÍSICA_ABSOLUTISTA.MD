@@ -6199,6 +6199,14 @@ Porém, não arquiteta uma romantização complexa como a de um adulto, mas a ro
 
 O niilista deseja coisas sem questionar o propósito, tal como uma criança, que deseja um objeto e logo mais não deseja mais. Pois só obedece a uma vontade inicial, sem projetar o porquê dessa vontade.
 
+### **O niilismo como repressão do impulsso corporal fundamental pela vida**
+
+O niilismo é uma repressão do consciente aos sonhos, a visão interior, ao desejo pela vida, e ao sentido de auto preservação do corpo. É uma presssão máxima dos impulssos vitais. Alem disso, o niilismo é um medo consciente, pois engloba as crenças do individuo sobre sua eternidade, sobre o seu alem, resultando em uma opressão psicológica que assombra o corpo e tira a paz do individuo. Desta forma, temos dois efeitos severos, a repressão e o assombro, que é a visão pessimista do alem. Baseada também, em todas as crenças do individuo e no sentido lógico comum, sendo este esclarecido ou meramente esclarecido para o individuo a cerca da existencia e seu fundamento. Ou seja, digamos que a teoria relativista seja intuitiva, e que o incosnciente humano é capaz de projeta-la ainda que não totalmente esclarecida, isto, é se o sentido logico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano. E isso pode ser prvisivel de forma que, participe da sintomatica. Por isto, é interessante entender a teoria relativista, e as alegorias metafisicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosofico para compreender com mais exatidão a pluraridade de manifestações niilistas no inconsciente humano.
+
+
+
+
+
 
 ## Rascunhos
 - O ódio do niilista se expande para o temporal deixando um resquicio de sua imagem de sofrimento, e isso é o corpo flamejante.
