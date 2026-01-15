@@ -1,6 +1,6 @@
 # A NOVA METAFÍSICA
 
-Sugestão de título: Niilismo: supressão do impulsso pela vida e sua sintomática.
+Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintomática.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
