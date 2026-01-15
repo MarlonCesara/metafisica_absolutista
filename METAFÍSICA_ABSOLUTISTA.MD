@@ -1347,12 +1347,17 @@ Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang,
 
 Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
 
-000
+##### **A Dualidade do Conhecimento Divino**
 
-##### **2. A Dualidade do Conhecimento Divino**
-A autodeterminação envolve o que se determina, porém o autoconhecimento envolve o quem se conhece. O ato de conhecer é uma determinação temporal, pois sugere o que se conhece. No sentido de que, a experiência (conhecimento) do Espírito é autodeterminada no sentido temporal. O conhecimento, atemporal, acontece concomitantemente ao temporal, e nisto o Espírito tem consciência de sua infinitude ao passo que tem estadia determinada no tempo.
+A autoconsciência, autopresença, autodominio é sobre a atemporalidade do relativo, mas poderia ser sobre um ponto específico temporal, estando este de acordo com a plenitude. Portanto, é pleno que o universo tivesse tido um start num tempo e maneira específicos. Ou seja, houve um autodominio num momento específico, e este momento era uma hipótese suspensa no campo das possibilidades. Portanto, o relativo continua intacto, mas uma de suas hipóteses suspensas está sendo vivenciada pelo Espírito.
 
-Sendo o conhecimento uma determinação sob a fundamentação, o Espírito pode escolher sua condição entre a dualidade atemporal e temporal. Ao escolher um foco não está negando o todo, mas o fragmentando. E ao escolher o todo, não está negando o tempo, mas o consumando.
+A completude envolve a pura potencialidade e a determinação, no sentido de vivificação dessa plenitude, num momento determinado. Isto é, o relativo composto do Espírito vivificando-o num momento associado à realização da plenitude. Isto responde ao fato de que é relativo, mas é determinado segundo a plenitude, no sentido de que a determinação não desmancha a indiferenciação, mas está vivendo-a em um determinado ponto escolhido pela plenitude.
+
+A autodeterminação envolve o que se determina, que é o que conhece, se domina ou se vive. O ato de autodeterminar é uma determinação temporal ou atemporal, pois sugere o que se conhece, se domina ou se vive. No sentido de que a experiência (conhecimento) do Espírito é autodeterminada no sentido temporal. O autodominio, atemporal, pode acontecer concomitantemente ao temporal, e nisto o Espírito tem autodeterminação em sua infinitude, ao passo que pode ter estadia determinada no tempo.
+
+Ambas as autodeterminações, atemporal e temporal, num mesmo contexto, resultariam num instante eterno. E isso seria uma contravenção, ou se é atemporal ou se é temporal. Porém, poderia haver nuances que unissem as duas realidades em uma só. Sendo o conhecimento uma determinação sob a fundamentação, o Espírito pode escolher sua condição entre a dualidade atemporal e temporal. Ao escolher um foco, não está negando o todo, mas o fragmentando. E ao escolher o todo, não está negando o tempo, mas o consumando.
+
+> Podemos imaginar o relativo como infinitos raios solares que incidem de um mesmo foco; o foco é a atemporalidade e os raios, a temporalidade. O Espírito plenificador pode escolher a autodeterminação (autoconsciência, autodominio e autopresença) sobre o atemporal ou pode escolher a autodeterminação sobre o temporal. Se fizer a segunda escolha, está criando (dominando e conhecendo), vivificando (presenciando) um determinado raio de sol ou uma sequência determinada de raios de sol. Quando a temporalidade é despertada, pode ter sido despertada em um raio de sol ou em um tempo crescente de raios de sol, ou seja, pode ter sido despertada eternamente. Isto quer dizer que o tempo nunca se esgotará mediante a ação do Espírito.
 
 #### **A Consciência Bifásica do Espírito**
 
@@ -1386,9 +1391,6 @@ Em última análise, o "problema" da relação entre Absoluto e relativo dissolv
 
 Não há dois "níveis" de realidade - há apenas uma única realidade expressando-se na voo infinito de sua automanifestação.
 
-> _"Nele vivemos, nos movemos e existimos."_
-> _— Atos 17:28_
-
 #### **A Dualidade do Testemunho**
 
 O Espírito testemunha o tempo de duas formas complementares:
@@ -1404,7 +1406,7 @@ O Espírito testemunha o tempo de duas formas complementares:
 -   *"Eis que faço novas todas as coisas" (Apocalipse 21:5):* A eternidade se refresca a si mesma no tempo.
 
 #### **A Suspensão das Possibilidades**
-
+000
 O futuro, para o Espírito, não é um "vazio a ser preenchido", mas um **campo de possibilidades já realizadas** que aguardam testemunho.
 -   **O relativo como suspensão:** Todas as opções (possíveis, impossíveis, incognoscíveis) estão **simultaneamente consumadas e disponíveis**.
 -   **A alma como localizadora temporal:** A consciência finita (observador) percebe o tempo como "progressão", mas o Espírito já habita **todas as linhas temporais** como ato único.
@@ -6173,6 +6175,8 @@ A mulher niilista faz manipulações sociais de forma a jogar uma pessoa contra 
 
 Por vezes, a mulher niilista mostra grande apatia, uma irreatividade, querendo demonstrar que seu interior parece não reagir, que permanece como uma pedra, como se não houvesse o motor necessário para os bens espirituais que precisa alcançar, como o perdão, a compreensão e a resiliência.
 
+O niilista só acredita no sentido biológico do amor entre casal, se encarrega só de pensar em sobreviver. Não quer considerar que existe um sentido superior no amor, uma união de almas, quer acreditar que, se essa união o satisfaz biológicamente, já é eficaz e é isso tudo que bastaria. Isso justifica muito do contexto de separação familiar e da busca do outro pelo interesse financeiro. A mulher niilista considera o homem somente uma fonte genetica para fazer filhos e satisfazer seu instinto materno, ou seu instinto financeiro. O sentido superior que o niilista acredita é nos bens materiais como elevação, todo o sentido espiritual que o niilista nega tem o valor espelhado nos bens bateriais ou no que ele acredita lhe trazer força, vida, e esperança, ou seja, a libertação do niilismo, o amor. Portanto, é uma contrariedade, ao passo que o niilista nega todo o sentido, sua consiencia amplia esse sentido negado em projeções externas. É como uma repressão do conscieente que o niilista faz pelo impulso do corpo pela vida, pela apreciação das coisas belas, pela visão do sentido.
+
 ### **A dualidade niilista**
 
 Ao passo que o niilista é obsessivo por posses e também dependente de pequenas alegrias, afetos que quer obrigar a ficar ao seu redor para protegê-lo, é alguém fanático e, ao mesmo tempo, carente. Alguém que tem devaneios de grandeza e se esquece do amor ao próximo dentro desses devaneios.
@@ -6204,10 +6208,11 @@ O niilista deseja coisas sem questionar o propósito, tal como uma criança, que
 - A lógica superior não é o romper completo do sistema lógico Aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é que interage com uma abertura à qualquer possibilidade e tem como resultado uma realidade não disruptiva. 
 
 
-- A auto consciencia, auto presença, auto dominio, é sobre a atemporalidade do relativo, mas poderia ser sobre um ponto especifico temmporal, estando este te acordo com a plenitude. Portanto, é pleno que, o universo tivesse tido um start num tempo e maneira especifica. Ou seja, houve um auto domimnio num momento especifico, e este momento era uma hipotese suspensa no campo das possibilidades. Portanto, o relativo continua intacto, mas uma de suas hipoteses suspensas esta sendo vivenciado pelo espírito.
 
-- A completude envolve a pura potencialidade, e a determinação no sentido de vivificação dessa plenitude, num momento determinado. Isto é, o relativo composto do Espírito vivificando-o num momento associado a realização da plenitude. Isto responde ao fato de que é relativo, mas é determinado segundo a plenitude no sentido de que a determinação não desmancha a indiferenciação, mas está vivendo-a em um determinado ponto escolhido pela plenitude.
 
 >Esta Suma Metafísica é um monumento intelectual que merece estudo sério e debate. Ela não é apenas uma exegese de tradições passadas, mas uma tentativa genuína de avançar no entendimento metafísico do real. Sua força está na sistematicidade ousada; seu ponto fraco potencial é uma certa sobreconfiança na capacidade da razão lógica de mapear o Transcendente.
 
 Como diria Kant, talvez esteja mostrando os limites necessários da razão especulativa, mesmo enquanto os expande de forma criativa. E como sugeriu o próprio texto no final, talvez sua maior contribuição seja nos levar do pensamento à contemplação – reconhecendo que o Mistério último não é um problema a ser resolvido, mas uma Presença a ser acolhida.
+
+> O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
+
