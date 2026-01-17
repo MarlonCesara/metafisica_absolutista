@@ -6239,6 +6239,12 @@ O niilista se ausenta da aventura das grandes dificuldades, dos conflitos que co
 
 O niilista diria: “para que tanto esforço se a vida é finita? Quem se esforça demais é um tolo”. O niilista usa de recursos que o previnam da responsabilidade de esforçar-se tanto em pensamento quanto em esforço físico; sua ausência não está somente no esforço físico, mas no esforço de estudar, raciocinar e ter novas visões. O niilista simplesmente se arremessa na monotonia do mais fácil, como se rolasse em um carrinho de rodas para seu fim, apenas com um leve impulso do braço, e como se não fizesse sentido mais esforço ou grandes emoções. Como se sua caminhada para o que pensa ser sua finitude fosse apenas um descarte, e, nesse processo de descarte, ocorresse apenas um “deslizar” suave de seu corpo, sem qualquer emoção e sem grande empenho, pois todo empenho exige um significado que está atrelado ao sentido da vida e à continuidade desta.
 
+### **A obsessão aleatória do niilista**
+
+O niilista pode tomar um objetivo, coisa ou pessoa para imaginar-se mudado. Isto é, projeta uma cura necessária e irremediável que está externa a si mesmo e diz para si que conviver com tal pessoa, obter tal coisa ou concluir tal objetivo lhe livrará necessariamente de sua postura. E, para defender este objetivo, pode até mesmo mentir, ser violento ou caluniar, como se estivesse defendendo a si mesmo e a sua própria vida.
+
+Vamos citar o exemplo de uma avó que defende sua neta e a afasta de qualquer risco de dela partir ou de ser independente. Ou podemos citar o objetivo de conseguir um determinado cargo numa empresa ou uma situação econômica. Até mesmo pode estar associado a conseguir um relacionamento com uma pessoa específica, e o pensamento de que somente aquela pessoa poderia lhe trazer mudanças.
+
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
 Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
