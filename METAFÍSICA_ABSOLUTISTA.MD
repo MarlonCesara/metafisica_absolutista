@@ -6223,6 +6223,17 @@ O niilista alcança mais facilmente a riqueza por possuir os três fatores essen
 
 O indivíduo famoso niilista descarrega uma frustração na multidão de forma que não precise compreender críticas e comentários ofensivos; basta descarregar o ódio em forma de mídia, ou até mesmo em forma de auto sabotagem.
 
+### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
+
+Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
+
+Certamente, para o niilista, ter um conjunto de regras que o salvariam da própria autonomia é mais confortador que uma visão metafísica da própria liberdade. No entanto, é necessário todo tipo de evolução metafísica e da visão bíblica para que a humanidade deixe de lado o vício do trabalho, do entretenimento constante, e se permita o descanso.
+
+Um serviço escravo não é sempre imposto, mas às vezes é vendido, é oferecido como forma de aplacar dúvidas, medos e anseios existenciais. É uma forma de pausar à força o pensamento, impedi-lo de sintonizar-se com a realidade da finitude do homem e ainda o quase completo desconhecimento do que seja a alma e como ela permanecerá no tempo.
+
+Isto explica o fato de que, em países como o Brasil, se aceite algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceite fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
+
+
 ## **Rascunhos**
 
 * O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
