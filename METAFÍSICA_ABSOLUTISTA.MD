@@ -1443,10 +1443,10 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 ##### **Não-Coexistência de Opostos Relativos**
 -   A (manifestação) e B (relativo) não podem ocupar a mesma dimensão se forem contraditórios.
     -   *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.
-000
+
 ##### **Referencial Possível**
--   A manifestação (A) e o relativo (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
--   Se a manifestação (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço do relativizado (já que potencial implica em manifestação, incompatível com a ausência total).
+-   O relativizado (A) e o relativo (B) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
+-   Se o relativizado (A) e o relativo (B) forem potenciais opostos, não podem coexistir, pois o "relativo" deixaria de ser relativo ao ter qualquer traço do relativizado (já que potencial implica em relativizado, incompatível com a ausência total).
     -   **Potenciais mútuos:** Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
     -   **Potenciais opostos:** Excluem-se, pois o "relativo" não pode conter possibilidades e impossibilidades latentes sem perder sua definição.
 
@@ -1454,18 +1454,13 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 
 | Relação              | Descrição                                                                 | Exemplo                       |
 |----------------------|---------------------------------------------------------------------------|-------------------------------|
-| **Definição por Negação**  | O relativo define-se pelo que não é                                           | Escuridão como não-luz            |
 | **Referencialidade**       | Requer um termo positivo para ser definido                                    | Silêncio requer som               |
 | **Coexistência Mútua**     | Podem coexistir como variações de mesma essência                              | Água quente e fria                |
 | **Exclusão Recíproca**     | Não podem coexistir se forem opostos absolutos                                | Luz total e escuridão total       |
 
 #### **Síntese Final: A Ontologia do Relativo**
 
-Esta análise revela que o relativo não é uma realidade independente, mas uma **modalidade de relação** dentro do Absoluto:
-
-1.  **Não é autônomo:** Sempre depende de um referencial positivo para ser definido
-2.  **Não é substancial:** É uma relação, não uma "coisa" em si mesma
-3.  **Não é estático:** É a dinâmica mesma da autodiferenciação divina
+Esta análise revela que o relativo não é uma realidade independente, mas uma **modalidade de relação** dentro do Absoluto. **Não é estático:** É a dinâmica mesma da autodiferenciação divina
 
 > _"Tudo vem dele, tudo existe por meio dele, e tudo é para ele. A ele seja a glória para sempre! Amém."_
 > _— Romanos 11:36_
@@ -1483,17 +1478,17 @@ O relativo é, em última análise, **o modo pelo qual o Absoluto se relaciona c
 -   **A impossibilidade não "existe" no sentido convencional**, mas está contida no Absoluto como impossibilidade lógica.
 -   **A possibilidade emerge não por uma "escolha"**, mas como manifestação necessária da estrutura autoconsistente do Absoluto.
 
-##### **Nível de Manifestação (Realidade)**
+##### **Nível de Manifestação na lógica Aristotélica**
 -   A possibilidade emerge como o subconjunto autoconsistente do Absoluto.
 -   A impossibilidade permanece como "não-manifesta" (impossibilidades lógicas).
 -   A possibilidade não é "escolhida", mas é a única configuração possível que se sustenta.
 
-#### **O Nada e a Autofundamentação**
+#### **O Nada e a Autofundamentação na lógica Aristotélica **
 -   Se o "nada" fosse possível, exigiria uma **razão para sua prevalência** sobre o ser.
 -   Mas o nada **não tem poder causal**, logo, não pode anular o ser.
 -   Portanto, **o Absoluto não "escolhe" entre ser e nada**; ele simplesmente é, e o nada é apenas uma impossibilidade lógica contida nele.
 
-#### **Existência Dual e Interpenetração**
+#### **Existência Dual e Interpenetração na lógica superior**
 
 ##### **1. Existência Dual (possível e impossível)**
 -   Tanto a **possibilidade** quanto a **impossibilidade** configuram modos de existência.
@@ -1562,7 +1557,7 @@ A impossibilidade não é um limite externo ao Absoluto, mas **uma modalidade de
 
 Esta compreensão tem profundas implicações para a doutrina da criação:
 
-1.  **Deus não "escolhe" entre possibilidades** - Ele é a fonte de toda possibilidade
+1.  **Deus "escolhe" entre possibilidades** - E é a fonte de toda possibilidade
 2.  **O impossível não limita Deus** - é apenas uma categoria que se dissolve em Sua presença
 3.  **A criação é autoexpressão** - não seleção entre alternativas, mas manifestação da plenitude
 
@@ -1658,7 +1653,7 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 2.  **A vontade do Espírito** como princípio performático.
 3.  **O testemunho e vivência do possível e impossível** como efeito relacional.
 
-#### **A Possibilidade/Impossibilidade como Estado Relacional**
+#### **O determinado como Estado Relacional**
 
 -   Sua existência só faz sentido mediante a ação do Espírito, não em si mesmo.
 -   *Exemplo:* Um horizonte ilimitado é "uma infinitude indiferenciada" até que o Espírito defina um ângulo de vivência, convertendo-o em nova paisagem.
@@ -1894,14 +1889,14 @@ Esta contemplação não é irracional, mas **trans-racional**: usa a razão par
 Assim concluímos não com uma resposta, mas com um convite: da argumentação à adoração, da análise à contemplação, do esforço racional ao repouso no Ser que, sendo a fonte de toda lógica e de toda causalidade, permanece sempre mais íntimo a nós do que nós mesmos, e mais transcendente do que tudo o que podemos conceber.
 
 **A verdadeira sabedoria metafísica não é possuir respostas definitivas, mas habitar a interrogação radical que nos mantém abertos ao Mistério do Ser - Mistério que se revela não como problema a ser resolvido, mas como Presença a ser acolhida.**
-
+000
 ### **CAPÍTULO 15: A POTENCIALIDADE DO SER E A MANIFESTAÇÃO DO "SOU"**
 
 #### **A Potencialidade Ilimitada do Ser**
 
-O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam. 
+O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam no campo relativo. 
 
-Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual sua liberdade. Em sua natureza atemporal, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
+Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual sua liberdade. Em sua natureza relativa, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
 
 O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
@@ -1912,8 +1907,9 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
 #### **O potencial de criar o homem**
+000
 
-O Ser já conserva a possibilidade da indiferenciação da dualidade em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero. O Ser, em sua indiferen­ciação, já contém em si todo o potencial dos autodeterminadores individuais, pois ele é indiferenciado não apenas em relação aos fenômenos, mas também à própria autodeterminação. Esta, por sua vez, não se individualiza numericamente nem se multiplica no indiferenciado, mas permanece indiferente tanto a uma determinação única quanto a uma múltipla.
+> O homem é uma alma fundida a um corpo livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contra-parte máxima da determinação, não é um corpo determinado, é o relativo, sendo este individual. 
 
 #### **A Manifestação do "Sou": A Criação da Alma do Homem**
 
@@ -2019,6 +2015,8 @@ A identidade do Ser se dissocia completamente, não do tempo, mas da unicidade. 
 Esta compreensão, mais uma vez, não decorre de um raciocínio puramente lógico, mas do **auto-testemunho existencial** — da afirmação pessoal que cada alma faz de sua própria liberdade perante o Ser.
 
 ## **Distinções Ontológicas entre Ser e Sou**
+
+O Ser já conserva a possibilidade da indiferenciação da dualidade em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero. O Ser, em sua indiferen­ciação, já contém em si todo o potencial dos autodeterminadores individuais, pois ele é indiferenciado não apenas em relação aos fenômenos, mas também à própria autodeterminação. Esta, por sua vez, não se individualiza numericamente nem se multiplica no indiferenciado, mas permanece indiferente tanto a uma determinação única quanto a uma múltipla.
 
 ### **Da Natureza do Arbítrio**
 
