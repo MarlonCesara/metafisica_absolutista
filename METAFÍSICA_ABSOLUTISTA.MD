@@ -1911,6 +1911,8 @@ O auto-testemunho de si implica a afirmação da própria existência, continuid
 
 > O homem é uma alma fundida a um corpo livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contra-parte máxima da determinação, não é um corpo determinado, é o relativo, sendo este individual. 
 
+> A morte é interpretado como uma falencia, porem deve ser interpretada como uma libertação total, quando a liberdade do homem pode ser realmente operante, quando o homem opera diante de sua total liberdade. Se Deus criasse um corpo imortal, teria criado uma prisão terrivel. A morte é a prova de liberdade de Deus, é a passagem para a completa liberdade, para o completo potencial de extase do homem. A compelta realização de suas mais altas aspirações.
+
 #### **A Manifestação do "Sou": A Criação da Alma do Homem**
 
 Na tradição da Igreja Católica, a expressão de que o homem foi feito “à imagem e semelhança de Deus” tem um significado profundo e multifacetado. Eis os principais pontos:
