@@ -6280,8 +6280,8 @@ Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintom�
 
 Titulos:
 
-Metafisica Fundamental
-Metafisica Original
-Metafisica Antropomorfica
-Niilismo: a supressão do impulsso pela vida e sua sintomática.
+*Metafisica Fundamental
+*Metafisica Original
+*Metafisica Antropomorfica
+*Niilismo: a supressão do impulsso pela vida e sua sintomática.
 
