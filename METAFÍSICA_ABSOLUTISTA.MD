@@ -6277,3 +6277,11 @@ Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintom�
 
 > O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
 
+
+Titulos:
+
+Metafisica Fundamental
+Metafisica Original
+Metafisica Antropomorfica
+Niilismo: a supressão do impulsso pela vida e sua sintomática.
+
