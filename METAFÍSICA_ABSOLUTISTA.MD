@@ -1,4 +1,4 @@
-# A METAFÍSICA FUNDAMENTAL: 
+# A METAFÍSICA FUNDAMENTAL
 
 Como o universo surgiu do nada? O que havia antes do big bang? Perguntas finalmente respondidas pela metafísica.
 
@@ -1892,7 +1892,26 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 > A lógica superior não corrompe o relativo, porém dá abertura ao impossível não disruptivo. A lógica superior é uma melhoria na lógica aristotélica, tanto em sua formalização temporal quanto em suas propriedades constitutivas.
 
-000
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# A METAFÍSICA DA ALMA
+
 ### **CAPÍTULO 15: A POTENCIALIDADE DO SER E A MANIFESTAÇÃO DO "SOU"**
 
 #### **A Potencialidade Ilimitada do Ser**
@@ -1910,7 +1929,8 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
 #### **O potencial de criar o homem**
-000
+
+O relativo não se dá como uma unidade. Não é um ou mais relativos. Não é um número ou um não número. A persona do relativo é a plenitude. Embora sua ação personificada seja uma ação, a fonte da ação é una com o indiferenciado. Isto é, a alma é um conjunto com seu potencial; a alma do absoluto é conforme a indiferenciação, e não conforme uma determinação. Por exemplo, enquanto a alma do homem é uma alma, uma unidade, agindo a partir dessa unidade num indiferenciado particular, a alma do Ser é segundo a existência do indiferenciado primordial, e não segundo uma determinação nesse indiferenciado.
 
 > O homem é uma alma fundida a um corpo, livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contra-parte máxima da determinação não é um corpo determinado, é o relativo, sendo este individual.
 
