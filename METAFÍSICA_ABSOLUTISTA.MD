@@ -6280,7 +6280,7 @@ Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintom�
 
 
 
-- Eva diria, a tudo serei devota ao meu amor, não há nenhum chance de perde-lo. Morreremos juntos e ele não verá outras mulheres se não eu. Eva priorizou o amor ao plano de Deus. Mas se o amor é verdadeiro, ele se manifesta espontaneamente, não de circustancias. Se o amor é verdadeiro, ele é paciencia e não precisa ter pressa do alem.
+> Eva diria: a tudo serei devota ao meu amor, não há nenhuma chance de perdê-lo. Morreremos juntos e ele não verá outras mulheres senão eu. Eva priorizou o amor ao plano de Deus. Mas, se o amor é verdadeiro, ele se manifesta espontaneamente, não de circunstâncias. Se o amor é verdadeiro, ele é paciência e não precisa ter pressa do além. Eva interpretou Deus como um inimigo do amor, mas Deus só queria fazer esse amor amadurecer para frutificar. Tanto que fugiram um do outro quando viram que estavam nus. Ou seja, num mundo de infinitas possibilidades, não se sentiram seguros para uma união. E então Deus começou o mundo novamente.
 
 
 
