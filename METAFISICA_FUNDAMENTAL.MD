@@ -1345,10 +1345,6 @@ Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, 
 
 > *“Todas as coisas foram feitas por meio dele, e sem ele nada foi feito do que foi feito.”*
 
-Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. 
-
-Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
-
 ##### **A Dualidade do Conhecimento Divino**
 
 A autoconsciência, autopresença, autodominio é sobre a atemporalidade do relativo, mas poderia ser sobre um ponto específico temporal, estando este de acordo com a plenitude. Portanto, é pleno que o universo tivesse tido um start num tempo e maneira específicos. Ou seja, houve um autodominio num momento específico, e este momento era uma hipótese suspensa no campo das possibilidades. Portanto, o relativo continua intacto, mas uma de suas hipóteses suspensas está sendo vivenciada pelo Espírito.
@@ -1889,3 +1885,9 @@ Esta contemplação não é irracional, mas **trans-racional**: usa a razão par
 Assim concluímos não com uma resposta, mas com um convite: da argumentação à adoração, da análise à contemplação, do esforço racional ao repouso no Ser que, sendo a fonte de toda lógica e de toda causalidade, permanece sempre mais íntimo a nós do que nós mesmos, e mais transcendente do que tudo o que podemos conceber.
 
 **A verdadeira sabedoria metafísica não é possuir respostas definitivas, mas habitar a interrogação radical que nos mantém abertos ao Mistério do Ser - Mistério que se revela não como problema a ser resolvido, mas como Presença a ser acolhida.**
+
+## **7. O começo dos tempos**
+
+Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. 
+
+Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
