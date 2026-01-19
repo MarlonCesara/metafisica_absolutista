@@ -6277,6 +6277,19 @@ Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintom�
 
 > O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
 
+
+
+
+- Eva diria, a tudo serei devota ao meu amor, não há nenhum chance de perde-lo. Morreremos juntos e ele não verá outras mulheres se não eu. Eva priorizou o amor ao plano de Deus. Mas se o amor é verdadeiro, ele se manifesta espontaneamente, não de circustancias. Se o amor é verdadeiro, ele é paciencia e não precisa ter pressa do alem.
+
+
+
+
+
+
+
+
+
 Titulos:
 
 -Metafisica Fundamental
