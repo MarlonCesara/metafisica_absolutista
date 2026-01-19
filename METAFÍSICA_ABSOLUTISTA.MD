@@ -1,6 +1,4 @@
-# A NOVA METAFÍSICA
-
-Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintomática.
+# A METAFÍSICA FUNDAMENTAL
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
@@ -6264,6 +6262,7 @@ Isto explica o fato de que, em países como o Brasil, se aceite algo que não é
 
 ## **Rascunhos**
 
+Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintomática.
 * O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
 * O relativo porta multiplicidade, pois ele é indeterminado, não é um ou vários.
 * Quando a lógica do relativo colapsa, isso demonstra a necessidade da compreensão direta e revela os limites lógicos do entendimento humano.
