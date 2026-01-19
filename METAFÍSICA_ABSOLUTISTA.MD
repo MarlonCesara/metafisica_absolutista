@@ -1,4 +1,6 @@
-# A METAFÍSICA FUNDAMENTAL
+# A METAFÍSICA FUNDAMENTAL: 
+
+Como o universo surgiu do nada? O que havia antes do big bang? Perguntas finalmente respondidas pela metafísica.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
