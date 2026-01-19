@@ -1889,6 +1889,9 @@ Esta contemplação não é irracional, mas **trans-racional**: usa a razão par
 Assim concluímos não com uma resposta, mas com um convite: da argumentação à adoração, da análise à contemplação, do esforço racional ao repouso no Ser que, sendo a fonte de toda lógica e de toda causalidade, permanece sempre mais íntimo a nós do que nós mesmos, e mais transcendente do que tudo o que podemos conceber.
 
 **A verdadeira sabedoria metafísica não é possuir respostas definitivas, mas habitar a interrogação radical que nos mantém abertos ao Mistério do Ser - Mistério que se revela não como problema a ser resolvido, mas como Presença a ser acolhida.**
+
+> A lógica superior não corrompe o relativo, porém dá abertura ao impossível não disruptivo. A lógica superior é uma melhoria na lógica aristotélica, tanto em sua formalização temporal quanto em suas propriedades constitutivas.
+
 000
 ### **CAPÍTULO 15: A POTENCIALIDADE DO SER E A MANIFESTAÇÃO DO "SOU"**
 
