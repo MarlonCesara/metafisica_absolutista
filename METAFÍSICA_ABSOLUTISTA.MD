@@ -6280,8 +6280,7 @@ Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintom�
 
 
 
-> Eva diria: a tudo serei devota ao meu amor, não há nenhuma chance de perdê-lo. Morreremos juntos e ele não verá outras mulheres senão eu. Eva priorizou o amor ao plano de Deus. Mas, se o amor é verdadeiro, ele se manifesta espontaneamente, não de circunstâncias. Se o amor é verdadeiro, ele é paciência e não precisa ter pressa do além. Eva interpretou Deus como um inimigo do amor, mas Deus só queria fazer esse amor amadurecer para frutificar. Tanto que fugiram um do outro quando viram que estavam nus. Ou seja, num mundo de infinitas possibilidades, não se sentiram seguros para uma união. E então Deus começou o mundo novamente.
-
+> Eva diria: a tudo serei devota ao meu amor, não há nenhuma chance de perdê-lo. Morreremos juntos e ele não verá outras mulheres senão eu. Eva priorizou o amor ao plano de Deus. Mas, se o amor é verdadeiro, ele se manifesta espontaneamente, não de circunstâncias. Se o amor é verdadeiro, ele é paciência e não precisa ter pressa do além. Eva interpretou Deus como um inimigo do amor, mas Deus só queria fazer esse amor amadurecer para frutificar. Tanto que fugiram um do outro quando viram que estavam nus. Ou seja, num mundo de infinitas possibilidades, não se sentiram seguros para uma união. E então Deus começou o mundo novamente. Eva se apaixonou por Adão e queria protegê-lo de outra pessoa lhe seduzir, porém isso é o medo de provar o amor, de testá-lo para realmente produzir um amor verídico, autêntico de fato. A intenção de Deus era produzir amores reais, enquanto a intenção de Eva era acreditar em um amor, sendo este fictício, momentâneo ou não.
 
 
 
