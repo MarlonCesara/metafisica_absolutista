@@ -6287,17 +6287,11 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 # **Rascunhos**
 
-**Sugestão de título:**
-**Niilismo: a supressão do impulso pela vida e sua sintomática.**
-
 * O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
 * O paraíso é particular; cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal.
 
-
-
-
-
-
 * O niilista se aflige com o breve momento de vida do corpo humano; sente que será arremessado contra um território de liberdade sem tempo suficiente, sem resguardo suficiente para aprender, tomar sua decisão ou acompanhar suas mudanças interiores. Assombra-se, portanto, com o curto espaço de tempo que tem em vida, julgando-o insuficiente, ao passo que há a contraposição interior de que ele se esgote logo.
 * O niilista carrega grande carga de frustração pela repressão; suas atitudes o frustram, sua recusa por suas aspirações lhe causa grande confusão, aflição e frustração. Portanto, o niilista por vezes necessita de motivos para ofender, agredir fisicamente ou verbalmente as pessoas, ou até pratica autossabotagem como descarga de frustração. Como exemplo, podemos citar indivíduos que se envolvem em brigas por motivos extrúdulos, ou até que descarregam ira no próprio corpo por meio de alterações corporais das quais se arrependem posteriormente.
+*  O niilismo é a supressão do impulso pela vida e sua sintomática.
+
 * O absoluto é pleno em si, em sua integridade; é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
