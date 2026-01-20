@@ -1345,10 +1345,6 @@ Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, 
 
 > *“Todas as coisas foram feitas por meio dele, e sem ele nada foi feito do que foi feito.”*
 
-Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. 
-
-Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
-
 ##### **A Dualidade do Conhecimento Divino**
 
 A autoconsciência, autopresença, autodominio é sobre a atemporalidade do relativo, mas poderia ser sobre um ponto específico temporal, estando este de acordo com a plenitude. Portanto, é pleno que o universo tivesse tido um start num tempo e maneira específicos. Ou seja, houve um autodominio num momento específico, e este momento era uma hipótese suspensa no campo das possibilidades. Portanto, o relativo continua intacto, mas uma de suas hipóteses suspensas está sendo vivenciada pelo Espírito.
@@ -1746,6 +1742,7 @@ Aqui surge o conceito de **Lógica Superior** – não como uma negação da ló
 2. **Capacidade de auto-suspensão:** Pode, paradoxalmente, suspender seus próprios princípios para pensar a indiferenciação radical – aquilo que chamamos de **Relativo** ou **Campo Indiferenciado**.
 3. **Representação analógica:** Opera por analogia, símbolo e paradoxo, reconhecendo que o Absoluto só pode ser **aproximado** pelo pensamento, nunca capturado por ele.
 4. **Integração do impossível:** Enquanto a lógica clássica exclui o contraditório, a lógica superior **o inclui como manifestação da plenitude divina** – reconhecendo que o Absoluto contém em si, eminentemente, até mesmo o que para nós é logicamente impossível.
+5. **Melhorias performáticas:** A lógica superior não corrompe o relativo, porém dá abertura ao impossível não disruptivo. A lógica superior é uma melhoria na lógica aristotélica, tanto em sua formalização temporal quanto em suas propriedades constitutivas.
 
 > *"A lógica superior é a razão que se curva diante do mistério, sem abdicar de sua vocação à compreensão."*
 
@@ -1815,7 +1812,7 @@ Juntas, elas constituem as duas asas pelas quais a razão humana se eleva da con
 
 E nessa contemplação, a própria distinção entre forma e substância, entre lógica e causalidade, dissolve-se na unidade simples do Ser que é, simultaneamente, **Fundamento absoluto, Razão perfeita e Amor pessoal**.
 
-# **CONCLUSAO FINAL: O PRIMADO DA PRESENÇA SOBRE A REPRESENTAÇÃO**
+### **CONCLUSAO FINAL: O PRIMADO DA PRESENÇA SOBRE A REPRESENTAÇÃO**
 
 Se a causalidade nos remete necessariamente ao Incausado, e se a lógica (clássica ou superior) busca representá-lo, então ambas são **instrumentos cognitivos** que apontam para além de si mesmas. Porém, o que esta investigação metafísica revela de modo definitivo é que:
 
@@ -1890,29 +1887,15 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 **A verdadeira sabedoria metafísica não é possuir respostas definitivas, mas habitar a interrogação radical que nos mantém abertos ao Mistério do Ser - Mistério que se revela não como problema a ser resolvido, mas como Presença a ser acolhida.**
 
-> A lógica superior não corrompe o relativo, porém dá abertura ao impossível não disruptivo. A lógica superior é uma melhoria na lógica aristotélica, tanto em sua formalização temporal quanto em suas propriedades constitutivas.
+### **CAPÍTULO 16: A indiferenciação do Espírito**
 
+#### **A dualidade relativo e Espírito**
 
+O Espírito também deve se dar de forma incausada. O Espírito é indeterminado, tal como seu campo de ação. Portanto, o Espírito, não age como A oU como B, mas age segundo uma tendência natural, auto causada. E a auto-causalidade se refere necessariamente a um Espirito voltado para seu existir. 
 
+O Espírito, portanto não é A ou B, mas simplesmente é. Isto quer dizer que sua persona está para o existir, e não para o existir A ou B. Isto quer dizer que a auto determinação não age no relativo, ela flui conforme o relativo. Desta forma o Espírito é, num simples ato de Ser. Sua persona é Ser. 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# A METAFÍSICA DA ALMA
-
-### **CAPÍTULO 15: A POTENCIALIDADE DO SER E A MANIFESTAÇÃO DO "SOU"**
+A alma do Ser não deterina sobre o relativo, mas é a própria determinação constituida pela plenitude. A alma do Espírito está rendida a plenitude, é a própria plenitude. Se comparassemos o Espírito a um rio, o espírito não seria o agente do "Eu fluo", mas seria o agente composto à própria plentitude indiferenciada, seria o "fluir". Isto quer dizer que, se houvesse um agente determinado, necessitária ser causado. Pois existiria a pergunta: quem causa?. Não existindo o agente da causa, existe o causa em ação, ou seja o Ser. O Ser é o ato de ser e o agente determinado pelo ato e não por quem Ele é. Ou seja, o Espírito não é um Espírito, mas é o Ser espiritual. Sua persona não é determinada, por isso pode ser incausada, mas é diluida no ato de Ser. O Ser é o Espirito do próprio existir.
 
 #### **A Potencialidade Ilimitada do Ser**
 
@@ -1923,6 +1906,14 @@ Em palavras mais simples: se algo pode existir, então é possível ao Ser — j
 O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
 > Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.
+
+#### **A criação do universo**
+
+Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. 
+
+Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
+
+### **CAPÍTULO 17: A MANIFESTAÇÃO DO "SOU"**
 
 A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob uma perspectiva testemunhal e pessoal. Pela lógica, podemos inferir que a existência do homem é uma possibilidade, e que cabe à vontade deliberada do Ser decidir. Portanto, os capítulos a seguir abrangem o auto-testemunho para garantir sua continuidade. A base lógica é: penso, logo sou. Assim, partimos da afirmação de que existimos e de que há outros que também existem. A lógica, a partir deste ponto, é continuada. Porém, sem essa afirmação que sustenta o pensamento do eu individual e de sua liberdade metafísica, não haveria como prosseguir logicamente com os assuntos que se seguem. Segue-se que, diante de uma postura incrédula em relação a si mesmo como ente espiritual, ou de uma visão puramente biológica do ser humano, os capítulos a seguir não fariam sentido do ponto de vista lógico.
 
