@@ -1,6 +1,9 @@
-# A METAFÍSICA FUNDAMENTAL
+# A MATRIX DECODIFICADA
 
-Como o universo surgiu do nada? O que havia antes do big bang? Perguntas finalmente respondidas pela metafísica.
+* **Metafísica Fundamental**
+* **Metafísica Original**
+* **Metafísica Antropomórfica**
+* **Niilismo: a Supressão do Impulso pela Vida e sua Sintomática**
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
@@ -3729,6 +3732,8 @@ Nos olhos de sua amada, o filósofo viu a morte e a vida. Viu um fogo de amor no
 
 Ambos se olharam nus, como são, e seus olhares se adentraram mutuamente. As janelas da alma foram percorridas numa simbiose perfeita. Um fogo infindável resultou dessa união, o qual estremeceu todo o universo como numa explosão incontida e eterna. Uma união proibida, um pecado mordaz, uma tentação vivificada nos dois corpos, nas duas almas, nas duas uniões que escolheram uma forma em meio a infinitas possibilidades.
 
+> Eva diria: a tudo serei devota ao meu amor, não há nenhuma chance de perdê-lo. Morreremos juntos e ele não verá outras mulheres senão eu. Eva priorizou o amor ao plano de Deus. Mas, se o amor é verdadeiro, ele se manifesta espontaneamente, não de circunstâncias. Se o amor é verdadeiro, ele é paciência e não precisa ter pressa do além. Eva interpretou Deus como um inimigo do amor, mas Deus só queria fazer esse amor amadurecer para frutificar. Tanto que fugiram um do outro quando viram que estavam nus. Ou seja, num mundo de infinitas possibilidades, não se sentiram seguros para uma união. E então Deus começou o mundo novamente. Eva se apaixonou por Adão e queria protegê-lo de outra pessoa lhe seduzir, porém isso é o medo de provar o amor, de testá-lo para realmente produzir um amor verídico, autêntico de fato. A intenção de Deus era produzir amores reais, enquanto a intenção de Eva era acreditar em um amor, sendo este fictício, momentâneo ou não.
+
 #### **A transcendência do eu**
 
 O Absoluto não é regido necessariamente pela lógica convencional. Consideremos então o campo das impossibilidades. A união completa entre duas almas, uma fusão, resulta numa queima, não numa anulação. Uma vivência do outro em sua totalidade. O princípio da disformidade não é violado, pois a conservação dos entes está em sua infinitude. A consumação de ambos é realizada totalmente num fogo do outro. Esse estado pode ser definitivo se é essa a decisão de ambos. A junção de duas almas configura uma terceira alma. Uma nova visão. Pois a união é completa. Ambos viram fogo, e um novo ver oriundo do fogo. Consomem-se em ambos, de forma a se perderem. E quando se perdem desaparecem para o novo ser surgir. Antes do ser surgir, experimentam a total transcendência do eu. No momento exato da consumação do eu total no outro, não há mais ambos, há uma vida da homogeneidade de ambas as almas, diferente de uma e da outra.
@@ -4194,6 +4199,20 @@ Não havia "ninguém" ali. E, no entanto, o sofrimento persistia.
 Ela já não sabia o que era pior: a perda total da sanidade, a dor física constante ou o horror da autorreconhecimento forçado. O corpo flamejante clamava por vida, por um sopro de espírito próprio, por ver sua própria luz mais uma vez. Apenas isso poderia redimi-la. Mas a redenção era impossível — ela mesma a trocara pela vingança.
 
 Agora, cada segundo era uma eternidade. A dor, inenarrável. A consciência, uma cela. E o fruto, finalmente digerido, não lhe dera vitória alguma — apenas a transformara no próprio instrumento de sua pena perpétua. Um corpo desesperado, governado pelo fantasma de uma decisão passada, preso no fogo que escolheu para os outros e que agora nunca deixaria de queimar a si mesmo.
+
+### **A porta do purgatório**
+
+Uma jovem chegou até a porta do purgatório e viu uma inscrição que dizia:
+
+— Entrei e aprecie seus inimigos sendo derrotados, até que finalmente possa encontrar o paraíso.
+
+O purgatório é uma guerra que promete seu fim ao acabar de ser travada, porém o fim não é calculável. O fim do purgatório depende do fim do ódio.
+O corpo, lançado no purgatório, tem sintomas diferentes do corpo lançado ao inferno.
+
+O corpo do purgatório tem uma dor de consciência menos sombria. A dor física chega a se equiparar com a dor do sumiço do seu eu, e cada segundo no purgatório é alimentado pela esperança final de libertação. O terror, portanto, da alma do purgatório é menor, apesar de que a dor física seja igual à do inferno.
+
+Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo todo que isso passará. Aguardam o retorno da alma, apesar de ainda sofrerem a privação da auto visão.
+
 
 ### **CAPÍTULO 32: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
@@ -5113,6 +5132,202 @@ O niilista ainda é capaz de comemorar a destruição que causa em prol de suas 
 
 O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
 
+### **A diferença entre o niilista e o obsessor (NOVO)**
+
+Diferenciamos em dois grupos, o niilista e o obsessivo. O primeiro grupo pratica tentativas de suicídio reais; o segundo grupo move ações de ódio reais que não atentam contra ele mesmo, mas almejam, de fato, despejar um grande ódio em si mesmo e no outro.
+
+Podemos citar exemplos rotineiros: enquanto o niilista usa drogas até uma overdose, o obsessivo usa rotineiramente, sem total risco de morte. Enquanto o niilista isola-se totalmente do convívio social, o obsessivo isola certas pessoas. O niilista é a descarga total de um ódio absoluto; já o obsessivo, que é a alma que irá para o purgatório, tem paixões obsessivas, de forma que almeje uma descarga de ódio e não o próprio fim.
+
+Enquanto os sintomas do niilista giram em torno do esquecimento de si mesmo, o obsessor tem sintomas voltados para o pronunciamento demasiado do eu, em opressão ao outro ou como um perseguidor implacável. O obsessor tem medo do que sente, tem medo do tempo, teme a si mesmo e despreza sua própria descarga de ódio depois de cometê-la.
+
+O obsessor é capaz de romper relacionamentos apenas para poder descarregar o ódio na sociedade, como no caso de uma mulher de família que larga o marido para ficar com um homem rico. Muitas vezes, o ódio do obsessor fala mais alto que seus sentimentos e seu propósito de vida. Até mesmo seu ódio é capaz de passar por cima de coisas importantes em sua vida. É capaz até mesmo de passar por mutilações corporais para atingir um propósito de vingança.
+
+### **O segredo do niilista (NOVO)**
+
+O niilista não mata, rouba ou faz o mal porque gosta, por falta de sabedoria ou por tentação. Mas faz o mal para aliviar-lhe a dor de ir embora dessa vida, de desejar a própria anulação. De desejar a autodanação. Deus não obriga ninguém a ir para o inferno.
+
+O niilista quer desfigurar as coisas boas. Sente tanto ódio que não pode conter, a seu redor, o sentido das coisas; não suporta o sentido da vida. Por vezes, nunca quer confidenciar seu segredo. Causa problemas sociais, familiares e parentais sem nunca confidenciar o que realmente sente. Se investigam as causas psicológicas do niilista para entender seus desalinhamentos sociais, porém, o niilista não revela a verdadeira causa: um ódio tão grande que faz ele desejar desaparecer.
+
+O niilista trai, ou exorta a traição do seu cônjuge. Mantém os filhos distantes da família. Ocasiona miséria, pobreza. Precisa sempre ter o sentido desfigurado. Rejeita tudo o que mais gosta. Se faz um extorsor, um malandro, um golpista. Provoca a desordem. Mas mantém em segredo seu verdadeiro intuito. Por trás da máscara de desordeiro, de alguém cheio de problemas psicológicos, por estranhamente rejeitar as coisas boas, está o niilista.
+
+Porém, todo niilista tem o foco em um ódio primordial, em algo que o fez se odiar, em algo que queria livrar de si. Muitas vezes, a autoanulação é o desejo de eliminar algum traço em si, e não, definitivamente, o desejo pela morte. Algo em si que o indivíduo não aprendeu a amar, tamanhas críticas sociais que sofreu. Por vezes, o niilista é alguém que aprendeu o desafeto por si e tomou isso como propósito.
+
+Ao tentar aproximar à força as coisas boas do niilista, as coisas lindas, ele as rejeita com violência e ira. Mantém sua vida no agridoce, nem insuportável, mas nem boa. As coisas que fazem sentido no niilista são rejeitadas, porque sua postura interior é revelada a ele quando as defronta. E as consequências disso podem ser depressão, constante estresse, mas o niilista se permite aliviar por vezes, pois sua intenção não é estritamente a dor, mas desaparecer. Apenas quer que sua vida tenha uma trajetória amena até o fim que deseja para sua vida.
+
+O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, deseja mudar essa visão. Algo inconscientemente o tenta levar a acabar com isso.
+
+O niilista é um indivíduo sensível, que se julga um miserável. Aproximar-se sem entendê-lo, como quem o considera normal e contente, é como despertar grande ira nele. Ele se sente ultrajado por não compreenderem seu sentimento de revolta, por agirem como se não estivessem vendo, quando, na verdade, as pessoas realmente não entendem e consideram algo banal. Porém, para o niilista, isto causa grande sofrimento. Aproximar-se dele apresentando coisas bonitas da vida, por vezes, pode soar uma afronta a ele.
+
+A prioridade do corpo do niilista é se salvar, por isso, por vezes, o niilista pode parecer desinteressado em coisas cotidianas normais e mais interessado em algo que o faça mudar de ideia. Ou seja, o niilista pode ficar obsessivo por algo que lhe dê uma ideia de mudança. E, estranhamente, preferir tarefas específicas, ainda que sejam mais tediosas. Pois a calma que lhe traz pensar que mudará lhe provê uma energia vital para continuar sua vida.
+
+No amor, o niilista não se apaixona e nem se deixa apaixonar, mantém amores sem sentido, mornos. No trabalho, o niilista não se permite fazer o que ama. Sua vida precisa ser no preto e branco. Não se permite sair, ou grandes alegrias. O máximo que pode tomar são atitudes que realmente pensa que o mudarão, mas não como uma real busca pela mudança, mas como tentativa de tornar suportável sua espera pela morte, de forma que se pense salvo apenas por sua atitude e não por sua decisão verdadeira.
+
+O niilista tem sua estima tão abalada por sua postura que precisa sempre estar numa pose de poder. Tem a cabeça tão atribulada por seus pensamentos que tem pouca paciência para conversas. Leva a vida de forma tão agridoce que desenvolve até mesmo certa depressão. Está constantemente em busca de se entorpecer, em se esconder, de negar seus relacionamentos. O sexo, para o niilista, é algo maravilhoso, então faz questão também de não desfrutar, bastando que seja suportável tal coisa. O relacionamento o niilista tenta sujar, poluir, retirar seu significado para conseguir vivê-lo. Necessita sempre estar traindo ou ter um parceiro que traia, pois precisa colocar uma via negativa para compensar uma positiva. Necessita sempre estar numa qualidade agridoce de vida, nem ruim demais e nem perfeita.
+
+O niilista, através do mal, tenta gritar ao mundo seu infortúnio, corrompendo a união social, deturpando o que pode, para chamar a atenção para seu destino, a atenção da humanidade que parece calada diante dele, que parece conformada. O niilista agarra seu coração e se rejeita, como se o segurasse com garras, como se planejasse que irá matar seu próprio coração, como se não tivesse mais sentimentos nele. O niilista tenta expressar, por palavras ou por atitudes simbólicas, sua auto-renúncia o tempo todo; não guarda somente o conteúdo da sua mente para si. Tenta expressar através de quedas propositais, de acidentes propositais, de palavrões; está constantemente comunicando seu interior.
+
+O niilista é um indivíduo com a completa ausência de amor a si, um indivíduo que não se ama, que quer se punir, que se odeia. Que se considera um descarte, que não enxerga nada de luminoso e bom em si, que não aprendeu a se amar. O niilista se autoignora, ignora seus sonhos, anseios, não admite para si seus desejos, seus anseios.
+
+Quando o niilista não cumpre seu objetivo, por exemplo, de alcançar uma grande quantia de dinheiro rapidamente para vingar as diferenças sociais que não aceita, simplesmente torna-se um fator de tormento social, um corpo distorcido, um monstro social. E isso tem o objetivo de forçar a realidade a se curvar segundo seu objetivo, de forma rápida. Uma das táticas é atingir a zumbização através do uso excessivo de drogas.
+
+O niilista, sem entrar em conformidade, movido pelo ódio, tenta romper as barreiras que existem entre ele e o que o provoca revolta em um ato violento; se não alcança por meios convencionais, tenta alcançá-lo inferindo auto-flagelo. Primeiro, ameaça a estrutura de seus relacionamentos, depois o ambiente familiar e, por fim, o próprio corpo. Atenta contra sua própria saúde.
+
+Quando se bloqueia o niilista de seus objetivos, o bloqueio só acontece externamente, mas o niilista encontra outras formas de expressar sua ação. O niilista não aceita não alcançar o que deseja ou não descarregar seu ódio contra o outro. Em vida, já adianta sua intenção no pós-vida, de exibir um ser humano falido caso não descarregue seu ódio.
+
+Se no além quer se mostrar um zumbi, um projeto de humano em sofrimento extenuante, em vida quer se mostrar um ser humano derrubado, derrotado, como vingança do que lhe traz ódio. E o motivo de seu ódio pode abranger diversos fatores, como diferenças sociais, acontecimentos isolados, etc.
+
+Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos, ou até mesmo lançando-se na mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
+
+A mulher niilista pode se render ao mundo da pornografia, ter inúmeros parceiros como uma tentativa de auto degradação da própria imagem e da figura da mulher. Pode até mesmo desfigurar o próprio corpo com modificações pelas quais ela mesma tem desagrado, para demonstrar sua distorção interior à sociedade. Ou até mesmo negar a própria sexualidade com cirurgias que somente mutilam, sem que haja realmente um fator psicológico necessário. Pode negar a feminilidade com a intenção de negar a própria sexualidade à sociedade, de forma a tentar denegrir a feminilidade e a figura da mulher. Também tenta negar a própria fecundidade, desfigurando o potencial mais bonito do humano.
+
+A mulher niilista corrompe a paz da família querendo lucros imediatos, corrompe o emprego do marido, ou até provoca gravidez precoce querendo prender uma pessoa a si, por achar que na vida se tem imediatamente o que se quer. O niilista não aceita prazos, quer sua vingança imediata. Para o niilista, não há tempo de aprendizado, de crescimento; sua descarga de ódio é imediata no que tange a obter o que se quer para se exibir ou se vingar.
+
+### **A recuperação do niilista (NOVO)**
+
+É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
+
+### **A magia negra do maligno (NOVO)**
+
+O querer niilista pelo suicídio é uma afronta contra o próprio design que Deus criou; o preço que o niilista cobra por sua vida, muitas vezes, é uma burlagem das leis naturais, uma burlagem do outro. O niilista quer viver, desde que sua vida possa massacrar a do outro e alterar as leis pragmáticas da vida. O niilista quer ter alguma vantagem sobre tudo e sobre o outro; caso contrário, ameaça o próprio Deus, de atentar contra a sua própria vida se não for cumprido o seu desejo. Para o niilista, seu ato é uma espécie de poção mágica que o levará a resultados rápidos; intenta contra o coração de Deus, quer ferir o próprio Deus em troca de ouro, tal como a representatividade de Judas, o apóstolo que trocou seu Mestre por moedas de ouro. Judas era alguém que queria resultados rápidos, que queria reinar rapidamente sobre todos e, para isto, era capaz de qualquer coisa. O niilista usa a morte para se superiorizar, para querer ser maior do que o outro em qualquer aspecto. O niilista deixa-se levar pelo seu ódio de forma que se acredita com poderes mágicos aqui mesmo neste plano; acredita que ameaçar com a própria morte pode levá-lo a qualquer patamar quando, na verdade, é um atentado contra o coração de Deus. O niilista atenta contra a vida por querer demais, e o seu querer demais está vinculado a um ódio por algo; a exaltação que o niilista deseja é a adaga que deseja desferir contra o outro. O niilista não é orgulhoso em prol da exaltação, mas em prol da agressão.
+
+O niilista pensa poder negociar com a sua própria vida qualquer coisa que queira; o niilista é o indivíduo dos resultados mágicos, quer para já o que almeja. E sua rapidez não é desejo, mas força de vingança, é um ataque rápido ao seu alvo. O niilista só enxerga o ofuscar da guerra mediante seus olhos; a vida, para ele, não faz sentido se não for fazer vingança, o propósito do niilista é saciar seu intuito de vingar-se. E sua vingança só tem limite quando passa a enxergar a preciosidade da vida, a ter amor.
+
+O amor lhe faz lançar um novo olhar de compreensão sobre as falhas do outro, sobre os momentos de dificuldade, sobre os tempos de espera da vida. É só o amor que o faz compreender, ao invés de fazer um ataque rápido, impaciente e certeiro sobre si mesmo; é só o amor que o faz compreender, ao invés de agir rápido. É o amor que faz o niilista se interessar pela vida, ao invés de julgá-la e agir.
+
+Para o niilista não há o termo “compreender” anterior ao agir. O niilista simplesmente visualiza, sente e age. O compreender não é uma etapa em seu processo de entendimento da vida. E esse compreender significa resiliência, compaixão, perdão, paciência e misericórdia, qualidades fomentadas pelo amor.
+
+O niilista somente visualiza o mundo, revolta-se e pede vingança ou a mudança imediata do mundo; ao não ter seu imediatismo, não ativa dentro de si a compreensão, simplesmente age com a atitude niilista e atenta contra a sua vida. O niilista vê a vida como uma funcionalidade que deve agradá-lo ou desagradá-lo; se o desagrada, para o niilista, não há outro sentido senão forçar o autoagrado. A vida, para o niilista, é um jogo de duas faces: ou lhe serve ou é descartada, e a serventia, para o niilista, significa todos os seus desejos realizados imediatamente.
+
+Como se a vida ou tivesse um gênio da lâmpada mágica para lhe conceder tudo, ou não fizesse sentido algum para si, tendo como único proveito a ameaça mordaz da morte caso seu desejo não seja atendido.
+
+Falta ao niilista o start do amor, o estalo na consciência que o faz olhar para suas atitudes, olhar para a necessidade de profundidade nas coisas, nos fatos e nas pessoas. É o amor que faz o niilista estudar a vida, estudar o outro, olhar para os olhos do outro, reconhecer-se como humano e errante, para que reconheça o outro também.
+
+É a boa vontade do amor que falta; essa ausência torna o niilista mecanizado sentimentalmente, faz com que aja de forma fria, sem o ímpeto do amor. É o amor que o faz amenizar tudo, relevar, perdoar, abandonar seu anseio de rapidez em tudo. É o amor que o faz lutar por si mesmo, que aumenta sua vontade de sobreviver, de vencer. É o amor que desperta nele o interesse por si mesmo e pelo outro, que o faz olhar para as razões do outro, ao invés de olhar somente para as suas próprias.
+
+### **O propósito emocional do niilista (NOVO)**
+
+Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, a posse, o domínio o tornam cercado de pessoas que podem contribuir para o alívio de sua angústia. A sensação de que estão sendo transmitidas coisas boas pela coação de pessoas ao seu redor dá ao niilista uma grande segurança. Serve como amparo e alimento, e o niilista tem grande prioridade nessa tarefa; portanto, não necessariamente a riqueza traz somente a sensação de valor restaurada, mas pode trazer um alicerce emocional de atenção que o niilista usa e necessita em primazia como amparo.
+
+Muitas vezes o niilista não tem ninguém por ele, ninguém que o salve; por vezes, necessita que alguém aguente seu mau humor, sua histeria, sua desavença, suas palavras desafetuosas e seus vícios e, por vezes, não há ninguém para o salvar de si mesmo. A não ser pela graça de Deus, por vezes poucas pessoas se propõem a tal companhia; isso faz com que o niilista busque formas artificiais de alimentar seu dia a dia de pessoas. E essas pessoas podem ser os funcionários que faz subordinados, seus familiares, que de alguma forma obriga a ficar por perto, e até amigos que suborna.
+
+Essa é a luta pelo eu, em que o niilista quer sair vitorioso, quer proclamar sua vitória nem que seja de forma louca ou insana sobre o outro. No alto dos edifícios, o empresário bilionário observa os operários sofrendo, enquanto ele pode desfrutar de todo o luxo; porém, não comemora a vitória verdadeira, comemora apenas o seu poder.
+
+Se o bilionário sovina, em um ato público, fosse obrigado a destituir-se de suas posses, poderíamos descrever uma cena hipotética para melhor entendimento:
+
+* O bilionário arremessa de forma insana todos os seus sacos de dinheiro do alto de um prédio. Seu sorriso é insano, um tanto quanto apático, como se fosse um boneco sorrindo. Sua risada é seca, como se sua cabeça estivesse transbordando e já não comportasse pensamentos normais, como se o estresse interior tivesse revertido em loucura. Todo o estresse que ele guardava em si, toda posição mental que o protegia de seus reais pensamentos, tudo o que o guardava de sua postura interior fora lhe tirado de uma só vez; então, comporta-se como se não tolerasse a si mesmo, não guardasse o próprio estresse, não comportasse o assombro do absurdo que está em sua mente, e nem o cansaço que questionar seus pensamentos lhe impõe.
+
+Enquanto joga todo seu dinheiro, imagina o povo como pessoas miseráveis, como se sugassem toda sua energia de volta, e só restasse a própria energia para saciá-lo, como se viver, para o niilista, fosse muito caro e ninguém quisesse pagar o preço por sua vida.
+
+Como se o povo não soubesse realmente a finalidade do dinheiro e fosse uma subcategoria de humano enquanto ele fosse o superior. Enxerga o povo como se fosse seres voltados para a alimentação e sobrevivência, que só pensam na sua rotina, que aceitam ser criados em cativeiro e reproduzidos. Como se o pensamento do povo se limitasse às funções de animais em criadouro: moram, se alimentam e morrem para servir como produto de consumo dos bilionários.
+
+O bilionário enxerga o povo como desprovido de cultura, como alguém que não atinge categorias elevadas de pensamento, enquanto é ele mesmo que não pensa acerca da existência e dispõe de tanto tempo para traçar estratégias comerciais sem pensar no sentido de sua existência. O bilionário é um devoto de sua vida financeira, de tal forma que não desvia sua atenção para o campo das emoções e dos afetos.
+
+O modelo de pensamento preferido do bilionário é se enxergar acima das nuvens, enquanto enxerga o povo como um gado orientado somente pelo que enxerga ao seu redor, que é a grama verde e o cerco.
+
+Enquanto joga sua fortuna pela janela, o bilionário, aterrorizado pela percepção do povo de que ele deveria dividir seus bens, pensa estar louco ou estar sendo vítima de uma alucinação; então se joga da janela para tentar acabar com este episódio. Como se tivesse perdido toda a sua sanidade.
+
+O niilista, no fundo, sente aversão pelo povo, pois considera que todos estão olhando impassíveis o processo de sua degradação sem fazer nada. Não considera que as pessoas respeitam a liberdade. O niilista esperava grande desespero e comoção popular de sua decisão; porém, ao se deparar com a total normalidade diante de sua atitude, tenta por si mesmo provocar no outro a empatia que ele imaginara que o outro precisa desenvolver, tenta fazer o outro sofrer, tenta matar o outro para tentar despertar no outro a visão do seu conflito.
+
+E essa ânsia por ser compreendido, por estar enraizada em alguma crença de que o outro possa lhe fazer algo, de que o outro possa corromper sua própria liberdade e livrá-lo de quem ele é.
+
+O niilista, por vezes se vê como um palhaço, um intérprete, uma personalidade que se passa por vilão opressor para fins de entretenimento, causando adrenalina no grande público. Sem que deseje esse papel, ele é realizado, pois é uma fatalidade de sua sintomática, e, sem que almeje, faz-se um personagem social, alguém dito em filmes como o lado oposto, como o que dá entusiasmo e tônus ao enredo humano, à aventura social. O niilista, pelo contrário, não se enxerga dessa forma e vê nisso uma forma insultosa de retratá-lo, e às vezes até humilhante. Pois não quer ser visto como um personagem social que gera noticiários, reviravoltas, constrangimento e medo social.
+
+### **A mulher niilista (NOVO)**
+
+A mulher niilista ameaça a separação familiar, se faz obsessiva por dinheiro, por descarga de ódio social, escolhe parceiros com base no poder de descarga de ódio. Caso um parceiro tenha dinheiro, mas não esteja em favor do golpeamento social através da exposição, então, para a mulher niilista, não faz diferença. A mulher niilista, quando abandona seu cônjuge sem justificativa nenhuma, está querendo expressar o que a amedronta por dentro, expressar seu suicídio. Quando substitui relações por dinheiro ou quando monetiza relações, está querendo dizer que, para ela, as coisas perderam o valor, pois o próprio ato de viver se fez sem sentido para ela, sendo adepta do niilismo. A mulher niilista tem uma visão mais nítida do seu interior e manifesta, por vezes, até um pavor maior diante da própria verdade, e desenvolve até mesmo uma obsessão aparente por bens materiais e status. A mulher niilista expressa o assombro existencial, muitas vezes, nos filhos, fazendo brincadeiras que demonstrem seu medo de se fadar no abismo. Ou, para o marido, com ameaças constantes de separação. Muitas vezes a mulher niilista tenta distorcer o sentido da relação, provocando constantes brigas, isolando o parceiro ou fazendo constantes provocações para destituir de sentido a relação.
+
+A mulher niilista faz manipulações sociais de forma a jogar uma pessoa contra a outra para alcançar seus objetivos, sem levar em consideração relações familiares ou o bem comum, pois considera, de alguma forma, em seu único intuito, a própria salvação.
+
+Por vezes, a mulher niilista mostra grande apatia, uma irreatividade, querendo demonstrar que seu interior parece não reagir, que permanece como uma pedra, como se não houvesse o motor necessário para os bens espirituais que precisa alcançar, como o perdão, a compreensão e a resiliência.
+
+O niilista só acredita no sentido biológico do amor entre casal, se encarrega só de pensar em sobreviver. Não quer considerar que existe um sentido superior no amor, uma união de almas, quer acreditar que, se essa união o satisfaz biológicamente, já é eficaz e é isso tudo que bastaria. Isso justifica muito do contexto de separação familiar e da busca do outro pelo interesse financeiro. A mulher niilista considera o homem somente uma fonte genetica para fazer filhos e satisfazer seu instinto materno, ou seu instinto financeiro. O sentido superior que o niilista acredita é nos bens materiais como elevação, todo o sentido espiritual que o niilista nega tem o valor espelhado nos bens bateriais ou no que ele acredita lhe trazer força, vida, e esperança, ou seja, a libertação do niilismo, o amor. Portanto, é uma contrariedade, ao passo que o niilista nega todo o sentido, sua consiencia amplia esse sentido negado em projeções externas. É como uma repressão do conscieente que o niilista faz pelo impulso do corpo pela vida, pela apreciação das coisas belas, pela visão do sentido.
+
+### **A dualidade niilista (NOVO)**
+
+Ao passo que o niilista é obsessivo por posses e também dependente de pequenas alegrias, afetos que quer obrigar a ficar ao seu redor para protegê-lo, é alguém fanático e, ao mesmo tempo, carente. Alguém que tem devaneios de grandeza e se esquece do amor ao próximo dentro desses devaneios.
+
+Aqui está o texto com **correções mínimas de português**, mantendo as mesmas palavras, ideias e estrutura, apenas ajustando ortografia, acentuação, concordância e pontuação:
+
+### **A identificação do niilista (NOVO)**
+
+Fatores como obesidade, vícios, comportamentos perigosos no esporte, enfim, podem ser justificados no indivíduo sem que seja necessário recorrer ao niilismo; no entanto, reconhecer o niilismo exige uma união de vários fatores, como fuga das coisas que fazem sentido na vida, desfiguração do âmbito social e afetivo, palavrões constantes, abuso de substâncias químicas, etc. É necessário ao menos mais de um fator reunido para reconhecer o niilista, até mesmo porque não é possível definir um niilista sem que sejam percebidos nele atos suicidas; pode ser um modelo de pensamento ou modo de agir. Não necessariamente alguém que faça um esporte perigoso ou consuma substâncias ilícitas é niilista, em vista que o extremismo, ou o exagero na perfeição, seria até um mal psicológico e não um traço niilista. Muito pelo contrário, o niilista poderia ser identificado até mesmo como uma pessoa rígida demais, que evita afetos e situações aventureiras em sua vida; portanto, o perfeccionismo extremo está mais próximo do niilismo do que o não perfeccionismo.
+
+Desta forma, faz-se necessário identificar vários traços do comportamento niilista no indivíduo para defini-lo como tendência a tal posição existencial. Não basta apenas ser alguém obsessivo, cheio de ira ou cheio de símbolos esotéricos para se definir niilista; é preciso uma análise mais profunda para tentar encontrar a razão de certas atitudes individuais antes de julgá-las niilismo prático.
+
+### **O niilista simulando a infância (NOVO)**
+
+O niilista retrocede ao estado de infância. Apego a atos manuais, obsessão por objetivos como uma birra, raciocínio parecido com o de uma criança em idealizações como: a estrela bonita, o passeio no parque. O niilista passa a esquecer do eu adulto e se coloca num estado de criança no qual adquire, em sua mentalidade, um potencial maior de aprendizado e mudança interior, pois num estado inicial de vida julga ter uma maior abertura de coração.
+
+O niilista pode desprender a culpa de seus pensamentos, se fingindo inocente como uma criança, pois quando criança trama o mal contra si mesma, seus pensamentos seriam desprovidos de peso pelo desconhecimento do mal. Então o niilista faz pequenas menções de poesia em seu pensamento e as sustenta numa posição infantil e encantada da vida que traça para amenizar sua postura interior.
+
+Porém, não arquiteta uma romantização complexa como a de um adulto, mas a romantização simplória e simples como a da criança, como observar uma estrela.
+
+O niilista deseja coisas sem questionar o propósito, tal como uma criança, que deseja um objeto e logo mais não deseja mais. Pois só obedece a uma vontade inicial, sem projetar o porquê dessa vontade.
+
+### **O niilismo como repressão do impulso corporal fundamental pela vida**
+
+O niilismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o niilismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
+
+Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente esclarecido para o indivíduo acerca da existência e de seu fundamento.
+
+Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano.
+
+E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações niilistas no inconsciente humano.
+
+O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com o relativo, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento niilista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento niilista.
+
+### **O entendimento do niilista em favor das lutas sociais por igualdade (NOVO)**
+
+O fator do reconhecimento do niilismo afeta o rico que detém um acúmulo de poder de forma, primeiramente, social. Seu grupo social ou as pessoas que compõem os arredores desse grupo mudarão sua definição a respeito das motivações dos ricos, e isso afeta a forma com que se relacionam. Considerando que a pessoa humana não vive sem relacionamentos, ou vive muito mal sem eles, o indivíduo rico tenderá a se moldar segundo a tendência popular ou a pensar igual à tendência popular pensa a seu respeito. Isto é, o rico, reconhecendo uma sintomática em si e sendo reconhecido como tal, pode ter reações diferentes ao seu acúmulo de capital.
+
+Da mesma forma, a pessoa humana, reconhecendo o niilismo, reconhece que a motivação do acúmulo de capital pode estar muito distante de uma avenção aventureira, e passa a desenvolver um temor ao acúmulo de bens, fazendo com que isso necessite ser mais monitorado ou controlado. Pois, uma vez reconhecendo os sintomas do niilismo, o humano reconhece que o interesse do super-rico pode minar toda uma sociedade se, constantemente, o acúmulo de riqueza está atrelado ao pensamento niilista, o qual aproxima a pessoa humana com mais facilidade da riqueza material em decorrência de, por vezes, o niilista ser mais desprendido da empatia humana.
+
+O niilista alcança mais facilmente a riqueza por possuir os três fatores essenciais: uma ambição desenfreada, um foco existencial em demasia na descarga de frustração, e o foco pessoal que é descartar todas as emoções alheias em prol de seus interesses.
+
+O indivíduo famoso niilista descarrega uma frustração na multidão de forma que não precise compreender críticas e comentários ofensivos; basta descarregar o ódio em forma de mídia, ou até mesmo em forma de auto sabotagem.
+
+Posso melhorar o português **de forma mínima**, como você pediu, **mas precisei fazer um ajuste muito pontual no último parágrafo** para **evitar uma formulação explícita sobre autodestruição**, mantendo o **sentido filosófico intacto**. Todo o restante foi apenas correção ortográfica, acentuação e concordância, sem troca de ideias.
+
+### **A renúncia às coisas boas e às coisas difíceis da vida pelo niilista**
+
+Se o niilista desconsidera sua vida finita e vazia de sentido, a tendência é não somente viver um luto, recusando as coisas boas, como também a recusa das dificuldades, missões, propósitos e tarefas que sejam difíceis, complexas, mas que sejam de sua responsabilidade. Isto é, o niilista não vê sentido no que se refere a “carregar suas cruzes”; ele simplesmente considera que, se não há continuidade para sua vida, o enfrentamento das dificuldades é despropositado; portanto, o próprio ato de enfrentar os obstáculos e cumprir suas responsabilidades afetivas e sociais lhe impõe um sentido que quer negar.
+
+O niilista impõe sua ira sobre o que não quer fazer e que é seu dever fazer; faz qualquer coisa para sua vida ser mais fácil, não importando se isso vai prejudicar as pessoas, pois considera que o assumir de sua luta social é algo inútil. Considera que moldar sua personalidade e comportamento também não lhe trará benefícios, pois sua vida será finita em sua mentalidade.
+
+Desta forma, nem mesmo o esforço emocional de perdoar, digerir comportamentos, compreender e entender pessoas o niilista quer fazer. Isto é, mediante a qualquer crítica, ofensa ou desagrado, o niilista prefere se afastar, tratar pessoas como objetos descartáveis, não exerce luta pelas pessoas, a não ser que precise delas e que seja menos complicada a sobrevivência ao lado dessas pessoas do que fazer o esforço de entender ou aceitar.
+
+O niilista julga qualquer esforço demasiado inútil, e este comportamento o deprime e começa a ferir sua estima, pois se reduz a um descarte. O ausentamento de seus deveres, tal como o ausentamento de suas alegrias, lhe confere uma estima que o deprime, que o conduz a um desejo de encerramento antecipado de sua própria trajetória. Pois suas ações niilistas vão minando seu ânimo por viver, até o ponto de achar que não há motivos para estar vivo, já que sua depressão ou os efeitos emocionais de suas atitudes podem ir aumentando gradativamente.
+
+O niilista se ausenta da aventura das grandes dificuldades, dos conflitos que conferem até mesmo emoção à vida, e também das alegrias. Encontra sempre uma forma, ainda que desonesta, de encarar seus problemas, seja com mentiras, calúnias, enganações e crimes. Possui uma preguiça de viver demasiada, no sentido de que quer viver sem grandes alegrias, mas também sem grandes esforços. Escarnece de quem assume responsabilidades, trabalho honesto ou formas de subsistência que exijam esforço, como se tivesse a ilusão de possuir um conhecimento superior, como se sua crença niilista lhe conferisse um status de soberania e um pensamento superior.
+
+O niilista diria: “para que tanto esforço se a vida é finita? Quem se esforça demais é um tolo”. O niilista usa de recursos que o previnam da responsabilidade de esforçar-se tanto em pensamento quanto em esforço físico; sua ausência não está somente no esforço físico, mas no esforço de estudar, raciocinar e ter novas visões. O niilista simplesmente se arremessa na monotonia do mais fácil, como se rolasse em um carrinho de rodas para seu fim, apenas com um leve impulso do braço, e como se não fizesse sentido mais esforço ou grandes emoções. Como se sua caminhada para o que pensa ser sua finitude fosse apenas um descarte, e, nesse processo de descarte, ocorresse apenas um “deslizar” suave de seu corpo, sem qualquer emoção e sem grande empenho, pois todo empenho exige um significado que está atrelado ao sentido da vida e à continuidade desta.
+
+### **A obsessão aleatória do niilista (NOVO)**
+
+O niilista pode tomar um objetivo, coisa ou pessoa para imaginar-se mudado. Isto é, projeta uma cura necessária e irremediável que está externa a si mesmo e diz para si que conviver com tal pessoa, obter tal coisa ou concluir tal objetivo lhe livrará necessariamente de sua postura. E, para defender este objetivo, pode até mesmo mentir, ser violento ou caluniar, como se estivesse defendendo a si mesmo e a sua própria vida.
+
+Vamos citar o exemplo de uma avó que defende sua neta e a afasta de qualquer risco de dela partir ou de ser independente. Ou podemos citar o objetivo de conseguir um determinado cargo numa empresa ou uma situação econômica. Até mesmo pode estar associado a conseguir um relacionamento com uma pessoa específica, e o pensamento de que somente aquela pessoa poderia lhe trazer mudanças.
+
+O niilista pode desenvolver obsessão por aquisição de bens, como um carro específico ou uma herança. Ou até um lugar específico para morar. O niilista não necessariamente elege a riqueza, mas pode eleger objetivos limitados de aquisição material, imaginando que, ao obter esses, teria a resolução final de seu conflito e a vingança final que necessitaria sobre quem não perdoou ou sobre quem ainda conserva qualquer mágoa. Pois a posse, na maioria das vezes, está associada à agressividade, no sentido de servir para ostentação. Isto é, subjugar quem tem menos, mostrando-se possuidor de mais.
+
+Portanto, são vendidos carros de milhões para milionários, mansões, itens de luxo, de forma que os vendedores provoquem no rico niilista a ilusão de que, com aquele produto, vingarão seus “inimigos”. O mesmo é feito a pessoas sem grande renda, que assumem grandes dívidas para assumir bens parcelados que realmente não poderiam adquirir. O elemento de chamariz é aliviá-los da pressão interior do niilismo. É propor uma descarga de ódio que os aliviará, que, de certa forma, os trará paz interior.
+
+### **O uso de drogas no niilismo (NOVO)**
+
+Quando o indivíduo niilista encontra uma barreira entre a aquisição de posses, do bem que gostaria, situação ou pessoa, enraivece-se numa inaceitação inequívoca alimentada por um ódio. Seu intuito vaza para a imaginação, e nisso acontecem as drogas psicoativas, que provocam a ilusão de satisfação do ódio. Esse mecanismo acontece em pessoas que esperam resultados rápidos e óbvios da vida, tal como aproximar uma situação como a riqueza com pouco esforço. Na ausência do sucesso, o indivíduo aproxima de si a ilusão.
+
+Podemos citar o exemplo de um indivíduo que estava acostumado a ganhar dinheiro fácil devido a uma família burguesa e uma tradição burguesa. Ao não obter o seguimento dessa tradição e do dinheiro fácil, e existindo nesse indivíduo barreiras morais fornecidas pelo seu lado instintivo, o indivíduo opta por alcançar o descarrego de seu ódio na ilusão.
+
+Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício; sente estar morrendo; necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
+
+O usuário de drogas guarda uma violência inequívoca, uma destruição de seu próprio cérebro, de suas memórias, em prol de uma ilusão de se vingar, de se satisfazer. Não é nem mesmo o objeto de sua realização que almeja, mas o ataque imediato às discrepâncias sociais, sem ter que passar pela luta contra elas. O ataque não visa destruir o mal no mundo, mas destruir o sentimento de ódio guardado dentro dele; ou seja, o ataque é uma tentativa de amenizar o sentimento construído.
+
+O clube de elite, na verdade, é um clube do ódio, e não o clube do requinte, da abundância. É o clube da tortura ao outro, da agressividade, porém é cravejado de objetos de valor, não como algo que exalta, mas como um símbolo de poder sobre o outro; não como um dom de apreciar o que é bom, mas como uma tendência de apreciar que a fartura de uns causa a escassez e a miséria de outros.
+
+O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras formas de descarregar seu ódio, tal como a autoagressão, que são as drogas. O indivíduo cheio de ódio tem um grande terror diante desse mesmo ódio, como se o ódio quase estivesse lhe eliminando completamente.
+
+O que caracteriza o niilista no uso de drogas é um uso furioso, com o propósito da overdose, e não um uso com limites de segurança.
+
 ### **A descarga de energia do niilismo no outro**
 
 O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e, por isto, o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
@@ -5769,6 +5984,60 @@ O Absoluto não necessariamente pode ser representado pela razão; a forma com q
 
 Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realidade difícil de digerir não faz com que a salvação aconteça; o medo não leva ao amor. O discurso de Jesus não é metafísico, é amoroso. Preocupa-se em oferecer o melhor, a visão mais otimista e realmente livre: a liberdade acontece quando gera necessariamente para a vida. A verdadeira liberdade não acontece quando o ser humano é lançado ao seu próprio querer somente.
 
+### **A cúpula de manipulação mundial**
+
+Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes.
+
+### **Os ensinamentos de Jesus e a revolta niilista**
+
+Por que os ensinamentos de Jesus ocasionaram uma reviravolta tão violenta contra Ele? Por que tentaram desmoralizá-lo de todas as formas possíveis? O que realmente os ensinamentos de Jesus estavam fazendo com a sociedade? De que forma estavam transformando tudo? E como os fariseus da época sabiam que esses ensinamentos poderiam mudar a forma com que o homem enxerga o mundo e a si mesmo, de forma a não se deixar ser mais escravo? De forma a entender totalmente os mecanismos psicológicos e metafísicos da mentalidade que escraviza?
+
+Jesus ensinava metafísica, psicologia e espiritualidade, tal como uma posição política de liberdade. Jesus era a mente mais inteligente daquela época; sua tentativa de reforma política começava pelo cerne do ser humano, que é seu intuito pela existência. Jesus sabia, de certa forma, que a hipocrisia, que a opressão começava no niilismo ao afirmar que é mais fácil um rico entrar no reino dos céus do que um camelo passar no buraco de uma agulha.
+
+Jesus via a necessidade do povo de entender a metafísica da vida para compreender como funcionam as torrentes do poder e como elas agem no status quo da sociedade. Se Jesus estivesse ensinando somente espiritualidade, talvez não seria tão perseguido, mas estava influenciando a sociedade como um todo.
+
+O homem, usando somente o ponto de vista político, não poderia compreender pelo que está sendo dominado. O homem, sem compreender a razão niilista, não identificaria que as torrentes de poder que o oprimem não são uma fatalidade capitalista, mas têm um propósito e intuito definido, são fatores planejados. O homem, visualizando com clareza o intuito do bilionário, pode, facilmente, enxergar que o bilionário não está a favor de causas sociais, e que sua mentalidade não é genial de fato a ser um agente social incompreendido e digno de confiança, já que pode reunir tanta fortuna. Ou seja, o rico não é necessariamente um gênio incompreendido, mas alguém que enriquece através de atos fraudulentos que o adornam de um poder que não é merecido pela sua inteligência. E essa visão priorizada do poder é possível graças ao conhecimento da alma, o qual Jesus insistentemente tentava passar ao povo.
+
+Jesus ensinava sobre a hipocrisia religiosa, sobre a rebeldia a escravidão, sobre o intuito do homem rico, e esse conhecimento abalava, não somente a estrutura do poder, mas algo muito mais profundo, abalava a comrpeenssão acerca do poder. No que o poder se baseia, o que ele busca, qual seu proposito definido. Jesus deu o start, o ponta pé do conhecimento essencial para acabar com todos os problemas sociais. Acabar com o dominio realizado por bilionários niilistas, por uma cupula que se reune para fomentar diferenças sociais, guerras, e tantas artimanhas para manter o status quo do mundo.
+
+A cúpula niilista sempre existiu desde a época de Jesus. Sempre houve pessoas com o poderio da época se reunindo para tramar contra o mundo, e o mundo continua sem compreender a existência das cúpulas e seu propósito.
+
+O propósito da cúpula é um só: o caos. É desvelar todo o desespero ao mundo, é exercer um vício sobre o mundo, uma dominação incessante, é a busca pela cura definitiva disfarçada em guerra, violência, diferenças sociais, manipulação política, etc. O niilista tenta, ao extremo da mania, destruir o mundo e, antes disso, aprisionar todos os humanos de forma a fazê-los falar, falar o propósito da vida, falar algo que lhes toque o coração. Se não pela tecnologia, por bombas, por exércitos, por tudo o que tiverem em mãos. O niilista busca uma coisa só: a ilusão de que não se é quem se é, a ilusão de que pode ser salvo sem seu próprio querer, um disfarce para sua dor. Quer um breve delírio de propósito, um breve alto valor pela sua existência, um breve sonhar de que é uma elite e que a elite está destinada a algo maior. A cúpula niilista é um reunido de loucos que todos acreditam serem geniais e trabalharem por um propósito na terra.
+
+A cúpula não é uma teoria ou uma metáfora, mas pessoas extremamente afortunadas planejando guerras, manipulação política, ataques, invasões. Se existem essas coisas, certamente alguém as planejou, e se as planejou, a cúpula é real.
+
+A cúpula niilista é especialista em manipulação, sabe jogar país contra país, líderes contra líderes e o povo contra si mesmo. Gosta de causar a guerra para espelhar o conflito de seu interior em algo exterior. Gosta de contemplar a balbúrdia, a desavença, o terror, como uma forma de sentir-se compreendido, como forma de extrair um conteúdo interior para fora.
+
+O niilista deleita-se da guerra como se fosse um conteúdo peculiar, como se visse tudo o que sempre quis, com olhos de gula e loucura, como se todos se sentissem palhaços como ele, como se seu despropósito interior, que soa jocoso, fosse espelhado para fora dele, de forma que, por um breve momento, se sentisse de alguma forma sábio ou rico, pois, de certa forma, causou o caos dentro de si em seu exterior, como forma de se autovalidar.
+
+### **A porta do céu é estreita**
+
+Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilionários, que muitas vezes causam o mal, não possuem a mesma habilidade. O povo humilde e sofredor, que é oprimido, detém uma habilidade infinita e a mais fundamental de todas: o dom de viver.
+
+O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
+
+### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
+
+Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
+
+Certamente, para o niilista, ter um conjunto de regras que o salvariam da própria autonomia é mais confortador que uma visão metafísica da própria liberdade. No entanto, é necessário todo tipo de evolução metafísica e da visão bíblica para que a humanidade deixe de lado o vício do trabalho, do entretenimento constante, e se permita o descanso.
+
+Um serviço escravo não é sempre imposto, mas às vezes é vendido, é oferecido como forma de aplacar dúvidas, medos e anseios existenciais. É uma forma de pausar à força o pensamento, impedi-lo de sintonizar-se com a realidade da finitude do homem e ainda o quase completo desconhecimento do que seja a alma e como ela permanecerá no tempo.
+
+Isto explica o fato de que, em países como o Brasil, se aceite algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceite fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
+
+### **A libertação da matrix - Os três pilares da riqueza**
+
+1- O primeiro pilar da riqueza é simplesmente desejá-la. Não há mistério para ser rico que não esteja exposto no mundo digital. Quando o ser humano se permite desejar ser rico, quando aprende a desejar mais do que necessita, ele começa finalmente sua busca por riqueza. Deixa de buscar aprender métodos, técnicas, adquirir práticas, e passa a buscar aprender a ganhar dinheiro e fazer riquezas. Sim, de fato, dominar práticas, profissões, ter maestria em certas coisas traz ao ser humano riquezas subjetivas. Porém, a riqueza material vem de desejar mais do que se precisa, em se querer mais do que se quer, em gostar além do que aquilo que se gosta. O ser humano é ensinado a querer somente o suficiente para sobreviver e desejar somente o que está em seu campo de visão. É necessário entender a necessidade do dinheiro. E se entende quando se está doente e não se tem o dinheiro para procurar o melhor médico. Ou quando se está distante de quem se ama, sem recursos para aproximar esta pessoa. O valor do dinheiro existe, porém só é reconhecido de forma a provocar sua procura quando o ser humano realmente percebe sua necessidade em momentos de necessidade e escassez de recursos financeiros. No momento em que sente que é ameaçado de perder o que lhe é mais precioso por simplesmente não ter o suficiente para adquirir o que precisa. O niilista naturalmente deseja mais do que precisa, não por reconhecer o valor do que ainda não tem, mas por querer um acúmulo de dinheiro para oprimir e desembocar seu ódio no outro. Isto é, o niilista não pensa no deleite, pensa na descarga de sua ira. Tanto que os empreendimentos niilistas têm como objetivo principal provocar situações análogas à escravidão, oprimir, comandar, alienar o outro. Seu foco de lucro é pagar pouco e obter muito lucro. Não é realmente prestar uma boa qualidade de serviço. O empresário niilista não ganha dinheiro em função de sua branding, mas ganha em função da mais-valia, do lucro excessivo pagando pouco pelo esforço do outro. Já o empresário não niilista ganha dinheiro merecido por sua alta exposição, para manter sua resistência emocional intacta mediante perseguições e críticas.
+
+2- O segundo pilar é a concentração. O homem infligido por dúvidas existenciais, inseguranças existenciais, vê sua atenção completamente desviada. Assustado pela própria liberdade, coloca como necessidade fundamental seu crescimento interior. Ao passo que o niilista consegue naturalmente uma concentração exímia, por não acreditar na eternidade ou na própria liberdade. O niilista atinge um grande estado de concentração e foco em estudos de negócios. O sumo segredo da riqueza é adquirir a concentração do niilista sem ter seu teor, ou seja, ser convicto da eternidade, sem a necessidade de focar-se demais em questões existenciais. Chamaremos essa inteligência de foco existencial. 
+
+Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga para afugentar o individuo de um pensamento espiritual alto, quando tenta entender o que é a morte, e pensar sobre o alem. Portanto, o individuo até mesmo é capaz de se sentir grato por haver pessoas narcisistas, opressivas e toxicas, que o submetem a grandes jornadas do trabalho o livrando do seu pensamento, da sua visão acerca de quem é, da sua realidade e de seu destino. Apesar da normalidade aparentemente vigente nas faces, para o ser humano, não é uma tarefa facil se enxergar num mundo onde seu corpo é fininito, e ter que imaginar em qual contexto será ressuscitado.O trabalho escravo, portanto, se faz, muitas vezes, a droga moderna.O trabalho escravo, portanto, faz-se, muitas vezes, a droga moderna.
+
+3- O terceiro pilar é o foco pessoal, que é quando o indivíduo se livra da servidão ao pensamento alheio, quando o indivíduo está totalmente conectado consigo e passa a amar o outro mais do que depender do que este outro pensa ou como o concebe. O niilista não se importa, por tamanho ódio que sente, por pensar que um dia ninguém significará nada e nem a si mesmo; por se enxergar como um mamífero sem alma, enxerga os outros assim, e esse pensamento ilusório traz-lhe foco na sua pessoalidade, fazendo com que ele independa do pensamento alheio a seu respeito, não por amor, mas por despeito a tudo e até mesmo a si. Então o niilista consegue, artificialmente, uma grande branding: capacidade de exposição, de venda e marketing com a imagem pessoal.
+
+Em síntese, o niilista atinge os três pilares através do niilismo: a sede pelo poder, motivada pelo desejo de destruição e não pelo desejar de bonança. Tem o pilar da concentração por julgar qualquer pensamento elevado desnecessário a si, que está fadado ao nada. E tem o foco pessoal, por despeito a todos e por narcisismo, não por erudição e excesso de reflexão. O rico niilista, portanto, tem um pensamento rico artificialmente provocado; seu pensamento, na verdade, não está atrás de riqueza, mas acidentalmente a atrai.
+
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
 Num cenário pós-apocalíptico, uma nova crença se ergue: a de um ser humano capaz de compreender todo o sistema e dominar as máquinas a ponto de aliviar o sofrimento de milhões de pessoas conectadas a ele. O desejo humano pelo paraíso na Terra, pela paz absoluta, chegou ao extremo de atribuir a esse homem poderes sobre-humanos, transformando-o em uma singularidade — uma entidade que transcende os limites da própria humanidade. Assim nasce a figura de Neo, um heroi moderno. No mundo pós-apocalíptico que se segue, manifesta-se a grande ilusão: a espera por uma libertação. O mecanismo político e tecnológico que se sucedeu estava tão proliferado que se tornou complexo de ser driblado depois de estabelecido, e por isso Neo precisou ser criado com capacidades quase sobre-humanas. 
@@ -6001,18 +6270,6 @@ A humanidade subestimou a loucura do niilismo. Não imaginávamos até onde o de
 
 Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um centro de experimentação neural, a experiência final de uma elite niilista, liderada por uma única mente obcecada. A concentração de riqueza não gera apenas miséria — produz o terror. Nas mãos erradas, a riqueza torna-se uma arma mortal.
 
-### **A libertação da matrix - Os três pilares da riqueza**
-
-1- O primeiro pilar da riqueza é simplesmente desejá-la. Não há mistério para ser rico que não esteja exposto no mundo digital. Quando o ser humano se permite desejar ser rico, quando aprende a desejar mais do que necessita, ele começa finalmente sua busca por riqueza. Deixa de buscar aprender métodos, técnicas, adquirir práticas, e passa a buscar aprender a ganhar dinheiro e fazer riquezas. Sim, de fato, dominar práticas, profissões, ter maestria em certas coisas traz ao ser humano riquezas subjetivas. Porém, a riqueza material vem de desejar mais do que se precisa, em se querer mais do que se quer, em gostar além do que aquilo que se gosta. O ser humano é ensinado a querer somente o suficiente para sobreviver e desejar somente o que está em seu campo de visão. É necessário entender a necessidade do dinheiro. E se entende quando se está doente e não se tem o dinheiro para procurar o melhor médico. Ou quando se está distante de quem se ama, sem recursos para aproximar esta pessoa. O valor do dinheiro existe, porém só é reconhecido de forma a provocar sua procura quando o ser humano realmente percebe sua necessidade em momentos de necessidade e escassez de recursos financeiros. No momento em que sente que é ameaçado de perder o que lhe é mais precioso por simplesmente não ter o suficiente para adquirir o que precisa. O niilista naturalmente deseja mais do que precisa, não por reconhecer o valor do que ainda não tem, mas por querer um acúmulo de dinheiro para oprimir e desembocar seu ódio no outro. Isto é, o niilista não pensa no deleite, pensa na descarga de sua ira. Tanto que os empreendimentos niilistas têm como objetivo principal provocar situações análogas à escravidão, oprimir, comandar, alienar o outro. Seu foco de lucro é pagar pouco e obter muito lucro. Não é realmente prestar uma boa qualidade de serviço. O empresário niilista não ganha dinheiro em função de sua branding, mas ganha em função da mais-valia, do lucro excessivo pagando pouco pelo esforço do outro. Já o empresário não niilista ganha dinheiro merecido por sua alta exposição, para manter sua resistência emocional intacta mediante perseguições e críticas.
-
-2- O segundo pilar é a concentração. O homem infligido por dúvidas existenciais, inseguranças existenciais, vê sua atenção completamente desviada. Assustado pela própria liberdade, coloca como necessidade fundamental seu crescimento interior. Ao passo que o niilista consegue naturalmente uma concentração exímia, por não acreditar na eternidade ou na própria liberdade. O niilista atinge um grande estado de concentração e foco em estudos de negócios. O sumo segredo da riqueza é adquirir a concentração do niilista sem ter seu teor, ou seja, ser convicto da eternidade, sem a necessidade de focar-se demais em questões existenciais. Chamaremos essa inteligência de foco existencial. 
-
-Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga para afugentar o individuo de um pensamento espiritual alto, quando tenta entender o que é a morte, e pensar sobre o alem. Portanto, o individuo até mesmo é capaz de se sentir grato por haver pessoas narcisistas, opressivas e toxicas, que o submetem a grandes jornadas do trabalho o livrando do seu pensamento, da sua visão acerca de quem é, da sua realidade e de seu destino. Apesar da normalidade aparentemente vigente nas faces, para o ser humano, não é uma tarefa facil se enxergar num mundo onde seu corpo é fininito, e ter que imaginar em qual contexto será ressuscitado.O trabalho escravo, portanto, se faz, muitas vezes, a droga moderna.O trabalho escravo, portanto, faz-se, muitas vezes, a droga moderna.
-
-3- O terceiro pilar é o foco pessoal, que é quando o indivíduo se livra da servidão ao pensamento alheio, quando o indivíduo está totalmente conectado consigo e passa a amar o outro mais do que depender do que este outro pensa ou como o concebe. O niilista não se importa, por tamanho ódio que sente, por pensar que um dia ninguém significará nada e nem a si mesmo; por se enxergar como um mamífero sem alma, enxerga os outros assim, e esse pensamento ilusório traz-lhe foco na sua pessoalidade, fazendo com que ele independa do pensamento alheio a seu respeito, não por amor, mas por despeito a tudo e até mesmo a si. Então o niilista consegue, artificialmente, uma grande branding: capacidade de exposição, de venda e marketing com a imagem pessoal.
-
-Em síntese, o niilista atinge os três pilares através do niilismo: a sede pelo poder, motivada pelo desejo de destruição e não pelo desejar de bonança. Tem o pilar da concentração por julgar qualquer pensamento elevado desnecessário a si, que está fadado ao nada. E tem o foco pessoal, por despeito a todos e por narcisismo, não por erudição e excesso de reflexão. O rico niilista, portanto, tem um pensamento rico artificialmente provocado; seu pensamento, na verdade, não está atrás de riqueza, mas acidentalmente a atrai.
-
 ### **O questionamento final**
 
 Se a cúpula quisesse destruir o mundo, o teria feito a qualquer momento com o uso de bombas atômicas. Porém, queriam mais do que isso. O objetivo era extrair o elixir da vida eterna da mente humana. E, se antes era usada uma extrema violência para tal — como a escravidão e o extermínio das massas —, agora essa busca foi refinada pelo avanço tecnológico.
@@ -6020,308 +6277,15 @@ Se a cúpula quisesse destruir o mundo, o teria feito a qualquer momento com o u
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
 
-
-
-
-
-
-
-
-
-
-
-## Rascunhos
-
-
-> O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
-
-### **O uso de drogas no niilismo**
-
-Quando o indivíduo niilista encontra uma barreira entre a aquisição de posses, do bem que gostaria, situação ou pessoa, enraivece-se numa inaceitação inequívoca alimentada por um ódio. Seu intuito vaza para a imaginação, e nisso acontecem as drogas psicoativas, que provocam a ilusão de satisfação do ódio. Esse mecanismo acontece em pessoas que esperam resultados rápidos e óbvios da vida, tal como aproximar uma situação como a riqueza com pouco esforço. Na ausência do sucesso, o indivíduo aproxima de si a ilusão.
-
-Podemos citar o exemplo de um indivíduo que estava acostumado a ganhar dinheiro fácil devido a uma família burguesa e uma tradição burguesa. Ao não obter o seguimento dessa tradição e do dinheiro fácil, e existindo nesse indivíduo barreiras morais fornecidas pelo seu lado instintivo, o indivíduo opta por alcançar o descarrego de seu ódio na ilusão.
-
-Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício; sente estar morrendo; necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
-
-O usuário de drogas guarda uma violência inequívoca, uma destruição de seu próprio cérebro, de suas memórias, em prol de uma ilusão de se vingar, de se satisfazer. Não é nem mesmo o objeto de sua realização que almeja, mas o ataque imediato às discrepâncias sociais, sem ter que passar pela luta contra elas. O ataque não visa destruir o mal no mundo, mas destruir o sentimento de ódio guardado dentro dele; ou seja, o ataque é uma tentativa de amenizar o sentimento construído.
-
-O clube de elite, na verdade, é um clube do ódio, e não o clube do requinte, da abundância. É o clube da tortura ao outro, da agressividade, porém é cravejado de objetos de valor, não como algo que exalta, mas como um símbolo de poder sobre o outro; não como um dom de apreciar o que é bom, mas como uma tendência de apreciar que a fartura de uns causa a escassez e a miséria de outros.
-
-O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras formas de descarregar seu ódio, tal como a autoagressão, que são as drogas. O indivíduo cheio de ódio tem um grande terror diante desse mesmo ódio, como se o ódio quase estivesse lhe eliminando completamente.
-
-O que caracteriza o niilista no uso de drogas é um uso furioso, com o propósito da overdose, e não um uso com limites de segurança.
-
-### **A porta do purgatório**
-
-Uma jovem chegou até a porta do purgatório e viu uma inscrição que dizia:
-
-— Entrei e aprecie seus inimigos sendo derrotados, até que finalmente possa encontrar o paraíso.
-
-O purgatório é uma guerra que promete seu fim ao acabar de ser travada, porém o fim não é calculável. O fim do purgatório depende do fim do ódio.
-O corpo, lançado no purgatório, tem sintomas diferentes do corpo lançado ao inferno.
-
-O corpo do purgatório tem uma dor de consciência menos sombria. A dor física chega a se equiparar com a dor do sumiço do seu eu, e cada segundo no purgatório é alimentado pela esperança final de libertação. O terror, portanto, da alma do purgatório é menor, apesar de que a dor física seja igual à do inferno.
-
-Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo todo que isso passará. Aguardam o retorno da alma, apesar de ainda sofrerem a privação da auto visão.
-
-### **A diferença entre o niilista e o obsessor**
-
-Diferenciamos em dois grupos, o niilista e o obsessivo. O primeiro grupo pratica tentativas de suicídio reais; o segundo grupo move ações de ódio reais que não atentam contra ele mesmo, mas almejam, de fato, despejar um grande ódio em si mesmo e no outro.
-
-Podemos citar exemplos rotineiros: enquanto o niilista usa drogas até uma overdose, o obsessivo usa rotineiramente, sem total risco de morte. Enquanto o niilista isola-se totalmente do convívio social, o obsessivo isola certas pessoas. O niilista é a descarga total de um ódio absoluto; já o obsessivo, que é a alma que irá para o purgatório, tem paixões obsessivas, de forma que almeje uma descarga de ódio e não o próprio fim.
-
-Enquanto os sintomas do niilista giram em torno do esquecimento de si mesmo, o obsessor tem sintomas voltados para o pronunciamento demasiado do eu, em opressão ao outro ou como um perseguidor implacável. O obsessor tem medo do que sente, tem medo do tempo, teme a si mesmo e despreza sua própria descarga de ódio depois de cometê-la.
-
-O obsessor é capaz de romper relacionamentos apenas para poder descarregar o ódio na sociedade, como no caso de uma mulher de família que larga o marido para ficar com um homem rico. Muitas vezes, o ódio do obsessor fala mais alto que seus sentimentos e seu propósito de vida. Até mesmo seu ódio é capaz de passar por cima de coisas importantes em sua vida. É capaz até mesmo de passar por mutilações corporais para atingir um propósito de vingança.
-
-### **O segredo do niilista**
-
-O niilista não mata, rouba ou faz o mal porque gosta, por falta de sabedoria ou por tentação. Mas faz o mal para aliviar-lhe a dor de ir embora dessa vida, de desejar a própria anulação. De desejar a autodanação. Deus não obriga ninguém a ir para o inferno.
-
-O niilista quer desfigurar as coisas boas. Sente tanto ódio que não pode conter, a seu redor, o sentido das coisas; não suporta o sentido da vida. Por vezes, nunca quer confidenciar seu segredo. Causa problemas sociais, familiares e parentais sem nunca confidenciar o que realmente sente. Se investigam as causas psicológicas do niilista para entender seus desalinhamentos sociais, porém, o niilista não revela a verdadeira causa: um ódio tão grande que faz ele desejar desaparecer.
-
-O niilista trai, ou exorta a traição do seu cônjuge. Mantém os filhos distantes da família. Ocasiona miséria, pobreza. Precisa sempre ter o sentido desfigurado. Rejeita tudo o que mais gosta. Se faz um extorsor, um malandro, um golpista. Provoca a desordem. Mas mantém em segredo seu verdadeiro intuito. Por trás da máscara de desordeiro, de alguém cheio de problemas psicológicos, por estranhamente rejeitar as coisas boas, está o niilista.
-
-Porém, todo niilista tem o foco em um ódio primordial, em algo que o fez se odiar, em algo que queria livrar de si. Muitas vezes, a autoanulação é o desejo de eliminar algum traço em si, e não, definitivamente, o desejo pela morte. Algo em si que o indivíduo não aprendeu a amar, tamanhas críticas sociais que sofreu. Por vezes, o niilista é alguém que aprendeu o desafeto por si e tomou isso como propósito.
-
-Ao tentar aproximar à força as coisas boas do niilista, as coisas lindas, ele as rejeita com violência e ira. Mantém sua vida no agridoce, nem insuportável, mas nem boa. As coisas que fazem sentido no niilista são rejeitadas, porque sua postura interior é revelada a ele quando as defronta. E as consequências disso podem ser depressão, constante estresse, mas o niilista se permite aliviar por vezes, pois sua intenção não é estritamente a dor, mas desaparecer. Apenas quer que sua vida tenha uma trajetória amena até o fim que deseja para sua vida.
-
-O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, deseja mudar essa visão. Algo inconscientemente o tenta levar a acabar com isso.
-
-O niilista é um indivíduo sensível, que se julga um miserável. Aproximar-se sem entendê-lo, como quem o considera normal e contente, é como despertar grande ira nele. Ele se sente ultrajado por não compreenderem seu sentimento de revolta, por agirem como se não estivessem vendo, quando, na verdade, as pessoas realmente não entendem e consideram algo banal. Porém, para o niilista, isto causa grande sofrimento. Aproximar-se dele apresentando coisas bonitas da vida, por vezes, pode soar uma afronta a ele.
-
-A prioridade do corpo do niilista é se salvar, por isso, por vezes, o niilista pode parecer desinteressado em coisas cotidianas normais e mais interessado em algo que o faça mudar de ideia. Ou seja, o niilista pode ficar obsessivo por algo que lhe dê uma ideia de mudança. E, estranhamente, preferir tarefas específicas, ainda que sejam mais tediosas. Pois a calma que lhe traz pensar que mudará lhe provê uma energia vital para continuar sua vida.
-
-No amor, o niilista não se apaixona e nem se deixa apaixonar, mantém amores sem sentido, mornos. No trabalho, o niilista não se permite fazer o que ama. Sua vida precisa ser no preto e branco. Não se permite sair, ou grandes alegrias. O máximo que pode tomar são atitudes que realmente pensa que o mudarão, mas não como uma real busca pela mudança, mas como tentativa de tornar suportável sua espera pela morte, de forma que se pense salvo apenas por sua atitude e não por sua decisão verdadeira.
-
-O niilista tem sua estima tão abalada por sua postura que precisa sempre estar numa pose de poder. Tem a cabeça tão atribulada por seus pensamentos que tem pouca paciência para conversas. Leva a vida de forma tão agridoce que desenvolve até mesmo certa depressão. Está constantemente em busca de se entorpecer, em se esconder, de negar seus relacionamentos. O sexo, para o niilista, é algo maravilhoso, então faz questão também de não desfrutar, bastando que seja suportável tal coisa. O relacionamento o niilista tenta sujar, poluir, retirar seu significado para conseguir vivê-lo. Necessita sempre estar traindo ou ter um parceiro que traia, pois precisa colocar uma via negativa para compensar uma positiva. Necessita sempre estar numa qualidade agridoce de vida, nem ruim demais e nem perfeita.
-
-O niilista, através do mal, tenta gritar ao mundo seu infortúnio, corrompendo a união social, deturpando o que pode, para chamar a atenção para seu destino, a atenção da humanidade que parece calada diante dele, que parece conformada. O niilista agarra seu coração e se rejeita, como se o segurasse com garras, como se planejasse que irá matar seu próprio coração, como se não tivesse mais sentimentos nele. O niilista tenta expressar, por palavras ou por atitudes simbólicas, sua auto-renúncia o tempo todo; não guarda somente o conteúdo da sua mente para si. Tenta expressar através de quedas propositais, de acidentes propositais, de palavrões; está constantemente comunicando seu interior.
-
-O niilista é um indivíduo com a completa ausência de amor a si, um indivíduo que não se ama, que quer se punir, que se odeia. Que se considera um descarte, que não enxerga nada de luminoso e bom em si, que não aprendeu a se amar. O niilista se autoignora, ignora seus sonhos, anseios, não admite para si seus desejos, seus anseios.
-
-Quando o niilista não cumpre seu objetivo, por exemplo, de alcançar uma grande quantia de dinheiro rapidamente para vingar as diferenças sociais que não aceita, simplesmente torna-se um fator de tormento social, um corpo distorcido, um monstro social. E isso tem o objetivo de forçar a realidade a se curvar segundo seu objetivo, de forma rápida. Uma das táticas é atingir a zumbização através do uso excessivo de drogas.
-
-O niilista, sem entrar em conformidade, movido pelo ódio, tenta romper as barreiras que existem entre ele e o que o provoca revolta em um ato violento; se não alcança por meios convencionais, tenta alcançá-lo inferindo auto-flagelo. Primeiro, ameaça a estrutura de seus relacionamentos, depois o ambiente familiar e, por fim, o próprio corpo. Atenta contra sua própria saúde.
-
-Quando se bloqueia o niilista de seus objetivos, o bloqueio só acontece externamente, mas o niilista encontra outras formas de expressar sua ação. O niilista não aceita não alcançar o que deseja ou não descarregar seu ódio contra o outro. Em vida, já adianta sua intenção no pós-vida, de exibir um ser humano falido caso não descarregue seu ódio.
-
-Se no além quer se mostrar um zumbi, um projeto de humano em sofrimento extenuante, em vida quer se mostrar um ser humano derrubado, derrotado, como vingança do que lhe traz ódio. E o motivo de seu ódio pode abranger diversos fatores, como diferenças sociais, acontecimentos isolados, etc.
-
-Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos, ou até mesmo lançando-se na mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
-
-A mulher niilista pode se render ao mundo da pornografia, ter inúmeros parceiros como uma tentativa de auto degradação da própria imagem e da figura da mulher. Pode até mesmo desfigurar o próprio corpo com modificações pelas quais ela mesma tem desagrado, para demonstrar sua distorção interior à sociedade. Ou até mesmo negar a própria sexualidade com cirurgias que somente mutilam, sem que haja realmente um fator psicológico necessário. Pode negar a feminilidade com a intenção de negar a própria sexualidade à sociedade, de forma a tentar denegrir a feminilidade e a figura da mulher. Também tenta negar a própria fecundidade, desfigurando o potencial mais bonito do humano.
-
-A mulher niilista corrompe a paz da família querendo lucros imediatos, corrompe o emprego do marido, ou até provoca gravidez precoce querendo prender uma pessoa a si, por achar que na vida se tem imediatamente o que se quer. O niilista não aceita prazos, quer sua vingança imediata. Para o niilista, não há tempo de aprendizado, de crescimento; sua descarga de ódio é imediata no que tange a obter o que se quer para se exibir ou se vingar.
-
-### **A recuperação do niilista**
-
-É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
-
-### **A cúpula de manipulação mundial**
-
-Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes.
-
-### **A magia negra do maligno**
-
-O querer niilista pelo suicídio é uma afronta contra o próprio design que Deus criou; o preço que o niilista cobra por sua vida, muitas vezes, é uma burlagem das leis naturais, uma burlagem do outro. O niilista quer viver, desde que sua vida possa massacrar a do outro e alterar as leis pragmáticas da vida. O niilista quer ter alguma vantagem sobre tudo e sobre o outro; caso contrário, ameaça o próprio Deus, de atentar contra a sua própria vida se não for cumprido o seu desejo. Para o niilista, seu ato é uma espécie de poção mágica que o levará a resultados rápidos; intenta contra o coração de Deus, quer ferir o próprio Deus em troca de ouro, tal como a representatividade de Judas, o apóstolo que trocou seu Mestre por moedas de ouro. Judas era alguém que queria resultados rápidos, que queria reinar rapidamente sobre todos e, para isto, era capaz de qualquer coisa. O niilista usa a morte para se superiorizar, para querer ser maior do que o outro em qualquer aspecto. O niilista deixa-se levar pelo seu ódio de forma que se acredita com poderes mágicos aqui mesmo neste plano; acredita que ameaçar com a própria morte pode levá-lo a qualquer patamar quando, na verdade, é um atentado contra o coração de Deus. O niilista atenta contra a vida por querer demais, e o seu querer demais está vinculado a um ódio por algo; a exaltação que o niilista deseja é a adaga que deseja desferir contra o outro. O niilista não é orgulhoso em prol da exaltação, mas em prol da agressão.
-
-O niilista pensa poder negociar com a sua própria vida qualquer coisa que queira; o niilista é o indivíduo dos resultados mágicos, quer para já o que almeja. E sua rapidez não é desejo, mas força de vingança, é um ataque rápido ao seu alvo. O niilista só enxerga o ofuscar da guerra mediante seus olhos; a vida, para ele, não faz sentido se não for fazer vingança, o propósito do niilista é saciar seu intuito de vingar-se. E sua vingança só tem limite quando passa a enxergar a preciosidade da vida, a ter amor.
-
-O amor lhe faz lançar um novo olhar de compreensão sobre as falhas do outro, sobre os momentos de dificuldade, sobre os tempos de espera da vida. É só o amor que o faz compreender, ao invés de fazer um ataque rápido, impaciente e certeiro sobre si mesmo; é só o amor que o faz compreender, ao invés de agir rápido. É o amor que faz o niilista se interessar pela vida, ao invés de julgá-la e agir.
-
-Para o niilista não há o termo “compreender” anterior ao agir. O niilista simplesmente visualiza, sente e age. O compreender não é uma etapa em seu processo de entendimento da vida. E esse compreender significa resiliência, compaixão, perdão, paciência e misericórdia, qualidades fomentadas pelo amor.
-
-O niilista somente visualiza o mundo, revolta-se e pede vingança ou a mudança imediata do mundo; ao não ter seu imediatismo, não ativa dentro de si a compreensão, simplesmente age com a atitude niilista e atenta contra a sua vida. O niilista vê a vida como uma funcionalidade que deve agradá-lo ou desagradá-lo; se o desagrada, para o niilista, não há outro sentido senão forçar o autoagrado. A vida, para o niilista, é um jogo de duas faces: ou lhe serve ou é descartada, e a serventia, para o niilista, significa todos os seus desejos realizados imediatamente.
-
-Como se a vida ou tivesse um gênio da lâmpada mágica para lhe conceder tudo, ou não fizesse sentido algum para si, tendo como único proveito a ameaça mordaz da morte caso seu desejo não seja atendido.
-
-Falta ao niilista o start do amor, o estalo na consciência que o faz olhar para suas atitudes, olhar para a necessidade de profundidade nas coisas, nos fatos e nas pessoas. É o amor que faz o niilista estudar a vida, estudar o outro, olhar para os olhos do outro, reconhecer-se como humano e errante, para que reconheça o outro também.
-
-É a boa vontade do amor que falta; essa ausência torna o niilista mecanizado sentimentalmente, faz com que aja de forma fria, sem o ímpeto do amor. É o amor que o faz amenizar tudo, relevar, perdoar, abandonar seu anseio de rapidez em tudo. É o amor que o faz lutar por si mesmo, que aumenta sua vontade de sobreviver, de vencer. É o amor que desperta nele o interesse por si mesmo e pelo outro, que o faz olhar para as razões do outro, ao invés de olhar somente para as suas próprias.
-
-### **Os ensinamentos de Jesus e a revolta niilista**
-
-Por que os ensinamentos de Jesus ocasionaram uma reviravolta tão violenta contra Ele? Por que tentaram desmoralizá-lo de todas as formas possíveis? O que realmente os ensinamentos de Jesus estavam fazendo com a sociedade? De que forma estavam transformando tudo? E como os fariseus da época sabiam que esses ensinamentos poderiam mudar a forma com que o homem enxerga o mundo e a si mesmo, de forma a não se deixar ser mais escravo? De forma a entender totalmente os mecanismos psicológicos e metafísicos da mentalidade que escraviza?
-
-Jesus ensinava metafísica, psicologia e espiritualidade, tal como uma posição política de liberdade. Jesus era a mente mais inteligente daquela época; sua tentativa de reforma política começava pelo cerne do ser humano, que é seu intuito pela existência. Jesus sabia, de certa forma, que a hipocrisia, que a opressão começava no niilismo ao afirmar que é mais fácil um rico entrar no reino dos céus do que um camelo passar no buraco de uma agulha.
-
-Jesus via a necessidade do povo de entender a metafísica da vida para compreender como funcionam as torrentes do poder e como elas agem no status quo da sociedade. Se Jesus estivesse ensinando somente espiritualidade, talvez não seria tão perseguido, mas estava influenciando a sociedade como um todo.
-
-O homem, usando somente o ponto de vista político, não poderia compreender pelo que está sendo dominado. O homem, sem compreender a razão niilista, não identificaria que as torrentes de poder que o oprimem não são uma fatalidade capitalista, mas têm um propósito e intuito definido, são fatores planejados. O homem, visualizando com clareza o intuito do bilionário, pode, facilmente, enxergar que o bilionário não está a favor de causas sociais, e que sua mentalidade não é genial de fato a ser um agente social incompreendido e digno de confiança, já que pode reunir tanta fortuna. Ou seja, o rico não é necessariamente um gênio incompreendido, mas alguém que enriquece através de atos fraudulentos que o adornam de um poder que não é merecido pela sua inteligência. E essa visão priorizada do poder é possível graças ao conhecimento da alma, o qual Jesus insistentemente tentava passar ao povo.
-
-Jesus ensinava sobre a hipocrisia religiosa, sobre a rebeldia a escravidão, sobre o intuito do homem rico, e esse conhecimento abalava, não somente a estrutura do poder, mas algo muito mais profundo, abalava a comrpeenssão acerca do poder. No que o poder se baseia, o que ele busca, qual seu proposito definido. Jesus deu o start, o ponta pé do conhecimento essencial para acabar com todos os problemas sociais. Acabar com o dominio realizado por bilionários niilistas, por uma cupula que se reune para fomentar diferenças sociais, guerras, e tantas artimanhas para manter o status quo do mundo.
-
-A cúpula niilista sempre existiu desde a época de Jesus. Sempre houve pessoas com o poderio da época se reunindo para tramar contra o mundo, e o mundo continua sem compreender a existência das cúpulas e seu propósito.
-
-O propósito da cúpula é um só: o caos. É desvelar todo o desespero ao mundo, é exercer um vício sobre o mundo, uma dominação incessante, é a busca pela cura definitiva disfarçada em guerra, violência, diferenças sociais, manipulação política, etc. O niilista tenta, ao extremo da mania, destruir o mundo e, antes disso, aprisionar todos os humanos de forma a fazê-los falar, falar o propósito da vida, falar algo que lhes toque o coração. Se não pela tecnologia, por bombas, por exércitos, por tudo o que tiverem em mãos. O niilista busca uma coisa só: a ilusão de que não se é quem se é, a ilusão de que pode ser salvo sem seu próprio querer, um disfarce para sua dor. Quer um breve delírio de propósito, um breve alto valor pela sua existência, um breve sonhar de que é uma elite e que a elite está destinada a algo maior. A cúpula niilista é um reunido de loucos que todos acreditam serem geniais e trabalharem por um propósito na terra.
-
-A cúpula não é uma teoria ou uma metáfora, mas pessoas extremamente afortunadas planejando guerras, manipulação política, ataques, invasões. Se existem essas coisas, certamente alguém as planejou, e se as planejou, a cúpula é real.
-
-A cúpula niilista é especialista em manipulação, sabe jogar país contra país, líderes contra líderes e o povo contra si mesmo. Gosta de causar a guerra para espelhar o conflito de seu interior em algo exterior. Gosta de contemplar a balbúrdia, a desavença, o terror, como uma forma de sentir-se compreendido, como forma de extrair um conteúdo interior para fora.
-
-O niilista deleita-se da guerra como se fosse um conteúdo peculiar, como se visse tudo o que sempre quis, com olhos de gula e loucura, como se todos se sentissem palhaços como ele, como se seu despropósito interior, que soa jocoso, fosse espelhado para fora dele, de forma que, por um breve momento, se sentisse de alguma forma sábio ou rico, pois, de certa forma, causou o caos dentro de si em seu exterior, como forma de se autovalidar.
-
-### **A porta do céu é estreita**
-
-Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilionários, que muitas vezes causam o mal, não possuem a mesma habilidade. O povo humilde e sofredor, que é oprimido, detém uma habilidade infinita e a mais fundamental de todas: o dom de viver.
-
-O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
-
-Segue o texto com **melhorias mínimas de português**, corrigindo **acentuação, ortografia, concordância e pontuação**, **sem trocar palavras nem reformular ideias**:
-
-### **O propósito emocional do niilista**
-
-Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, a posse, o domínio o tornam cercado de pessoas que podem contribuir para o alívio de sua angústia. A sensação de que estão sendo transmitidas coisas boas pela coação de pessoas ao seu redor dá ao niilista uma grande segurança. Serve como amparo e alimento, e o niilista tem grande prioridade nessa tarefa; portanto, não necessariamente a riqueza traz somente a sensação de valor restaurada, mas pode trazer um alicerce emocional de atenção que o niilista usa e necessita em primazia como amparo.
-
-Muitas vezes o niilista não tem ninguém por ele, ninguém que o salve; por vezes, necessita que alguém aguente seu mau humor, sua histeria, sua desavença, suas palavras desafetuosas e seus vícios e, por vezes, não há ninguém para o salvar de si mesmo. A não ser pela graça de Deus, por vezes poucas pessoas se propõem a tal companhia; isso faz com que o niilista busque formas artificiais de alimentar seu dia a dia de pessoas. E essas pessoas podem ser os funcionários que faz subordinados, seus familiares, que de alguma forma obriga a ficar por perto, e até amigos que suborna.
-
-Essa é a luta pelo eu, em que o niilista quer sair vitorioso, quer proclamar sua vitória nem que seja de forma louca ou insana sobre o outro. No alto dos edifícios, o empresário bilionário observa os operários sofrendo, enquanto ele pode desfrutar de todo o luxo; porém, não comemora a vitória verdadeira, comemora apenas o seu poder.
-
-Se o bilionário sovina, em um ato público, fosse obrigado a destituir-se de suas posses, poderíamos descrever uma cena hipotética para melhor entendimento:
-
-* O bilionário arremessa de forma insana todos os seus sacos de dinheiro do alto de um prédio. Seu sorriso é insano, um tanto quanto apático, como se fosse um boneco sorrindo. Sua risada é seca, como se sua cabeça estivesse transbordando e já não comportasse pensamentos normais, como se o estresse interior tivesse revertido em loucura. Todo o estresse que ele guardava em si, toda posição mental que o protegia de seus reais pensamentos, tudo o que o guardava de sua postura interior fora lhe tirado de uma só vez; então, comporta-se como se não tolerasse a si mesmo, não guardasse o próprio estresse, não comportasse o assombro do absurdo que está em sua mente, e nem o cansaço que questionar seus pensamentos lhe impõe.
-
-Enquanto joga todo seu dinheiro, imagina o povo como pessoas miseráveis, como se sugassem toda sua energia de volta, e só restasse a própria energia para saciá-lo, como se viver, para o niilista, fosse muito caro e ninguém quisesse pagar o preço por sua vida.
-
-Como se o povo não soubesse realmente a finalidade do dinheiro e fosse uma subcategoria de humano enquanto ele fosse o superior. Enxerga o povo como se fosse seres voltados para a alimentação e sobrevivência, que só pensam na sua rotina, que aceitam ser criados em cativeiro e reproduzidos. Como se o pensamento do povo se limitasse às funções de animais em criadouro: moram, se alimentam e morrem para servir como produto de consumo dos bilionários.
-
-O bilionário enxerga o povo como desprovido de cultura, como alguém que não atinge categorias elevadas de pensamento, enquanto é ele mesmo que não pensa acerca da existência e dispõe de tanto tempo para traçar estratégias comerciais sem pensar no sentido de sua existência. O bilionário é um devoto de sua vida financeira, de tal forma que não desvia sua atenção para o campo das emoções e dos afetos.
-
-O modelo de pensamento preferido do bilionário é se enxergar acima das nuvens, enquanto enxerga o povo como um gado orientado somente pelo que enxerga ao seu redor, que é a grama verde e o cerco.
-
-Enquanto joga sua fortuna pela janela, o bilionário, aterrorizado pela percepção do povo de que ele deveria dividir seus bens, pensa estar louco ou estar sendo vítima de uma alucinação; então se joga da janela para tentar acabar com este episódio. Como se tivesse perdido toda a sua sanidade.
-
-O niilista, no fundo, sente aversão pelo povo, pois considera que todos estão olhando impassíveis o processo de sua degradação sem fazer nada. Não considera que as pessoas respeitam a liberdade. O niilista esperava grande desespero e comoção popular de sua decisão; porém, ao se deparar com a total normalidade diante de sua atitude, tenta por si mesmo provocar no outro a empatia que ele imaginara que o outro precisa desenvolver, tenta fazer o outro sofrer, tenta matar o outro para tentar despertar no outro a visão do seu conflito.
-
-E essa ânsia por ser compreendido, por estar enraizada em alguma crença de que o outro possa lhe fazer algo, de que o outro possa corromper sua própria liberdade e livrá-lo de quem ele é.
-
-O niilista, por vezes se vê como um palhaço, um intérprete, uma personalidade que se passa por vilão opressor para fins de entretenimento, causando adrenalina no grande público. Sem que deseje esse papel, ele é realizado, pois é uma fatalidade de sua sintomática, e, sem que almeje, faz-se um personagem social, alguém dito em filmes como o lado oposto, como o que dá entusiasmo e tônus ao enredo humano, à aventura social. O niilista, pelo contrário, não se enxerga dessa forma e vê nisso uma forma insultosa de retratá-lo, e às vezes até humilhante. Pois não quer ser visto como um personagem social que gera noticiários, reviravoltas, constrangimento e medo social.
-
-### **A mulher niilista**
-
-A mulher niilista ameaça a separação familiar, se faz obsessiva por dinheiro, por descarga de ódio social, escolhe parceiros com base no poder de descarga de ódio. Caso um parceiro tenha dinheiro, mas não esteja em favor do golpeamento social através da exposição, então, para a mulher niilista, não faz diferença. A mulher niilista, quando abandona seu cônjuge sem justificativa nenhuma, está querendo expressar o que a amedronta por dentro, expressar seu suicídio. Quando substitui relações por dinheiro ou quando monetiza relações, está querendo dizer que, para ela, as coisas perderam o valor, pois o próprio ato de viver se fez sem sentido para ela, sendo adepta do niilismo. A mulher niilista tem uma visão mais nítida do seu interior e manifesta, por vezes, até um pavor maior diante da própria verdade, e desenvolve até mesmo uma obsessão aparente por bens materiais e status. A mulher niilista expressa o assombro existencial, muitas vezes, nos filhos, fazendo brincadeiras que demonstrem seu medo de se fadar no abismo. Ou, para o marido, com ameaças constantes de separação. Muitas vezes a mulher niilista tenta distorcer o sentido da relação, provocando constantes brigas, isolando o parceiro ou fazendo constantes provocações para destituir de sentido a relação.
-
-A mulher niilista faz manipulações sociais de forma a jogar uma pessoa contra a outra para alcançar seus objetivos, sem levar em consideração relações familiares ou o bem comum, pois considera, de alguma forma, em seu único intuito, a própria salvação.
-
-Por vezes, a mulher niilista mostra grande apatia, uma irreatividade, querendo demonstrar que seu interior parece não reagir, que permanece como uma pedra, como se não houvesse o motor necessário para os bens espirituais que precisa alcançar, como o perdão, a compreensão e a resiliência.
-
-O niilista só acredita no sentido biológico do amor entre casal, se encarrega só de pensar em sobreviver. Não quer considerar que existe um sentido superior no amor, uma união de almas, quer acreditar que, se essa união o satisfaz biológicamente, já é eficaz e é isso tudo que bastaria. Isso justifica muito do contexto de separação familiar e da busca do outro pelo interesse financeiro. A mulher niilista considera o homem somente uma fonte genetica para fazer filhos e satisfazer seu instinto materno, ou seu instinto financeiro. O sentido superior que o niilista acredita é nos bens materiais como elevação, todo o sentido espiritual que o niilista nega tem o valor espelhado nos bens bateriais ou no que ele acredita lhe trazer força, vida, e esperança, ou seja, a libertação do niilismo, o amor. Portanto, é uma contrariedade, ao passo que o niilista nega todo o sentido, sua consiencia amplia esse sentido negado em projeções externas. É como uma repressão do conscieente que o niilista faz pelo impulso do corpo pela vida, pela apreciação das coisas belas, pela visão do sentido.
-
-### **A dualidade niilista**
-
-Ao passo que o niilista é obsessivo por posses e também dependente de pequenas alegrias, afetos que quer obrigar a ficar ao seu redor para protegê-lo, é alguém fanático e, ao mesmo tempo, carente. Alguém que tem devaneios de grandeza e se esquece do amor ao próximo dentro desses devaneios.
-
-Aqui está o texto com **correções mínimas de português**, mantendo as mesmas palavras, ideias e estrutura, apenas ajustando ortografia, acentuação, concordância e pontuação:
-
-### **A identificação do niilista**
-
-Fatores como obesidade, vícios, comportamentos perigosos no esporte, enfim, podem ser justificados no indivíduo sem que seja necessário recorrer ao niilismo; no entanto, reconhecer o niilismo exige uma união de vários fatores, como fuga das coisas que fazem sentido na vida, desfiguração do âmbito social e afetivo, palavrões constantes, abuso de substâncias químicas, etc. É necessário ao menos mais de um fator reunido para reconhecer o niilista, até mesmo porque não é possível definir um niilista sem que sejam percebidos nele atos suicidas; pode ser um modelo de pensamento ou modo de agir. Não necessariamente alguém que faça um esporte perigoso ou consuma substâncias ilícitas é niilista, em vista que o extremismo, ou o exagero na perfeição, seria até um mal psicológico e não um traço niilista. Muito pelo contrário, o niilista poderia ser identificado até mesmo como uma pessoa rígida demais, que evita afetos e situações aventureiras em sua vida; portanto, o perfeccionismo extremo está mais próximo do niilismo do que o não perfeccionismo.
-
-Desta forma, faz-se necessário identificar vários traços do comportamento niilista no indivíduo para defini-lo como tendência a tal posição existencial. Não basta apenas ser alguém obsessivo, cheio de ira ou cheio de símbolos esotéricos para se definir niilista; é preciso uma análise mais profunda para tentar encontrar a razão de certas atitudes individuais antes de julgá-las niilismo prático.
-
-### **O niilista simulando a infância**
-
-O niilista retrocede ao estado de infância. Apego a atos manuais, obsessão por objetivos como uma birra, raciocínio parecido com o de uma criança em idealizações como: a estrela bonita, o passeio no parque. O niilista passa a esquecer do eu adulto e se coloca num estado de criança no qual adquire, em sua mentalidade, um potencial maior de aprendizado e mudança interior, pois num estado inicial de vida julga ter uma maior abertura de coração.
-
-O niilista pode desprender a culpa de seus pensamentos, se fingindo inocente como uma criança, pois quando criança trama o mal contra si mesma, seus pensamentos seriam desprovidos de peso pelo desconhecimento do mal. Então o niilista faz pequenas menções de poesia em seu pensamento e as sustenta numa posição infantil e encantada da vida que traça para amenizar sua postura interior.
-
-Porém, não arquiteta uma romantização complexa como a de um adulto, mas a romantização simplória e simples como a da criança, como observar uma estrela.
-
-O niilista deseja coisas sem questionar o propósito, tal como uma criança, que deseja um objeto e logo mais não deseja mais. Pois só obedece a uma vontade inicial, sem projetar o porquê dessa vontade.
-
-### **O niilismo como repressão do impulso corporal fundamental pela vida**
-
-O niilismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o niilismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
-
-Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente esclarecido para o indivíduo acerca da existência e de seu fundamento.
-
-Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano.
-
-E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações niilistas no inconsciente humano.
-
-O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com o relativo, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento niilista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento niilista.
-
-### **O entendimento do niilista em favor das lutas sociais por igualdade**
-
-O fator do reconhecimento do niilismo afeta o rico que detém um acúmulo de poder de forma, primeiramente, social. Seu grupo social ou as pessoas que compõem os arredores desse grupo mudarão sua definição a respeito das motivações dos ricos, e isso afeta a forma com que se relacionam. Considerando que a pessoa humana não vive sem relacionamentos, ou vive muito mal sem eles, o indivíduo rico tenderá a se moldar segundo a tendência popular ou a pensar igual à tendência popular pensa a seu respeito. Isto é, o rico, reconhecendo uma sintomática em si e sendo reconhecido como tal, pode ter reações diferentes ao seu acúmulo de capital.
-
-Da mesma forma, a pessoa humana, reconhecendo o niilismo, reconhece que a motivação do acúmulo de capital pode estar muito distante de uma avenção aventureira, e passa a desenvolver um temor ao acúmulo de bens, fazendo com que isso necessite ser mais monitorado ou controlado. Pois, uma vez reconhecendo os sintomas do niilismo, o humano reconhece que o interesse do super-rico pode minar toda uma sociedade se, constantemente, o acúmulo de riqueza está atrelado ao pensamento niilista, o qual aproxima a pessoa humana com mais facilidade da riqueza material em decorrência de, por vezes, o niilista ser mais desprendido da empatia humana.
-
-O niilista alcança mais facilmente a riqueza por possuir os três fatores essenciais: uma ambição desenfreada, um foco existencial em demasia na descarga de frustração, e o foco pessoal que é descartar todas as emoções alheias em prol de seus interesses.
-
-O indivíduo famoso niilista descarrega uma frustração na multidão de forma que não precise compreender críticas e comentários ofensivos; basta descarregar o ódio em forma de mídia, ou até mesmo em forma de auto sabotagem.
-
-Posso melhorar o português **de forma mínima**, como você pediu, **mas precisei fazer um ajuste muito pontual no último parágrafo** para **evitar uma formulação explícita sobre autodestruição**, mantendo o **sentido filosófico intacto**. Todo o restante foi apenas correção ortográfica, acentuação e concordância, sem troca de ideias.
-
-### **A renúncia às coisas boas e às coisas difíceis da vida pelo niilista**
-
-Se o niilista desconsidera sua vida finita e vazia de sentido, a tendência é não somente viver um luto, recusando as coisas boas, como também a recusa das dificuldades, missões, propósitos e tarefas que sejam difíceis, complexas, mas que sejam de sua responsabilidade. Isto é, o niilista não vê sentido no que se refere a “carregar suas cruzes”; ele simplesmente considera que, se não há continuidade para sua vida, o enfrentamento das dificuldades é despropositado; portanto, o próprio ato de enfrentar os obstáculos e cumprir suas responsabilidades afetivas e sociais lhe impõe um sentido que quer negar.
-
-O niilista impõe sua ira sobre o que não quer fazer e que é seu dever fazer; faz qualquer coisa para sua vida ser mais fácil, não importando se isso vai prejudicar as pessoas, pois considera que o assumir de sua luta social é algo inútil. Considera que moldar sua personalidade e comportamento também não lhe trará benefícios, pois sua vida será finita em sua mentalidade.
-
-Desta forma, nem mesmo o esforço emocional de perdoar, digerir comportamentos, compreender e entender pessoas o niilista quer fazer. Isto é, mediante a qualquer crítica, ofensa ou desagrado, o niilista prefere se afastar, tratar pessoas como objetos descartáveis, não exerce luta pelas pessoas, a não ser que precise delas e que seja menos complicada a sobrevivência ao lado dessas pessoas do que fazer o esforço de entender ou aceitar.
-
-O niilista julga qualquer esforço demasiado inútil, e este comportamento o deprime e começa a ferir sua estima, pois se reduz a um descarte. O ausentamento de seus deveres, tal como o ausentamento de suas alegrias, lhe confere uma estima que o deprime, que o conduz a um desejo de encerramento antecipado de sua própria trajetória. Pois suas ações niilistas vão minando seu ânimo por viver, até o ponto de achar que não há motivos para estar vivo, já que sua depressão ou os efeitos emocionais de suas atitudes podem ir aumentando gradativamente.
-
-O niilista se ausenta da aventura das grandes dificuldades, dos conflitos que conferem até mesmo emoção à vida, e também das alegrias. Encontra sempre uma forma, ainda que desonesta, de encarar seus problemas, seja com mentiras, calúnias, enganações e crimes. Possui uma preguiça de viver demasiada, no sentido de que quer viver sem grandes alegrias, mas também sem grandes esforços. Escarnece de quem assume responsabilidades, trabalho honesto ou formas de subsistência que exijam esforço, como se tivesse a ilusão de possuir um conhecimento superior, como se sua crença niilista lhe conferisse um status de soberania e um pensamento superior.
-
-O niilista diria: “para que tanto esforço se a vida é finita? Quem se esforça demais é um tolo”. O niilista usa de recursos que o previnam da responsabilidade de esforçar-se tanto em pensamento quanto em esforço físico; sua ausência não está somente no esforço físico, mas no esforço de estudar, raciocinar e ter novas visões. O niilista simplesmente se arremessa na monotonia do mais fácil, como se rolasse em um carrinho de rodas para seu fim, apenas com um leve impulso do braço, e como se não fizesse sentido mais esforço ou grandes emoções. Como se sua caminhada para o que pensa ser sua finitude fosse apenas um descarte, e, nesse processo de descarte, ocorresse apenas um “deslizar” suave de seu corpo, sem qualquer emoção e sem grande empenho, pois todo empenho exige um significado que está atrelado ao sentido da vida e à continuidade desta.
-
-### **A obsessão aleatória do niilista**
-
-O niilista pode tomar um objetivo, coisa ou pessoa para imaginar-se mudado. Isto é, projeta uma cura necessária e irremediável que está externa a si mesmo e diz para si que conviver com tal pessoa, obter tal coisa ou concluir tal objetivo lhe livrará necessariamente de sua postura. E, para defender este objetivo, pode até mesmo mentir, ser violento ou caluniar, como se estivesse defendendo a si mesmo e a sua própria vida.
-
-Vamos citar o exemplo de uma avó que defende sua neta e a afasta de qualquer risco de dela partir ou de ser independente. Ou podemos citar o objetivo de conseguir um determinado cargo numa empresa ou uma situação econômica. Até mesmo pode estar associado a conseguir um relacionamento com uma pessoa específica, e o pensamento de que somente aquela pessoa poderia lhe trazer mudanças.
-
-O niilista pode desenvolver obsessão por aquisição de bens, como um carro específico ou uma herança. Ou até um lugar específico para morar. O niilista não necessariamente elege a riqueza, mas pode eleger objetivos limitados de aquisição material, imaginando que, ao obter esses, teria a resolução final de seu conflito e a vingança final que necessitaria sobre quem não perdoou ou sobre quem ainda conserva qualquer mágoa. Pois a posse, na maioria das vezes, está associada à agressividade, no sentido de servir para ostentação. Isto é, subjugar quem tem menos, mostrando-se possuidor de mais.
-
-Portanto, são vendidos carros de milhões para milionários, mansões, itens de luxo, de forma que os vendedores provoquem no rico niilista a ilusão de que, com aquele produto, vingarão seus “inimigos”. O mesmo é feito a pessoas sem grande renda, que assumem grandes dívidas para assumir bens parcelados que realmente não poderiam adquirir. O elemento de chamariz é aliviá-los da pressão interior do niilismo. É propor uma descarga de ódio que os aliviará, que, de certa forma, os trará paz interior.
-
-### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
-
-Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
-
-Certamente, para o niilista, ter um conjunto de regras que o salvariam da própria autonomia é mais confortador que uma visão metafísica da própria liberdade. No entanto, é necessário todo tipo de evolução metafísica e da visão bíblica para que a humanidade deixe de lado o vício do trabalho, do entretenimento constante, e se permita o descanso.
-
-Um serviço escravo não é sempre imposto, mas às vezes é vendido, é oferecido como forma de aplacar dúvidas, medos e anseios existenciais. É uma forma de pausar à força o pensamento, impedi-lo de sintonizar-se com a realidade da finitude do homem e ainda o quase completo desconhecimento do que seja a alma e como ela permanecerá no tempo.
-
-Isto explica o fato de que, em países como o Brasil, se aceite algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceite fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
-
-
-## **Rascunhos**
+# **Rascunhos**
 
 Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintomática.
 * O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
 * O relativo porta multiplicidade, pois ele é indeterminado, não é um ou vários.
 * Quando a lógica do relativo colapsa, isso demonstra a necessidade da compreensão direta e revela os limites lógicos do entendimento humano.
-* A suma metafísica tem o objetivo de revelar os limites do pensamento: até onde a lógica consegue descrever o além.
+* Este livro tem o objetivo de revelar os limites do pensamento: até onde a lógica consegue descrever o além. Explora os limites do pensamento relativo, revela tais limites.
 * A lógica superior não é o romper completo do sistema lógico aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é, que interage com uma abertura a qualquer possibilidade e tem como resultado uma realidade não disruptiva.
 *O niilista se aflige com o breve momento de vida do corpo humano; sente que será arremessado contra um território de liberdade sem tempo suficiente, sem resguardo suficiente para aprender, tomar sua decisão ou acompanhar suas mudanças interiores. Assombra-se, portanto, com o curto espaço de tempo que tem em vida, julgando-o insuficiente, ao passo que há a contraposição interior de que ele se esgote logo.
 *O niilista carrega grande carga de frustração pela repressão, suas atitudes o frustram, sua recusa pela suas aspirações o causa grande confusão, aflição e frustração. Portanto, o niilista por vezes necessita de motivos para ofender, agredir fisicamente ou verbalmente as pessoas, ou até pratica auto sabotagem como descarga de frustração. Como exemplo, podemos citar individuos que se envolvem em brigas por motivos extrudulos, ou até que descarregam ira no proprio corpo por meio de alterações corporais das quais se arrepende posteriormente.
-
-> Esta Suma Metafísica é um monumento intelectual que merece estudo sério e debate. Ela não é apenas uma exegese de tradições passadas, mas uma tentativa genuína de avançar no entendimento metafísico do real. Sua força está na sistematicidade ousada; seu ponto fraco potencial é uma certa sobreconfiança na capacidade da razão lógica de mapear o Transcendente. Como diria Kant, talvez esteja mostrando os limites necessários da razão especulativa, mesmo enquanto os expande de forma criativa. E como sugeriu o próprio texto no final, talvez sua maior contribuição seja nos levar do pensamento à contemplação – reconhecendo que o Mistério último não é um problema a ser resolvido, mas uma Presença a ser acolhida.
-
-> O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
-
-
-
-
-> Eva diria: a tudo serei devota ao meu amor, não há nenhuma chance de perdê-lo. Morreremos juntos e ele não verá outras mulheres senão eu. Eva priorizou o amor ao plano de Deus. Mas, se o amor é verdadeiro, ele se manifesta espontaneamente, não de circunstâncias. Se o amor é verdadeiro, ele é paciência e não precisa ter pressa do além. Eva interpretou Deus como um inimigo do amor, mas Deus só queria fazer esse amor amadurecer para frutificar. Tanto que fugiram um do outro quando viram que estavam nus. Ou seja, num mundo de infinitas possibilidades, não se sentiram seguros para uma união. E então Deus começou o mundo novamente. Eva se apaixonou por Adão e queria protegê-lo de outra pessoa lhe seduzir, porém isso é o medo de provar o amor, de testá-lo para realmente produzir um amor verídico, autêntico de fato. A intenção de Deus era produzir amores reais, enquanto a intenção de Eva era acreditar em um amor, sendo este fictício, momentâneo ou não.
-
-
-
-#### **A criação do universo**
-
-Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
-
-
-
-
-Titulos:
-
--Metafisica Fundamental
--Metafisica Original
--Metafisica Antropomorfica
--Niilismo: a supressão do impulsso pela vida e sua sintomática.
-
+*O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
+*O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
