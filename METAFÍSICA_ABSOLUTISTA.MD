@@ -6013,6 +6013,23 @@ Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga
 
 Em síntese, o niilista atinge os três pilares através do niilismo: a sede pelo poder, motivada pelo desejo de destruição e não pelo desejar de bonança. Tem o pilar da concentração por julgar qualquer pensamento elevado desnecessário a si, que está fadado ao nada. E tem o foco pessoal, por despeito a todos e por narcisismo, não por erudição e excesso de reflexão. O rico niilista, portanto, tem um pensamento rico artificialmente provocado; seu pensamento, na verdade, não está atrás de riqueza, mas acidentalmente a atrai.
 
+### **O questionamento final**
+
+Se a cúpula quisesse destruir o mundo, o teria feito a qualquer momento com o uso de bombas atômicas. Porém, queriam mais do que isso. O objetivo era extrair o elixir da vida eterna da mente humana. E, se antes era usada uma extrema violência para tal — como a escravidão e o extermínio das massas —, agora essa busca foi refinada pelo avanço tecnológico.
+
+Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
+Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
+
+
+
+
+
+
+
+
+
+
+
 ## Rascunhos
 
 
