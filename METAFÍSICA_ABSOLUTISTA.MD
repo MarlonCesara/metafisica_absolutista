@@ -3574,6 +3574,8 @@ Além do autoesquecimento, a alma do inferno deixava como resquício de sua mem�
 
 A conclusão lógica é que a alma segue a tendência dos resquícios de sua personalidade, mantendo sua determinação horizontal e tendo como ímpeto primordial a predisposição de fugir do sofrimento existencial que se configura como a ausência de si. Se situássemos a alma do inferno em um corpo, teríamos, portanto, de forma figurativa, uma persona não introspectiva e que sente uma dor incessante. Um corpo apavorado e que tem uma saudade insuportável de si mesmo. Seu choro é constante, e sua dor é maior que a dor física: é a sensação de morrer a todo instante, de cair sem fim em um abismo, enquanto o corpo arde em chamas.
 
+> O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
+
 #### **A origem do niilismo e a consolação da alma não niilista**
 
 Para o filósofo, era incompreensível. Ele analisava suas memórias, suas justificativas — traumas, abandonos, injustiças — e, ainda assim, não conseguia aceitar que alguém preferisse o nada à beleza de um mundo onde montanhas cantavam e rios abraçavam. Todas essas coisas soaram impressionante para o filósofo, mas ele entendeu que a morte eterna é uma das possibilidades da gloriosa liberdade, e que aquilo não afetaria o todo, pois é necessário que ali houvesse infindáveis possibilidades. O filósofo chorou por elas. Não por julgá-las, mas por saber que, em algum lugar no caminho, uma única mão estendida, um único instante de graça, poderia tê-las salvado. Mas o paraíso respeitava até mesmo essa última e trágica liberdade — o direito de dizer *não* à eternidade, confirmando que Deus não força a vontade humana (cf. Concílio Vaticano II, *Gaudium et Spes*, 17).
@@ -6293,7 +6295,6 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 # **Rascunhos**
 
-* O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
-* O paraíso é particular; cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal.
+* O paraíso é particular; cada um pode criar o seu. Jesus tinha o ideal de paraíso Dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal.
 
 * O absoluto é pleno em si, em sua integridade; é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
