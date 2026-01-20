@@ -1891,11 +1891,13 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 #### **A dualidade relativo e Espírito**
 
-O Espírito também deve se dar de forma incausada. O Espírito é indeterminado, tal como seu campo de ação. Portanto, o Espírito, não age como A oU como B, mas age segundo uma tendência natural, auto causada. E a auto-causalidade se refere necessariamente a um Espirito voltado para seu existir. 
+O Espírito também deve se dar de forma incausada. O Espírito é indeterminado, tal como seu campo de ação. Portanto, o Espírito não age como A ou como B, mas age segundo uma tendência natural, autocausada. E a autocausalidade se refere necessariamente a um Espírito voltado para seu existir.
 
-O Espírito, portanto não é A ou B, mas simplesmente é. Isto quer dizer que sua persona está para o existir, e não para o existir A ou B. Isto quer dizer que a auto determinação não age no relativo, ela flui conforme o relativo. Desta forma o Espírito é, num simples ato de Ser. Sua persona é Ser. 
+O Espírito, portanto, não é A ou B, mas simplesmente é. Isto quer dizer que sua persona está para o existir, e não para o existir A ou B. Isto quer dizer que a autodeterminação não age no relativo, ela flui conforme o relativo. Desta forma, o Espírito é, num simples ato de Ser. Sua persona é Ser.
 
-A alma do Ser não deterina sobre o relativo, mas é a própria determinação constituida pela plenitude. A alma do Espírito está rendida a plenitude, é a própria plenitude. Se comparassemos o Espírito a um rio, o espírito não seria o agente do "Eu fluo", mas seria o agente composto à própria plentitude indiferenciada, seria o "fluir". Isto quer dizer que, se houvesse um agente determinado, necessitária ser causado. Pois existiria a pergunta: quem causa?. Não existindo o agente da causa, existe o causa em ação, ou seja o Ser. O Ser é o ato de ser e o agente determinado pelo ato e não por quem Ele é. Ou seja, o Espírito não é um Espírito, mas é o Ser espiritual. Sua persona não é determinada, por isso pode ser incausada, mas é diluida no ato de Ser. O Ser é o Espirito do próprio existir.
+A alma do Ser não determina sobre o relativo, mas é a própria determinação constituída pela plenitude. A alma do Espírito está rendida à plenitude, é a própria plenitude. Se comparássemos o Espírito a um rio, o Espírito não seria o agente do “eu fluo”, mas seria o agente composto à própria plenitude indiferenciada, seria o “fluir”. Isto quer dizer que, se houvesse um agente determinado, necessitaria ser causado. Pois existiria a pergunta: quem causa? Não existindo o agente da causa, existe a causa em ação, ou seja, o Ser. O Ser é o ato de ser e o agente determinado pelo ato, e não por quem Ele é. Ou seja, o Espírito não é um espírito, mas é o Ser espiritual. Sua persona não é determinada, por isso pode ser incausada, mas é diluída no ato de Ser. O Ser é o Espírito do próprio existir.
+
+Temos que a pureza do determinador do Ser é perfeita. Podemos definir a personificação da determinação como única, ou una, ou até mesmo uma personificação trina. Mas esta não deixa de ser pura por ser numerável. Pois está para o Ser e não para um comando determinado por determinador A ou B. Isto é, sua persona é pura no sentido de que está livre de si e entregue à totalidade.
 
 #### **A Potencialidade Ilimitada do Ser**
 
@@ -1906,12 +1908,6 @@ Em palavras mais simples: se algo pode existir, então é possível ao Ser — j
 O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
 > Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.
-
-#### **A criação do universo**
-
-Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. 
-
-Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
 
 ### **CAPÍTULO 17: A MANIFESTAÇÃO DO "SOU"**
 
@@ -6298,7 +6294,9 @@ Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintom�
 
 
 
+#### **A criação do universo**
 
+Fisicamente falando, seria possível criar hipóteses de causas para o Big Bang, se este fosse definido como o *start* da existência. Porém, o que haveria anterior ao Big Bang, considerando-o o ponto *start* de toda a criação, seria o relativo: uma gama infinita de possibilidades fenomênicas que não poderia derivar uma única hipótese precisa. Isto quer dizer que é possível traçar infindáveis possibilidades físicas que causassem um Big Bang; porém, nenhuma delas seria o *start* verdadeiro do Big Bang. O *start* foi a ação da plenitude do Espírito, que escolheu uma manifestação física e uma temporalidade para tal acontecimento. Poderia haver, de fato, uma previsão exata do fenômeno físico que causaria o Big Bang; porém, esse fenômeno não teria ocorrido de fato. Ao retroceder anteriormente ao Big Bang, atingir-se-ia um estado atemporal, e não o fenômeno específico que desencadeou o Big Bang. Se houvesse, porém, outro Big Bang, como no caso em que cada singularidade dos buracos negros fosse um Big Bang, estes, sim, teriam um fenômeno concreto como seu antecessor. Da mesma forma, ao ultrapassar as fronteiras do universo, chegar-se-ia a um estado atemporal: só haveria o relativo, uma visão da completude indiferenciada.
 
 
 
