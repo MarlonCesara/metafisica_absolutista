@@ -1890,6 +1890,12 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 **A verdadeira sabedoria metafísica não é possuir respostas definitivas, mas habitar a interrogação radical que nos mantém abertos ao Mistério do Ser - Mistério que se revela não como problema a ser resolvido, mas como Presença a ser acolhida.**
 
+> Quando a lógica do relativo colapsa, isso demonstra a necessidade da compreensão direta e revela os limites lógicos do entendimento humano.
+
+> Este livro tem o objetivo de revelar os limites do pensamento: até onde a lógica consegue descrever o além. Explora os limites do pensamento especulativo, revela tais limites.
+
+> A lógica superior não é o romper completo do sistema lógico aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é, que interage com uma abertura a qualquer possibilidade e tem como resultado uma realidade não disruptiva.
+
 ### **CAPÍTULO 16: A indiferenciação do Espírito**
 
 #### **A dualidade relativo e Espírito**
@@ -1901,6 +1907,10 @@ O Espírito, portanto, não é A ou B, mas simplesmente é. Isto quer dizer que 
 A alma do Ser não determina sobre o relativo, mas é a própria determinação constituída pela plenitude. A alma do Espírito está rendida à plenitude, é a própria plenitude. Se comparássemos o Espírito a um rio, o Espírito não seria o agente do “eu fluo”, mas seria o agente composto à própria plenitude indiferenciada, seria o “fluir”. Isto quer dizer que, se houvesse um agente determinado, necessitaria ser causado. Pois existiria a pergunta: quem causa? Não existindo o agente da causa, existe a causa em ação, ou seja, o Ser. O Ser é o ato de ser e o agente determinado pelo ato, e não por quem Ele é. Ou seja, o Espírito não é um espírito, mas é o Ser espiritual. Sua persona não é determinada, por isso pode ser incausada, mas é diluída no ato de Ser. O Ser é o Espírito do próprio existir.
 
 Temos que a pureza do determinador do Ser é perfeita. Podemos definir a personificação da determinação como única, ou una, ou até mesmo uma personificação trina. Mas esta não deixa de ser pura por ser numerável. Pois está para o Ser e não para um comando determinado por determinador A ou B. Isto é, sua persona é pura no sentido de que está livre de si e entregue à totalidade.
+
+A persona do relativo é a plenitude. Embora sua ação personificada seja uma ação, a fonte da ação é una com o indiferenciado. Isto é, a alma é um conjunto com seu potencial; a alma do absoluto é conforme a indiferenciação, e não conforme uma determinação. Por exemplo, enquanto a alma do homem é uma alma, uma unidade, agindo a partir dessa unidade num indiferenciado particular, a alma do Ser é segundo a existência do indiferenciado primordial, e não segundo uma determinação nesse indiferenciado.
+
+O relativo não se dá como uma unidade. Não é um ou mais relativos. Não é um número ou um não número. O relativo porta multiplicidade, pois ele é indeterminado; não é um ou vários. Portanto, a alma do relátivo tem um teor de pureza tal como seu campo de ação.
 
 #### **A Potencialidade Ilimitada do Ser**
 
@@ -1919,8 +1929,6 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
 #### **O potencial de criar o homem**
-
-O relativo não se dá como uma unidade. Não é um ou mais relativos. Não é um número ou um não número. A persona do relativo é a plenitude. Embora sua ação personificada seja uma ação, a fonte da ação é una com o indiferenciado. Isto é, a alma é um conjunto com seu potencial; a alma do absoluto é conforme a indiferenciação, e não conforme uma determinação. Por exemplo, enquanto a alma do homem é uma alma, uma unidade, agindo a partir dessa unidade num indiferenciado particular, a alma do Ser é segundo a existência do indiferenciado primordial, e não segundo uma determinação nesse indiferenciado.
 
 > O homem é uma alma fundida a um corpo, livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contra-parte máxima da determinação não é um corpo determinado, é o relativo, sendo este individual.
 
@@ -6279,13 +6287,17 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 # **Rascunhos**
 
-Sugestão de título: Niilismo: a supressão do impulsso pela vida e sua sintomática.
+**Sugestão de título:**
+**Niilismo: a supressão do impulso pela vida e sua sintomática.**
+
 * O ódio do niilista se expande para o temporal, deixando um resquício de sua imagem de sofrimento, e isso é o corpo flamejante.
-* O relativo porta multiplicidade, pois ele é indeterminado, não é um ou vários.
-* Quando a lógica do relativo colapsa, isso demonstra a necessidade da compreensão direta e revela os limites lógicos do entendimento humano.
-* Este livro tem o objetivo de revelar os limites do pensamento: até onde a lógica consegue descrever o além. Explora os limites do pensamento relativo, revela tais limites.
-* A lógica superior não é o romper completo do sistema lógico aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é, que interage com uma abertura a qualquer possibilidade e tem como resultado uma realidade não disruptiva.
-*O niilista se aflige com o breve momento de vida do corpo humano; sente que será arremessado contra um território de liberdade sem tempo suficiente, sem resguardo suficiente para aprender, tomar sua decisão ou acompanhar suas mudanças interiores. Assombra-se, portanto, com o curto espaço de tempo que tem em vida, julgando-o insuficiente, ao passo que há a contraposição interior de que ele se esgote logo.
-*O niilista carrega grande carga de frustração pela repressão, suas atitudes o frustram, sua recusa pela suas aspirações o causa grande confusão, aflição e frustração. Portanto, o niilista por vezes necessita de motivos para ofender, agredir fisicamente ou verbalmente as pessoas, ou até pratica auto sabotagem como descarga de frustração. Como exemplo, podemos citar individuos que se envolvem em brigas por motivos extrudulos, ou até que descarregam ira no proprio corpo por meio de alterações corporais das quais se arrepende posteriormente.
-*O absoluto é pleno em si, em sua integridade, é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
-*O paraíso é particular, cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal. 
+* O paraíso é particular; cada um pode criar o seu. Jesus tinha o ideal de paraíso dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal.
+
+
+
+
+
+
+* O niilista se aflige com o breve momento de vida do corpo humano; sente que será arremessado contra um território de liberdade sem tempo suficiente, sem resguardo suficiente para aprender, tomar sua decisão ou acompanhar suas mudanças interiores. Assombra-se, portanto, com o curto espaço de tempo que tem em vida, julgando-o insuficiente, ao passo que há a contraposição interior de que ele se esgote logo.
+* O niilista carrega grande carga de frustração pela repressão; suas atitudes o frustram, sua recusa por suas aspirações lhe causa grande confusão, aflição e frustração. Portanto, o niilista por vezes necessita de motivos para ofender, agredir fisicamente ou verbalmente as pessoas, ou até pratica autossabotagem como descarga de frustração. Como exemplo, podemos citar indivíduos que se envolvem em brigas por motivos extrúdulos, ou até que descarregam ira no próprio corpo por meio de alterações corporais das quais se arrependem posteriormente.
+* O absoluto é pleno em si, em sua integridade; é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
