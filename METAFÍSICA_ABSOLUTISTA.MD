@@ -1338,6 +1338,8 @@ A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que t
 
 Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
 
+> O absoluto é pleno em si, em sua integridade; é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
+
 #### **O primeiro ato do Espírito personalizador**
 
 Mas em que tempo age o Espírito personalizador, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência e ação se dão em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem na temporalidade. O Espírito personalizador, portanto, teve sua primeira ação no tempo. Porém, a ação do Espírito personalizador deveria ser num momento temporal posterior à ação do Espírito plenificador. Pois a ação do Espírito personalizador não é necessariamente voltada à plenitude, mas a acidentes; isto é, o relativo puro e atemporal não pode conter decisões não alinhadas somente à plenitude. Pois, entre duas decisões igualmente plenas e rumo à plenitude, nenhuma seria tomada. Ou seja, todas as possibilidades do relativo devem estar suspensas de forma plena e não contraditória entre si mesmas.
@@ -3314,7 +3316,8 @@ Ao considerar o amor e a plenitude do Ser, podemos esperar no paraíso as formas
 **Premissa 4: O paraíso do homem**
 O relativo do Ser e o relativo do sou podem se expandir de forma misteriosa a todas as possibilidades. Não se pode reter as possibilidades mediante ao desconhecido. Então, o leque está aberto para um aval infinito de possibilidades, ainda que ilógicas (impossíveis) e até mesmo incognoscíveis (impensáveis). O paraíso do homem é ter suas aspirações concretizadas. O paraíso de Deus é que tenhamos vida em abundância.
 
-> O paraíso é uma projeção do ideal humano, e não uma projeção para o humano. Isto significa que o paraíso é uma construção sobre o ideal máximo do homem, e não o ideal máximo de um paraíso somente. No paraíso haverá todas as aspirações para a alma humana.
+> O paraíso é uma projeção do ideal humano, e não uma projeção para o humano. Isto significa que o paraíso é uma construção sobre o ideal máximo do homem, e não o ideal máximo de um paraíso somente. No paraíso haverá todas as aspirações para a alma humana. O paraíso é particular; cada um pode criar o seu. Jesus tinha o ideal de paraíso Dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal.
+
 
 > O inferno é uma projeção da anulação intencional da alma. O salto do tempo do mundo para o relativo, e o salto do relativo para a temporalidade. No primeiro salto, a alma já padece de um apagão de sua decisão, que ocorre no exato instante de seu salto temporal. Porém, o salto temporal ocorre novamente pela decisão e projeção da alma, no que se refere ao seu ideal de vingança. Sua vingança, portanto, é intuitivamente projetável, que não seria somente silenciosa, mas estaria à amostra. A alma não se satisfaria apenas em se ocultar, mas teria o intento de revelar seu corpo em chamas. E essa é uma projeção intuitiva do além, baseada no instinto ou ideal da alma vingativa.
 
@@ -6292,9 +6295,3 @@ Se a cúpula quisesse destruir o mundo, o teria feito a qualquer momento com o u
 
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
-
-# **Rascunhos**
-
-* O paraíso é particular; cada um pode criar o seu. Jesus tinha o ideal de paraíso Dele, que era ter todos nós como crianças ao seu redor. Porém, cada um tem o seu ideal.
-
-* O absoluto é pleno em si, em sua integridade; é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
