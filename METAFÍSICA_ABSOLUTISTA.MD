@@ -6305,6 +6305,8 @@ Se a cúpula quisesse destruir o mundo, o teria feito a qualquer momento com o u
 
 Vocês precisam enxergar a cúpula; ela manipula guerras, a mídia, as músicas que tocam, controla quem se torna famoso ou não, controla políticos. A cúpula tem um controle ainda não percebido sobre tudo. Desde músicas que incentivam a violência e a sexualidade precoce do adolescente, até atentados que distraem a humanidade do acúmulo de fortuna de poucos. A cúpula é transmitida de geração em geração, e agora seu propósito, sua índole e mentalidade estão completamente revelados. O acúmulo de dinheiro a permite agir na tangente, no desconhecimento popular, pois é impossível imaginar tamanha loucura sem o conhecimento profundo da realidade.
 
+E o que é a matrix? A matrix é a construção mais cruel da cúpula. A cúpula quer o domínio, e quando ela finalmente obtém, é isso o que acontece:
+
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
