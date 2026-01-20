@@ -6303,5 +6303,8 @@ Toda essa loucura convergiu para um único projeto manicomial: a Matrix. Um cent
 
 Se a cúpula quisesse destruir o mundo, o teria feito a qualquer momento com o uso de bombas atômicas. Porém, queriam mais do que isso. O objetivo era extrair o elixir da vida eterna da mente humana. E, se antes era usada uma extrema violência para tal — como a escravidão e o extermínio das massas —, agora essa busca foi refinada pelo avanço tecnológico.
 
+Vocês precisam enxergar a cúpula; ela manipula guerras, a mídia, as músicas que tocam, controla quem se torna famoso ou não, controla políticos. A cúpula tem um controle ainda não percebido sobre tudo. Desde músicas que incentivam a violência e a sexualidade precoce do adolescente, até atentados que distraem a humanidade do acúmulo de fortuna de poucos. A cúpula é transmitida de geração em geração, e agora seu propósito, sua índole e mentalidade estão completamente revelados. O acúmulo de dinheiro a permite agir na tangente, no desconhecimento popular, pois é impossível imaginar tamanha loucura sem o conhecimento profundo da realidade.
+
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
+
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
