@@ -1,9 +1,19 @@
-# A MATRIX DECODIFICADA
+# **A MATRIX DECODIFICADA**
 
 * **Metafísica Fundamental**
+  A gênese do ser: como a criação emerge do nada absoluto.
+
 * **Metafísica Original**
+  O estado primordial: o que precede este universo.
+
 * **Metafísica Antropomórfica**
-* **Niilismo: a Supressão do Impulso pela Vida e sua Sintomática**
+  A natureza da alma, sua origem, seu destino e o sentido último da consciência.
+
+* **Niilismo — A Supressão do Impulso Vital e sua Sintomática**
+  As forças que corroem o sentido, os agentes da decadência e as raízes das catástrofes humanas.
+
+* **A Matrix Revelada**
+  Por que a humanidade caminha para a encapsulação nas máquinas — e como essa arquitetura de controle está sendo silenciosamente edificada.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
