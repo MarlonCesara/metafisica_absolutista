@@ -8,7 +8,7 @@
 2. **Metafísica Antropomórfica**
    A natureza da alma, sua origem e seu destino.
 
-3. **Niilismo — A Supressão do Impulso Vital e sua Sintomática**
+3. **Niilismo — A Supressão do Impulso Vital e sua Sintomática:**
    As forças que corroem o sentido, os agentes da decadência e as raízes das catástrofes humanas.
 
 4. **A Matrix Revelada**
