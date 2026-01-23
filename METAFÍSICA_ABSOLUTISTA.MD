@@ -332,9 +332,9 @@ A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
 | **Omniabrangente**   | Nada lhe é exterior; até mesmo o "nada" só pode ser concebido como categoria interna a ele. | Totalidade metafísica; não há "fora" ou "alternativa" ao Absoluto.                        |
 | **Metadeterminante** | Estabelece as condições de inteligibilidade para todos os demais níveis de realidade.       | Origem de toda lógica, matemática e estrutura racional.                                   |
 
-#### **As Propriedades Essenciais do Absoluto**
+### **As Propriedades Essenciais do Absoluto**
 
-##### **1. Autofundamentação (Fundamentação)**
+### **1. Autofundamentação (Fundamentação)**
 -   **Definição:** Refere-se à causa primeira da existência do Absoluto.
 -   **Características:**
     -   Encontra sua razão suficiente em sua própria natureza necessária e auto-subsistente.
@@ -343,7 +343,7 @@ A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
 -   **Propriedade Essencial:** Causa integral de si mesmo.
     -   Se o Absoluto dependesse de algo externo, não seria absoluto. Qualquer dependência externa anularia sua condição absoluta.
 
-##### **2. Autodeterminação (Identidade)**
+### **2. Autodeterminação (Identidade)**
 -   **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
 -   **Aspectos Constitutivos:**
     1.  **Autoexistência:** Ser presente em si mesmo - o Absoluto deve estar em si mesmo para ser o agente ativo da determinação.
@@ -354,7 +354,7 @@ A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
     -   Mostra que o Absoluto não é apenas um "Ser estático", mas um Ser ativo que se autogoverna.
     -   Fundamenta a liberdade metafísica (possibilidade de escolha no nível Absoluto).
 
-##### **3. Autocontinuidade**
+### **3. Autocontinuidade**
 -   **Definição:** Refere-se à capacidade do Absoluto de se sustentar em seu fundamento e determinação.
 -   **Características:**
     -   Persistência ativa (não apenas existência passiva).
@@ -362,7 +362,7 @@ A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
     -   Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
 -   **Conclusão:** Sua existência, permanência e identidade são **autocausadas, autodeterminadas e autocontinuadas**.
 
-#### **Síntese Final: O Absoluto como Fundamento Integral**
+### **Síntese Final: O Absoluto como Fundamento Integral**
 
 A análise causal revela que o Absoluto é:
 1.  **Auto-fundamentado** (não contingente)
