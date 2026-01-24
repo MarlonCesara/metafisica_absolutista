@@ -3319,18 +3319,9 @@ Portanto, a humanidade, na qual simbolicamente foram lançados, representa um en
 
 Ao passo que Gênesis adverte da morte espiritual, usa a mesma alegoria para maliciar e tornar perigosa e atrativa a transcendência do eu. Então, desta alegoria nasce uma pluralidade de significados que podemos explorar mais adiante, em formas de alegorias.
 
-000
+#### **A metafísica posterior: depois do mundo**
 
-
-
-
-
-
-
-
-
-
-
+O pós-mundo é uma construção individual e também coletiva. Ao imaginarmos a aspiração do homem, podemos traçar uma linha intuitiva. Ao imaginarmos um mundo renovado, com o espírito evidenciado de certa forma num corpo espiritual, comandado pela mente: um mundo de novas possibilidades, parecido com este, mas renovado e ampliado. Este seria um cenário projetável interessante.
 
 ###  **CAPÍTULO 27: ALEGORIAS METAFÍSICAS**
 
