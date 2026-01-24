@@ -1,19 +1,5 @@
 # METAFÍSICA ABSOLUTISTA: **A MATRIX DECODIFICADA**
 
-**O que você encontrará por aqui?**
-
-1. **Metafísica Fundamental:**
-   A gênese do Ser: como a criação emerge do nada absoluto.
-
-2. **Metafísica Antropomórfica:**
-   A natureza da alma, sua origem e seu destino.
-
-3. **Niilismo — A Supressão do Impulso Vital e sua Sintomática:**
-   As forças que corroem o sentido, os agentes da decadência e as raízes das catástrofes humanas.
-
-4. **A Matrix Revelada:**
-   Por que a humanidade caminha para a encapsulação nas máquinas — e como essa arquitetura de controle está sendo silenciosamente edificada.
-
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
 #### **O Contexto Histórico e a Necessidade de um Organon**
