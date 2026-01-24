@@ -1935,14 +1935,6 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
-#### **O potencial de criar o homem**
-000
-> O homem é uma alma fundida a um corpo, livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contra-parte máxima da determinação não é um corpo determinado, é o relativo, sendo este individual.
-
-> A morte é interpretada como uma falência, porém deve ser interpretada como uma libertação total, quando a liberdade do homem pode ser realmente operante, quando o homem opera diante de sua total liberdade. Se Deus criasse um corpo imortal, teria criado uma prisão terrível. A morte é a prova da liberdade de Deus, é a passagem para a completa liberdade, para o completo potencial de êxtase do homem, a completa realização de suas mais altas aspirações.
-
-> Se a morte corporal não existisse, o ser humano seria uma aberração, um autodeterminador não livre, preso numa forma falida e limitada, e não metaforma de subsistência. Sem a libertação da morte, a vida seria um desastre sem sentido.
-
 #### **A Manifestação do "Sou": A Criação da Alma do Homem**
 
 Na tradição da Igreja Católica, a expressão de que o homem foi feito “à imagem e semelhança de Deus” tem um significado profundo e multifacetado. Eis os principais pontos:
@@ -1967,8 +1959,14 @@ Resumindo: na visão católica, **“imagem” diz respeito à essência espirit
 
 Sendo o homem dotado da capacidade de autodeterminar-se a si mesmo, à semelhança do modo como o Ser fundamental se autodetermina, revela-se uma característica essencial que, sem confundir o homem com o Ser em termos de identidade absoluta, o constitui precisamente como imagem viva do Divino. Desse modo, o homem participa da natureza do Ser, recebendo como dom primordial a liberdade criadora que o habilita a co-construir sua própria existência e a responder livremente ao chamado à plenitude.
 
+#### **A alma e a forma do homem**
+
+Sendo o homem feito sob o reflexo do Espírito do Absoluto, temos que a alma não é livre **do** corpo, mas é livre **para** seu relativo. Desta forma, operamos sobre o pensamento de que o homem é uma alma determinada **em** corpo, livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contraparte máxima da determinação não é um corpo determinado, é o relativo, sendo este individual. Neste sentido, a alma predomina sobre a forma, e não a forma predomina sobre a alma. O homem, lançado ao relativo, portanto, é segundo sua aspiração.
+
+> A morte é interpretada como uma falência, porém deve ser interpretada como uma libertação total, quando a liberdade do homem pode ser realmente operante, quando o homem opera diante de sua total liberdade. Se Deus criasse um corpo imortal, teria criado uma prisão terrível. A morte é a prova da liberdade de Deus; é a passagem para a completa liberdade, para o completo potencial de êxtase do homem, a completa realização de suas mais altas aspirações. Se a morte corporal não existisse, o ser humano seria uma aberração: um autodeterminador não livre, preso numa forma falida e limitada, e não metaforma de subsistência. Sem a libertação da morte, a vida seria um desastre sem sentido.
+
 ##### **Não-Multiplicidade do Ser**
-- O Ser não porta unicidade ou multiplicidade, simplesmente é.
+- O Espírito do Ser não porta unicidade ou multiplicidade, simplesmente é.
 
 ##### **A Natureza Não Dual do Ser**
 -   **Indiferença Ontológica:**
@@ -1980,7 +1978,7 @@ O "sou" constitui-se como uma manifestação realizada pelo Ser, que, em ato de 
 
 O **Ser** representa o determinador puro, o fundamento indiferenciado da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
 
-> O homem se difere de Deus em identidade, ainda que participe do ato de existir e de ser livre do qual Deus participa; sua identidade é unidade, enquanto a identidade de Deus é transcendente à unidade. Quando pensamos de um ponto de vista fenomenológico, as coisas se dividem pelo tempo e pelo espaço; desta forma, discernimos se é o objeto A ou B por sua localização. Porém, do ponto de vista espiritual, os entes se diferem por identidade. Deus é a pureza total, é a própria transcendencia. Deus para o homem, é a vazão da alma rumo o infinito.
+> O homem se difere de Deus em identidade, ainda que participe do ato de existir e de ser livre do qual o Ser participa; sua identidade é unidade, enquanto a identidade de Deus é transcendente à unidade. Quando pensamos de um ponto de vista fenomenológico, as coisas se dividem pelo tempo e pelo espaço; desta forma, discernimos se é o objeto A ou B por sua localização. Porém, do ponto de vista espiritual, os entes se diferem por identidade. Deus é a pureza total, é a própria transcendencia. Deus para o homem, é a vazão da alma rumo o infinito.
 
 ### **Distinção entre Ser e Sou**
 
@@ -2038,7 +2036,7 @@ Diante da morte física, compreendemos que o Ser nos criou **livres para o relat
 
 Um relativo individual, correspondente a uma alma única, significa ainda uma individualidade no Ser, a qual o Ser transcende em identidade.
 
-Tudo que corresponda a uma individualização é transcendido pelo Ser, que não se reduz a uma unicidade. Assim, a identidade do Ser é transcendente a toda unidade. Isso não significa que o Ser não possa se fazer temporal, isto é, tornar-se um só, mas que sua determinação está sempre além de qualquer unidade de si.
+Tudo que corresponda a uma individualização é transcendido pelo Ser, que não se reduz a uma unicidade. Assim, a identidade do Ser é transcendente a toda unidade. Isso não significa que o Ser não possa se fazer temporal, isto é, tornar-se um só na forma, mas que sua determinação está sempre além de qualquer unidade de si.
 
 A identidade do Ser se dissocia completamente, não do tempo, mas da unicidade. O Ser poderia se fazer homem, porém sua identidade não estaria limitada ao homem. A qualidade do Ser não o impede de adentrar o tempo, mas o torna transcendente a qualquer definição quantitativa.
 
@@ -2047,8 +2045,6 @@ A identidade do Ser se dissocia completamente, não do tempo, mas da unicidade. 
 Esta compreensão, mais uma vez, não decorre de um raciocínio puramente lógico, mas do **auto-testemunho existencial** — da afirmação pessoal que cada alma faz de sua própria liberdade perante o Ser.
 
 ## **Distinções Ontológicas entre Ser e Sou**
-
-O Ser já conserva a possibilidade da indiferenciação da dualidade em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero. O Ser, em sua indiferen­ciação, já contém em si todo o potencial dos autodeterminadores individuais, pois ele é indiferenciado não apenas em relação aos fenômenos, mas também à própria autodeterminação. Esta, por sua vez, não se individualiza numericamente nem se multiplica no indiferenciado, mas permanece indiferente tanto a uma determinação única quanto a uma múltipla.
 
 ### **Da Natureza do Arbítrio**
 
@@ -2068,9 +2064,9 @@ O **Sou**, ao contrário, configura uma persona **não necessariamente orientada
 ### **Da Relação de Contenção e Transcendência**
 
 O **Ser abrange todos os Sous**, sem se confundir com eles.
-Permanece como **fundamento indiferenciado** que sustenta cada identidade particular, mas as **transcende em totalidade**.
+Permanece como **fundamento indiferenciado** que determina cada identidade particular, mas as **transcende em totalidade**.
 
-O **Sou** não abrange outros Sous, pois constitui-se como **identidade única e irredutível**, sem capacidade de conter ou expressar a totalidade das personas.
+O **Sou** não abrange outros Sous, pois constitui-se como **identidade única e irredutível**, sem que inicialmente contenha ou expresse a totalidade das personas.
 
 ### **Da Participação na Essência**
 
@@ -2101,8 +2097,10 @@ O **Sou** representa a **possibilidade de uma existência livre e independente**
 > Transcender em Deus não é transcender em uma unidade, mas transcender para a completa liberdade da unidade. Transcender para Deus é transcender a unidade, não transcender para uma determinação. Isto quer dizer que, para fora do Eu individual — seja do próprio eu ou do eu de outrem — há a libertação do Eu, e não outro Eu. Isto é, transcender a si sem que haja o outro no qual a transcendência é realizada; é transcender para fora de si e de qualquer outro, e isso quer dizer transcender para Deus.
 Deus é uma identidade indiferenciada — é a identidade na qual se extravasa o eu, na qual o eu se torna cristalino ao todo, de forma a ganhar um brilho transluzente. A transparência, ou luminosidade, é a indiferenciação da identidade rumo a um Espírito livre até de uma unidade. Não seria livre de si mesmo, mas livre de uma definição única de si.
 
-> A alma do homem é uma autodeterminação no Ser, e não uma autodeterminação do Ser. A ideia de que as consciências são fractais de uma mesma consciência única (Deus) elimina a distinção entre o sou e o Ser, de forma que os sous percam sua autonomia ontológica. O pensamento de que, no relativo de Deus, tudo é possível — até mesmo uma unidade livre da autodeterminação, que não é uma ramificação da identidade do Ser, mas uma possibilidade para o Ser — é mais condizente e preserva a autonomia do sou.
+> A alma do homem é uma autodeterminação no Ser, e não uma autodeterminação do Ser. A ideia de que as consciências são fractais de uma mesma consciência única (Deus) elimina a distinção entre o sou e o Ser, de forma que os sous percam sua autonomia ontológica. O pensamento de que, no relativo de Deus, tudo é possível — até mesmo uma unidade livre na autodeterminação, que não é uma ramificação da identidade do Ser, mas uma possibilidade para o Ser — é mais condizente e preserva a autonomia do sou.
 Apesar de a capacidade de autodeterminar-se ser semelhante à mesma autodeterminação do Ser, o sou humano é autônomo, pensa e age por si mesmo; portanto, não pode ser confundido com consciências desdobradas de um Ser uno, no sentido de serem dependentes dele.
+
+> O homem se autodetermina tal como o Ser, porém sem a incorruptibilidade do Ser e sem que seja altíssimo, tal como a transcendência do próprio eu rumo à liberdade, até mesmo de um eu diferenciado. O Ser é a doação total, até de si mesmo.
 
 ### **Da Identidade e da Transcendência**
 
@@ -2114,9 +2112,7 @@ Enquanto o **Ser** transcende a forma e a identidade individual, **a identidade 
 A **identidade do Ser** é **transcendência pura** — **não se situa em uma determinação individual**.
 
 **Exemplo metafórico:**
-A identidade do Ser é **transparente**, enquanto as identidades individuais são **coloridas**.
-Assim, **o Ser está em tudo**, mas **as individualizações se mantêm**.
-O Ser **não se ausenta** das determinações individuais — **ele as transcende**.
+> A identidade do Ser é transparente, enquanto as identidades individuais são coloridas. Assim, o Ser está em tudo, mas as individualizações se mantêm. O Ser não se ausenta das determinações individuais — ele as transcende. Sua pureza é tão perfeita que pode transpassar o homem, fazendo com que o sou seja sou, ou seja, preservando sua autonomia, ao passo que o abrange. Isto é, o Espírito do Ser está em todas as coisas, ao passo que mantém a autonomia e a identidade dos entes livres intactas. A pureza total transpassa, ao passo que existe. E a pureza é a indiferenciação do Espírito, é o estado altíssimo do Espírito. 
 
 #### **A Personalidade como Participação no Ser**
 
@@ -2138,7 +2134,7 @@ Esta análise revela que:
 
 #### **Conclusão: A Dignidade do "Sou" Humano**
 
-O "sou" humano não é uma ilusão ou imperfeição, mas **uma expressão personalizada do Ser** em sua liberdade criativa. A vocação humana é **reconhecer-se como manifestação do Ser** e **alinhar-se voluntariamente com sua plenitude**.
+O "sou" humano não é uma ilusão ou imperfeição, mas **uma expressão personalizada no Ser** em sua liberdade criativa. A vocação humana é **reconhecer-se como manifestação do Ser** e **alinhar-se voluntariamente com sua plenitude**.
 
 > _"Já não sou eu quem vive, mas Cristo vive em mim. A vida que agora vivo no corpo, vivo-a pela fé no filho de Deus, que me amou e se entregou por mim."_
 > _— Gálatas 2:20_
@@ -2157,7 +2153,7 @@ O Ser abrange:
 -   O incognoscível.
 -   O possível e o impossível.
 
-> Para o Ser, tudo é possível, desde que seja no Ser. É possível infinitas formas, infinitas partições do mesmo Espírito. Cada Espírito contém uma infinitude em si.
+> Para o Ser, tudo é possível, desde que seja no Ser. É possível infinitas formas, infinitas determinadores. Cada auto determinador contém uma infinitude em si. Pois é reflexo da infinitude do Ser.
 
 #### **Determinação Temporal e Projeção do Ser**
 
@@ -2171,7 +2167,7 @@ O Ser se autoprojeta em ângulos de manifestação (ex.: "homem", "natureza") po
 O Ser não pode ser reduzido a uma unidade contável:
 -   **O Ser não é "um" ou "muitos"** – sua essência dissolve a quantificação.
 -   **O Espírito fundamental** é a negação da numerabilidade – não é "zero", mas *ausência de número*.
--     Uma pessoalidade delimitada significa unidade, e isso contradiz a infinitude do relativo.
+-     Uma pessoalidade delimitada significa unidade, e isso contradiz a infinitude do relativo e a qualidade do Espírito indiferenciado.
 
 ##### **A Dupla Dimensão do relativo**
 
@@ -2189,7 +2185,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 ##### **A Ontologia dos "Sous"**
 -   Dentro do Ser, existe uma **infinitude de "sous"** (expressões individuais).
 -   Cada "sou" é:
-    -   Uma **determinação** do Ser.
+    -   Uma **determinação** no Ser.
 
 ##### **Conclusão: A Fórmula da Transcendência**
 > _"O Ser não tem número, mas contém todos os números;  
@@ -2211,7 +2207,7 @@ O Ser não pode ser reduzido a uma unidade contável:
 2.  **O "sou" como Alma diferenciada**
     -   O "sou" é a alma diferenciada, o agente ativo de uma autodeterminação particular (não necessariamente simétrica à plenitude).
 
-> _"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações de si mesmo)."_
+> _"O Ser não está limitado a uma unidade ou multiplicidade fixa. Sua natureza numérica é relativa, podendo manifestar-se como indiferenciação absoluta (nenhum número) ou como multiplicidade (individualizações em si mesmo)."_
 
 #### **Implicações para uma Ontologia Não-Dual**
 
@@ -2250,7 +2246,7 @@ As relações entre os "sous" são:
 -   **Coexistência de infinitos no status quo do mundo**: Dois determinadores (A e B) interagem se um se torna fenômeno para o outro e ambos compartilham a visibilidade de seus atos (ações fenomênicas) e não sua essência espiritual.
 -   **O relativo como limite**: O infinito de A é o relativo de B, e vice-versa. Ambos são modos do mesmo Ser.
 -   *Exemplo:* Dois observadores podem habitar a mesma infinitude sem distância espacial — a "separação" é uma construção individual.
-
+000
 #### **Paralelismo e Infinito**
 
 -   Infinitos determinadores coexistem sem negação mútua:
@@ -2654,6 +2650,10 @@ Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato 
 
 > Para a infinitude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus. Não é almogêneses, é expansão do eu no outro, ou expansão do eu em si. As infinitas consciências que o homem pode ser, ou o infinito campo no qual pode se expandir. Não há confinamentos para o eu. Nem para si no ser, para si no outro, e contrário a si. 
 
+> Ao se expandir para o Ser fundamental, pode vazar de si mesmo para a totalidade e para a determinação fundamental de novos sous. Ao vazar para o outro, determina-se como uma vazão ao outro.
+
+> O sou tem vazão para a completa liberdade em todas as suas direções; seu dom fundamental é a vazão para a infinitude — de si, do Ser ou do outro. Não há confinamentos para o sou.
+
 ##### **A Dialética da Autodeterminação e Transcendência**
 
 -   **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.
@@ -2901,6 +2901,8 @@ Esta análise revela que:
 A almogênese espelha o próprio ato criador de Deus - não como necessidade, mas como **transbordamento de amor** que gera novas liberdades para amar.
 
 #### **O Ser como Indiferenciação da Alma**
+
+O Ser já conserva a possibilidade da indiferenciação da dualidade em Sua potência. Portanto, o Ser, como transcendência, cria a alma sem que seja necessário um processo de transcendência na dualidade. Deus está liberto da unidade, de forma a determinar qualquer personalização que esteja em Seu intento. O Ser já tem a característica da dualidade sem que seja uma dualidade, já se indiferencia da dualidade e até mesmo da unicidade. O Ser transcende o numérico. A alma terrena não é criada por uma dualidade indiferenciada, ou seja, pela indefinição de dois gêneros, mas se dá por uma indiferenciação fundamental do próprio Ser, que em si já se faz indiferenciado em relação ao gênero. O Ser, em sua indiferen­ciação, já contém em si todo o potencial dos autodeterminadores individuais, pois ele é indiferenciado não apenas em relação aos fenômenos, mas também à própria autodeterminação. Esta, por sua vez, não se individualiza numericamente nem se multiplica no indiferenciado, mas permanece indiferente tanto a uma determinação única quanto a uma múltipla.
 
 O Ser é o produto puro da indefinição da dualidade, porém governado pelo espírito perfeito, e não determinado pela dualidade. Assim, o Ser deve ser uma indefinição, uma mistura de todos os "sous" possíveis. Essa indefinição — ou seja, o "sou" ausente — abarca todos os "sous" possíveis para o Ser.
 
@@ -3294,6 +3296,41 @@ Aqui, contudo, opera-se uma dialética profunda: a **verdade de cada *sou* é re
 Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se distingue da aniquilação definitiva, pois o *sou* que assim persiste — ainda que residualmente — já não vive a partir de si mesmo, mas apenas como vestígio de seu próprio processo de extinção. Ele não retorna à vida; não habita verdadeiramente a existência. Esse resíduo ontológico converte-se num **relativo inviolável**, que se define eternamente fora do campo das possibilidades do Ser — um existir que escolheu, para sempre, não-ser.
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
+
+#### **A metafísica original: antes do Ser**
+
+Ao retrocedermos o Eu indiferenciado, podemos criar um “antes” da criação, de forma a criarmos um passado anterior aos tempos. Como se pudéssemos projetar este passado físico no próprio Ser, num estado onde o Ser seria anterior a si mesmo.
+
+Ou seja, podemos explorar, através da lógica, um “Antes” temporal, e esse antes temporal só funcionaria de forma lógica ao retrocedermos o próprio Ser. Antes dos tempos, é possível criar um tempo, diminuindo o potencial do Ser, ao passo que o mantendo paralelo a isto.
+
+E então nasce a alegoria do Jardim do Éden. Ao considerarmos o Eu indiferenciado do Ser como um Eu rompido, e ao considerarmos o desrompimento desse eu, teríamos, como potencial anterior ao Ser de alma rompida, uma alma em estado de dualidade.
+
+Onde Adão é o predominante, a alma que predomina e, por isso, tem em sua carne Eva. Portanto, teríamos Adão e Eva como um retrocesso do potencial de rompimento do Espírito do indiferenciado. Ambos não eram ainda o indiferenciado; existiam de forma concomitante a Ele.
+
+Sendo dois Eus não rompidos, ou seja, não doados ou entregues à plenitude, de forma a disassociar a individualidade em prol do todo, em prol de ser em um nível altíssimo, ou praticamente indetectável, senão em sua ação.
+
+Ambos os Eus queriam ser como deuses, conhecendo o bem e o mal, isto é, a representação da descendência rompida. Isto é, quando o Altíssimo criou o homem, pulou a descendência diretamente da dualidade para uma descendência do Altíssimo. O homem, desta forma, sofreu a corrupção. Adveio de uma fonte que não é natural de sua natureza transcendente; adveio de uma realidade inalcançável. Seus genes, ou seja, seus traços, advêm diretamente da determinação do Altíssimo e não de traços oriundos de uma dualidade.
+
+Portanto, ao retroceder o Ser, temos uma corrupção, ou seja, um burlar da genealogia, pois Adão e Eva, sendo transcendidos, representam uma paternidade anterior que não existe em função da criação direta pelo Altíssimo dos sous. Adão e Eva, em sua alegoria, representam o rompimento genealógico.
+
+> Quando Eva sentiu-se tentada por Adão, teria ocasionado o pecado, não por ter realmente constituído uma prole, mas por ter morrido. Ou seja, o retrocesso desapareceu em um ato dado por ele mesmo. Este ato representa, de forma análoga, a índole humana, tanto no potencial da morte espiritual quanto no potencial transcendente do Eu.
+
+Portanto, a humanidade, na qual simbolicamente foram lançados, representa um ensinamento multifacetado. Conhecer o bem e o mal engloba não somente querer ser como Deus, mas querer transcender o próprio eu. E teríamos herdado ambos os intentos, que podem soar perigosos e compor uma mesma narrativa.
+
+Ao passo que Gênesis adverte da morte espiritual, usa a mesma alegoria para maliciar e tornar perigosa e atrativa a transcendência do eu. Então, desta alegoria nasce uma pluralidade de significados que podemos explorar mais adiante, em formas de alegorias.
+
+000
+
+
+
+
+
+
+
+
+
+
+
 
 ###  **CAPÍTULO 27: ALEGORIAS METAFÍSICAS**
 
