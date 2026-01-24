@@ -1157,6 +1157,14 @@ Toda existência pressupõe em si uma causa inevitável, o autocausal é homogê
 
 Podemos citar como exemplo que se "A" existe, então "A" é como "A" segundo uma razão. A existencia de "A" não pode segregar a causa de "A" ser tal como "A". Portanto, a própria causa é homogenea ao relativo. O causado é uma contra parte do causal. 
 
+Se existe algo, este algo necessariamente é autodeterminado, pois a existência de A pressupõe a determinação de A como A. Isto é, se existe absoluto, o absoluto é necessariamente causa de sua determinação e causa integral de si mesmo, seja em sua auto fundamentação, sua auto continuidade e sua auto determinação.
+
+Ao considerarmos que é impossível suspender o nada, até porque é um operador lógico, temos que a lógica aristotélica se curva neste momento rumo à sua abertura, rumo ao seu rompimento. O nada é suspenso quando deixa de ser um operador lógico, ou uma figuração da anulação do Ser, que é e não é ao mesmo tempo, e passa a compor o tecido do absoluto. Neste momento, ao considerar a curvatura da lógica para a impossibilidade, chegamos ao indiferenciado. O indiferenciado consome a lógica clássica, consome as leis conhecidas. O simples idealizar do que seja o indiferenciado soa o ilógico, o inimaginável.
+
+Porém, ao considerarmos que uma realidade auto fundamentada existe, é lógico que, para o absoluto, deve haver a consideração da impossibilidade. Sem considerá-la, não teríamos uma realidade auto justificada.
+
+Existindo A, A é como A; portanto, se é possível uma existência, o determinador dessa existência é parte essencial dessa existência. Temos que, para o relativo, há necessariamente o determinador. E o determinador é indiferenciado tal como o relativo, pois é conforme o ato de existir e não conforme uma pessoalidade determinada. Desta forma, temos uma existência pura e um determinador indiferenciado para essa existência pura.
+
 #### **O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
@@ -1816,14 +1824,14 @@ E nessa contemplação, a própria distinção entre forma e substância, entre 
 
 Se a causalidade nos remete necessariamente ao Incausado, e se a lógica (clássica ou superior) busca representá-lo, então ambas são **instrumentos cognitivos** que apontam para além de si mesmas. Porém, o que esta investigação metafísica revela de modo definitivo é que:
 
-## **1. O INCORPORÁVEL PRECEDE O CONCEBÍVEL**
+#### **O INCORPORÁVEL PRECEDE O CONCEBÍVEL**
 
 Tanto a lógica quanto a causalidade são ferramentas da razão que **pressupõem** uma realidade anterior a si mesmas:
 - A lógica pressupõe **inteligibilidade** (a capacidade de haver relação entre conceitos)
 - A causalidade pressupõe **existência** (a capacidade de haver relação entre entes)
 - Ambas pressupõem, em última instância, uma **Presença auto-subsistente** que as torna possíveis
 
-## **2. O ELO PERDIDO: A EXPERIÊNCIA DIRETA**
+#### **O ELO PERDIDO: A EXPERIÊNCIA DIRETA**
 
 Entre o pensamento lógico (representação formal) e o pensamento causal (busca de fundamentação) existe uma dimensão que nenhuma das duas alcança plenamente: **a experiência direta do Ser**. Esta experiência não é:
 - Um silogismo lógico (embora não o contradiga)
@@ -1832,7 +1840,7 @@ Entre o pensamento lógico (representação formal) e o pensamento causal (busca
 
 É antes a **apreensão imediata** de que "há Ser" - percepção esta que precede e fundamenta tanto a necessidade lógica quanto a investigação causal.
 
-## **3. A HIERARQUIA DAS CERVEZAS METAFÍSICAS**
+#### **A HIERARQUIA DAS CERVEZAS METAFÍSICAS**
 
 1. **Primeiro: A Presença** (ato puro de ser que se auto-fundamenta)
    - Não é demonstrada, mas **reconhecida**
@@ -1847,7 +1855,7 @@ Entre o pensamento lógico (representação formal) e o pensamento causal (busca
    - **Lógica**: sistema para pensar corretamente sobre a Presença
    - **Causalidade**: método para entender como a Presença se relaciona consigo mesma e com o contingente
 
-## **4. A SUPERAÇÃO DA DICOTOMIA**
+#### **A SUPERAÇÃO DA DICOTOMIA**
 
 A aparente oposição entre a afirmação ("a lógica aristotélica é mais fundamental") e a objeção ("sem causalidade não haveria entes para serem pensados") dissolve-se quando compreendemos que:
 
@@ -1859,7 +1867,7 @@ A aparente oposição entre a afirmação ("a lógica aristotélica é mais fund
 | **Ontológico contingente** (ordem do ser criado) | ✗ | ✓ - Sem causas não há entes contingentes |
 | **Ontológico absoluto** (ordem do Ser incriado) | **Fusão** - Lógica e causalidade são faces do mesmo Ato Puro | **Fusão** - O Ser é simultaneamente Razão e Fundamento |
 
-## **5. O VERDADEIRO "PESO DE VERACIDADE"**
+#### **O VERDADEIRO "PESO DE VERACIDADE"**
 
 Se ambos os conjuntos de princípios nascem da observação, sua diferença de "valia" não está em sua origem, mas em sua **proximidade com a Presença fundante**:
 
@@ -1873,7 +1881,7 @@ Se ambos os conjuntos de princípios nascem da observação, sua diferença de "
 
 Ambos são verdadeiros, mas de verdades de ordens diferentes: uma **verdade formal** (lógica) e uma **verdade existencial** (causal).
 
-## **6. CONCLUSÃO ULTIMA: DO PENSAMENTO À CONTEMPLAÇÃO**
+#### **CONCLUSÃO ULTIMA: DO PENSAMENTO À CONTEMPLAÇÃO**
 
 A *Suma Metafísica* aqui elaborada nos conduz a uma realização fundamental:
 
@@ -1926,7 +1934,7 @@ A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob 
 O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
 #### **O potencial de criar o homem**
-
+000
 > O homem é uma alma fundida a um corpo, livre sobre seus movimentos biológicos e pensamentos. A alma desencarnada é livre sobre si mesma, e a contra-parte máxima da determinação não é um corpo determinado, é o relativo, sendo este individual.
 
 > A morte é interpretada como uma falência, porém deve ser interpretada como uma libertação total, quando a liberdade do homem pode ser realmente operante, quando o homem opera diante de sua total liberdade. Se Deus criasse um corpo imortal, teria criado uma prisão terrível. A morte é a prova da liberdade de Deus, é a passagem para a completa liberdade, para o completo potencial de êxtase do homem, a completa realização de suas mais altas aspirações.
