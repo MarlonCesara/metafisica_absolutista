@@ -2664,7 +2664,15 @@ Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato 
 
 > O rompimento do Eu em direção ao outro se dá como a concordância do outro: uma vontade dominada e uma vontade dominante.
 
-> A transcendência do Eu é rumo a outro Eu, enquanto a retrocendência não tem nenhum rumo — não é uma diluição do Eu, e nem mesmo uma iluminação do Eu rumo ao Ser; mas é simplesmente o cessar do Eu, sem que este transcenda.
+> A transcendência do Eu é rumo a outro Eu, enquanto a retrocendência não tem nenhum rumo — não é uma diluição do Eu, nem mesmo uma iluminação do Eu rumo ao Ser; é simplesmente o cessar do Eu, sem que este transcenda.
+
+> Pela regressão da morte espiritual, o indiferenciamento não é alcançado, pois a alma não está diluída ou rompida, mas sucumbida ao fogo — à sua auto-supressão.
+
+> Ao unir-se com outra alma, a dualidade não é nem de si nem do outro: há um indiferenciamento na nulidade, que se afasta do eu individual em busca de uma definição. A consciência na dualidade se expande para outra definição de si — uma definição que engloba a ação conjunta de ambos, ou a determinação conjunta. O fogo da dualidade é um processo de consumir-se no outro, e a expansão, de transcender o próprio eu no outro.
+
+> Ao unir-se com o Ser, em plenitude, há também um fogo de êxtase da indiferenciação. A visão beatífica. 
+
+> O Espírito do Ser é indiferenciado; porém, não há o determinador indiferenciado. Há somente a indiferenciação pura no ato de existir. Ou seja, não há o determinador que transcendeu — há a própria transcendência somente.
 
 ##### **A Dialética da Autodeterminação e Transcendência**
 
