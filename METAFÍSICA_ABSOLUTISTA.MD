@@ -264,13 +264,20 @@ A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fo
 Reconhecer o incognoscível não invalida a investigação filosófica do Absoluto em seu âmbito cognoscível; antes, confere-lhe integridade epistemológica ao demarcar os limites intrínsecos da razão. Essa admissão não representa resignação, mas consciência metafísica: compreende-se que o entendimento sistemático, por mais abrangente, permanece aberto à transcendência — não como falha, mas como horizonte necessário do pensamento.
 
 ### **CAPÍTULO 5: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL**
-#### **5.1 – O Absoluto como Princípio Irredutível**
+
+#### **O Absoluto como Princípio Irredutível**
 
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise, o Absoluto se revela como:
 
 -   **O *Prius* Metafísico Incontornável:** A condição de possibilidade transcendental para toda cadeia causal e todo ente contingente.
 -   **O Solo Ontológico Integral:** Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível (limite intrínseco da realidade).
 -   **O Fim da Regressão Causal:** Onde toda busca por fundamentação encontra seu termo final necessário.
+
+#### **A causalidade da fundamentação e da identidade**
+
+Segue-se, necessariamente, que, se o absoluto existe, o absoluto é autodeterminante. Pois é necessário uma causa, não somente para a existência, como também para a identidade das coisas. Isto é, há o causador da existência e o causador da identidade da existência. Se A é A, A tem um motivo para existir A, tal como tem um motivo para existir como A e não B.
+
+Sendo assim, se o absoluto existe, é indissociável a sua existência da sua autodeterminação e autofundamentação. Quer dizer que há o agente da fundamentação, tal como há o agente da realização da identidade do que existe. Portanto, sendo o absoluto considerado existente, temos que, necessariamente, sendo o mesmo a totalidade, não haveria explicação para sua existência e identidade se não pela autojustificação.
 
 #### **A Natureza Autofundante do Absoluto**
 
