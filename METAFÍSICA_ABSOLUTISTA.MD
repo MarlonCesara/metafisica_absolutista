@@ -5586,7 +5586,7 @@ Não é dificil viver, não é dificil trabalhar, não é dificil ser feliz. Por
 
 A ação niilista aflige a normalidade, atormenta a paz do individuo humano, o niilista é um obsessor social, e, se com grande potencial financeiro, é um obsessor sobre o mundo exercendo forte pressão no status quo, querendo modificar o cenário da normalidade, desstituir de beleza e vivacidade a terra.
 
-> Oração pela Humanidade
+Oração pela Humanidade
 
 Ó Senhor, Deus dos exércitos, lançai, por misericórdia, Vossa divina luz sobre os inimigos da humanidade.
 Incendiai toda a terra com o fogo do Vosso amor, para que toda opressão sobre a pessoa humana,
