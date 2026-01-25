@@ -2650,33 +2650,106 @@ Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato 
 
 #### **Almogênese: A Ontologia da Transcendência e da União entre Almas**
 
-> Para a infinitude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus. Não é almogêneses, é expansão do eu no outro, ou expansão do eu em si. As infinitas consciências que o homem pode ser, ou o infinito campo no qual pode se expandir. Não há confinamentos para o eu. Nem para si no ser, para si no outro, e contrário a si. 
+Para a infinitude da alma não existe confinamentos, o eu não está confinado somente em si, tem uma infinitude de Eus, e uma vazão para fora de si que é para Deus. Não é almogêneses, é expansão do eu no outro, ou expansão do eu em si. As infinitas consciências que o homem pode ser, ou o infinito campo no qual pode se expandir. Não há confinamentos para o eu. Nem para si no ser, para si no outro, e contrário a si. Ao se expandir para o Ser fundamental, pode vazar de si mesmo para a totalidade e para a determinação fundamental de novos sous. Ao vazar para o outro, determina-se como uma vazão ao outro.
 
-> Ao se expandir para o Ser fundamental, pode vazar de si mesmo para a totalidade e para a determinação fundamental de novos sous. Ao vazar para o outro, determina-se como uma vazão ao outro.
+O sou tem vazão para a completa liberdade em todas as suas direções; seu dom fundamental é a vazão para a infinitude — de si, do Ser ou do outro. Não há confinamentos para o sou. A alma não se limita, não se confina. Ao unir-se a outra alma, temos um fogo que produz um ente relativo, semelhante a um anjo. Esse ente não é a alma A nem a alma B, é uma indefinição provocada pela consumação de ambos um no outro. Quando o eu de ambos torna-se relativo, isso dá vazão a um indiferenciamento da alma na dualidade. E o indiferenciamento tem uma visão distante do individual, extravasa o individual. O que extravasa o individual determina o individual — seja na esfera da liberdade rumo ao Ser, ou rumo ao outro. Com exceção da liberdade rumo à morte espiritual, pois não é um transcender, mas um retrocesso do Eu; não se vai para algum lugar, quer dizer que não se chega, dessa forma, a um nível elevado de consciência.
 
-> O sou tem vazão para a completa liberdade em todas as suas direções; seu dom fundamental é a vazão para a infinitude — de si, do Ser ou do outro. Não há confinamentos para o sou.
+O indiferenciamento na dualidade se resvala numa união que rompeu o eu, em função de um nós. Um rompimento temporal que pode ser infinito temporalmente. O rompimento do Eu em direção ao Ser, se dá em concordancia com a vontade reta do Ser. O rompimento do Eu em direção ao outro se dá como a concordância do outro: uma vontade dominada e uma vontade dominante. A transcendência do Eu é rumo a outro Eu, enquanto a retrocendência não tem nenhum rumo — não é uma diluição do Eu, nem mesmo uma iluminação do Eu rumo ao Ser; é simplesmente o cessar do Eu, sem que este transcenda. Pela regressão da morte espiritual, o indiferenciamento não é alcançado, pois a alma não está diluída ou rompida, mas sucumbida ao fogo — à sua auto-supressão.
 
-> A alma não se limita, não se confina. Ao unir-se a outra alma, temos um fogo que produz um ente relativo, semelhante a um anjo. Esse ente não é a alma A nem a alma B, é uma indefinição provocada pela consumação de ambos um no outro. Quando o eu de ambos torna-se relativo, isso dá vazão a um indiferenciamento da alma na dualidade. E o indiferenciamento tem uma visão distante do individual, extravasa o individual. O que extravasa o individual determina o individual — seja na esfera da liberdade rumo ao Ser, ou rumo ao outro. Com exceção da liberdade rumo à morte espiritual, pois não é um transcender, mas um retrocesso do Eu; não se vai para algum lugar, quer dizer que não se chega, dessa forma, a um nível elevado de consciência.
+Ao unir-se com outra alma, a dualidade não é nem de si nem do outro: há um indiferenciamento na nulidade, que se afasta do eu individual em busca de uma definição. A consciência na dualidade se expande para outra definição de si — uma definição que engloba a ação conjunta de ambos, ou a determinação conjunta. O fogo da dualidade é um processo de consumir-se no outro, e a expansão, de transcender o próprio eu no outro.
 
-> O indiferenciamento na dualidade se resvala numa união que rompeu o eu, em função de um nós. Um rompimento temporal que pode ser infinito temporalmente. 
+Ao unir-se com o Ser, em plenitude, há também um fogo de êxtase da indiferenciação. A visão beatífica. O Espírito do Ser é indiferenciado; porém, não há o determinador indiferenciado. Há somente a indiferenciação pura no ato de existir. Ou seja, não há o determinador que transcendeu — há a própria transcendência somente. A dualidade não atinge o estado quase indetectável do Eu, como o do indiferenciado — no sentido de Ser e não Ser —, mas no sentido de não ser a si e nem o outro. No nível do Ser, o indiferenciado é uma diluição na totalidade; enquanto, no outro, é uma diluição numa individualidade.
 
-> O rompimento do Eu em direção ao Ser, se dá em concordancia com a vontade reta do Ser. 
+O Ser transcende infinitamente a determinação, de forma que seu Eu seja indetectável, no sentido de ser altíssimo. Existe, mas é tão transcendente — seu teor de pureza é tamanho — que torna-se quase indetectável. No nível do Ser, a determinação de novos sous, ou seja, a transcendencia do eu para outro eu, é segundo a plenitude. A total transcendencia é um rendimento à plenitude. No nível da dualidade, a determinação do novo sou, ou seja, a trancendencia do eu para outro eu, é segundo a dualidade. A total transcendencia é uma entrega ao outro.
 
-> O rompimento do Eu em direção ao outro se dá como a concordância do outro: uma vontade dominada e uma vontade dominante.
+O estado relativo na dualidade gera um novo "sou", conforme a inclinação da dualidade. A diluição do eu explora as possibilidades sob a perspectiva da dualidade, ou seja, sob a determinação da dualidade. Enquanto a diluição no Ser explora as possibilidades na perspectiva da plenitude, pois a diluição do eu rumo ao Ser é a favor da liberdade completa — isto é, está a favor da plenitude e em conjunto com o eu da diluição.
 
-> A transcendência do Eu é rumo a outro Eu, enquanto a retrocendência não tem nenhum rumo — não é uma diluição do Eu, nem mesmo uma iluminação do Eu rumo ao Ser; é simplesmente o cessar do Eu, sem que este transcenda.
+#### **A Vazão Infinita do Eu**
+Para a infinitude da alma não existem confinamentos:
+*   O **Eu** não está confinado somente em si.
+*   Possui uma infinitude de Eus.
+*   Tem uma **vazão para fora de si**, que é para Deus.
 
-> Pela regressão da morte espiritual, o indiferenciamento não é alcançado, pois a alma não está diluída ou rompida, mas sucumbida ao fogo — à sua auto-supressão.
+Esta dinâmica não é almogênese (geração de novas almas a partir de outras), mas sim:
+1.  **Expansão do Eu no outro.**
+2.  **Expansão do Eu em si.**
 
-> Ao unir-se com outra alma, a dualidade não é nem de si nem do outro: há um indiferenciamento na nulidade, que se afasta do eu individual em busca de uma definição. A consciência na dualidade se expande para outra definição de si — uma definição que engloba a ação conjunta de ambos, ou a determinação conjunta. O fogo da dualidade é um processo de consumir-se no outro, e a expansão, de transcender o próprio eu no outro.
+Trata-se do infinito campo de consciências que o homem pode ser, ou o infinito campo no qual pode se expandir.
 
-> Ao unir-se com o Ser, em plenitude, há também um fogo de êxtase da indiferenciação. A visão beatífica. 
+**Conclusão:** Não há confinamentos para o Eu.
+*   Nem para si no Ser.
+*   Nem para si no outro.
+*   Nem contrário a si.
 
-> O Espírito do Ser é indiferenciado; porém, não há o determinador indiferenciado. Há somente a indiferenciação pura no ato de existir. Ou seja, não há o determinador que transcendeu — há a própria transcendência somente.
+#### **As Dimensões da Vazão e o Dom Fundamental**
+*   Ao **expandir-se para o Ser fundamental**, o Eu pode vazar de si mesmo:
+    *   Para a **totalidade**.
+    *   Para a **determinação fundamental de novos "sous"**.
+*   Ao **vazar para o outro**, determina-se como uma vazão ao outro.
 
-> A dualidade não atinge o estado quase indetectável do Eu, como o do indiferenciado — no sentido de Ser e não Ser —, mas no sentido de não ser a si e nem o outro. No nível do Ser, o indiferenciado é uma diluição na totalidade; enquanto, no outro, é uma diluição numa individualidade.
+**O Dom Fundamental:**
+O "sou" tem vazão para a **completa liberdade em todas as suas direções**. Seu dom fundamental é a **vazão para a infinitude**:
+*   De si.
+*   Do Ser.
+*   Do outro.
 
-> O Ser transcende infinitamente a determinação, de forma que seu Eu seja indetectável, no sentido de ser altíssimo. Existe, mas é tão transcendente — seu teor de pureza é tamanho — que torna-se quase indetectável.
+**Conclusão:** Não há confinamentos para o "sou".
+
+#### **A União entre Almas: O Fogo da Dualidade**
+A alma não se limita, não se confina. Ao unir-se a outra alma, temos um **fogo que produz um ente relativo**, semelhante a um anjo.
+*   Este ente **não é** a alma A nem a alma B.
+*   É uma **indefinição provocada pela consumação de ambos um no outro**.
+
+**Mecanismo:** Quando o Eu de ambos torna-se relativo, isso dá vazão a um **indiferenciamento da alma na dualidade**.
+*   Este indiferenciamento tem uma **visão distante do individual**.
+*   **Extravasa o individual**.
+
+O que extravasa o individual **determina o individual** — seja na esfera da liberdade rumo ao Ser, ou rumo ao outro. Com exceção da liberdade rumo à morte espiritual, pois esta não é um transcender, mas um retrocesso do Eu.
+
+#### **Os Três Rumos do Rompimento do Eu**
+
+| Rumo do Rompimento | Natureza | Resultado Ontológico |
+| :--- | :--- | :--- |
+| **1. Rumo ao Ser** | Em concordância com a **vontade reta do Ser**. | Diluição na totalidade (Visão Beatífica). |
+| **2. Rumo ao Outro** | Como **concordância do outro**: uma vontade dominada e uma vontade dominante. | Diluição numa individualidade dual (Fogo da Dualidade). |
+| **3. Retrocesso (Morte Espiritual)** | Não tem rumo. Não é diluição nem iluminação. | Cessar do Eu sem transcendência (Sucumbir ao fogo da auto-supressão). |
+
+**A Transcendência vs. A Retrocendência:**
+*   A **transcendência** do Eu é rumo a outro Eu (Ser ou outro indivíduo).
+*   A **retrocendência** não tem nenhum rumo. Pela regressão da morte espiritual, o indiferenciamento não é alcançado, pois a alma não está diluída ou rompida, mas **sucumbida**.
+
+#### **A Consciência na Dualidade e no Ser**
+**Na Dualidade (União com outra alma):**
+*   A dualidade não é nem de si nem do outro.
+*   Há um **indiferenciamento na nulidade**, que se afasta do Eu individual em busca de uma **nova definição**.
+*   A consciência se expande para uma definição que **engloba a ação ou determinação conjunta**.
+*   O **fogo da dualidade** é um processo de consumir-se no outro. A expansão é de **transcender o próprio Eu no outro**.
+
+**No Ser (União em plenitude):**
+*   Há um **fogo de êxtase da indiferenciação** (Visão Beatífica).
+*   O **Espírito do Ser é indiferenciado**. Porém, não há um "determinador indiferenciado". Há somente a **indiferenciação pura no ato de existir**.
+*   Não há "o determinador que transcendeu" — há a **própria transcendência**.
+
+#### **A Qualidade do Indiferenciado: Ser vs. Outro**
+
+| Nível | Qualidade do Indiferenciamento | Estado do Eu |
+| :--- | :--- | :--- |
+| **No Ser** | Diluição na **totalidade**. | **Indetectável** no sentido de ser altíssimo, transcendente, de pureza tamanha. Existe, mas é quase indetectável. |
+| **No Outro** | Diluição numa **individualidade (dual)**. | Não é a si e nem o outro. Não atinge o estado quase indetectável do Ser. |
+
+#### **A Determinação do Novo "Sou": Perspectiva da Plenitude vs. Perspectiva da Dualidade**
+**No Nível do Ser:**
+*   A determinação de novos "sous" (transcendência do Eu para outro Eu) é **segundo a plenitude**.
+*   A **total transcendência** é um rendimento à plenitude.
+
+**No Nível da Dualidade:**
+*   A determinação do novo "sou" é **segundo a dualidade**.
+*   A **total transcendência** é uma entrega ao outro.
+
+**Conclusão Ontológica:**
+*   O **estado relativo na dualidade** gera um novo "sou", conforme a **inclinação da dualidade**.
+*   A **diluição do Eu** explora as possibilidades sob a perspectiva da dualidade, ou seja, sob a **determinação da dualidade**.
+*   A **diluição no Ser** explora as possibilidades sob a **perspectiva da plenitude**, pois está a favor da **liberdade completa** e em conjunto com o Eu que se dilui.
 
 ##### **A Dialética da Autodeterminação e Transcendência**
 
