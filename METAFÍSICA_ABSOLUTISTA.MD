@@ -5606,7 +5606,7 @@ Arcanjos Miguel, Gabriel e Rafael, intercedei pela Terra no combate. Que nossos 
 
 Que as formas manipulatórias da humanidade sejam desmascaradas. Que os agentes que tramam contra a humanidade venham a público,
 que compareçam cobrindo seus rostos de vergonha. Que retirem da humanidade o peso que está somente em seus corações.
-Que o absurdo da miséria e da guerra deixe de atormentar a terra como tentativa de expressão destes.
+Que o absurdo da miséria e da guerra deixe de atormentar a terra como tentativa de expressão destes corações atribulados.
 
 Que aprendam o que é o amor, e que deixem a humanidade em paz, pois o que querem da humanidade está além do que a humanidade pode oferecer.
 Pois só Tu podes salvar o insalvável, podes realizar o impossível.
