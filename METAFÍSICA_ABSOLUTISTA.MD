@@ -1980,6 +1980,8 @@ O **Ser** representa o determinador puro, o fundamento indiferenciado da existê
 
 > O homem se difere de Deus em identidade, ainda que participe do ato de existir e de ser livre do qual o Ser participa; sua identidade é unidade, enquanto a identidade de Deus é transcendente à unidade. Quando pensamos de um ponto de vista fenomenológico, as coisas se dividem pelo tempo e pelo espaço; desta forma, discernimos se é o objeto A ou B por sua localização. Porém, do ponto de vista espiritual, os entes se diferem por identidade. Deus é a pureza total, é a própria transcendencia. Deus para o homem, é a vazão da alma rumo o infinito.
 
+> A pureza do Ser compara-se metaforicamente existir e não existir ao mesmo tempo. É uma ação sem o agente. O Espírito indiferenciado tem a ação instaurada, mas o agente é diluído na própria ação. Há o ato de agir, com uma determinação totalmente transparente, mas não ausente. Uma determinação perfeitamente expandida em si mesma, de forma a se dissolver de si rumo à plenitude. Em palavras mais representativas, a pureza praticamente transcende a dicotomia Ser e não Ser. É uma realidade invisível que age.
+
 ### **Distinção entre Ser e Sou**
 
 # Natureza da Determinação Ontológica
