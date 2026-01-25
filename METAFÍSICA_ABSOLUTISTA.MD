@@ -2664,6 +2664,8 @@ O Ser transcende infinitamente a determinação, de forma que seu Eu seja indete
 
 O estado relativo na dualidade gera um novo "sou", conforme a inclinação da dualidade. A diluição do eu explora as possibilidades sob a perspectiva da dualidade, ou seja, sob a determinação da dualidade. Enquanto a diluição no Ser explora as possibilidades na perspectiva da plenitude, pois a diluição do eu rumo ao Ser é a favor da liberdade completa — isto é, está a favor da plenitude e em conjunto com o eu da diluição.
 
+Em um estado relativo, o Eu ainda está operante como determinador do estado. Já na união, o próprio determinador se dilui. A vontade, portanto, é diluída na plenitude, ou na vontade do outro. Isto é, o eu se indiferencia, considerando que já tem o relativo à sua disposição.
+
 #### **A Vazão Infinita do Eu**
 Para a infinitude da alma não existem confinamentos:
 *   O **Eu** não está confinado somente em si.
