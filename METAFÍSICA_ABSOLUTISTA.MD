@@ -277,7 +277,9 @@ Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua p
 
 Segue-se, necessariamente, que, se o absoluto existe, o absoluto é autodeterminante. Pois é necessário uma causa, não somente para a existência, como também para a identidade das coisas. Isto é, há o causador da existência e o causador da identidade da existência. Se A é A, A tem um motivo para existir A, tal como tem um motivo para existir como A e não B.
 
-Sendo assim, se o absoluto existe, é indissociável a sua existência da sua autodeterminação e autofundamentação. Quer dizer que há o agente da fundamentação, tal como há o agente da realização da identidade do que existe. Portanto, sendo o absoluto considerado existente, temos que, necessariamente, sendo o mesmo a totalidade, não haveria explicação para sua existência e identidade se não pela autojustificação.
+Sendo assim, se o absoluto existe, é indissociável a causa da sua autodeterminação e autofundamentação. Quer dizer que há o agente da fundamentação, tal como há o agente da realização da identidade do que existe. Portanto, sendo o absoluto considerado existente, temos que, necessariamente, sendo o mesmo a totalidade, não haveria explicação para sua existência e identidade se não pela autojustificação.
+
+É necessário que exista uma explicação para sua existência, e para sua auto determinação. isto é, o absoluto existe e é o que é.  Estando justificada um determinador necessaário, segue-se que este necessita também ser incausado. Desta forma, temos a necessidade de um absuluto auto causal tanto em sua auto determinação quanto em sua existência.
 
 #### **A Natureza Autofundante do Absoluto**
 
