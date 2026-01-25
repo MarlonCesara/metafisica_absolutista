@@ -2674,6 +2674,10 @@ Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato 
 
 > O Espírito do Ser é indiferenciado; porém, não há o determinador indiferenciado. Há somente a indiferenciação pura no ato de existir. Ou seja, não há o determinador que transcendeu — há a própria transcendência somente.
 
+> A dualidade não atinge o estado quase indetectável do Eu, como o do indiferenciado — no sentido de Ser e não Ser —, mas no sentido de não ser a si e nem o outro. No nível do Ser, o indiferenciado é uma diluição na totalidade; enquanto, no outro, é uma diluição numa individualidade.
+
+> O Ser transcende infinitamente a determinação, de forma que seu Eu seja indetectável, no sentido de ser altíssimo. Existe, mas é tão transcendente — seu teor de pureza é tamanho — que torna-se quase indetectável.
+
 ##### **A Dialética da Autodeterminação e Transcendência**
 
 -   **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.
