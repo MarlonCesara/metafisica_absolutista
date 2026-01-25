@@ -6064,6 +6064,8 @@ A cúpula niilista é especialista em manipulação, sabe jogar país contra pa�
 
 O niilista deleita-se da guerra como se fosse um conteúdo peculiar, como se visse tudo o que sempre quis, com olhos de gula e loucura, como se todos se sentissem palhaços como ele, como se seu despropósito interior, que soa jocoso, fosse espelhado para fora dele, de forma que, por um breve momento, se sentisse de alguma forma sábio ou rico, pois, de certa forma, causou o caos dentro de si em seu exterior, como forma de se autovalidar.
 
+A cúpula niilista precisa que exista fome, faz com que a humanidade gaste com fatores desnecessários, faz com que a energia social de construção se dissolva em atividades inúteis quando a subsistência deveria ganhar primazia.
+
 ### **A porta do céu é estreita**
 
 Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilionários, que muitas vezes causam o mal, não possuem a mesma habilidade. O povo humilde e sofredor, que é oprimido, detém uma habilidade infinita e a mais fundamental de todas: o dom de viver.
