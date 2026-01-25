@@ -2734,8 +2734,8 @@ O que extravasa o individual **determina o individual** — seja na esfera da li
 
 | Nível | Qualidade do Indiferenciamento | Estado do Eu |
 | :--- | :--- | :--- |
-| **No Ser** | Diluição na **totalidade**. | **Indetectável** no sentido de ser altíssimo, transcendente, de pureza tamanha. Existe, mas é quase indetectável. |
-| **No Outro** | Diluição numa **individualidade (dual)**. | Não é a si e nem o outro. Não atinge o estado quase indetectável do Ser. |
+| **No Ser** | Diluição na **totalidade**. | **Indetectável** no sentido de ser altíssimo, transcendente, de pureza tamanha. Existe de forma indetectável. |
+| **No Outro** | Diluição numa **individualidade (dual)**. | Não é a si e nem o outro. Rumo a um estado indetectável do eu na dualidade. |
 
 #### **A Determinação do Novo "Sou": Perspectiva da Plenitude vs. Perspectiva da Dualidade**
 **No Nível do Ser:**
