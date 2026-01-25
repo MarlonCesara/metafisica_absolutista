@@ -2658,6 +2658,16 @@ Não há fusão de uma unidade para uma unidade, portanto, não haveria de fato 
 
 ##### **A Dialética da Autodeterminação e Transcendência**
 
+> A alma não se limita, não se confina. Ao unir-se a outra alma, temos um fogo que produz um ente relativo, semelhante a um anjo. Esse ente não é a alma A nem a alma B, é uma indefinição provocada pela consumação de ambos um no outro. Quando o eu de ambos torna-se relativo, isso dá vazão a um indiferenciamento da alma na dualidade. E o indiferenciamento tem uma visão distante do individual, extravasa o individual. O que extravasa o individual determina o individual — seja na esfera da liberdade rumo ao Ser, ou rumo ao outro. Com exceção da liberdade rumo à morte espiritual, pois não é um transcender, mas um retrocesso do Eu; não se vai para algum lugar, quer dizer que não se chega, dessa forma, a um nível elevado de consciência.
+
+> O indiferenciamento na dualidade se resvala numa união que rompeu o eu, em função de um nós. Um rompimento temporal que pode ser infinito temporalmente. 
+
+> O rompimento do Eu em direção ao Ser, se dá em concordancia com a vontade reta do Ser. 
+
+> O rompimento do Eu em direção ao outro se dá como a concordância do outro: uma vontade dominada e uma vontade dominante.
+
+> A transcendência do Eu é rumo a outro Eu, enquanto a retrocendência não tem nenhum rumo — não é uma diluição do Eu, e nem mesmo uma iluminação do Eu rumo ao Ser; mas é simplesmente o cessar do Eu, sem que este transcenda.
+
 -   **Autodeterminação como Ato Criador:** Ao definir-se como "sou" ou como uma unidade, o Ser atualiza seu potencial transcendente - uma capacidade intrínseca de superar seus limites.
 -   **Determinação como Limitação**: Ao fixar-se como ente singular, o Ser restringe seu acesso à **indeterminação pura** (fonte da transcendência).
 -   **O "Sou" Incompleto**: Se o indivíduo ("sou") não realiza sua transcendência, permanece fragmentado, incapaz de integrar-se ao Todo.
@@ -6337,3 +6347,5 @@ E o que é a matrix? A matrix é a construção mais cruel da cúpula. A cúpula
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
+
+
