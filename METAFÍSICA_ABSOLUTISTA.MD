@@ -4712,6 +4712,10 @@ O niilista escraviza porque deseja expor o algoz que habita em seu interior, vol
 
 O indivíduo niilista observa o outro de semblante sereno e imagina uma longa jornada que teria de percorrer para convencer o próprio coração a abandonar o ódio. Então, é invadido por um ressentimento profundo ante o descanso alheio — o outro lhe parece habitar um oásis, enquanto ele carrega o mundo nos ombros: o peso de uma consciência que o assombra e angustia dia e noite, da qual não encontra repouso. O niilista não suporta contemplar a paz daquele que se reconciliou com a vida. Não tolera que o outro descanse, usufrua de bem-estar ou experimente alegria. Busca privar o outro do que possui, na tentativa de igualar o ânimo alheio ao seu próprio cansaço existencial — fruto direto de sua experiência niilista.
 
+#### **O subjulgar da inteligência do outro**
+
+O niilista está constantemente tentando confirmar sua inteligência, tenta ludibriar o outro, como se fosse uma expressão do que considera ser uma postura tola e esdrúxula que tem diante das coisas. Para o niilista, o niilismo é uma prova da total falta de inteligência; sua auto visão é desvalidada como sã e inteligente por si mesmo. Desta forma, alivia ao niilista enganar ou fazer com que o outro tenha alguma desvantagem para expressar seu intento.
+
 #### **A Necessidade de Espalhar a Escassez Existencial**
 
 O niilista deseja tornar a vida do outro tão escassa, tão vazia de alegrias e realizações, quanto a sua própria. Vê no infortúnio alheio um reflexo da condenação que ele antevê na eternidade. Almeja aliviar o peso de seu coração depositando-o sobre o outro. Não se conforma com a serenidade alheia, com um sorriso fácil ou com o repouso tranquilo do próximo. Necessita, de forma compulsiva, arrancar-lhe o descanso e a paz.
