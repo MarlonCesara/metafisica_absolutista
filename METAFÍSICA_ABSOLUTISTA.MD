@@ -5580,6 +5580,39 @@ Peço discrição absoluta: que meu nome e a origem deste texto não sejam divul
 
 Não receberei nada por este projeto, e minha recompensa será saber que foram felizes. Lutem a boa luta. E me permitam permanecer anônimo, como um espectador à distância de tudo o que virá a acontecer. Em meu íntimo, me aquietarei com a serena satisfação de um sentimento que só eu conhecerei.
 
+#### **A humanidade atormentada pelo niilista**
+
+Não é dificil viver, não é dificil trabalhar, não é dificil ser feliz. Porém, quando o individuo é niilista, cria-se uma dificuldade artificial de viver, que o individuo quer transmitir ao outro por meio da fome, miséria, trabalhos pesados e guerra. O niilista é como um artita famoso que precisa se expressar, que precisa gritar para o mundo o que é a miséria.
+
+A ação niilista aflige a normalidade, atormenta a paz do individuo humano, o niilista é um obsessor social, e, se com grande potencial financeiro, é um obsessor sobre o mundo exercendo forte pressão no status quo, querendo modificar o cenário da normalidade, desstituir de beleza e vivacidade a terra.
+
+> Oração pela Humanidade
+
+Ó Senhor, Deus dos exércitos, lançai, por misericórdia, Vossa divina luz sobre os inimigos da humanidade.
+Incendiai toda a terra com o fogo do Vosso amor, para que toda opressão sobre a pessoa humana,
+todo infligidor da paz mundial, todo agente causador da fome, escravidão, guerra e miséria, caia por terra.
+
+Que os que provocam a confusão mundial se encham de vergonha e caiam em prantos por terra, reconhecendo sua perversidade e insanidade.
+
+Que os que exercem domínio sejam destituídos de seu poder e que apareçam diante de Vossa luz para evidenciar seus delitos.
+Que a humanidade reconheça os agentes da destruição e não se volte contra si mesma em guerras e holocaustos.
+
+Que os inimigos, obsessores e tramadores do mal coletivo envergonhem sua face e sejam destituídos de suas máscaras.
+Que a humanidade deixe de sofrer tramas malignas. 
+
+Que o agente do mal caia de joelhos aos Vossos pés.
+
+Arcanjos Miguel, Gabriel e Rafael, intercedei pela Terra no combate. Que nossos inimigos caiam por terra.
+
+Que as formas manipulatórias da humanidade sejam desmascaradas. Que os agentes que tramam contra a humanidade venham a público,
+que compareçam cobrindo seus rostos de vergonha. Que retirem da humanidade o peso que está somente em seus corações.
+Que o absurdo da miséria e da guerra deixe de atormentar a terra como tentativa de expressão destes.
+
+Que aprendam o que é o amor, e que deixem a humanidade em paz, pois o que querem da humanidade está além do que a humanidade pode oferecer.
+Pois só Tu podes salvar o insalvável, podes realizar o impossível.
+
+Amém.
+
 ### **CAPÍTULO 45: O NIILISMO INSTITUCIONALIZADO E SEU COLAPSO**
 
 #### **O Niilismo Moderno nas Grandes Organizações: Gênese e Colapso**
