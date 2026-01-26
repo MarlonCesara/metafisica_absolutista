@@ -3427,6 +3427,18 @@ Portanto, a humanidade, na qual simbolicamente foram lançados, representa um en
 
 Ao passo que Gênesis adverte da morte espiritual, usa a mesma alegoria para maliciar e tornar perigosa e atrativa a transcendência do eu. Então, desta alegoria nasce uma pluralidade de significados que podemos explorar mais adiante, em formas de alegorias.
 
+#### **A morte não disruptiva de Adão e Eva**
+
+Adão e Eva, não teriam sofrido a mesma morte que os levaria ao inferno. Isto é, teriam sofrido uma transcendencia mortal, nos entido de que, não deixaram de existir, porém, teriam ficado indetectaveis como uma dualidade.
+
+Primeiramente teriam realizado o processo de homogeneidade do eu. Teriam alcançado um eu relativo na dualidade. 
+Uma reltividade dual, implica em determinação segundo a genetica da dualidade, ou seja, as possibilidades estão para a dualidade e não para a totalidade.
+
+Essa dualidade teria sofrido um rompimento total, de forma que, o fruto causava uma diluição do eu da dualidade, uma transcendencia que não aniquilava mas causava uma pane definitiva no ser da dualidade de forma representativa.
+
+> A morte é ficar nu. E isso é herdado de Adão e Eva, que queriam transcender de forma figurativa, para Deus e para a dualidade.
+
+
 #### **A metafísica posterior: depois do mundo**
 
 O pós-mundo é uma construção individual e também coletiva. Ao imaginarmos a aspiração do homem, podemos traçar uma linha intuitiva. Ao imaginarmos um mundo renovado, com o espírito evidenciado de certa forma num corpo espiritual, comandado pela mente: um mundo de novas possibilidades, parecido com este, mas renovado e ampliado. Este seria um cenário projetável interessante.
