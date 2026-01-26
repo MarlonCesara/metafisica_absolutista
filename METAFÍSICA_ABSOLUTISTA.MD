@@ -5306,6 +5306,10 @@ O niilista projeta, em pequenas conquistas — não exatamente em riquezas —, 
 
 O niilista ainda é capaz de comemorar a destruição que causa em prol de suas conquistas materiais, que visam dissociá-lo ilusoriamente de sua postura interior, conferindo-lhe sensação de autovalor e realização. Para o niilista, por vezes, nada é mais importante que sua renúncia ao niilismo, e, por isto, depende de forma irracional de vitórias artificiais que simulem uma vitória interior. É capaz de passar por cima de tudo e de todos, pois o que está em jogo, para o niilista, seria sua própria vida, ou a ilusão mental de que se adequou à aceitação dessa vida.
 
+### **O constante medo da morte e a fuga do sentido**
+
+O niilista quer acreditar que a vida não tem um sentido exterior ao biológico; portanto, os afetos verdadeiros, os momentos de reflexão, de contemplação, tudo isso confere medo e assombro ao niilista, que é obrigado a encarar o sentido, ao passo que sua posição interior está dissociada do sentido natural pela eternidade. Desta forma, o niilista constantemente tem medo da morte e das consequências de sua posição.
+
 ### **A projeção do vilão niilista**
 
 O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
