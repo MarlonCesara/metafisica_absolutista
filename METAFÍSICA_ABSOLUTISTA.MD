@@ -5534,6 +5534,14 @@ No entanto, o niilismo é uma fortaleza de defesas. Esse lapso de clareza é fre
 
 Portanto, essa clareza não é o fim, mas o verdadeiro começo. É o colapso da persona niilista e o vislumbre frágil e assustador da pessoa humana que sempre esteve lá, por baixo de todas as camadas de defesa e autossabotagem. É o momento em que a busca desesperada por um "valor artificial" pode, finalmente, ceder lugar à descoberta gradual do valor real que nunca foi perdido, apenas esquecido.
 
+### **A ânsia por ser odiado**
+
+O niilista por vezes pratica atos horríveis ou merecedores de raiva geral, por querer a sensação de ser refugado, de ser excluído, exonerado; isso coage com a sua postura interior. O deixa desconfortável ser amado pelas pessoas, pois isto confere beleza e sentido à sua vida. O amor das pessoas, principalmente das mais preciosas para o niilista, o afugenta de sua decisão interior, o faz julgar um absurdo sua postura e chorar. O niilista quer se desfazer de seus relacionamentos, quer um motivo para pensar que o mundo é vazio de sentido e que não existe propósito no mundo.
+
+O indivíduo se irrita quando lhe conferem sentido à sua vida, pois tem o firme propósito de sua finitude; está obcecado pela morte e é conformado com essa intenção, de maneira que, quando lhe se aproxima o amor e o afeto, o indivíduo se enche de ira e atenta contra o afeto alheio.
+
+Há uma ânsia também por ser excluído, isolado e rodeado somente de pessoas que coagem com seu propósito interior. Pois estar em contato com pessoas que querem desfigurar o sentido das coisas coage com seu intento, de forma a não produzir colisões com o mesmo.
+
 ### **A desfiguração do sentido**
 
 Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
