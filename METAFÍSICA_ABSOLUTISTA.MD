@@ -3597,6 +3597,8 @@ Aqueles homens estavam presos na sombra do paraíso — não no paraíso em si. 
 
 > As almas do purgatório conservam um certo ódio, obsessões, perseguições, desejo de punir e até um estilo de vida imprudente. Porém, se diferem muito das almas mais afligidas pelo ódio, essas têm um comportamento mais frio, mais direcionado ao autoesquecimento, não conservam nenhum tipo de caridade, essas têm um nível de empatia extremamente mais diminuído, um nível de vícios muito alto. Têm sintomas evidentes.
 
+> As almas do purgatório tem obsessão em vingança de tal forma que pudem a si mesmas para tal.
+
 Os pequenos homens de argila moviam-se em padrões circulares, emitindo murmúrios que ecoavam como preces esquecidas. Seus passos marcavam a areia luminosa com sulcos que se apagavam logo em seguida, como se o próprio solo se recusasse a guardar memória de seu trânsito. Seus rostos, esculpidos em expressões perenes de angústia, contemplavam um horizonte invisível - um tempo que fluía sem direção, uma eternidade que não conseguiam habitar plenamente.
 
 O filósofo observou que seus olhos, embora abertos, pareciam velados por um véu de esquecimento. Eles sabiam que existiam, mas haviam perdido a conexão com o onde e o quando de sua existência. Cada movimento carregava o peso de uma dúvida primordial, como crianças perdidas num bosque infinito que temem cada sombra porque esqueceram como enxergar a luz — uma imagem da *ignorância* resultante do pecado original.
