@@ -279,7 +279,7 @@ Dado que o Absoluto existe, segue-se, por necessidade lógica, que ele é autode
 
 Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundamentação são indissociáveis. Isto significa que há um princípio de sua fundação, assim como há um princípio de sua determinação identitária. Portanto, sendo o Absoluto existente e, por definição, a totalidade, não pode haver explicação para sua existência e sua identidade a não ser em si mesmo: ele é, necessariamente, autojustificado.
 
-É imperativo que exista uma razão para sua existência e para sua autodeterminação. O Absoluto existe e é o que é. Tendo sido estabelecida a necessidade de um determinador último, infere-se que este determinador deve, ele próprio, ser incausado. Assim, chega-se à conclusão inevitável de um Absoluto auto-causado, tanto em sua existência quanto em sua essência.
+É imperativo que exista uma razão para sua existência e para sua identidade. O Absoluto existe e é o que é. Tendo sido estabelecida a necessidade de um determinador último, infere-se que este determinador deve, ele próprio, ser incausado. Assim, chega-se à conclusão inevitável de um Absoluto auto-causado, tanto em sua existência quanto em sua essência.
 
 #### **A Natureza Autofundante do Absoluto**
 
