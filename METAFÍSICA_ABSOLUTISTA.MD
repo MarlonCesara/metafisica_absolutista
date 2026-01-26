@@ -3607,10 +3607,6 @@ O filósofo os observava com compaixão silenciosa. Aproximou-se de um deles, es
 E então ele entendeu:
 Aqueles homens estavam presos na sombra do paraíso — não no paraíso em si. Viviam num reflexo pálido, numa recordação fragmentada de algo sagrado, mas inalcançável para quem já não sente. O barro nos olhos não era barro comum — era o esquecimento da essência, o peso das formas sem espírito. Eles haviam se fechado à transparência do mundo, à música do vento, ao canto das coisas vivas. Eles estavam ali, mas não estavam realmente ali. E o sábio, mesmo entre eles, caminhava sozinho — uma alegoria do estado das almas no purgatório, que já estão salvas mas não ainda plenamente purificadas (cf. CIC 1030-1032).
 
-> As almas do purgatório conservam um certo ódio, obsessões, perseguições, desejo de punir e até um estilo de vida imprudente. Porém, se diferem muito das almas mais afligidas pelo ódio, essas têm um comportamento mais frio, mais direcionado ao autoesquecimento, não conservam nenhum tipo de caridade, essas têm um nível de empatia extremamente mais diminuído, um nível de vícios muito alto. Têm sintomas evidentes.
-
-> As almas do purgatório tem obsessão em vingança de tal forma que pudem a si mesmas para tal.
-
 Os pequenos homens de argila moviam-se em padrões circulares, emitindo murmúrios que ecoavam como preces esquecidas. Seus passos marcavam a areia luminosa com sulcos que se apagavam logo em seguida, como se o próprio solo se recusasse a guardar memória de seu trânsito. Seus rostos, esculpidos em expressões perenes de angústia, contemplavam um horizonte invisível - um tempo que fluía sem direção, uma eternidade que não conseguiam habitar plenamente.
 
 O filósofo observou que seus olhos, embora abertos, pareciam velados por um véu de esquecimento. Eles sabiam que existiam, mas haviam perdido a conexão com o onde e o quando de sua existência. Cada movimento carregava o peso de uma dúvida primordial, como crianças perdidas num bosque infinito que temem cada sombra porque esqueceram como enxergar a luz — uma imagem da *ignorância* resultante do pecado original.
@@ -4447,7 +4443,15 @@ O niilista se aflige com o breve momento de vida do corpo humano; sente que ser�
 
 O niilista carrega grande carga de frustração pela repressão; suas atitudes o frustram, sua recusa por suas aspirações lhe causa grande confusão, aflição e frustração. Portanto, o niilista por vezes necessita de motivos para ofender, agredir fisicamente ou verbalmente as pessoas, ou até pratica autossabotagem como descarga de frustração. Como exemplo, podemos citar indivíduos que se envolvem em brigas por motivos extrúdulos, ou até que descarregam ira no próprio corpo por meio de alterações corporais das quais se arrependem posteriormente.
 
+#### **A diferença entre o obsessor e o niilista**
 
+As almas do purgatório conservam um certo ódio, obsessões, perseguições, desejo de punir e até um estilo de vida imprudente. Porém, se diferem muito das almas mais afligidas pelo ódio, essas têm um comportamento mais frio, mais direcionado ao autoesquecimento, não conservam nenhum tipo de caridade, essas têm um nível de empatia extremamente mais diminuído, um nível de vícios muito alto. Têm sintomas evidentes.
+
+As almas do purgatório tem obsessão em vingança de tal forma que pudem a si mesmas para tal.
+
+O niilista se diverge do obsessor de tal forma que seja possível definir o niilista com um ódio inequívoco, enraizado no antro do seu ser por todas as coisas; é um ódio generalizado que culmina no ódio por tudo. Que culmina no desafio, ou no chamado por uma guerra, até mesmo para com o próprio Deus. O ódio do niilista não tem um foco; o niilista não busca desenraizar sua ira na vingança. Seu ódio atinge uma abrangência total, a ponto de fadá-lo à perdição de sua vida como descarga deste ódio íntimo. O ódio obsessor é um desconsolo, enquanto o ódio niilista é um sentimento de querer desferir uma faca contra seu próprio coração; é um ódio instaurado e aparentemente sem foco. Seu ódio extravasa por meio de zombaria de tudo, desafio ao próprio Deus e uma sensação de grandeza ilusória, como quem está acima de tudo.
+
+O niilista vive como se não houvesse amanhã, não por querer aproveitar a vida, mas como um luto por somente poder aproveitar o tempo que dispõe na terra, em função do seu ódio irrevogável. Portanto, tende a uma obsessão por festas, bebedeiras exageradas, como se não houvesse mais tempo para aproveitar senão neste mundo. Não é um proveito sadio, mas um proveito desesperado, que faz qualquer coisa para festejar ou tirar algum deleite, até mesmo vender todas as suas economias.
 
 #### **A Essência da Escolha Niilista**
 
