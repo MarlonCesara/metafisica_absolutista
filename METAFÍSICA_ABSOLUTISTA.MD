@@ -6530,3 +6530,19 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 > O nada, não é nada, é um ato da anulação ontológica. 
 > O nada não é uma determinação no Absoluto, isto é, é uma definição que não diz respeito a porque o Absoluto é nada e não outra coisa. Portanto, o nada, ainda que destituido de ontologia, e referido a um estado, é algo.
 > O ato de personalização não surge no ato atemporal de plenitude do Espírito. A circularidade do Espírito emgloba ele mesmo, é completa do ato de Ser. O ato de Ser necessita ser pleno para que se realize o Ser. Aquilo que é, é integralmente. Isto quer dizer que, aquilo que existe, executa sua tarefa de existir integralmente para se considerar existente. Desta forma, temos que, a plenitude agia com o Espírito fundamentador. Tal como a plenitude também poderia agir com o personalizador. Sendo uma ponta de interseção entre ambos, o espirito funamentador e o personalizador.
+> Genes mistura algo lindo como a transcendencia do eu, a tentativa de um casal de se unir para sempre, como uma amortização da noticia grave do suicidio espiritual. Como se quisesse dissassociar a auto violencia com uma referencia ao nascimento, como se colocando um ciculo de vivificação, na auto anulação, pudesse ser um eufemismo para a informação da morte eterna.
+> O fruto que adão e eva comeu era oferecido com duas modalidades, a informação da possibilidade da transcendencia. E a informação da possibilidade da morte eterna. O fruto, portanto é representado por uma ruptura do corpo, que os protegia contra o suicidio, e também os celava contra o encontro de almas. 
+> O diabo é representado como um tentador que oferece uma ferramente de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboriado no sentido do ato de ódio, a total ausencia de qualquer amor num coração que não enxerga outra coisa se não a vingança, que nem mesmo dá um nome para seu ódio. E torna-se seu próprio ódio.
+> Deixe que os mortos enterrem seus mortos, quer dizer que, o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbitrio, porém só nasce quando ama. Então isso é interpretado como um renascimento. 
+> O homem quando não escolhe em favor da vida, foi livre ao ter escolhido, mas não foi verdadeiramente livre.
+
+> O ódio do niilista é gigantesto, é um ódio inarravel. Uma escuridão em seu coração, uma total falta de amor. 
+
+> Quando o individuo opta pela plenitude, se dilui no Espirito de plenitude e adquire a vivacidade em Deus. 
+
+> A transcendencia causa uma alma viva, porem não vivificada pelo Espirito.
+
+> O ódio do niilista se canaliza na sua auto anulação. Não tem exatamente um projeto para fora de si, um alvo ou objetivo, ou até mesmo uma obsessão. O obsessivo causa um comportamento aparentemente mais visivel de revolta do que o niilista, o niilista tem um ódio intrusivo, e nao expressivo. Seu ódio se findou em tudo, não simplesmente em uma causa. Seu odio não tem de que, ou de quem, não tem um alvo. O ódio é gerenalizado, é concentrado num ponto unico: o coraçao de Deus. O niilista quer atingir o apicde da sua vingança. O niilista intenta contra seu próprio nome. 
+
+
+
