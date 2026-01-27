@@ -1,4 +1,10 @@
-# METAFÍSICA ABSOLUTISTA
+# A SUMA METAFÍSICA
+
+A Suma Metafísica é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
+
+Trata-se de uma fundamentação puramente racional que, partindo dos princípios mais elementares do pensamento (a lógica clássica), expande-se progressivamente através da ontologia, da causalidade e da noção de Absoluto, até alcançar — pela força intrínseca da razão filosófica — as portas da revelação trinitária.
+
+Este percurso não é uma negação da fé, mas uma demonstração de que a estrutura mais profunda da realidade, quando perscrutada com rigor lógico-metafísico, aponta necessariamente para um horizonte que a razão pode vislumbrar, mas não esgotar: o Mistério do Deus uno e trino.
 
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
@@ -6516,3 +6522,11 @@ Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de se
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
 
 
+
+
+
+#Rascunhos
+
+> O nada, não é nada, é um ato da anulação ontológica. 
+> O nada não é uma determinação no Absoluto, isto é, é uma definição que não diz respeito a porque o Absoluto é nada e não outra coisa. Portanto, o nada, ainda que destituido de ontologia, e referido a um estado, é algo.
+> O ato de personalização não surge no ato atemporal de plenitude do Espírito. A circularidade do Espírito emgloba ele mesmo, é completa do ato de Ser. O ato de Ser necessita ser pleno para que se realize o Ser. Aquilo que é, é integralmente. Isto quer dizer que, aquilo que existe, executa sua tarefa de existir integralmente para se considerar existente. Desta forma, temos que, a plenitude agia com o Espírito fundamentador. Tal como a plenitude também poderia agir com o personalizador. Sendo uma ponta de interseção entre ambos, o espirito funamentador e o personalizador.
