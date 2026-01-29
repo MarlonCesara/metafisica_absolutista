@@ -6569,3 +6569,17 @@ Trata-se de uma fundamentação puramente racional que, partindo dos princípios
 
 Este percurso não é uma negação da fé, mas uma demonstração de que a estrutura mais profunda da realidade, quando perscrutada com rigor lógico-metafísico, aponta necessariamente para um horizonte que a razão pode vislumbrar, mas não esgotar: o Mistério do Deus uno e trino.
 
+
+
+> Deus é tudo, porém, transcende tudo. O espírito cria o mundo mas está alem do mundo. Cria o homem mas transcende o homem. Deus transcende tudo.
+
+> Se Deus é invisivel ele pode compor todas as coisas e ainda assim ser tudo, preservando a identidade das coisas. Preserva a identidade e o ser das coisas como delas. Ao passo que é invisivel. A invisibilidade compoe tudo, ao passo que não provoca alteração em tudo. Deus tem a translucidez perfeita. A pureza total. Sua identidade é indiferenciada, não se opoe a identidade das coisas ou ao ser das coisas.
+
+> O relativo da dualidade ainda é relativo para as outras almas relativas.
+
+> As almas no relativo sao relativas umas as outras, isto é, não é necessario a determinação de uma separação.
+
+
+
+
+
