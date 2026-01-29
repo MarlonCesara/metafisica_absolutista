@@ -1,5 +1,25 @@
 # METAFÍSICA ABSOLUTISTA
 
+# **SUMÁRIO**
+
+## **O SISTEMA METAFÍSICO ABSOLUTISTA: UMA ARQUITETURA LÓGICA FECHADA**
+
+Este tratado apresenta um sistema metafísico completo e autoconsistente – uma estrutura lógica fechada que não admite erros, pois cada passo decorre necessariamente do anterior com rigor demonstrativo. Trata-se de uma edificação conceitual exata, onde as conclusões não são meras especulações, mas derivações inevitáveis dos próprios fundamentos da racionalidade.
+
+### **A Proposta: Reconstruir a Realidade a Partir de Princípios Irrefutáveis**
+
+A investigação aqui empreendida visa estruturar a realidade em sua totalidade, transcendendo os limites da física para alcançar os alicerces ontológicos últimos. Para tanto, parte-se dos conceitos-base da lógica clássica – não para repeti-los acriticamente, mas para aprimorá-los, completando-os com o **Princípio da Não-Disformidade**, que resolve a lacuna temporal que Aristóteles deixou em aberto. Do mesmo modo, o princípio da causalidade é radicalmente ampliado, desdobrando-se em quatro dimensões causais que explicam tanto a existência quanto a identidade, tanto no plano atemporal quanto no temporal.
+
+### **O Método: Exatidão e Necessidade Lógica**
+
+Este não é um exercício de opinião filosófica. Trata-se de uma **investigação exata**, na qual cada afirmação encontra sua justificação em princípios anteriores, formando uma cadeia dedutiva que conduz a uma única conclusão lógica possível. Não há atalhos, nem ambiguidades, nem conclusões alternativas: o sistema se fecha sobre si mesmo com a precisão de uma demonstração matemática, mostrando que a própria estrutura do pensamento válido nos conduz inexoravelmente a determinados horizontes metafísicos.
+
+### **O Resultado: Um Caminho Necessário para o Absoluto**
+
+Ao seguir este percurso, o leitor não encontrará múltiplas interpretações, mas um **caminho correto único** – aquele traçado pela própria natureza da lógica quando aplicada às questões últimas da existência. A conclusão não é uma entre muitas possíveis; é a **única conclusão lógica** que se mantém de pé quando todos os princípios são levados até suas últimas consequências. O sistema mostra como, a partir da correlação entre o *logos* do pensamento e o *logos* da realidade, somos necessariamente conduzidos à noção de um Absoluto autoconsciente, pessoal e trino – não como artigo de fé, mas como corolário lógico do próprio ato de pensar com rigor.
+
+Esta obra é, portanto, mais que uma teoria: é a **exposição sistemática das condições de possibilidade de toda realidade**, construída com as ferramentas mais precisas da razão e levada até onde apenas a razão pode ir – às portas do Mistério que a transcende.
+
 Este é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
 
 Trata-se de uma fundamentação puramente racional que, partindo dos princípios mais elementares do pensamento (a lógica clássica), expande-se progressivamente através da ontologia, da causalidade e da noção de Absoluto, até alcançar — pela força intrínseca da razão filosófica — as portas da revelação trinitária.
