@@ -20,12 +20,6 @@ Ao seguir este percurso, o leitor não encontrará múltiplas interpretações, 
 
 Esta obra é, portanto, mais que uma teoria: é a **exposição sistemática das condições de possibilidade de toda realidade**, construída com as ferramentas mais precisas da razão e levada até onde apenas a razão pode ir – às portas do Mistério que a transcende.
 
-Este é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
-
-Trata-se de uma fundamentação puramente racional que, partindo dos princípios mais elementares do pensamento (a lógica clássica), expande-se progressivamente através da ontologia, da causalidade e da noção de Absoluto, até alcançar — pela força intrínseca da razão filosófica — as portas da revelação trinitária.
-
-Este percurso não é uma negação da fé, mas uma demonstração de que a estrutura mais profunda da realidade, quando perscrutada com rigor lógico-metafísico, aponta necessariamente para um horizonte que a razão pode vislumbrar, mas não esgotar: o Mistério do Deus uno e trino.
-
 ### **CAPÍTULO 1: OS ALICERCES DA LÓGICA**
 
 #### **O Contexto Histórico e a Necessidade de um Organon**
@@ -6567,4 +6561,11 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 > A pobreza, miseria, quando aceita, é praticamente um bem feito a postura niilista, no sentido de que, grandes organizações estão num estado emocional mais confortavel com sua postura interior devido a aceitação da pobreza por muitos. Isto, é, se há grandes diferenças sociais no mundo, há pessoas problemáticas, pessoas que não estão usando seu senso de humanidade, pessoas que estão fora de seu senso de normalidade. A humanidade, leva em seus ombos, o peso do niiilismo de muitos. Não é dificil viver, trabalhar, o trabalho é entender e ldiar com quem está tendo dificuldade de sustentar sua própria liberdade. Viver, no sentido de sobreviver é muito facil, a complexidade do mundo esta nos que estão em crise existencial, nos que acham dificil mudar de postura. A pobreza é uma forma de sustentar o peso emocional, o decarregar de emoções do niilista.
 
 > Quando se aproxima do niilista tentando estabelecer laços de amizade ou aquilo que agregue sentido e proposito a sua vida, ele desfere muitos palavroes, como se quisesse afastar de si qualquer proximidade verdadeira, ou distorce a intenção do individuo em sua mente, sexualizando tudo ou tornando tudo passivel de interesse economico. Caso se tente aproximar do niilista de forma a agrada-lo com uma amizade, ele começa a ofender de todas as formas ou fazer algo para afastar dele vinculos verdadeiros. Mantem uma certa distancia do que considera verdadeiro, inventando brigas, pretextos para quebrar a harmonia ou para se afastar do convivio pessoal.
+
+
+>Este é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
+
+Trata-se de uma fundamentação puramente racional que, partindo dos princípios mais elementares do pensamento (a lógica clássica), expande-se progressivamente através da ontologia, da causalidade e da noção de Absoluto, até alcançar — pela força intrínseca da razão filosófica — as portas da revelação trinitária.
+
+Este percurso não é uma negação da fé, mas uma demonstração de que a estrutura mais profunda da realidade, quando perscrutada com rigor lógico-metafísico, aponta necessariamente para um horizonte que a razão pode vislumbrar, mas não esgotar: o Mistério do Deus uno e trino.
 
