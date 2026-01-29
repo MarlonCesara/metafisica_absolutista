@@ -6585,7 +6585,7 @@ Este percurso não é uma negação da fé, mas uma demonstração de que a estr
 
 > As almas no relativo sao relativas umas as outras, isto é, não é necessario a determinação de uma separação.
 
-
+> O start da ação do relativo acontece no tempo da plenitude, o relativo, portanto, sendo pleno, poderia não se determinar, e ser integralmente relaativo, porem, no tempo da plenitude, e sob a persona da plenitude, o tempo é determinado pelo espírito, no sentido de ser ebservado, conhecido e personalizavel.
 
 
 
