@@ -1,4 +1,4 @@
-# AMETAFÍSICA ABSOLUTISTA
+# METAFÍSICA ABSOLUTISTA
 
 Este é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
 
