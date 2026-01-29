@@ -1,6 +1,6 @@
-# A SUMA METAFÍSICA
+# AMETAFÍSICA ABSOLUTISTA
 
-A Suma Metafísica é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
+Este é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
 
 Trata-se de uma fundamentação puramente racional que, partindo dos princípios mais elementares do pensamento (a lógica clássica), expande-se progressivamente através da ontologia, da causalidade e da noção de Absoluto, até alcançar — pela força intrínseca da razão filosófica — as portas da revelação trinitária.
 
