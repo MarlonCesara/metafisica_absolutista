@@ -6587,5 +6587,8 @@ Este percurso não é uma negação da fé, mas uma demonstração de que a estr
 
 > O start da ação do relativo acontece no tempo da plenitude, o relativo, portanto, sendo pleno, poderia não se determinar, e ser integralmente relaativo, porem, no tempo da plenitude, e sob a persona da plenitude, o tempo é determinado pelo espírito, no sentido de ser ebservado, conhecido e personalizavel.
 
+> As possibilidades suspensas não necessariamente são determinadas, isto quer dizer que, o que é suspenso está indiferenciado. A autodeterminação quer dizer, uma configuração para relativo, seja determinado ou não determinado. Se determinado, o é no tempo da plenitude.
+
+>descubra a miseria entre os ricos
 
 
