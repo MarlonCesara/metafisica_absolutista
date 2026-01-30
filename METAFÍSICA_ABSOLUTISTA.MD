@@ -6622,8 +6622,7 @@ Para agir sobre o indiferenciado não se pode ser um determinador. Deveria haver
 
 Portanto, Deus, quando causa a si mesmo, se eleva ao infinito. Havendo, uma realidade ultima inancançavel, que determina inexplicavelmente pela lógica, no relativo. Um Deus temporal inancançãvel ate para si mesmo, que transende a si num ciculo temporal causal a todo instante.
 
-Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo.
-
+Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. Deus está alem do tempo e da atemporalidade, transcende a si mesmo infinitamente. A realidade inancancável pela razão dá a vazão ao ato mesmo dentro da plenitude atemporal. Pois, Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, rumo a uma realidade que extrapola o absoluto cognocível e a noção de temporal e atemporal.
 
 
 
