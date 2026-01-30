@@ -6591,4 +6591,5 @@ Este percurso não é uma negação da fé, mas uma demonstração de que a estr
 
 >descubra a miseria entre os ricos
 
+> Quando a inocencia do povo acabar sobre a mentalidade niilsita, as coisas podem ser diferentes.
 
