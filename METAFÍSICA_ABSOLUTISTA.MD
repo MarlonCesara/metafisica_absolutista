@@ -6593,3 +6593,25 @@ Este percurso não é uma negação da fé, mas uma demonstração de que a estr
 
 > Quando a inocencia do povo acabar sobre a mentalidade niilsita, as coisas podem ser diferentes.
 
+> A pureza de Deus transcende qualquer identidade do sou, ainda que esteja em estado relativo, é um relativo individual. Deus é indiferenciado.
+
+## objeção: Quando é o tempo do Espírito, se o Espírito precisa ter sido puro em sua auto determinação? Isto quer dizer que o universo mancharia sua pureza, então o tempo não pode ser dado como origem na plenitude, mas em um momento posterior a plenitude.
+
+> Quando Deus auto determina temos o fundamentador e o espírito perfeito, o fundamentador tem a ação da força, a ação de nutrir o absoluto com a sustentação do Ser. Sua ação no temporal é estatica, sua ação é temporal. Porém, o espírito perfeito, determina o campo das possibilidades tal como potencial ou atualizado. O espírito é vivo no tempo. O espírito tem todo o seu tempo determinado.  Portanto o indiferenciado, não pode conter uma determinação inicial. O espírito, independente de se dar integralmente como é, relativo e indiferenciado, ele se atualiza para alem de si mesmo. Sobre o relativo fundamental há ainda uma determinação operante, que pode modificar cenários. O relativo não equivale ao espírito, no sentido de que, o tempo está consumado nas possibilidades, podem o Espírito é vivo e sempre operante. Não há uma pausa para o espírito. Ainda no relativo o Espírito é vivo e se determina relativo. Desta forma o salto temporal, do relativo para a determinação é segundo sua plenitude, ou seja, sua persona. 
+
+Desta forma temos que, o tempo está sob determinação do espírito e não o espírito sobre determinação do tempo do relativo. O tempo do relativo, se estivesse sob determinação de si mesmo, estaria consumado e não aceitaria atualizações. Porém, tendo como determinante o Espírito, o tempo ainda que consumado se atualiza segundo o espírito e não segundo sua consumação.
+
+Então há tres níveis de realidade, o plano horizontal temporal infinito, o plano vertical consumado do relativo. Porém, este campo de possibilidades sofre uma linha de atualziação quando munido de auto determinação. Sendo portanto, que, o relativo possui uma dimensão temporal, atemporal, e auto determinante. A auto determinação incide sobre o atemporal e temporal. De forma que, o relativo é o produto de sua autodeterminação e não do relativo. 
+
+Desta forma, o Espírito, ainda que num tempo inicial de atemporalidade, e ainda que dispondo de todo o tempo consumado, que é o campo das possibilidades. Tem uma linha temporal diferente do tempo que pode startar do ponto de vista fenomenico. O espírito pode dar start ao tempo fenomenico, pois não parte de um estado atemporal, o tempo em si ainda existe, de forma que, a ação do espírito de Ser, é indiferenciada, no que tange a se dar sem atualizações.
+
+Isto é, o universo mancharia a pureza inicial o relativo e o espírito indiferenciado. Porém, A linha tempora do relativo ainda existe.
+
+
+
+
+
+
+
+
+
