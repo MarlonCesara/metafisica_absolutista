@@ -6607,10 +6607,22 @@ Desta forma, o Espírito, ainda que num tempo inicial de atemporalidade, e ainda
 
 Isto é, o universo mancharia a pureza inicial o relativo e o espírito indiferenciado. Porém, A linha tempora do relativo ainda existe.
 
+> Deus tinha o proposito de criar o homem pois isso se relaciona com sua plenitude. O proposito nasceu com Deus. Porém, o momento temporal determinado da criaçãosurge em qual tempo, sendo que somente a plenitude pura se dá como tal, sem nenhuma determinação previa?
 
 
+Se Deus transcende infinitamente a identidade e o seu Ser. Numa linha vertical. Isto quer dizer que há mais principios lógicos. Um principio diagonal. Que não é a identidade e nem a existencia. O existir e a identidade não permitem decisões em sua esfera. A decisão de criação deveria ser no ato único. 
 
+Mesmo que se ache o start, como se define a constante ação desde o momento da plenitude? Se o indiferenciado se da como tal?
 
+O salto atemporal para uma determinação temporal ainda continua um mistério.
+
+Tende ao infinito uma regressão, se algo agiu sobre o tempo do espirito e este algo porta o tempo, e outro algo agiu sobre o atemporal, e regride infniitamente o tempo primeiro que teve a primeira ação. Ou seja, o indeterminado precisa de uma determinaçaõ em si, e essa determinaçaõ precisa ser indeterminada. Ao levarmos a uma escala sempre anterior, temos a inexistencia do determinador e sua ação sobre o indiferenciado.
+
+Para agir sobre o indiferenciado não se pode ser um determinador. Deveria haver um tempo anterior ao proprio relativo e o Espírito. Isto quer dizer que, deveria haver uma realidade espiritual. Um Deus sobre o próprio Deus, e neste deveria haver uma temporalidade, então o indiferenciado ficaria intacto mesmo que determinado. E nesse Deus sobre Deus, que se estende ao infinnito, até ser totalmente puro. E ter a ação do determinador, ainda que não exista.
+
+Portanto, Deus, quando causa a si mesmo, se eleva ao infinito. Havendo, uma realidade ultima inancançavel, que determina inexplicavelmente pela lógica, no relativo. Um Deus temporal inancançãvel ate para si mesmo, que transende a si num ciculo temporal causal a todo instante.
+
+Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo.
 
 
 
