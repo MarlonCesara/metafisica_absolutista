@@ -2036,6 +2036,8 @@ Se o relativo não pode se autodeterminar, não é realmente autocausal. Desta f
 
 **Exemplo ilustrativo:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou. Pois o observador é indiferenciado, sua observação coincide com seu ser. Isto quer dizer que o observador observa sem observar.
 
+**Exemplo ilustrativo:** Deus é causa de si, porém, nunca alcança o Deus primeiro que causou o Deus segundo, e essa circularidade se estende ao infinito, ao ponto de termos o infinito do Espírito.
+
 O Espírito como Observador absoluto:
 - Não tem um "primeiro momento" de observação
 - Sua observação é constitutiva de seu ser
