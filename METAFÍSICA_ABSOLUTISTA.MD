@@ -6628,4 +6628,5 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 A circularidade do Espíritot emporal, não é uma circularidade morta, ela é viva. Isso faz com que, o Espírito possa agir sob qualquer tempo. A vivacidade do Espírito confere uma camada não linear sobre o tempo. Isto qure dizer que, o tempo tende a sua consumação. Porém, ao adicionarmos vida a essa circularidade, ainda que ela se dê como consumada, a partir da consumação...Então há 3 caracteristicas, a atemporalidade, a temporalidade, e a auto causalidade, que confere uma dimensão exterior ao tempo. Se relativo não pode se alto determinar, não é realmente auto causal. Desta forma, a auto causalidade não de desloca da determinação temporal. A partir do momento atempora, da aparição do absoluto, o teor auto causal, ou seja, o Espírito observador confere uma linha perpendicular ao tempo consumado. 
 
+Ex: O tempo passou, porem o observador ainda continua o obervando. E o observador não precisa obervar para obervar, por isso, o observador sempre observou. Pois o observaodor é indiferenciado.
 
