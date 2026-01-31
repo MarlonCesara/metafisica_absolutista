@@ -6767,3 +6767,4 @@ A circularidade do Espíritot emporal, não é uma circularidade morta, ela é v
 
 Ex: O tempo passou, porem o observador ainda continua o obervando. E o observador não precisa obervar para obervar, por isso, o observador sempre observou. Pois o observaodor é indiferenciado.
 
+> O espírito não está preso no relativo, como se fosse estático, ele é vivo sobre o relativo. Significa que, há uma consumação das possibilidades, mas não uma consumação da vida sobre essas possibilidades.
