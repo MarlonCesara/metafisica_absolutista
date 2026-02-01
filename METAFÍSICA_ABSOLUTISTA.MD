@@ -1285,6 +1285,50 @@ A tentativa de fundamentar a realidade revela que:
 -   O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o não fenômeno**.
 -   Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### **O Tempo e o Relativo**
 
 O futuro, do ponto de vista de um observador temporal, é uma suspensão temporal das possibilidades ainda não vividas ou testemunhadas. Dessa forma, o Espírito, sendo a consumação do processo determinístico, ainda assim se constitui como base causal de toda determinação.
@@ -1378,7 +1422,120 @@ A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que t
 
 Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
 
+#### **A circularidade viva do Espírito**
+
+A circularidade do Espírito temporal não é uma circularidade morta; ela é viva. Isso faz com que o Espírito possa agir sob qualquer tempo. A vivacidade do Espírito confere uma camada não linear sobre o tempo. Isto quer dizer que o tempo tende à sua consumação. Porém, ao adicionarmos vida a essa circularidade, ainda que ela se dê como consumada, a partir da consumação, então há três características: a atemporalidade, a temporalidade e a autocausalidade, que confere uma dimensão exterior ao tempo.
+
+Se o relativo não pode se autodeterminar, não é realmente autocausal. Desta forma, a autocausalidade não se desloca da determinação temporal. A partir do momento atemporal, da aparição do Absoluto, o teor autocausal, ou seja, o Espírito observador, confere uma linha perpendicular ao tempo consumado.
+
+**Ex:** O tempo passou, porém o observador ainda continua o observando. E o observador não precisa observar para observar, por isso, o observador sempre observou, pois o observador é indiferenciado.
+
+> O Espírito não está preso no relativo como se fosse estático; ele é vivo sobre o relativo. Significa que há uma consumação das possibilidades, mas não uma consumação da vida sobre essas possibilidades.
+
+> *“Todas as coisas foram feitas por meio dele, e sem ele nada foi feito do que foi feito.”*
+
 > O absoluto é pleno em si, em sua integridade; é personificável no tempo, na vivência do tempo. Porém, em sua plenitude relativa, é pleno. Na determinação, é personalizável.
+
+Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. Deste modo, temos uma consumação não estática ou pré-formatada, mas viva em si e em qualquer instante em si. Desta forma, temos uma realidade atemporal viva, na qual o tempo está consumado, mas é autodeterminado e livre em si como determinador. Desta forma, advém uma realidade atemporal frutífera, um solo fértil para o start do fenômeno no tempo do Espírito.
+
+Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o start fenomênico.
+
+Ex: O tempo do Espírito não é uma linha reta consumada; é uma linha reta que é viva em cada centímetro de extensão. Então, a decisão pode partir em qualquer tempo do Espírito, ou seja, em qualquer centímetro dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria start, pois ela já estaria em um momento de consumação atemporal estático.
+
+### **17.5 O "Start" Fenomênico**
+
+O Espírito, mesmo dispondo de todo o tempo consumado (campo das possibilidades), possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é indiferenciada no que tange a se dar sem atualizações, mas não é estática.
+
+O universo "mancharia" a pureza inicial somente se concebêssemos o relativo e o Espírito indiferenciado como realidades estáticas e fechadas. Porém, a linha temporal do relativo existe como *potência ativa*, não como completude inerte.
+
+### **17.6 O Propósito Divino e o Momento da Criação**
+
+> "Deus tinha o propósito de criar o homem pois isso se relaciona com sua plenitude. O propósito nasceu com Deus. Porém, o momento temporal determinado da criação surge em qual tempo, sendo que somente a plenitude pura se dá como tal, sem nenhuma determinação prévia?"
+
+Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
+
+### **17.7 A Regressão Infinita e a Solução Transcendente**
+
+Mesmo que se encontre o "start", como se define a constante ação desde o momento da plenitude? Se o indiferenciado se dá como tal, como explicar a transição para a determinação sem violar sua pureza?
+
+Tende ao infinito uma regressão: se algo agiu sobre o tempo do Espírito e este algo porta o tempo, e outro algo agiu sobre o atemporal, regride infinitamente o tempo primeiro que teve a primeira ação. Ou seja, o indeterminado precisa de uma determinação em si, e essa determinação precisa ser indeterminada. Ao levarmos a uma escala sempre anterior, temos a inexistência do determinador e sua ação sobre o indiferenciado.
+
+Para agir sobre o indiferenciado não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio relativo e ao Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Deus — um "Deus sobre Deus" — e nesta deveria haver uma temporalidade, mantendo o indiferenciado intacto mesmo quando determinado. E nesse "Deus sobre Deus", que se estende ao infinito, até ser totalmente puro, teria a ação do determinador, ainda que não exista como entidade separada.
+
+### **17.8 A Autocausalidade como Elevação Infinita**
+
+Portanto, Deus, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no relativo. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante.
+
+Assim, **o tempo do Espírito pode determinar sobre a plenitude do relativo** precisamente porque Deus está além do tempo e da atemporalidade, transcendendo a si mesmo infinitamente. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Pois Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, rumo a uma realidade que extrapola o absoluto cognoscível e a noção de temporal e atemporal.
+
+### **17.9 A Circularidade Viva do Espírito Temporal**
+
+A circularidade do Espírito temporal não é uma circularidade morta ou estática — **ela é viva**. Isso faz com que o Espírito possa agir sob qualquer tempo. A vivacidade do Espírito confere uma camada não-linear sobre o tempo. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela.
+
+Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumada —, a partir da consumação emerge uma nova dimensão. Há, portanto, três características fundamentais:
+
+1.  **Atemporalidade** (consumação do tempo)
+2.  **Temporalidade** (sucessão de momentos)
+3.  **Autocausalidade** (que confere uma dimensão *exterior* ao tempo)
+
+Se o relativo não pode se autodeterminar, não é realmente autocausal. Desta forma, a autocausalidade não se desloca da determinação temporal. A partir do momento atemporal da aparição do Absoluto, o teor autocausal — isto é, o Espírito observador — confere uma linha *perpendicular* ao tempo consumado.
+
+### **17.10 O Observador Eterno: Chave da Solução**
+
+**Exemplo ilustrativo:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou. Pois o observador é indiferenciado, sua observação coincide com seu ser. Isto quer dizer que o observador observa sem observar.
+
+**Exemplo ilustrativo:** Deus é causa de si, porém, nunca alcança o Deus primeiro que causou o Deus segundo, e essa circularidade se estende ao infinito, ao ponto de termos o infinito do Espírito.
+
+O Espírito como Observador absoluto:
+- Não tem um "primeiro momento" de observação
+- Sua observação é constitutiva de seu ser
+- Observa o tempo consumado *a partir de uma posição que transcende a linearidade temporal*
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### **O primeiro ato do Espírito personalizador**
 
@@ -1388,7 +1545,6 @@ O Espírito plenificador se dissolve na completude, pois gera em favor da perfei
 
 Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, no sentido de que agia antes por intermédio de seu Espírito perfeito, mas teve sua ação direta concretizada a partir de um momento único posterior à criação. Assim, não houve um processo de criação da alma de Jesus diretamente do relativo, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora. O que houve foi uma ativação da ação personalizadora da terceira pessoa da Trindade. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo, ao passo que também sempre existiu atemporalmente.
 
-> *“Todas as coisas foram feitas por meio dele, e sem ele nada foi feito do que foi feito.”*
 
 ##### **A Dualidade do Conhecimento Divino**
 
@@ -6763,8 +6919,4 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 
 
-A circularidade do Espíritot emporal, não é uma circularidade morta, ela é viva. Isso faz com que, o Espírito possa agir sob qualquer tempo. A vivacidade do Espírito confere uma camada não linear sobre o tempo. Isto qure dizer que, o tempo tende a sua consumação. Porém, ao adicionarmos vida a essa circularidade, ainda que ela se dê como consumada, a partir da consumação...Então há 3 caracteristicas, a atemporalidade, a temporalidade, e a auto causalidade, que confere uma dimensão exterior ao tempo. Se relativo não pode se alto determinar, não é realmente auto causal. Desta forma, a auto causalidade não de desloca da determinação temporal. A partir do momento atempora, da aparição do absoluto, o teor auto causal, ou seja, o Espírito observador confere uma linha perpendicular ao tempo consumado. 
 
-Ex: O tempo passou, porem o observador ainda continua o obervando. E o observador não precisa obervar para obervar, por isso, o observador sempre observou. Pois o observaodor é indiferenciado.
-
-> O espírito não está preso no relativo, como se fosse estático, ele é vivo sobre o relativo. Significa que, há uma consumação das possibilidades, mas não uma consumação da vida sobre essas possibilidades.
