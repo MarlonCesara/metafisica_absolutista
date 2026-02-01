@@ -1599,7 +1599,9 @@ Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. 
 
 Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o start fenomênico.
 
-**Exemplo:** O tempo do Espírito não é uma linha reta consumada; é uma linha reta que é viva em cada centímetro de extensão. Então, a decisão pode partir em qualquer tempo do Espírito, ou seja, em qualquer centímetro dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria start, pois ela já estaria em um momento de consumação atemporal estático.
+**Exemplo 1:** O tempo do Espírito não é uma linha reta consumada; é uma linha reta que é viva em cada centímetro de extensão. Então, a decisão pode partir em qualquer tempo do Espírito, ou seja, em qualquer centímetro dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria start, pois ela já estaria em um momento de consumação atemporal estático.
+
+**Exemplo 2:**Ao imaginarmos que o tempo do Espírito é como o tempo fenomênico, onde o tempo passado está consumado e o tempo futuro ainda suspenso nas possibilidades, temos um tempo linear, no qual o observador age no momento presente. Porém, ao não termos o tempo pelo ângulo linear de um fluxo presente, podemos abrir a liberdade do observador para toda a linha temporal, e não somente para o observador que navega no tempo. Se o observador navegante está consumado, não há mais o observador potencial de ação; porém, se o observador está navegando em toda a extensão temporal e a observando por inteiro, o observador tem uma linha temporal infinita para determinar o ponto de start do fenômeno e do tempo linear.
 
 ### 7. O "Start" Fenomênico e o Propósito Divino
 
