@@ -270,8 +270,6 @@ O sistema resultante é mais completo e rigoroso que qualquer um desses preceden
 ---
 ---
 
-# METAFÍSICA ABSOLUTISTA
-
 ## PROPOSIÇÃO III: DO ABSOLUTO COMO HORIZONTE METAFÍSICO
 
 ### 1. Introdução: A Exigência de um Fundamento Absoluto
@@ -463,8 +461,6 @@ O sistema resultante não é eclético, mas **sistemático**: demonstra como est
 ---
 ---
 ---
-
-# METAFÍSICA ABSOLUTISTA
 
 ## PROPOSIÇÃO IV: A CAUSALIDADE DO ABSOLUTO E A NATUREZA DO ESPÍRITO
 
