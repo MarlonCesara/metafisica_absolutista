@@ -6917,4 +6917,4 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 
 
-
+> Ao imaginarmos que o tempo do Espírito é como o tempo fenomênico, onde o tempo passado está consumado e o tempo futuro ainda suspenso nas possibilidades, temos um tempo linear, no qual o observador age no momento presente. Porém, ao não termos o tempo pelo ângulo linear de um fluxo presente, podemos abrir a liberdade do observador para toda a linha temporal, e não somente para o observador que navega no tempo. Se o observador navegante está consumado, não há mais o observador potencial de ação; porém, se o observador está navegando em toda a extensão temporal e a observando por inteiro, o observador tem uma linha temporal infinita para determinar o ponto de start do fenômeno e do tempo linear.
