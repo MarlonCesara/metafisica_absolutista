@@ -1,7 +1,5 @@
 # METAFÍSICA ABSOLUTISTA
 
-### **SUMÁRIO**
-
 ## **O SISTEMA METAFÍSICO ABSOLUTISTA: UMA ARQUITETURA LÓGICA FECHADA**
 
 Este tratado apresenta um sistema metafísico completo e autoconsistente – uma estrutura lógica fechada que não admite erros, pois cada passo decorre necessariamente do anterior com rigor demonstrativo. Trata-se de uma edificação conceitual exata, onde as conclusões não são meras especulações, mas derivações inevitáveis dos próprios fundamentos da racionalidade.
