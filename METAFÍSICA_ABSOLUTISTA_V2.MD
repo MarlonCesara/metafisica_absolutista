@@ -1073,15 +1073,8 @@ O resultado é uma **demonstração metafísica** de que a Trindade não é um a
 Esta fundamentação não pretende esgotar o mistério trinitário (que permanece mistério), mas mostrar que este mistério é **racionalmente coerente** e **metafisicamente necessário** a partir dos princípios estabelecidos nas proposições anteriores.
 
 ---
-
-**PRÓXIMO:** [Proposição VII: Da Economia Trinitária à Criação dos "Sous"](#)
-
 ---
-*Sistema Metafísico Absolutista • Proposição VI • CC BY-SA 4.0*
-
-
-
-
+---
 
 
 
