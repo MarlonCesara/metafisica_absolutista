@@ -7154,7 +7154,7 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 
 > O niilista tenta ser odiado para chamar atenção, tenta ser uma pessoa ruim na tentativa de distorcer o sentido humano, da pessoa humana. Tenta ser odiado jogando o peso do que não pode perdoar nos outros.
-
+O niilista quer que o outro confirme o que ele quer fazer consigo, quer que o outro o rejeite, quer passar com um fantasma, desapercebido, sem afeto, sem olharaes, sem ninguém lhe conservando admiração, afeto e respeito. O niilista se enraivece quando não consegue fazer com que o outro o odeie, o afastamento do outro é uma forma de ele executar seu plano sem intromissoes, de segregar qualqeur traço de otimismo e esperança que o outro consiga lhe passar, é uma postura agressiva, de uma decisão calada e inequivoca de se auto anular que produz esse comportamento do afastamento geral de si. O niilista provoca intrigas, picuinhas, de forma que os outros desenvolvam grande antipatia dele, para que não tenha relações de amizade genuinas.
 
 
 
