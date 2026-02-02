@@ -1019,6 +1019,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 
 
+### **PROPOSIÇÃO VII: A ESTRUTURA DA AUTO CAUSALIDADE**
 
 #### **As Três Dimensões da Ação do Espírito**
 
