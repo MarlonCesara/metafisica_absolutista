@@ -7167,4 +7167,4 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 
 
-> O espirito tem uma circularidade viva, cada elo formado da circularidade tem o mesmo potencial de vida e decisão do que todos os outros elos da infinidade temporal. Isto quer dizer que, o elo conscienciente não esta reestrito a um elo unico, ou seja, uma temporalidade unica tal como neste plano. O elo do espirito esta consciente de todo o tempo ao mesmo tempo em que no seu ato temporal.
+> O espirito tem uma circularidade viva, cada elo formado da circularidade tem o mesmo potencial de vida e decisão do que todos os outros elos da infinidade temporal. Isto quer dizer que, o elo conscienciente não esta reestrito a um elo unico, ou seja, uma temporalidade unica tal como neste plano. O elo do espirito esta consciente de todo o tempo ao mesmo tempo em que no seu ato temporal. É possível o espírito causar do atemporal, pois o temporal é o atemporal consumado.
