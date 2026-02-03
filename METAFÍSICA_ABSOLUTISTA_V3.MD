@@ -918,10 +918,6 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 
 
-
-
-### **CAPÍTULO 7: A ESTRUTURA DA AÇÃO DIVINA**
-
 ### **PROPOSIÇÃO VII: A ESTRUTURA DA AUTO CAUSALIDADE**
 
 #### **As Três Dimensões da Ação do Espírito**
@@ -1604,7 +1600,23 @@ O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenci
 -   **A determinação é imanente e relativa** — há uma "externalidade" indiferenciada e uma internalidade testemunhada no mesmo ato. A totalidade autodetermina-se internamente em relação ao observador, revelando-se em seu referencial como um ato de progressão e definição contínua.
 
 
+### **17.3 A Distinção Crucial: Relativo vs. Espírito**
 
+O relativo não equivale ao Espírito. Enquanto o tempo está consumado nas possibilidades (relativo), o Espírito é vivo e sempre operante. Não há pausa para o Espírito. Ainda no relativo, o Espírito é vivo e se determina *como* relativo. Desta forma, o salto temporal — do relativo para a determinação — é segundo sua plenitude, isto é, segundo sua persona.
+
+Temos, portanto, que **o tempo está sob determinação do Espírito**, e não o Espírito sob determinação do tempo do relativo. Se o tempo do relativo estivesse sob determinação de si mesmo, estaria consumado e não aceitaria atualizações. Porém, tendo como determinante o Espírito, o tempo — ainda que consumado — se atualiza segundo o Espírito e não segundo sua consumação.
+
+### **17.4 Os Três Níveis da Realidade Divina**
+
+Esta análise revela uma estrutura tríplice:
+
+| **Nível**             | **Natureza**                         | **Relação com o Tempo**              |
+|-----------------------|--------------------------------------|--------------------------------------|
+| **1. Plano Horizontal** | Temporal infinito (fenomênico)       | Sucessão linear de eventos           |
+| **2. Plano Vertical**   | Consumado do relativo (possibilidades) | Ato único que contém todas as linhas temporais |
+| **3. Plano Diagonal**   | Auto-determinação viva do Espírito    | Transcende e atualiza ambos os planos |
+
+O relativo é o produto da autodeterminação do Espírito, e não o contrário. A autodeterminação incide sobre o atemporal e o temporal simultaneamente.
 
 
 
@@ -1691,64 +1703,6 @@ Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade
 
 
 
-#### **O salto atemporal**
-
-É possível transitar da vivência atemporal para a vivência temporal, e da temporal para a atemporal, considerando que a experiência da infinitude pode ser alcançada no tempo e retornar ao tempo partindo de um estado atemporal. Ao dividirmos a completude em suspensão da vivência da determinação dentro de um determinado tempo, temos um atemporal determinado. Ou seja, temos uma determinação do observador que pode se fazer temporal ou atemporal, porém em duas linhas diferentes.
-
-O observador não pode anteceder escolhas vivenciadas ainda não tomadas, mas pode vivenciar todas as possibilidades simultaneamente que poderão ser dadas para o relativo e para atos futuros. Isto é, temos então uma antecipação, não da decisão, mas das possibilidades. Isto quer dizer que se tem a experiência da suspensão das possibilidades, e não das possibilidades determinadas através da suspensão.
-
-Isto significa que, se existirem dois observadores que se determinam no indiferenciado, e um deles se determinar temporalmente e outro atemporalmente, não necessariamente o que se determinou atemporalmente está alheio ao tempo transcorrido, de forma que não possa se inserir no tempo transcorrido vivenciado. Isto é, seria como se o observador temporal soubesse da existência e do retorno do observador atemporal, e o observador atemporal pudesse retornar temporalmente no tempo vivenciado pelo observador temporal. Isto se dá pelo fato de que o plano atemporal também é uma determinação para o relativo.
-
-### **Os Modos de Ser do Absoluto**
-
-| **Modo de Ser** | **Condição**   | **Determinação** | **Descrição**                                                        | **Manifestação Temporal** |
-| --------------- | -------------- | ---------------- | -------------------------------------------------------------------- | ------------------------- |
-| Absoluto        | Indiferenciado | Indeterminado    | Estado de pura potencialidade, todas as possibilidades em suspensão  | Eternidade atemporal      |
-| Absoluto        | Diferenciado   | Determinado      | Autoexpressão determinada, manifestação fenomênica                   | Tempo criado              |
-| Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-#### **O primeiro ato do Espírito plenificador**
-
-E como o Espírito escolheria o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é da suspensão perfeita, ou seja, da plenitude indiferenciada, em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha e chamaremos esse momento de tempo do Espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
-
-Portanto, o start da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora, isto é, atemporalmente este momento já existia segundo a plenitude do Espírito. Foi, portanto, num momento perfeito dentro da temporalidade linear, ou seja, infinita, que se deu o start da ação determinada. Isto é, o Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indifereciamento havia, por natureza da plenitude, uma ação perfeita para o start da ação do Espírito no tempo.
-
-Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências; mas apenas em seu aspecto relativo poderia fazer uma atualização abrangente. Assim, o Espírito se consuma no relativo, ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora comporte a atemporalidade, também se manifesta no tempo. 
-
-E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer estado da alma corresponde à sua essência, à sua persona. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua persona, considerando que sua persona é o reflexo de sua plenitude.
-
-A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que tempo és tu?”. Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
-
-Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -1821,6 +1775,100 @@ O Espírito como Observador absoluto:
 - Não tem um "primeiro momento" de observação
 - Sua observação é constitutiva de seu ser
 - Observa o tempo consumado *a partir de uma posição que transcende a linearidade temporal*
+
+Isto resolve o problema da objeção sobre quando o Espírito despertou ou esteve auto conscienciente pela peimeira vez, pois, se sempre esteve auto consciencia e está consumado, em qual momento sua auto consciencia poderia determinar o universo? Sua consciencia consumada, já teria vivido toda a temporalidade. E decidido não agir pois teria se dado segundo o indiferenciado.
+
+
+A resposta é que o tempo e o fenomeno podem se consumar, no sentido de ter um start e o final, ao compararmos o Espírito com o universo, temos um tempo para começar e um tempo de ação para acabar, isso se atribuissemos teor auto causal ao universo. Porém, ao pensarmos no Espírito, que é vivo, O Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de ser inativo após a observação da totalidade de si. O Espírito pode esgotar o tempo no que tange a observação, mas não esgota a ação observadora. O infinito, do Espírito, portanto, continua sua vivência auto consciente a partir da infinitude. Temos então, para o Espírito, uma linha de continuidade a partir da consumação.
+
+Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estaria e estado de Ser, de "Infinito consciente", ao passo que o infinito consciente, tem uma linha perpendicular sobre si, que é a continuação da consciencia, a continuação do ato de estar consciente, ainda que partindo de um tempo consumado de observação.
+
+Exemplo: um olho observou totalmente a si mesmo, observou todo o tempo em si, porém, o ato da observação continua. O observar não cessa, pois não é um fenomeno ou materia não auto causal. Isto quer dizer que, podemos atribuir a visão da totalidade como um dom do Espírito que é a ''sabedoria'', mas não como um fechamento ontológico de possibilidades. Isto quer dizer que, a visão da totalidade temporal não esgota a ação do Espírito, não cega. Mas, o atribui de uma base de observação natural que projeta-se a favor de uma nova temporalidade. Isto quer dizer que, sob a eternidade do Espírito, há sempre uma renovação.
+
+
+E quando foi que a consumação da sabedoria do Espírito deu origem a primeira observação posterior a infinitude observada previamente? Ao considerarmos que 1111
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### **O salto atemporal**
+
+É possível transitar da vivência atemporal para a vivência temporal, e da temporal para a atemporal, considerando que a experiência da infinitude pode ser alcançada no tempo e retornar ao tempo partindo de um estado atemporal. Ao dividirmos a completude em suspensão da vivência da determinação dentro de um determinado tempo, temos um atemporal determinado. Ou seja, temos uma determinação do observador que pode se fazer temporal ou atemporal, porém em duas linhas diferentes.
+
+O observador não pode anteceder escolhas vivenciadas ainda não tomadas, mas pode vivenciar todas as possibilidades simultaneamente que poderão ser dadas para o relativo e para atos futuros. Isto é, temos então uma antecipação, não da decisão, mas das possibilidades. Isto quer dizer que se tem a experiência da suspensão das possibilidades, e não das possibilidades determinadas através da suspensão.
+
+Isto significa que, se existirem dois observadores que se determinam no indiferenciado, e um deles se determinar temporalmente e outro atemporalmente, não necessariamente o que se determinou atemporalmente está alheio ao tempo transcorrido, de forma que não possa se inserir no tempo transcorrido vivenciado. Isto é, seria como se o observador temporal soubesse da existência e do retorno do observador atemporal, e o observador atemporal pudesse retornar temporalmente no tempo vivenciado pelo observador temporal. Isto se dá pelo fato de que o plano atemporal também é uma determinação para o relativo.
+
+### **Os Modos de Ser do Absoluto**
+
+| **Modo de Ser** | **Condição**   | **Determinação** | **Descrição**                                                        | **Manifestação Temporal** |
+| --------------- | -------------- | ---------------- | -------------------------------------------------------------------- | ------------------------- |
+| Absoluto        | Indiferenciado | Indeterminado    | Estado de pura potencialidade, todas as possibilidades em suspensão  | Eternidade atemporal      |
+| Absoluto        | Diferenciado   | Determinado      | Autoexpressão determinada, manifestação fenomênica                   | Tempo criado              |
+| Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### **O primeiro ato do Espírito plenificador**
+
+E como o Espírito escolheria o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é da suspensão perfeita, ou seja, da plenitude indiferenciada, em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente a totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O indiferenciado, em sua plenitude, teria um momento de plenitude para tal escolha e chamaremos esse momento de tempo do Espírito. E que diriamos ser o começo dos tempos, isto é, a criação do mundo. 
+
+Portanto, o start da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora, isto é, atemporalmente este momento já existia segundo a plenitude do Espírito. Foi, portanto, num momento perfeito dentro da temporalidade linear, ou seja, infinita, que se deu o start da ação determinada. Isto é, o Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indifereciamento havia, por natureza da plenitude, uma ação perfeita para o start da ação do Espírito no tempo.
+
+Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências; mas apenas em seu aspecto relativo poderia fazer uma atualização abrangente. Assim, o Espírito se consuma no relativo, ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora comporte a atemporalidade, também se manifesta no tempo. 
+
+E como o Espírito decide o tempo que deseja viver em seu relativo? Qualquer estado da alma corresponde à sua essência, à sua persona. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua persona, considerando que sua persona é o reflexo de sua plenitude.
+
+A pergunta “quem és tu?” sintoniza-se perfeitamente com a pergunta “que tempo és tu?”. Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
+
+Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou pela primeira vez?” não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria: “Qual é a idade do Espírito?”, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2641,23 +2689,7 @@ Quando Deus se autodetermina, operam-se simultaneamente três dimensões:
 
 O indiferenciado, em sua pureza primordial, não pode conter uma determinação *inicial* como evento discreto. Contudo, o Espírito, independentemente de se dar integralmente como relativo e indiferenciado, se atualiza *para além de si mesmo*. Sobre o relativo fundamental há ainda uma determinação operante que pode modificar cenários.
 
-### **17.3 A Distinção Crucial: Relativo vs. Espírito**
 
-O relativo não equivale ao Espírito. Enquanto o tempo está consumado nas possibilidades (relativo), o Espírito é vivo e sempre operante. Não há pausa para o Espírito. Ainda no relativo, o Espírito é vivo e se determina *como* relativo. Desta forma, o salto temporal — do relativo para a determinação — é segundo sua plenitude, isto é, segundo sua persona.
-
-Temos, portanto, que **o tempo está sob determinação do Espírito**, e não o Espírito sob determinação do tempo do relativo. Se o tempo do relativo estivesse sob determinação de si mesmo, estaria consumado e não aceitaria atualizações. Porém, tendo como determinante o Espírito, o tempo — ainda que consumado — se atualiza segundo o Espírito e não segundo sua consumação.
-
-### **17.4 Os Três Níveis da Realidade Divina**
-
-Esta análise revela uma estrutura tríplice:
-
-| **Nível**             | **Natureza**                         | **Relação com o Tempo**              |
-|-----------------------|--------------------------------------|--------------------------------------|
-| **1. Plano Horizontal** | Temporal infinito (fenomênico)       | Sucessão linear de eventos           |
-| **2. Plano Vertical**   | Consumado do relativo (possibilidades) | Ato único que contém todas as linhas temporais |
-| **3. Plano Diagonal**   | Auto-determinação viva do Espírito    | Transcende e atualiza ambos os planos |
-
-O relativo é o produto da autodeterminação do Espírito, e não o contrário. A autodeterminação incide sobre o atemporal e o temporal simultaneamente.
 
 ### **17.5 O Enigma do "Start" Fenomênico**
 
@@ -2675,6 +2707,9 @@ Mas sendo toda extensão um momento presente, o observador está apto para agir,
 Desta forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciencia, não haveria mais ação. Porém, a consciencia está para todo o tempo, e tem poder de ação para todo o tempo.
 
 Vamos usar outro exemplo, digamos que alguém percorra toda uma rua, e nessa corrida, possa ter bebido agua enquanto corria, mas ao acabar de correr, não pode beber mais agua pois ja percorreu o caminho que poderia ter bebido. Desta forma, se pode interpretar erroneamente o Espírito sob um tempo consumado. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim. Temos seu potencial de ação em todo o percurso preservado.
+
+
+
 
 
 
