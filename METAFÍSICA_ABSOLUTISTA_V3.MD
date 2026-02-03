@@ -7601,7 +7601,7 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 
 
-
+> O niilista tem constante necessidade de expressão, precisa contantemente expressar seus pensameetnos que considera insanos, precisa do otismismo das pessoas, desabafar, o niilismo consome muita energia mental, causa grande ansiedade, e terror no individuo, que constamente precisa se expressar para criar otimismo e se livrar do desespero causado pela sua postura. Ao não poder se experssar o niilista começa a se encerrar numa crise de desespero, desconsolo. Passa a ter episodios de agressividade. Pois o conteudo de seu pensamento é uma pressão que quer ser esternalizada. O niilista se passa muitas vezes por inconveniente, immportuno ou sem afazeres, pois tem constante necessidade de amparo.
 
 
 
