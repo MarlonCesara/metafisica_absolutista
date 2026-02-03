@@ -848,92 +848,23 @@ Enquanto o primeiro está condenado à incompletude, o segundo **já habita a et
 **Formulação Final:**
 O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
 
+#### **A CIRCULARIDADE VIVA DO ESPÍRITO**
 
+Ao usarmos a comparação do Espírito como um circulo que se desdobra no tempo e se repete infinitamente numa linha reta, tendemos a pensar que, seu auto dominio, auto presença e auto conhecimento percorre os elos a medida que o tempo avança em sua internalidade, porém, essa é uma visão mundana do tempo. Pois o tempo no mundo não é vivido todo, tal como no Espírito. O Espírito é toda a circularidade percorrida ao passo que é em ato, portanto, o Espírito não percorre o tempo de forma temporal tal como um observador neste mundo, porem o Espírito é o próprio tempo em toda sua extensão. Cada elo em uma linha reta carrega o teor auto causal atualizado. 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Não há, portanto, uma potencia esquecida pela consumação, considerando que o Espírito é, em todo instante vivo, e está sobre o tempo, e não o contrário como ocorre neste mundo com o observador. O, Espírito, desta forma, não está no tempo, e não percorre uma temporalidade em si mesmo, mas é o próprio tempo. O tempo do Espírito é o próprio Espírito.
 
 #### **A CIRCULARIDADE VIVA DO ESPÍRITO**
 
+Ao compararmos o Espírito a um círculo que se desdobra no tempo e se repete infinitamente numa linha reta, somos levados a imaginar que seu autodomínio, sua autopresença e seu autoconhecimento percorrem os elos dessa linha à medida que o tempo avança em sua interioridade. Esta, porém, é uma visão mundana do tempo. O tempo no mundo não é integralmente vivido, ao contrário do que ocorre no Espírito.
 
+O Espírito *é* toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma sucessiva, como um observador contingente. O Espírito é o próprio tempo em toda a sua extensão consumada. Cada elo, mesmo disposto numa linha aparentemente reta, carrega em si o teor autocausal plenamente realizado.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Não há, portanto, potência esquecida ou por atualizar, pois o Espírito é, em todo instante, vida plena. Ele está *sobre* o tempo, transcendendo-o – e não sob seu domínio, como ocorre com o observador neste mundo. Dessa forma, o Espírito não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade não é duração infinita, mas a posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
 
 #### **A temporalidade linear do fenômeno**
 
-
-
-
-
-
-
-
-
-
-
-### **CAPÍTULO 7: A ESTRUTURA DA AÇÃO DIVINA**
-
-#### **A Estrutura dos Eventos Temporais**
-
-##### **Determinação Numerável**
--   A existência temporal **admite numerabilidade**. Assim, não há necessariamente uma única identidade ou modelo de subsistência, mas **uma ou múltiplas manifestações de existência**.
-
-##### **Não-Localidade**
--   A existência não se origina em um lugar específico, pois não há um ponto de origem, sendo em si seu próprio ponto de origem.
-    -   *Exemplo:* O universo não pode ter começado em lugar nenhum.
-
-##### **Espaço Infinito**
--   O espaço da existência é infinitamente percorrível, sem bordas ou confinamento.
-    -   *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.
-    -   *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.
-
-##### **Temporalidade Infinita**
--   O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.
-    -   *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.
-    -   *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.
-    -   *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.
+No universo presente, o tempo é percorrido pelo observador de uma forma linear, não é vivenciado simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde, a medida que o tempo avança, o observador obtem um novo tempo e o tempo passado se vai. No Espírito, o tempo todo é vivivencia imediata, há o temporal como totalidade e o temporal vivenciado integralmente.
 
 #### **O Infinito e o Tempo: Princípios Indiscerníveis**
 
@@ -989,35 +920,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+### **CAPÍTULO 7: A ESTRUTURA DA AÇÃO DIVINA**
 
 ### **PROPOSIÇÃO VII: A ESTRUTURA DA AUTO CAUSALIDADE**
 
@@ -1641,79 +1544,22 @@ A criação _ex nihilo_ significa, portanto, **a auto-expressão do Absoluto a p
 
 
 
+### **PROPOSIÇÃO VIII: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
 
+#### **O Espírito e o Relativo**
 
+Enquanto o Espírito conserva sua temporalidade e seu ato único, o relativo é uma suspensão completa de qualquer possibilidade. O relativo é uma suspensão completa, enquanto o Espírito repolsa no ato relativo. O Espírito É na própria suspensão.
 
+Enquanto o Espírito é, o relativo é a contraparte da liberdade do Espírito. O Espírito é livre para o relativo. O Espírito repousa no puro ato de Ser, sem definição ou determinação. Simplesmente paira tendo o relativo de ação ou inação. O Espírito é o estar do relativo, isto é, sua ação se dá sobre o relativo como tal se encontra.
 
+O relativo é uma suspensão afirmada, e sua afirmação é dada pelo Espírito. Caso só haja o relativo inativo, é de afirmação do Espírito tal estado. Caso haja uma ação sobre o relativo é de terminação do Espírito que simplesmente deixa Ser em seu ato primordial. 
 
+O ato de Ser como se é, é orientao pelo Espírito. Espírito que é indiferenciado em relação ao ato primordial, age como a coisa é. Podemos citar o exemplo de um rio, que flui conforme a correnteza do seu ser. O Espírito se instaura sobre o que é, deixando Ser e sendo indiferenciado tal como o relativo, porém, rumo a plenitude do que é.
 
+Enquanto o relativo é a suspensão de tudo, o Espírito é o indetectavel que provoca o estado relativo. É a vontade operante que gera em prol do existir, e deixa Ser, e se origina com o que é.
 
+A pureza do Espírito, exerce, portanto, sua determinação temporal e atemporal dispondo do relativo, que é a suspensão de qualquer possibilidade, impossibilidade ou incognocível.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-#### **O Tempo e o Relativo**
-
-O futuro, do ponto de vista de um observador temporal, é uma suspensão temporal das possibilidades ainda não vividas ou testemunhadas. Dessa forma, o Espírito, sendo a consumação do processo determinístico, ainda assim se constitui como base causal de toda determinação.
-
-O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:
-
--   **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não foi testemunhada.
--   **A determinação é imanente e relativa** — há uma "externalidade" indiferenciada e uma internalidade testemunhada no mesmo ato. A totalidade autodetermina-se internamente em relação ao observador, revelando-se em seu referencial como um ato de progressão e definição contínua.
-
-#### **A Perspectiva do Observador no Tempo do Espírito**
-
-O observador atemporal, portanto, enxerga o relativo pelo referencial do Espírito em ato, ou seja, percebe a infinitude na externalidade do Espírito; enquanto, internamente, testemunha o presente e um futuro indefinido para si. Esse futuro, porém, é uma suspensão para o Espírito, assim como o seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em um único ato, o qual é determinado pelo referencial do observador temporal e indeterminado pelo referencial do observador atemporal, existindo em ato e em progressão interna.
-
-O Espírito faz escolhas para testemunhar temporalmente um evento já ocorrido por suspensão, e não por determinação e vivência do mesmo. Tudo já aconteceu em suspensão no relativo, mas está sendo reconhecido. O Espírito faz novas escolhas e evidencia uma das possibilidades em suspensão. Ele vivifica no tempo, autentica para si sua vivência, sua decisão. Dessa forma, o tempo funciona como uma localização da alma no decorrer temporal do Espírito, enquanto a suspensão representa a realização de todas as possibilidades de modo simultâneo.
-
-Portanto, olhar para o futuro não significa olhar para o nada, nem ir em direção a ele implica reconhecer um vazio, pois todas as opções já existem e estão consumadas. Assim, ao olhar para o futuro, olha-se para o relativo, para todas as opções do Absoluto. Todas as ações já existem suspensas, mas a vivência é a confirmação das ações suspensas, a realização temporal na qual o observador se adequa — é o pulsar da vida que viaja no tempo do Espírito.
-
--   **A determinação é imanente** — não há uma "externalidade" determinada, apenas a totalidade autotestemunhando-se internamente, ainda que indeterminada em sua completude em ato.
-
-#### **Síntese Final: A Consumação do Absoluto**
-
-Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade dos eventos temporais resulta em um único momento atemporal. Assim, a soma de todas as determinações possíveis, impossíveis e incognoscíveis converge em um ato único, e este seria o estado relativo para o Absoluto. Portanto, o Absoluto, em sua integralidade, é Espírito, e em sua internalidade também o é, resumindo os acontecimentos temporais em um ato atemporal.
-
-> _"Eu sou o Alfa e o Ômega, o Primeiro e o Último, o Princípio e o Fim."_
-> _— Apocalipse 22:13_
-
-#### **O salto atemporal**
-
-É possível transitar da vivência atemporal para a vivência temporal, e da temporal para a atemporal, considerando que a experiência da infinitude pode ser alcançada no tempo e retornar ao tempo partindo de um estado atemporal. Ao dividirmos a completude em suspensão da vivência da determinação dentro de um determinado tempo, temos um atemporal determinado. Ou seja, temos uma determinação do observador que pode se fazer temporal ou atemporal, porém em duas linhas diferentes.
-
-O observador não pode anteceder escolhas vivenciadas ainda não tomadas, mas pode vivenciar todas as possibilidades simultaneamente que poderão ser dadas para o relativo e para atos futuros. Isto é, temos então uma antecipação, não da decisão, mas das possibilidades. Isto quer dizer que se tem a experiência da suspensão das possibilidades, e não das possibilidades determinadas através da suspensão.
-
-Isto significa que, se existirem dois observadores que se determinam no indiferenciado, e um deles se determinar temporalmente e outro atemporalmente, não necessariamente o que se determinou atemporalmente está alheio ao tempo transcorrido, de forma que não possa se inserir no tempo transcorrido vivenciado. Isto é, seria como se o observador temporal soubesse da existência e do retorno do observador atemporal, e o observador atemporal pudesse retornar temporalmente no tempo vivenciado pelo observador temporal. Isto se dá pelo fato de que o plano atemporal também é uma determinação para o relativo.
-
-### **Os Modos de Ser do Absoluto**
-
-| **Modo de Ser** | **Condição**   | **Determinação** | **Descrição**                                                        | **Manifestação Temporal** |
-| --------------- | -------------- | ---------------- | -------------------------------------------------------------------- | ------------------------- |
-| Absoluto        | Indiferenciado | Indeterminado    | Estado de pura potencialidade, todas as possibilidades em suspensão  | Eternidade atemporal      |
-| Absoluto        | Diferenciado   | Determinado      | Autoexpressão determinada, manifestação fenomênica                   | Tempo criado              |
-| Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
-
-### **CAPÍTULO 11: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
 
 #### **O Relativo como Manifestação Não-Dual**
 
@@ -1750,6 +1596,12 @@ O Espírito não "experimenta" o tempo como uma entidade finita, mas **o constit
 
 No estado relativo o Espírito já contempla todas as decisões; portanto, estas já estão operantes no que se refere ao tempo e à forma em que deseja existir. O Espírito contém todo o seu tempo em si. Já tomou todas as decisões e já optou por vivificá-las, atualizando-as no curso da existência; porém, as vivificou apenas em seu relativo — isto é, são decisões realizadas em potencial. Carecem da escolha viva do Espírito.
 
+#### **O Tempo e o Relativo**
+
+O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenciação ativa**: um estado em que todas as possibilidades estão **simultaneamente suspensas e realizadas**, sem contradição. Nele:
+
+-   **Ação e inação são indistintas** — pois a própria distinção pressupõe uma manifestação que ainda não foi testemunhada.
+-   **A determinação é imanente e relativa** — há uma "externalidade" indiferenciada e uma internalidade testemunhada no mesmo ato. A totalidade autodetermina-se internamente em relação ao observador, revelando-se em seu referencial como um ato de progressão e definição contínua.
 
 
 
@@ -1770,6 +1622,90 @@ No estado relativo o Espírito já contempla todas as decisões; portanto, estas
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+000
+
+Erro. Neste texto o observador é visto pelo tempo linear, e não pelo tempo do Espírito.
+
+### **PROPOSIÇÃO VIII: O ESPÍRITO E O SEU RELATIVO**
+
+
+
+#### **A Perspectiva do Observador no Tempo linear**
+
+O futuro, do ponto de vista de um observador temporal neste mundo de temporalidade linear, é uma suspensão temporal das possibilidades ainda não vividas ou testemunhadas. 
+
+Dessa forma, o Espírito, sendo a consumação do processo determinístico, ainda assim se constitui como base causal de toda determinação.
+
+O observador atemporal, portanto, enxerga o relativo pelo referencial do Espírito em ato, ou seja, percebe a infinitude na externalidade do Espírito; enquanto, internamente, testemunha o presente e um futuro indefinido para si. Esse futuro, porém, é uma suspensão para o Espírito, assim como o seu presente. Em síntese: a soma de todas as determinações possíveis, impossíveis e incognoscíveis resulta em um único ato, o qual é determinado pelo referencial do observador temporal e indeterminado pelo referencial do observador atemporal, existindo em ato e em progressão interna.
+
+O Espírito faz escolhas para testemunhar temporalmente um evento já ocorrido por suspensão, e não por determinação e vivência do mesmo. Tudo já aconteceu em suspensão no relativo, mas está sendo reconhecido. O Espírito faz novas escolhas e evidencia uma das possibilidades em suspensão. Ele vivifica no tempo, autentica para si sua vivência, sua decisão. Dessa forma, o tempo funciona como uma localização da alma no decorrer temporal do Espírito, enquanto a suspensão representa a realização de todas as possibilidades de modo simultâneo.
+
+Portanto, olhar para o futuro não significa olhar para o nada, nem ir em direção a ele implica reconhecer um vazio, pois todas as opções já existem e estão consumadas. Assim, ao olhar para o futuro, olha-se para o relativo, para todas as opções do Absoluto. Todas as ações já existem suspensas, mas a vivência é a confirmação das ações suspensas, a realização temporal na qual o observador se adequa — é o pulsar da vida que viaja no tempo do Espírito.
+
+-   **A determinação é imanente** — não há uma "externalidade" determinada, apenas a totalidade autotestemunhando-se internamente, ainda que indeterminada em sua completude em ato.
+
+#### **Síntese Final: A Consumação do Absoluto**
+
+Em síntese: a fundamentação é o Absoluto consumado, de modo que a totalidade dos eventos temporais resulta em um único momento atemporal. Assim, a soma de todas as determinações possíveis, impossíveis e incognoscíveis converge em um ato único, e este seria o estado relativo para o Absoluto. Portanto, o Absoluto, em sua integralidade, é Espírito, e em sua internalidade também o é, resumindo os acontecimentos temporais em um ato atemporal.
+
+> _"Eu sou o Alfa e o Ômega, o Primeiro e o Último, o Princípio e o Fim."_
+> _— Apocalipse 22:13_
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### **O salto atemporal**
+
+É possível transitar da vivência atemporal para a vivência temporal, e da temporal para a atemporal, considerando que a experiência da infinitude pode ser alcançada no tempo e retornar ao tempo partindo de um estado atemporal. Ao dividirmos a completude em suspensão da vivência da determinação dentro de um determinado tempo, temos um atemporal determinado. Ou seja, temos uma determinação do observador que pode se fazer temporal ou atemporal, porém em duas linhas diferentes.
+
+O observador não pode anteceder escolhas vivenciadas ainda não tomadas, mas pode vivenciar todas as possibilidades simultaneamente que poderão ser dadas para o relativo e para atos futuros. Isto é, temos então uma antecipação, não da decisão, mas das possibilidades. Isto quer dizer que se tem a experiência da suspensão das possibilidades, e não das possibilidades determinadas através da suspensão.
+
+Isto significa que, se existirem dois observadores que se determinam no indiferenciado, e um deles se determinar temporalmente e outro atemporalmente, não necessariamente o que se determinou atemporalmente está alheio ao tempo transcorrido, de forma que não possa se inserir no tempo transcorrido vivenciado. Isto é, seria como se o observador temporal soubesse da existência e do retorno do observador atemporal, e o observador atemporal pudesse retornar temporalmente no tempo vivenciado pelo observador temporal. Isto se dá pelo fato de que o plano atemporal também é uma determinação para o relativo.
+
+### **Os Modos de Ser do Absoluto**
+
+| **Modo de Ser** | **Condição**   | **Determinação** | **Descrição**                                                        | **Manifestação Temporal** |
+| --------------- | -------------- | ---------------- | -------------------------------------------------------------------- | ------------------------- |
+| Absoluto        | Indiferenciado | Indeterminado    | Estado de pura potencialidade, todas as possibilidades em suspensão  | Eternidade atemporal      |
+| Absoluto        | Diferenciado   | Determinado      | Autoexpressão determinada, manifestação fenomênica                   | Tempo criado              |
+| Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
 
 
 
@@ -2054,6 +1990,24 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 -   **Integralidade → Infinito**: Quando o espírito manifesta a totalidade sem recortes, percebe-se relativo, o qual engloba o que foi ou não foi renovado.
 -   **Fragmentação → Vivência**: Ao determinar um ângulo específico em um ou mais finitos, o relativo do Espírito se polariza em vivência presente.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### **Estruturando o Relativo: Princípios Fundamentais**
 
 ##### **Definição por Negação**
@@ -2092,6 +2046,21 @@ Esta análise revela que o relativo não é uma realidade independente, mas uma 
 > _— Romanos 11:36_
 
 O relativo é, em última análise, **o modo pelo qual o Absoluto se relaciona consigo mesmo** - a dança eterna da autoexpressão divina.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### **CAPÍTULO 12: A ESTRUTURA DO POSSÍVEL E DO IMPOSSÍVEL**
 
@@ -2291,6 +2260,57 @@ A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se q
 -   **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:
     -   *Para a vivência do Ser temporal:* Processo infinito (causalidade reverberante).
     -   *Para a vivência do Ser atemporal:* Ato único (consumação).
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### **A Estrutura dos Eventos Temporais**
+
+##### **Determinação Numerável**
+-   A existência temporal **admite numerabilidade**. Assim, não há necessariamente uma única identidade ou modelo de subsistência, mas **uma ou múltiplas manifestações de existência**.
+
+##### **Não-Localidade**
+-   A existência não se origina em um lugar específico, pois não há um ponto de origem, sendo em si seu próprio ponto de origem.
+    -   *Exemplo:* O universo não pode ter começado em lugar nenhum.
+
+##### **Espaço Infinito**
+-   O espaço da existência é infinitamente percorrível, sem bordas ou confinamento.
+    -   *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.
+    -   *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.
+
+##### **Temporalidade Infinita**
+-   O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.
+    -   *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.
+    -   *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.
+    -   *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.
+
+
 
 
 
@@ -2574,6 +2594,33 @@ O relativo não se dá como uma unidade. Não é um ou mais relativos. Não é u
 
 0000
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # **CAPÍTULO 17: O TEMPO DO ESPÍRITO E A TRANSCENDÊNCIA DA AUTODETERMINAÇÃO**
 
 ### **17.1 Objeção e o Problema da Origem Temporal**
@@ -2617,6 +2664,21 @@ O relativo é o produto da autodeterminação do Espírito, e não o contrário.
 O Espírito, mesmo dispondo de todo o tempo consumado (campo das possibilidades), possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é indiferenciada no que tange a se dar sem atualizações, mas não é estática.
 
 O universo "mancharia" a pureza inicial somente se concebêssemos o relativo e o Espírito indiferenciado como realidades estáticas e fechadas. Porém, a linha temporal do relativo existe como *potência ativa*, não como completude inerte.
+
+
+
+
+Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda é vivo, isto é, habil para ação. O tempo do Espírito não passa, no sentido de ser banalizado ou inanimado. O tempo do Espírito é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, porém, ao mesmo tempo em toda sua extensão. Então podemos comprar a capacidade de ação do Espírito ao observador linear, neste instante eu ou voce podemos executar uma ação, pois estamos num ponto Especifico do tempo, num ponto passado, não podemos executar nenhenhuma açao e nem em um ponto futuro, somente num presente. Caso o tempo todo estivesse consumado e realizado para o observador, este também não poderia executar nenhuma ação.
+
+Mas sendo toda extensão um momento presente, o observador está apto para agir, pois é vivo.
+
+Desta forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciencia, não haveria mais ação. Porém, a consciencia está para todo o tempo, e tem poder de ação para todo o tempo.
+
+Vamos usar outro exemplo, digamos que alguém percorra toda uma rua, e nessa corrida, possa ter bebido agua enquanto corria, mas ao acabar de correr, não pode beber mais agua pois ja percorreu o caminho que poderia ter bebido. Desta forma, se pode interpretar erroneamente o Espírito sob um tempo consumado. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim. Temos seu potencial de ação em todo o percurso preservado.
+
+
+
+
 
 ### **17.6 O Propósito Divino e o Momento da Criação**
 
@@ -2880,7 +2942,7 @@ O "sou" constitui-se como uma manifestação realizada pelo Ser, que, em ato de 
 
 #### **A Distinção entre Ser e Sou**
 
-O **Ser** representa o determinador puro, o fundamento indiferenciado da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
+O **Ser** representa o determinador puro, o fundamento  da existência. Ele não age por escolha, mas por pura necessidade ontológica. Sua determinação é homogênea ao relativo – não há separação entre decisão e efeito, assim como um rio não "decide" fluir, ele simplesmente flui.
 
 > O homem se difere de Deus em identidade, ainda que participe do ato de existir e de ser livre do qual o Ser participa; sua identidade é unidade, enquanto a identidade de Deus é transcendente à unidade. Quando pensamos de um ponto de vista fenomenológico, as coisas se dividem pelo tempo e pelo espaço; desta forma, discernimos se é o objeto A ou B por sua localização. Porém, do ponto de vista espiritual, os entes se diferem por identidade. Deus é a pureza total, é a própria transcendencia. Deus para o homem, é a vazão da alma rumo o infinito.
 
