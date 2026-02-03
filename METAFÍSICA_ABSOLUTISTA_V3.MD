@@ -918,7 +918,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 
 
-### **PROPOSIÇÃO VII: A ESTRUTURA DA AUTO CAUSALIDADE**
+### **PROPOSIÇÃO VI: A ESTRUTURA DA AUTO CAUSALIDADE**
 
 #### **As Três Dimensões da Ação do Espírito**
 
@@ -1487,43 +1487,6 @@ A criação _ex nihilo_ significa, portanto, **a auto-expressão do Absoluto a p
 > _"Pois nele foram criadas todas as coisas nos céus e na terra, as visíveis e as invisíveis, sejam tronos, sejam soberanias, sejam principados, sejam potestades; tudo foi criado por ele e para ele."_
 > _— Colossenses 1:16_
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 #### **Estruturando o Relativo: Princípios Fundamentais**
 
 ##### **Definição por Negação**
@@ -1562,25 +1525,6 @@ Esta análise revela que o relativo não é uma realidade independente, mas uma 
 > _— Romanos 11:36_
 
 O relativo é, em última análise, **o modo pelo qual o Absoluto se relaciona consigo mesmo** - a dança eterna da autoexpressão divina.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 ### **CAPÍTULO 12: A ESTRUTURA DO POSSÍVEL E DO IMPOSSÍVEL**
 
@@ -1793,7 +1737,17 @@ A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se q
 
 
 
-# **CAPÍTULO 14: LÓGICA, CAUSALIDADE E O ABSOLUTO**
+
+
+
+
+
+
+
+
+
+
+# **PROPOSIÇÃO IIX: LÓGICA, CAUSALIDADE E O ABSOLUTO**
 
 ## **Os Limites da Lógica Clássica e a Ascensão à Lógica Superior**
 
@@ -1989,7 +1943,17 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 
 
-### **PROPOSIÇÃO VIII: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
+
+
+
+
+
+
+
+
+
+
+### **PROPOSIÇÃO IX: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
 
 #### **O Espírito e o Relativo**
 
@@ -2067,20 +2031,6 @@ Esta análise revela uma estrutura tríplice:
 
 O relativo é o produto da autodeterminação do Espírito, e não o contrário. A autodeterminação incide sobre o atemporal e o temporal simultaneamente.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ### **CAPÍTULO 16: A indiferenciação do Espírito**
 
 #### **A dualidade relativo e Espírito**
@@ -2112,12 +2062,7 @@ O relativo não se dá como uma unidade. Não é um ou mais relativos. Não é u
 
 
 
-
-
-
-
-========================================================================
-
+### **PROPOSIÇÃO X: A PRESENÇA VIVA DO ESPÍRITO COMO START DA DETERMINAÇÃO**
 
 #### **A Perspectiva do Observador no Tempo linear**
 
@@ -2249,14 +2194,6 @@ O teor de vida do Espírito causa uma linha que cruza a infinitude, o tempo de o
 
 
 
-
-
-
-
-
-
-
-
 #### **O salto atemporal**
 
 É possível transitar da vivência atemporal para a vivência temporal, e da temporal para a atemporal, considerando que a experiência da infinitude pode ser alcançada no tempo e retornar ao tempo partindo de um estado atemporal. Ao dividirmos a completude em suspensão da vivência da determinação dentro de um determinado tempo, temos um atemporal determinado. Ou seja, temos uma determinação do observador que pode se fazer temporal ou atemporal, porém em duas linhas diferentes.
@@ -2272,20 +2209,6 @@ Isto significa que, se existirem dois observadores que se determinam no indifere
 | Absoluto        | Indiferenciado | Indeterminado    | Estado de pura potencialidade, todas as possibilidades em suspensão  | Eternidade atemporal      |
 | Absoluto        | Diferenciado   | Determinado      | Autoexpressão determinada, manifestação fenomênica                   | Tempo criado              |
 | Absoluto        | Indiferenciado | Determinado      | Síntese de todos os modos, ato único que contém toda a temporalidade | Tempo do Espírito         |
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -2306,15 +2229,6 @@ Neste ínterim, a pergunta: “Qual é o tempo em que o Espírito se localizou p
 
 
 
-
-
-
-
-
-
-
-
-
 #### **O primeiro ato do Espírito personalizador**
 
 Mas em que tempo age o Espírito personalizador, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência e ação se dão em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem na temporalidade. O Espírito personalizador, portanto, teve sua primeira ação no tempo. Porém, a ação do Espírito personalizador deveria ser num momento temporal posterior à ação do Espírito plenificador. Pois a ação do Espírito personalizador não é necessariamente voltada à plenitude, mas a acidentes; isto é, o relativo puro e atemporal não pode conter decisões não alinhadas somente à plenitude. Pois, entre duas decisões igualmente plenas e rumo à plenitude, nenhuma seria tomada. Ou seja, todas as possibilidades do relativo devem estar suspensas de forma plena e não contraditória entre si mesmas.
@@ -2322,19 +2236,6 @@ Mas em que tempo age o Espírito personalizador, se este sempre existiu? A únic
 O Espírito plenificador se dissolve na completude, pois gera em favor da perfeição já instaurada no relativo, que se dá completo como tal, ainda que em constante mudança interna. As mudanças internas não interferem na plenitude, que se instaura ainda sob as constantes e imprevisíveis mudanças. Porém, a ação da alma, não necessariamente baseada numa plenitude estreita, corrompe o relativo, de forma que toda alma se origina com uma idade, isto é, com um tempo em si e perante uma ação temporal do Espírito. A alma de Jesus, desta forma, sempre existiu de forma inativa na Trindade; porém, teve sua ação, ou seja, gerou modificações na realidade a partir do momento de seu revelar no tempo. E o tempo teve seu *start* com a ação do Espírito plenificador. Isso revela que, apesar de o Espírito personalizador estar presente na criação ou no *start* dos tempos, sua ação só poderia ser efetivada num momento posterior à ação do Espírito plenificador.
 
 Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, no sentido de que agia antes por intermédio de seu Espírito perfeito, mas teve sua ação direta concretizada a partir de um momento único posterior à criação. Assim, não houve um processo de criação da alma de Jesus diretamente do relativo, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora. O que houve foi uma ativação da ação personalizadora da terceira pessoa da Trindade. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo, ao passo que também sempre existiu atemporalmente.
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -2349,7 +2250,6 @@ A autodeterminação envolve o que se determina, que é o que conhece, se domina
 Ambas as autodeterminações, atemporal e temporal, num mesmo contexto, resultariam num instante eterno. E isso seria uma contravenção, ou se é atemporal ou se é temporal. Porém, poderia haver nuances que unissem as duas realidades em uma só. Sendo o conhecimento uma determinação sob a fundamentação, o Espírito pode escolher sua condição entre a dualidade atemporal e temporal. Ao escolher um foco, não está negando o todo, mas o fragmentando. E ao escolher o todo, não está negando o tempo, mas o consumando.
 
 > Podemos imaginar o relativo como infinitos raios solares que incidem de um mesmo foco; o foco é a atemporalidade e os raios, a temporalidade. O Espírito plenificador pode escolher a autodeterminação (autoconsciência, autodominio e autopresença) sobre o atemporal ou pode escolher a autodeterminação sobre o temporal. Se fizer a segunda escolha, está criando (dominando e conhecendo), vivificando (presenciando) um determinado raio de sol ou uma sequência determinada de raios de sol. Quando a temporalidade é despertada, pode ter sido despertada em um raio de sol ou em um tempo crescente de raios de sol, ou seja, pode ter sido despertada eternamente. Isto quer dizer que o tempo nunca se esgotará mediante a ação do Espírito.
-
 
 
 
@@ -2423,12 +2323,6 @@ Assim, o testemunho temporal não é uma limitação, mas a **forma pela qual o 
 
 
 
-
-
-
-
-
-
 # **CAPÍTULO 17: O TEMPO DO ESPÍRITO E A TRANSCENDÊNCIA DA AUTODETERMINAÇÃO**
 
 ### **17.1 Objeção e o Problema da Origem Temporal**
@@ -2467,9 +2361,6 @@ Mas sendo toda extensão um momento presente, o observador está apto para agir,
 Desta forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciencia, não haveria mais ação. Porém, a consciencia está para todo o tempo, e tem poder de ação para todo o tempo.
 
 Vamos usar outro exemplo, digamos que alguém percorra toda uma rua, e nessa corrida, possa ter bebido agua enquanto corria, mas ao acabar de correr, não pode beber mais agua pois ja percorreu o caminho que poderia ter bebido. Desta forma, se pode interpretar erroneamente o Espírito sob um tempo consumado. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim. Temos seu potencial de ação em todo o percurso preservado.
-
-
-
 
 
 
@@ -2565,6 +2456,17 @@ E nesta decisão livre — que é atemporal em sua origem e temporal em sua real
 
 
 
+### **PROPOSIÇÃO XI: A POTENCIALIDADE CRIADORA DO SER**
+
+#### **A Potencialidade Ilimitada do Ser**
+
+O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam no campo relativo. 
+
+Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual sua liberdade. Em sua natureza relativa, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
+
+O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
+
+> Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.
 
 
 
@@ -2583,12 +2485,7 @@ E nesta decisão livre — que é atemporal em sua origem e temporal em sua real
 
 
 
-
-
-
-
-==================================================================
-
+### **PROPOSIÇÃO XII: A ESTRUTURA DOS TEMPOS UNIVERSAIS**
 
 #### **A Estrutura dos Eventos Temporais**
 
@@ -2746,17 +2643,11 @@ A dignidade da forma particular está precisamente em ser **expressão única do
 
 
 
-0000
 
-#### **A Potencialidade Ilimitada do Ser**
 
-O Ser tem como relativo todas as possibilidades dentro do campo do Absoluto, que se configura como possível, impossível e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o relativo, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se o relativo fosse uma existência "A", estaria formalizado como "A" e teria como potencial apenas a existência de "A". Porém, o relativo atribui potência ao existir dentro do campo das possibilidades. Assim, o possível, seu limiar (o impossível) e o incognoscível são opções válidas, desde que existam no campo relativo. 
 
-Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual sua liberdade. Em sua natureza relativa, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
 
-O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
-> Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.
 
 
 
@@ -2844,33 +2735,7 @@ O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; i
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+### **PROPOSIÇÃO XIII: A CRIAÇÃO DO HOMEM**
 
 ### **CAPÍTULO 17: A MANIFESTAÇÃO DO "SOU"**
 
