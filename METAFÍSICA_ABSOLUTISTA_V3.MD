@@ -7408,4 +7408,8 @@ Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. De
 
 
 
+> O empresário niilsita não cobra pela branding, ele ganha em cima do esforço alheio. Ele não precisa aparecer, portanto, é errado não pagar quem quer doar sua imagem. Tres coisas gastam muita energia mental e precisam ser bem remuneradas: exposição em excesso, controle de dinheiro em excesso e liderança de gigantes equipes. O individuo, precisa de meios para aliviar-se da pressão, por isso, é uma conversão de energia e se constitui como trabalho. No entanto, isto tem limite, e não é feito sobre a exploração de mão de obra. 
+
+
+
 > O niilista tenta ser odiado para chamar atenção, tenta ser uma pessoa ruim na tentativa de distorcer o sentido humano, da pessoa humana. Tenta ser odiado jogando o peso do que não pode perdoar nos outros.
