@@ -1786,9 +1786,13 @@ Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estar
 Exemplo: um olho observou totalmente a si mesmo, observou todo o tempo em si, porém, o ato da observação continua. O observar não cessa, pois não é um fenomeno ou materia não auto causal. Isto quer dizer que, podemos atribuir a visão da totalidade como um dom do Espírito que é a ''sabedoria'', mas não como um fechamento ontológico de possibilidades. Isto quer dizer que, a visão da totalidade temporal não esgota a ação do Espírito, não cega. Mas, o atribui de uma base de observação natural que projeta-se a favor de uma nova temporalidade. Isto quer dizer que, sob a eternidade do Espírito, há sempre uma renovação.
 
 
-E quando foi que a consumação da sabedoria do Espírito deu origem a primeira observação posterior a infinitude observada previamente? Ao considerarmos que 1111
+E quando foi que a consumação da sabedoria do Espírito deu origem a primeira observação posterior a infinitude observada previamente? Ao considerarmos que a totalidade vivida ainda está operante, ou seja, consciente. Temos a renovação constante da infinitude observada, e um momento nesta infinitude pré existente. Portanto, temos um momento na temporalidade da infinitude já consciente, e a capacidade de renovação do Espírito.
 
+A renovação, age, portanto, sobre toda a esfera de tempo. Portanto, temos um infinitude diagonal e uma horziontal, a infinitude pré existente, e uma infinitude que se extende desta como renovação. Nessa renovação constante há um tempo em que pode se dar o start do fenomeno. Isto quer dizer que, para alem da infinintude observada, há o obervador indo em prol de uma infinitude observada perpendicular.
 
+Exemplo: O Espírito observou a infinintude, em cada observação, o observador não se esgota e continua observando ainda que o tempo passe. O observador, viveu a infinitude, mas nunca se esgota do novo. Dentro da sua consumação da observação há vida, não há estaticidade. Desta forma, para todo tempo, temos um tempo perpendicular, que é o tempo vivificado infinitamente.
+
+O teor de vida do Espírito causa uma linha que cruza a infinitude, o tempo de observar, para o Espírito, nunca se finda.
 
 
 
