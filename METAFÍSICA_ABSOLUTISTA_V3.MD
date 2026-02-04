@@ -7423,3 +7423,6 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 > A alma no estado relativo é um infinito a parte da infinitude do Espírito que é indetectavel. O sou contempla de todo o tempo em si tal como o Espírito, e atualiza esse tempo tal como o Espírito. Porém, carece da sabedoria absoluta, se não esta transpassado por tal sabedoria. Pois o Espírito tem a sabedoria anterior aos tempos.
 
 > A alma fadada ao inferno impede sua atualização, porém está findada numa infinitude, isto quer dizer que queima a todo instante, é estática. Deixa um corpo imovel, sem atualização.
+
+
+> Quando o niilista provoca a situação no outro que é espelho do seu interior, como situação de escravidão, aprisionamento, escassez, desengano, sente que está sendo cuidado, isto lhe acalma, pois sente que fazer o outro se empatizar fará com que o outro encontre alguma solução para seu conflito. Portanto, causar o sofrer ao outro, é uma forma de garantir sua vida.
