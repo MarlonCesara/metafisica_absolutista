@@ -7426,3 +7426,7 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > Quando o niilista provoca a situação no outro que é espelho do seu interior, como situação de escravidão, aprisionamento, escassez, desengano, sente que está sendo cuidado, isto lhe acalma, pois sente que fazer o outro se empatizar fará com que o outro encontre alguma solução para seu conflito. Portanto, causar o sofrer ao outro, é uma forma de garantir sua vida.
+
+
+
+> Renascer pelo Espírito, singifica que o homem ainda tem sua liberdade quando opta pelo niilismo, porém, não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador. No sentido de que, é envolvido pelo Espírito, quando coagem com a vontade do Espírito.
