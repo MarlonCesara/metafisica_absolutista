@@ -398,6 +398,12 @@ Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundame
 
 É imperativo que exista uma razão para sua existência e para sua identidade. O Absoluto existe e é o que é. Tendo sido estabelecida a necessidade de um determinador último, infere-se que este determinador deve, ele próprio, ser incausado. Assim, chega-se à conclusão inevitável de um Absoluto auto-causado, tanto em sua existência quanto em sua essência.
 
+Se o absoluto é A, é necessária uma razão para que seja A e não B. Se o absoluto existe, é necessária uma razão para que exista. Ambas as modalidades de causalidade denotam o absoluto como motivo de sua existência, tal como razão de si, como se dá. Isto é, o absoluto não é somente causa primária de sua existência, mas é causa primária também de sua determinação.
+
+Ao inferir que o absoluto é causa de si mesmo, isto é, tem todas as propriedades para existir sem causa e se determinar por si mesmo, concluímos que não há uma segunda natureza exterior ou anterior segundo a qual ele deva ser, nem uma razão exterior ou anterior pela qual ele deva ser como é. Isto nos leva a concluir que ele mesmo é a razão para sua estadia e para a sua configuração.
+
+Se o absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o absoluto é Ser, é necessário que isso se justifique em si da mesma forma.
+
 #### **A Natureza Autofundante do Absoluto**
 
 O Absoluto possui uma natureza **autofundante** que transcende as categorias convencionais de causalidade:
