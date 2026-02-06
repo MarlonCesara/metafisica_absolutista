@@ -1417,6 +1417,10 @@ Porém, ao considerarmos que uma realidade auto fundamentada existe, é lógico 
 
 Existindo A, A é como A; portanto, se é possível uma existência, o determinador dessa existência é parte essencial dessa existência. Temos que, para o relativo, há necessariamente o determinador. E o determinador é indiferenciado tal como o relativo, pois é conforme o ato de existir e não conforme uma pessoalidade determinada. Desta forma, temos uma existência pura e um determinador indiferenciado para essa existência pura.
 
+O nada, portanto, é um operador lógico aplicado sobre o Ser, que cria uma realidade impossível. Essa realidade, considerada possível, pode ser suspensa como possibilidade, pois, uma vez que é possível, pode ser considerada uma suspensão. Temos, portanto, o Ser e o Não Ser possível.
+
+Aceitando a impossibilidade, ou seja, a existência do Não Ser, temos o indiferenciado. Pois podemos suspender aquilo que existe. Isto quer dizer que aceitamos uma hipótese impossível para pensar o absoluto indiferenciado.
+
 #### **O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
