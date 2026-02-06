@@ -489,9 +489,6 @@ A análise causal revela que o Absoluto é:
 
 Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fundamento último de toda realidade. Não faria sentido buscar uma fundamentação anterior ou mais primitiva, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.
 
-> _"Tudo que é, é no Absoluto; e o Absoluto é em si mesmo."_
-> — Paráfrase de Baruch Spinoza, _Ética_
-
 #### **A Natureza Pessoal do Autocausal**
 
 A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige personalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
@@ -709,9 +706,6 @@ O Ser como Autodeterminador:
 
 > *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."*
 
-**Síntese Final:**
-> *"O Absoluto é o Alfa e o Ômega (Apocalipse 22:13) — o princípio sem começo e o fim sem fim, cuja autocausalidade é tão eterna quanto dinâmica."*
-
 Esta visão supera as dicotomias tradicionais, revelando um **Deus que é ao mesmo tempo fundamento imutável e amor em ação**.
 
 #### **A Autocausalidade como Ato Imediato (Não-Temporal)**
@@ -833,11 +827,6 @@ O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas um
 -   **No Espírito**, o tempo é **encontro perpétuo consigo mesmo**.
 
 Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — não como duração infinita, mas como **presença absoluta que transcende toda medida**.
-
-> *— Eclesiastes 3:1*
->
-> *"Mas não se esqueçam de uma coisa, amados: para o Senhor um dia é como mil anos, e mil anos como um dia."*
-> *— 2 Pedro 3:8*
 
 #### **Estruturando a Infinitude: A Dissolução do Tempo no Ato Atemporal**
 
@@ -965,54 +954,46 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológic
 
 Esta tríplice dimensão da ação do Espírito não representa uma divisão, mas uma **unidade dinâmica** que manifesta a plenitude do Ser divino:
 
-1.  **Como Fundamentador,** Deus é o **Pai** - fonte incriada de toda existência.
-2.  **Como Plenificador,** Deus é o **Espírito Santo**- razão e sabedoria que estrutura a realidade.
-3.  **Como Personalizador,** Deus é o **Filho/Logos** - amor pessoal e dom que personaliza.
+1.  **Como Fundamentador,** O Espírito é o **doador da vida** - fonte incriada de toda existência.
+2.  **Como Plenificador,** O Espírito é a **direção à plenitude**- razão e sabedoria que estrutura a realidade.
+3.  **Como Personalizador,** O Espírito é a **pessoalidade** - amor pessoal e dom que personaliza.
 
 ### **CAPÍTULO 8: AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 #### **8.1 – As Pessoas da Autocausalidade Divina**
 
 A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, que correspondem às Pessoas da Santíssima Trindade.
 
-##### **1. O Poder Fundante (Espírito Fundamentador) - Deus Pai**
+##### **1. O Poder Fundante (Espírito Fundamentador)**
 -   **Atributos:**
     -   **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
     -   **Inabalabilidade:** Não se curva a contingências; sua natureza é *autossustentação pura*.
     -   **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
 -   **Símbolo:** O Trovão (a irrupção incontestável do Ser).
 -   **Princípio:** *"Antes de toda forma, há a fortaleza que a sustenta."*
--   **Fundamento Bíblico:**
-    -   *"Porque dele, e por meio dele, e para ele são todas as coisas."* (Romanos 11:36)
-    -   *"Eu sou o Alfa e o Ômega, diz o Senhor Deus, aquele que é, que era e que há de vir, o Todo-Poderoso."* (Apocalipse 1:8)
 
-##### **2. A Sabedoria Plenificadora (Espírito Realizador) - Espírito Santo**
+
+##### **2. A Sabedoria Plenificadora (Espírito Realizador)**
 -   **Atributos:**
     -   **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
     -   **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.
     -   **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
 -   **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
 -   **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
--   **Fundamento Bíblico:**
-    -   *"O Espírito sopra onde quer"* (João 3:8)
-    -   *"Mas o Consolador, o Espírito Santo, a quem o Pai enviará em meu nome, vos ensinará todas as coisas."* (João 14:26)
 
-##### **3. A Liberdade Personalizante (Alma Criadora) - Deus Filho**
+##### **3. A Liberdade Personalizante (Espírito personificador)**
 -   **Atributos:**
     -   **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
     -   **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
     -   **Vontade Lúdica:** Transforma a plenitude em *criatividade sagrada*, onde até a assimetria da paixão pessoal é um movimento da liberdade e do sagrado.
 -   **Símbolo:** A Criatividade do Ser (onde o Absoluto expande a si mesmo não somente em sua perfeição mas em suas tendências criativas).
 -   **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*
--   **Fundamento Bíblico:**
-    -   *"E o Verbo se fez carne e habitou entre nós."* (João 1:14)
-    -   *"Cristo Jesus, sendo em forma de Deus, esvaziou-se a si mesmo, assumindo a forma de servo."* (Filipenses 2:5-7)
 
 #### **Unidade na Trindade**
 
 Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:
--   O **Poder** (Pai) garante que o universo não desmorone.
--   A **Sabedoria** (Espírito Santo) assegura que cada movimento seja impecável.
--   A **Liberdade** (Filho) introduz a personalidade no cosmo.
+-   O **Poder** (Fundamentador) garante que o universo não desmorone.
+-   A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável.
+-   A **Liberdade** (Personalizador) introduz a personalidade no cosmo.
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
