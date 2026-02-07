@@ -4,25 +4,7 @@
 
 Este tratado apresenta um sistema metafísico completo e autoconsistente – uma estrutura lógica fechada que não admite erros, pois cada passo decorre necessariamente do anterior com rigor demonstrativo. Trata-se de uma edificação conceitual exata, onde as conclusões não são meras especulações, mas derivações inevitáveis dos próprios fundamentos da racionalidade.
 
-### **A Proposta: Reconstruir a Realidade a Partir de Princípios Irrefutáveis**
 
-A investigação aqui empreendida visa estruturar a realidade em sua totalidade, transcendendo os limites da física para alcançar os alicerces ontológicos últimos. Para tanto, parte-se dos conceitos-base da lógica clássica – não para repeti-los acriticamente, mas para aprimorá-los, completando-os com o **Princípio da Não-Disformidade**, que resolve a lacuna temporal que Aristóteles deixou em aberto. Do mesmo modo, o princípio da causalidade é radicalmente ampliado, desdobrando-se em quatro dimensões causais que explicam tanto a existência quanto a identidade, tanto no plano atemporal quanto no temporal.
-
-### **O Método: Exatidão e Necessidade Lógica**
-
-Este não é um exercício de opinião filosófica. Trata-se de uma **investigação exata**, na qual cada afirmação encontra sua justificação em princípios anteriores, formando uma cadeia dedutiva que conduz a uma única conclusão lógica possível. Não há atalhos, nem ambiguidades, nem conclusões alternativas: o sistema se fecha sobre si mesmo com a precisão de uma demonstração matemática, mostrando que a própria estrutura do pensamento válido nos conduz inexoravelmente a determinados horizontes metafísicos.
-
-### **O Resultado: Um Caminho Necessário para o Absoluto**
-
-Ao seguir este percurso, o leitor não encontrará múltiplas interpretações, mas um **caminho correto único** – aquele traçado pela própria natureza da lógica quando aplicada às questões últimas da existência. A conclusão não é uma entre muitas possíveis; é a **única conclusão lógica** que se mantém de pé quando todos os princípios são levados até suas últimas consequências. O sistema mostra como, a partir da correlação entre o *logos* do pensamento e o *logos* da realidade, somos necessariamente conduzidos à noção de um Absoluto autoconsciente, pessoal e trino – não como artigo de fé, mas como corolário lógico do próprio ato de pensar com rigor.
-
-Esta obra é, portanto, mais que uma teoria: é a **exposição sistemática das condições de possibilidade de toda realidade**, construída com as ferramentas mais precisas da razão e levada até onde apenas a razão pode ir – às portas do Mistério que a transcende.
-
-### **A Harmonia Entre Razão e Revelação**
-
-É digno de nota profunda – e intelectualmente fascinante – que esta investigação, conduzida exclusivamente pelos instrumentos da razão filosófica e do rigor lógico, chegue a resultados que **se cruzam e harmonizam perfeitamente com as verdades centrais da fé revelada**. As conclusões metafísicas sobre a autocausalidade, a natureza pessoal do Absoluto e sua estrutura trinitária não são impostas ao sistema, mas **emergem dele** com necessidade lógica. Este não é um caso de filosofia servindo à teologia, mas de dois caminhos distintos – o da razão pura e o da revelação – convergindo para a mesma verdade fundamental.
-
-A presença de referências religiosas, particularmente cristãs, ao longo do texto não representa uma intromissão dogmática, mas o **reconhecimento intelectual de uma concordância notável**. Quando a lógica, levada ao seu limite absoluto, descreve um Espírito autofundante que existe em três pessoas coeternas e consubstanciais, e quando a fé professa precisamente essa realidade, temos mais que uma coincidência: temos um **testemunho duplo** da mesma verdade.
 
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
 
