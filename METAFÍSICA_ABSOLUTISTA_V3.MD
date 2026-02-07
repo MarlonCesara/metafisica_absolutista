@@ -36,8 +36,8 @@ Estes princípios tornaram-se o fundamento da racionalidade ocidental, permitind
 
 No entanto, uma análise crítica revela que esta estrutura, embora necessária, é **suficiente apenas para uma descrição atemporal ou sincrónica da realidade**. O Princípio da Identidade define a essência, mas permanece mudo sobre a **persistência dessa identidade através do fluxo temporal**. Esta lacuna — a ausência de um princípio que regule a identidade *no* e *ao longo do* tempo — é o ponto de partida para a expansão metafísica que se segue.
 
-### **CAPÍTULO 2: DA LÓGICA CLÁSSICA À ONTOLOGIA TEMPORAL**
-#### **2.1 – Análise Crítica dos Princípios: A Questão Temporal**
+### **DA LÓGICA CLÁSSICA À ONTOLOGIA TEMPORAL**
+#### **Análise Crítica dos Princípios: A Questão Temporal**
 
 Uma análise profunda dos princípios lógicos fundamentais—**Identidade, Não-Contradição e Terceiro Excluído**—revela que sua aparente auto-evidência oculta uma distinção crucial entre **atemporalidade e temporalidade**, distinção esta essencial para qualquer metafísica que pretenda descrever a realidade em seu devir.
 
