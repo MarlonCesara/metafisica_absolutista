@@ -1893,7 +1893,11 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 > A lógica superior não é o romper completo do sistema lógico aristotélico, mas é uma abertura não disruptiva. O impossível é lançado de forma não destrutiva. Ao se aceitar que algo pode ou não ser ao mesmo tempo, não se tem imediatamente algo que é e não é, mas uma solução do que é, que interage com uma abertura a qualquer possibilidade e tem como resultado uma realidade não disruptiva.
 
-
+1- O impossível é considerado possível. É lançado no Ser, de forma a tornar O ser concomitantemente à sua via negativa. Produz uma situação poteticamente impossível.
+2- A situação poteticamente impossível é suspensa, e considerada uma possibilidade.
+3- A suspensão do impossível é possível, no entanto, a realização desta possibilidade, se dá conforme uma realidade não disruptiva. Isto quer dizer que, a determinação de uma realidade impossível necessita ser não disruptiva.
+4- O impossível em suspensão não necessariamente é determinado puramente impossível. Pois a determinação tem os cotornos do real.
+5- O impossível pode ser suspenso, e sua determinação é relativa aos contornos do real.
 
 
 
