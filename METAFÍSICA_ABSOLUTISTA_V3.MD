@@ -7410,3 +7410,8 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possívelmente erroneas sobre a moralidade dos anjos.
+
+
+
+
+> Ações da cupula niilista: incentiva a fome através de arquetipos de magreza na moda. Causa insegurança global com não tratado de armas nucleares. Causa teatrização do crime em capitais mundiais. Causa guerras sem sentido. Promove falsas aartistas que nao tem a formação necesaria para digerir criticas.
