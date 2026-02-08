@@ -7415,3 +7415,21 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > Ações da cupula niilista: incentiva a fome através de arquetipos de magreza na moda. Causa insegurança global com não tratado de armas nucleares. Causa teatrização do crime em capitais mundiais. Causa guerras sem sentido. Promove falsas aartistas que nao tem a formação necesaria para digerir criticas.
+
+
+
+
+
+
+
+
+
+
+
+
+> O impossível disrupotivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna, realizada no próprio ato de Ser. Ou seja, o Ser...
+
+
+> O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, da próprio sentimento superfulo de grandeza que culmina num desejo que está para alem das possibilidades, porem que culmina no nada. É um auto engano mental de que a realidade é superavel, para uma segunda realidade falsa.
+
+
