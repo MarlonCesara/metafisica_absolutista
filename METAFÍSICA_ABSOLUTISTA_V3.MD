@@ -7407,3 +7407,6 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > Renascer pelo Espírito, singifica que o homem ainda tem sua liberdade quando opta pelo niilismo, porém, não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador. No sentido de que, é envolvido pelo Espírito, quando coagem com a vontade do Espírito.
+
+
+> Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possívelmente erroneas sobre a moralidade dos anjos.
