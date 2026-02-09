@@ -7435,3 +7435,7 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 > No relativo qualquer coisa é possível.
 
 > O niilista não quer ver um mundo ideal, o assusta. O niilista sai da brincadeira que é o trabalho, organização social. Ele vê que concorre para o funcionamento, e quando o funcionamento já não o trás super benefícios, ou dominio e controle, ele corrompe os mecanismos da brincadeira, ou seja, usa de ma fé para obter o dinheiro, para burlar, sua opressão interior o faz delirar por dinheiro. Como se pudesse salva-lo. Ou por obsessões adversas. O niilista não desperta da brincadeira, pois a brincadeira não é uma imersao, mas se distrai dela com uma sintomatica. Não pode ver o sentido nas coisas.
+
+
+
+> O ato da plenitude é uma itersecção entre o ato da fundamentação e o da personalização. Em ambas as ações, exite o mesmo vinculo. 
