@@ -7439,3 +7439,6 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > O ato da plenitude é uma itersecção entre o ato da fundamentação e o da personalização. Em ambas as ações, exite o mesmo vinculo. 
+
+
+> Para suspender o nada é preciso definir o que é nada, o nada não existindo, nao ha como suspender o nada. É necessario suspender a propría substancia. Aceitando a substancia como não substancia, se obtem o verdadeiro indiferenciado, pois se pode suspender ate a substancia. Adicionando um operador lógico invaido pela lógica classica, se tem o indiferenciado. A aceitação do impossível. Temos então que, o Ser pode não ser e ter sua ação. E esse estado é positivo.
