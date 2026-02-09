@@ -7432,4 +7432,6 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 > O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, da próprio sentimento superfulo de grandeza que culmina num desejo que está para alem das possibilidades, porem que culmina no nada. É um auto engano mental de que a realidade é superavel, para uma segunda realidade falsa.
 
+> No relativo qualquer coisa é possível.
 
+> O niilista não quer ver um mundo ideal, o assusta. O niilista sai da brincadeira que é o trabalho, organização social. Ele vê que concorre para o funcionamento, e quando o funcionamento já não o trás super benefícios, ou dominio e controle, ele corrompe os mecanismos da brincadeira, ou seja, usa de ma fé para obter o dinheiro, para burlar, sua opressão interior o faz delirar por dinheiro. Como se pudesse salva-lo. Ou por obsessões adversas. O niilista não desperta da brincadeira, pois a brincadeira não é uma imersao, mas se distrai dela com uma sintomatica. Não pode ver o sentido nas coisas.
