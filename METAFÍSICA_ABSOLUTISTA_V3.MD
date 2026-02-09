@@ -7442,3 +7442,6 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > Para suspender o nada é preciso definir o que é nada, o nada não existindo, nao ha como suspender o nada. É necessario suspender a propría substancia. Aceitando a substancia como não substancia, se obtem o verdadeiro indiferenciado, pois se pode suspender ate a substancia. Adicionando um operador lógico invaido pela lógica classica, se tem o indiferenciado. A aceitação do impossível. Temos então que, o Ser pode não ser e ter sua ação. E esse estado é positivo.
+
+
+> A serpente queria que adão e eva morressem, então transviou o propósito da maça, abrindo a mente deles para uma paixão amorosa. E para, ao mesmo tempo, serem como deuses. 
