@@ -7445,3 +7445,5 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > A serpente queria que adão e eva morressem, então transviou o propósito da maça, abrindo a mente deles para uma paixão amorosa. E para, ao mesmo tempo, serem como deuses. 
+
+> A alma enquanto homem é homem, enquanto relativa é seu sonho?
