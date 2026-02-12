@@ -7456,3 +7456,5 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 
 
 > A droga é a forma pela qual o niilista expressa o ódio, o efeito da droga é tratavel, ao se incentivar o niilista a droga, ele simplesmente tenta se anular mais fortemente. É um ódio forte, um ódio em que nem mesmo a racionalidade opera. Um ódio que ultrapassa a normalidade de um ódio comum, que chega a um ódio tão forte que cega o individuo.
+
+> O individuo finge demencia para afastar e entendiar as pessoas de sua companhia, ou manifesta um comportamento anormal, para afastar e ter chances de se isolar.
