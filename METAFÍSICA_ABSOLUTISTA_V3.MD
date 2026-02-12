@@ -7447,3 +7447,9 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 > A serpente queria que adão e eva morressem, então transviou o propósito da maça, abrindo a mente deles para uma paixão amorosa. E para, ao mesmo tempo, serem como deuses. 
 
 > A alma enquanto homem é homem, enquanto relativa é seu sonho?
+
+
+
+> O homem herdou de adão e eva a corrupção, no sentido do eu livre. Adão e eva conheceram o bem e o mal no sentido da corrupação.
+
+> O usuario, nao aceita a diferença social, nao quer raciocinar sobre isso, apenas usa drogas, como tentativa de ir para um mundo perfeito imediatamente. E isso é um niilismo, pois o abuso de drogas leva a morte.
