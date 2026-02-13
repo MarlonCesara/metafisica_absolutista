@@ -7458,3 +7458,12 @@ A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para 
 > A droga é a forma pela qual o niilista expressa o ódio, o efeito da droga é tratavel, ao se incentivar o niilista a droga, ele simplesmente tenta se anular mais fortemente. É um ódio forte, um ódio em que nem mesmo a racionalidade opera. Um ódio que ultrapassa a normalidade de um ódio comum, que chega a um ódio tão forte que cega o individuo.
 
 > O individuo finge demencia para afastar e entendiar as pessoas de sua companhia, ou manifesta um comportamento anormal, para afastar e ter chances de se isolar.
+
+
+
+
+Possibilidade – O domínio do pensável e do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
+
+Impossibilidade – O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
+
+Incognoscível – O domínio que transcende inteiramente toda estrutura do pensamento, da linguagem e da referência conceitual; inacessível à razão discursiva, ainda que possa ser pressentido por vias não conceituais.
