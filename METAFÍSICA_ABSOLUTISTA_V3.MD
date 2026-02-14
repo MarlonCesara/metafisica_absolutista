@@ -6,6 +6,8 @@ O Absolutismo constitui um sistema de crenças de natureza libertária, cuja fin
 
 Para tornar possível esse entendimento e conduzir até ele, este tratado apresenta um sistema metafísico completo e autoconsistente: uma estrutura lógica fechada, na qual cada proposição decorre necessariamente da anterior, obedecendo a um rigor demonstrativo absoluto. Não se trata de um conjunto de especulações, mas de uma edificação conceitual exata, cujas conclusões emergem como consequências inevitáveis dos próprios fundamentos da racionalidade. Trata-se da filosofia levada ao seu limite último no que tange à exploração do território do real.
 
+Este tratato usa como base diversas reflexões ao longo dos séculos de pensadores renomados, de forma que, se encontre um conjunto viavel e rigoroso de pensamento que se obtem de caminhos lógicos exatos.
+
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
 
 #### **O Contexto Histórico e a Necessidade de um Organon**
@@ -202,9 +204,9 @@ Este quadro sistêmico demonstra que a pergunta metafísica fundamental — *"Po
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
 Ao examinar sua natureza, emergem três categorias radicais que antecedem e fundamentam até mesmo noções como "ente" ou "essência":
-1.  **Possibilidade:** O domínio do pensável, conforme delimitado pelas leis lógicas.
-2.  **Impossibilidade:** O domínio do impensável, aquilo que viola as leis lógicas.
-3.  **Incognoscível:** O domínio que transcende inteiramente a estrutura do pensamento e da linguagem.
+1.  **Possibilidade:** O domínio do pensável, conforme delimitado pelas leis lógicas. O domínio do pensável e do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
+2.  **Impossibilidade:** O domínio do impensável, aquilo que viola as leis lógicas. O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
+3.  **Incognoscível:** O domínio que transcende inteiramente a estrutura do pensamento e da linguagem. O domínio que transcende inteiramente toda estrutura do pensamento, da linguagem e da referência conceitual; inacessível à razão discursiva, ainda que possa ser pressentido por vias não conceituais.
 
 #### **4.2 – O Mapa da Realidade Cognoscível e Transcendente**
 
@@ -1403,6 +1405,65 @@ O nada, portanto, é um operador lógico aplicado sobre o Ser, que cria uma real
 
 Aceitando a impossibilidade, ou seja, a existência do Não Ser, temos o indiferenciado. Pois podemos suspender aquilo que existe. Isto quer dizer que aceitamos uma hipótese impossível para pensar o absoluto indiferenciado.
 
+
+
+
+
+
+
+
+
+
+
+
+### Título: A Suspensão do Ser e a Lógica do Indiferenciado
+
+#### O Nada como Ato de Anulação Ontológica
+O nada não é nada, é um ato da anulação ontológica. O nada não é uma determinação no Absoluto, isto é, é uma definição que não diz respeito a por que o Absoluto é nada e não outra coisa. Portanto, o nada, ainda que destituído de ontologia, e referido a um estado, é algo. Para suspender o nada é preciso definir o que é nada, o nada não existindo, nao ha como suspender o nada. É necessario suspender a propría substancia. Aceitando a substancia como não substancia, se obtem o verdadeiro indiferenciado, pois se pode suspender ate a substancia. Adicionando um operador lógico invaido pela lógica classica, se tem o indiferenciado. A aceitação do impossível. Temos então que, o Ser pode não ser e ter sua ação. E esse estado é positivo.
+
+#### A Negação da Determinação e a Via Negativa
+A negação do nada não existe; o que existe é a negação da determinação, daquilo que é como o que é, para produzir o indiferenciado. A única forma de suspender o Ser é por sua via negativa. E a via negativa transcende o princípio lógico "ou é ou não é". O ser é aquilo que existe, uma substância definida e formalizada, ou um estado. Quando o ser humano tenta pensar no incausado, imediatamente lhe vem o nada, porém o nada, além de ser ilógico, é uma determinação referencial.
+
+#### O Ser Além da Definição
+Portanto, o Ser não está retido em uma definição do que é. Em outras palavras, não precisa da existência formalizada, está além da própria definição de si mesmo. Quando se possibilita a existência de uma realidade que é, e não é ao mesmo tempo, temos a suspensão da definição.
+
+#### Ruptura com a Lógica Aristotélica
+Pois, segundo a lógica de Aristóteles, sempre haverá definições ou estados fixos para as coisas, ou se é ou não se é. A lógica aristotélica não permite indefinições para o Absoluto. Ao rompermos a lógica aristotélica como única via de investigação da realidade, temos a lógica superior, que possibilita indefinições, pois não deduz a totalidade pelo observável.
+
+#### A Realidade do Indiferenciado
+Desta forma, ao produzirmos uma realidade que é e não é, isto é, o impossível do que é — e não o impossível do que não é, pois o que não é não existe — temos, portanto, o indiferenciado. Uma realidade puríssima que emerge de si mesma e que se dá como tal em razão de si mesma.
+
+#### Libertação da Obrigatoriedade Lógica
+O que é e sua definição como aquilo que é, não estando preso à lógica clássica, se despreende de seu estatuto como imposição para o Absoluto, e assim nos livramos da determinação obrigatória que se dá, segundo a lógica clássica, de que ou se é ou não se é: não há uma indefinição.
+
+#### Suspensão do Estatuto Fixo e Ação Pura
+Ao suspendermos o estatuto fixo daquilo que é, podemos libertar as possibilidades, de forma que possam estar suspensas. O estatuto do que é define que tudo que é depende de sua existência. Isto quer dizer que algo só pode agir se existe para agir. Porém, na suspensão da lógica, temos que algo pode agir sem que exista para agir; temos, portanto, uma possível ação sem causa, uma ação puríssima.
+
+#### A Via Oposta e a Contravenção à Observação
+O que é, portanto, se suspende quando tiramos seu contorno claro e decisivo, quando eliminamos sua obrigatoriedade como única opção e aceitamos sua via oposta — e a via oposta é uma contravenção à observação a priori. Todas as coisas precisam existir para existir, isto é, precisam existir para ter seus efeitos na realidade.
+
+#### O Ser Suspenso e a Ruptura da Identidade
+Desta vez, está suspenso o que é, e até o que é sem que seja. Rompemos a obrigatoriedade e a determinação de haver o que é ou o que não é. Obrigação que delimitava o Absoluto em duas opções físicas, ou seja, a lógica atribuía duas vias de escolha, sem que fosse possível considerar ambas a fim de produzir uma suspensão. A lógica, portanto, atribui duas condições únicas, e que precisam se dar uma ou outra.
+
+Ao suspendermos essa obrigatoriedade, temos uma realidade em que o que é não precisa ser. E poderíamos romper a identidade na qual o objeto só é A ou B, e não há uma terceira opção. Se para o Absoluto aquilo que é só pode ter uma essência fixa, criamos, da mesma forma, uma definição. Temos que, para o Absoluto, algo pode ser e não ser ao mesmo tempo, e os entes podem misturar suas essências ao passo que mantêm a individualidade.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### **O Absoluto Indiferenciado como Fundamento Dinâmico**
 
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
@@ -2423,7 +2484,88 @@ E nesta decisão livre — que é atemporal em sua origem e temporal em sua real
 
 
 
+# Análise da Transcendência e Temporalidade Divina
 
+## A Transcendência e Invisibilidade de Deus
+
+Deus é tudo, porém, transcende tudo. O espírito cria o mundo mas está além do mundo. Cria o homem mas transcende o homem. Deus transcende tudo.
+
+Se Deus é invisível, ele pode compor todas as coisas e ainda assim ser tudo, preservando a identidade das coisas. Preserva a identidade e o ser das coisas como delas. Ao passo que é invisível. A invisibilidade compõe tudo, ao passo que não provoca alteração em tudo. Deus tem a translucidez perfeita. A pureza total. Sua identidade é indiferenciada, não se opõe à identidade das coisas ou ao ser das coisas.
+
+## O Relativo e o Tempo da Plenitude
+
+O *start* da ação do relativo acontece no tempo da plenitude. O relativo, portanto, sendo pleno, poderia não se determinar, e ser integralmente relativo. Porém, no tempo da plenitude, e sob a persona da plenitude, o tempo é determinado pelo espírito, no sentido de ser observado, conhecido e personalizável.
+
+As possibilidades suspensas não necessariamente são determinadas. Isto quer dizer que o que é suspenso está indiferenciado. A autodeterminação quer dizer uma configuração para o relativo, seja determinado ou não determinado. Se determinado, o é no tempo da plenitude.
+
+A pureza de Deus transcende qualquer identidade do *eu*, ainda que esteja em estado relativo, é um relativo individual. Deus é indiferenciado.
+
+## O Ato de Personalização e a Plenitude do Espírito
+
+O ato de personalização não surge no ato atemporal de plenitude do Espírito. A circularidade do Espírito engloba ele mesmo, é completa do ato de Ser. O ato de Ser necessita ser pleno para que se realize o Ser. Aquilo que é, é integralmente. Isto quer dizer que aquilo que existe executa sua tarefa de existir integralmente para se considerar existente.
+
+Desta forma, temos que a plenitude agia com o Espírito fundamentador, tal como a plenitude também poderia agir com o personalizador. Sendo uma ponta de interseção entre ambos: o espírito fundamentador e o personalizador.
+
+## Objeção e Resposta sobre o Tempo do Espírito
+
+**Objeção:** Quando é o tempo do Espírito, se o Espírito precisa ter sido puro em sua autodeterminação? Isto quer dizer que o universo mancharia sua pureza, então o tempo não pode ser dado como origem na plenitude, mas em um momento posterior à plenitude.
+
+**Resposta:** Quando Deus autodetermina, temos o fundamentador e o espírito perfeito. O fundamentador tem a ação da força, a ação de nutrir o absoluto com a sustentação do Ser. Sua ação no temporal é estática, sua ação é temporal. Porém, o espírito perfeito determina o campo das possibilidades, tal como potencial ou atualizado. O espírito é vivo no tempo. O espírito tem todo o seu tempo determinado. Portanto, o indiferenciado não pode conter uma determinação inicial.
+
+O espírito, independente de se dar integralmente como é — relativo e indiferenciado — ele se atualiza para além de si mesmo. Sobre o relativo fundamental há ainda uma determinação operante, que pode modificar cenários. O relativo não equivale ao espírito, no sentido de que o tempo está consumado nas possibilidades, porém o Espírito é vivo e sempre operante. Não há uma pausa para o espírito. Ainda no relativo, o Espírito é vivo e se determina relativo. Desta forma, o salto temporal do relativo para a determinação é segundo sua plenitude, ou seja, sua persona.
+
+## Os Três Níveis de Realidade
+
+Desta forma, temos que o tempo está sob determinação do espírito, e não o espírito sob determinação do tempo do relativo. O tempo do relativo, se estivesse sob determinação de si mesmo, estaria consumado e não aceitaria atualizações. Porém, tendo como determinante o Espírito, o tempo, ainda que consumado, se atualiza segundo o espírito e não segundo sua consumação.
+
+Então há três níveis de realidade:
+1. O plano horizontal temporal infinito
+2. O plano vertical consumado do relativo
+3. O plano da autodeterminação
+
+Este campo de possibilidades sofre uma linha de atualização quando munido de autodeterminação. Sendo, portanto, que o relativo possui uma dimensão temporal, atemporal e autodeterminante. A autodeterminação incide sobre o atemporal e o temporal. De forma que o relativo é o produto de sua autodeterminação, e não do relativo.
+
+## O Espírito e o Tempo Fenomênico
+
+Desta forma, o Espírito, ainda que num tempo inicial de atemporalidade, e ainda que dispondo de todo o tempo consumado — que é o campo das possibilidades — tem uma linha temporal diferente do tempo que pode *startar* do ponto de vista fenomênico. O espírito pode dar *start* ao tempo fenomênico, pois não parte de um estado atemporal. O tempo em si ainda existe, de forma que a ação do espírito de Ser é indiferenciada, no que tange a se dar sem atualizações.
+
+Isto é, o universo mancharia a pureza inicial do relativo e do espírito indiferenciado. Porém, a linha temporal do relativo ainda existe.
+
+## O Propósito da Criação e o Mistério do *Start*
+
+Deus tinha o propósito de criar o homem, pois isso se relaciona com sua plenitude. O propósito nasceu com Deus. Porém, o momento temporal determinado da criação surge em qual tempo, sendo que somente a plenitude pura se dá como tal, sem nenhuma determinação prévia?
+
+Se Deus transcende infinitamente a identidade e o seu Ser, numa linha vertical, isto quer dizer que há mais princípios lógicos. Um princípio diagonal, que não é a identidade nem a existência. O existir e a identidade não permitem decisões em sua esfera. A decisão de criação deveria ser no ato único.
+
+Mesmo que se ache o *start*, como se define a constante ação desde o momento da plenitude? Se o indiferenciado se dá como tal?
+
+## A Regressão ao Infinito e o Deus Transcendente
+
+O salto atemporal para uma determinação temporal ainda continua um mistério. Tende ao infinito uma regressão: se algo agiu sobre o tempo do espírito, e este algo porta o tempo, e outro algo agiu sobre o atemporal, regride infinitamente o tempo primeiro que teve a primeira ação. Ou seja, o indeterminado precisa de uma determinação em si, e essa determinação precisa ser indeterminada. Ao levarmos a uma escala sempre anterior, temos a inexistência do determinador e sua ação sobre o indiferenciado.
+
+Para agir sobre o indiferenciado, não se pode ser um determinador. Deveria haver um tempo anterior ao próprio relativo e ao Espírito. Isto quer dizer que deveria haver uma realidade espiritual. Um Deus sobre o próprio Deus, e neste deveria haver uma temporalidade. Então o indiferenciado ficaria intacto, mesmo que determinado. E nesse Deus sobre Deus, que se estende ao infinito, até ser totalmente puro, teria a ação do determinador, ainda que não exista.
+
+Portanto, Deus, quando causa a si mesmo, eleva-se ao infinito. Havendo uma realidade última inalcançável, que determina inexplicavelmente pela lógica no relativo. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante.
+
+Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. Deus está além do tempo e da atemporalidade, transcende a si mesmo infinitamente. A realidade inalcançável pela razão dá a vazão ao ato mesmo dentro da plenitude atemporal. Pois Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, rumo a uma realidade que extrapola o absoluto cognoscível e a noção de temporal e atemporal.
+
+## O Observador e a Linha Temporal
+
+Ao imaginarmos que o tempo do Espírito é como o tempo fenomênico, onde o tempo passado está consumado e o tempo futuro ainda suspenso nas possibilidades, temos um tempo linear, no qual o observador age no momento presente. Porém, ao não termos o tempo pelo ângulo linear de um fluxo presente, podemos abrir a liberdade do observador para toda a linha temporal, e não somente para o observador que navega no tempo.
+
+Se o observador navegante está consumado, não há mais o observador potencial de ação. Porém, se o observador está navegando em toda a extensão temporal e a observando por inteiro, o observador tem uma linha temporal infinita para determinar o ponto de *start* do fenômeno e do tempo linear.
+
+## A Alma e o Espírito
+
+A alma no estado relativo é um infinito à parte da infinitude do Espírito, que é indetectável. O *eu* contempla todo o tempo em si, tal como o Espírito, e atualiza esse tempo tal como o Espírito. Porém, carece da sabedoria absoluta, se não está transpassado por tal sabedoria. Pois o Espírito tem a sabedoria anterior aos tempos.
+
+## O Ato da Plenitude e o Impossível
+
+O ato da plenitude é uma interseção entre o ato da fundamentação e o da personalização. Em ambas as ações, existe o mesmo vínculo.
+
+No relativo, qualquer coisa é possível.
+
+O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna realizada no próprio ato de Ser.
 
 
 
@@ -6525,6 +6667,70 @@ Neste ínterim nasce a obsessão por bens materiais, por validação social. De 
 
 Todas essas imagens mentais pejorativas não correspondem, de fato, ao niilista, que também é um ser humano digno de compaixão e respeito. Contudo, é uma tendência do niilista conceber ideias negativas a respeito de si mesmo.
 
+#### **O ódio do niilista**
+
+O ódio do niilista se canaliza na sua auto anulação. Não tem exatamente um projeto para fora de si, um alvo ou objetivo, ou até mesmo uma obsessão. O obsessivo causa um comportamento aparentemente mais visível de revolta do que o niilista; o niilista tem um ódio intrusivo, e não expressivo. Seu ódio se findou em tudo, não simplesmente em uma causa. Seu ódio não tem de que, ou de quem, não tem um alvo. O ódio é generalizado, é concentrado num ponto único: o coração de Deus. O niilista quer atingir o ápice da sua vingança. O niilista intenta contra seu próprio nome.
+
+#### **A pobreza e o niilista**
+
+A pobreza, miséria, quando aceita, é praticamente um bem feito à postura niilista, no sentido de que grandes organizações estão num estado emocional mais confortável com sua postura interior devido à aceitação da pobreza por muitos. Isto é, se há grandes diferenças sociais no mundo, há pessoas problemáticas, pessoas que não estão usando seu senso de humanidade, pessoas que estão fora de seu senso de normalidade. A humanidade leva em seus ombros o peso do niilismo de muitos. Não é difícil viver, trabalhar; o trabalho é entender e lidar com quem está tendo dificuldade de sustentar sua própria liberdade. Viver, no sentido de sobreviver, é muito fácil; a complexidade do mundo está nos que estão em crise existencial, nos que acham difícil mudar de postura. A pobreza é uma forma de sustentar o peso emocional, o descarregar de emoções do niilista.
+
+#### **As relações do niilista**
+
+Quando se aproxima do niilista tentando estabelecer laços de amizade ou aquilo que agregue sentido e propósito à sua vida, ele desfere muitos palavrões, como se quisesse afastar de si qualquer proximidade verdadeira, ou distorce a intenção do indivíduo em sua mente, sexualizando tudo ou tornando tudo passível de interesse econômico. Caso se tente aproximar do niilista de forma a agradá-lo com uma amizade, ele começa a ofender de todas as formas ou fazer algo para afastar dele vínculos verdadeiros. Mantém uma certa distância do que considera verdadeiro, inventando brigas, pretextos para quebrar a harmonia ou para se afastar do convívio pessoal.
+
+O indivíduo finge demência para afastar e entediar as pessoas de sua companhia, ou manifesta um comportamento anormal, para afastar e ter chances de se isolar.
+
+#### **A expressão do niilista**
+
+O niilista tem constante necessidade de expressão, precisa constantemente expressar seus pensamentos que considera insanos, precisa do otimismo das pessoas, desabafar. O niilismo consome muita energia mental, causa grande ansiedade e terror no indivíduo, que constantemente precisa se expressar para criar otimismo e se livrar do desespero causado pela sua postura. Ao não poder se expressar, o niilista começa a se encerrar numa crise de desespero, desconsolo. Passa a ter episódios de agressividade, pois o conteúdo de seu pensamento é uma pressão que quer ser externalizada. O niilista se passa muitas vezes por inconveniente, importuno ou sem afazeres, pois tem constante necessidade de amparo. O niilista sobrevive do otimismo alheio; ao declarar-se contrário à sua própria vida, quando expressa isso, encontra um otimismo, uma barreira contra seu próprio ideal, o que o alimenta para seu dia a dia de otimismo. Isto é, o niilista pode manter sua postura e sobreviver do otimismo alheio sem precisar desenvolver o seu próprio, pois para seu dia a dia precisa de uma mentalidade de progresso e tranquilidade.
+
+#### **O empresário niilista**
+
+O empresário niilista não cobra pela branding; ele ganha em cima do esforço alheio. Ele não precisa aparecer; portanto, é errado não pagar quem quer doar sua imagem. Três coisas gastam muita energia mental e precisam ser bem remuneradas: exposição em excesso, controle de dinheiro em excesso e liderança de gigantescas equipes. O indivíduo precisa de meios para aliviar-se da pressão; por isso, é uma conversão de energia e se constitui como trabalho. No entanto, isto tem limite, e não é feito sobre a exploração de mão de obra.
+
+Os empreendedores coachs passam a impressão que o sucesso é dado pela branding, pelo indivíduo que escolhe assumir grande carga emocional. Porém, se todos o fizerem, a sociedade fica sem sua base, sem seus médicos, policiais, bombeiros. Portanto, a solução é identificar o propósito do niilista, e desta forma a humanidade passa a entender como funciona a mente daqueles que têm o acúmulo de riquezas, para passar a interpretar estes como uma ameaça e não como um acontecimento por um mérito que não existe.
+
+Através deste documento são demonstrados os caminhos para a riqueza, ou pela branding, ou pela exploração. E se é pela exploração, como no acúmulo de bilhões, certamente a humanidade deve se precaver contra esses, pois o ato de reunir pela exploração continua sua violência no ato de usar tais recursos para manipular a política, causar guerras, confusões e miséria. O propósito do niilista não se encerra no acúmulo de riquezas, mas na degradação do mundo.
+
+#### **O véu sobre a humanidade**
+
+Quando a humanidade entende o propósito do grande acúmulo de fortunas, passa a desenvolver metodologias para deter isto, uma vez que reconhece que o propósito disso não é mérito ou um avanço social necessariamente, mas se constitui como uma confusão mental, um intuito sintomático. Desconhecendo o propósito niilista, a humanidade toma as medidas que mais acha urgente, entra na superfície das catástrofes ao invés de se atentar ao acúmulo de fortunas. Isto quer dizer que existe um véu sobre os olhos da humanidade; não enxergando a verdadeira motivação dos super-ricos, a humanidade não associa toda a causa das guerras, catástrofes políticas, manipulação, miséria à índole do bilionário, pois interpreta que o acúmulo de riqueza tem um fim único no próprio acúmulo.
+
+A humanidade entende que o mecanismo do acúmulo de dinheiro alimenta o bilionário somente com bens de ostentação, e considera isso um problema superficial. Quando, na verdade, ao ter o entendimento real da mente do bilionário, passaria a temer deixar tal acúmulo nas mãos de poucos. Pois sabendo da sintomática que levou o bilionário a ser obcecado por riqueza, também pode inferir que toda a manipulação política que ocasionam conflitos, fome e guerra advém de uma mente niilista tendo um grande poder em mãos, e isto pode ser atribuído aos bilionários como causadores dos problemas, da desigualdade.
+
+#### **A solução para o niilismo estrutural**
+
+A humanidade, portanto, ciente do que é o niilismo, ativa seus mecanismos para desabastecer os bilionários de suas fortunas. Desta forma, a manipulação midiática acaba, a manipulação política também, a distribuição de riquezas se torna uniforme, e a humanidade passa a realmente aproveitar aquilo que produz, e até mesmo sobra tecnologia, esforços e mão de obra para focar na sustentabilidade. Quando se retiram as fortunas das mãos de indivíduos que estão em estado de confusão mental ou obsessivos por erradicar o sentido do mundo, se tem um mundo governado por quem se atenta às reais necessidades deste mundo. E se passa a criar regras para a produção, para produzir itens mais duráveis, se para de produzir tecnologias inúteis ou itens de ostentação que dispendem grande energia intelectual, e se para de produzir itens de guerra.
+
+#### **A branding verdadeira e o niilista**
+
+O indivíduo que realmente tem branding, que não é levado pelo uso de elementos químicos, ou pelo niilismo que lhe confere despropósito, desamor ao outro, e foco em si mesmo, e foco existencial por não crer em nada, ao cessar o niilismo, dispensa a branding verdadeira? Não. A branding real é formada por um estudo extenso do ser humano para ter uma previsibilidade da ampla gama de reações de um povo. A branding é trazida pela erudição. O niilista pode ou não desenvolver uma branding artificial.
+
+#### **As ações da cúpula niilista**
+
+Ações da cúpula niilista: incentiva a fome através de arquétipos de magreza na moda. Causa insegurança global com não tratado de armas nucleares. Causa teatralização do crime em capitais mundiais. Causa guerras sem sentido. Promove falsos artistas que não têm a formação necessária para digerir críticas.
+
+#### **A recusa do mundo ideal pelo niilista**
+
+O niilista não quer ver um mundo ideal, o assusta. O niilista sai da brincadeira que é o trabalho, organização social. Ele vê que concorre para o funcionamento, e quando o funcionamento já não lhe traz super benefícios, ou domínio e controle, ele corrompe os mecanismos da brincadeira, ou seja, usa de má-fé para obter o dinheiro, para burlar. Sua opressão interior o faz delirar por dinheiro, como se pudesse salvá-lo, ou por obsessões adversas. O niilista não desperta da brincadeira, pois a brincadeira não é uma imersão, mas se distrai dela com uma sintomática. Não pode ver o sentido nas coisas.
+
+#### **O espelho do niilista**
+
+Quando o niilista provoca no outro a situação que é espelho do seu interior, como situação de escravidão, aprisionamento, escassez, desengano, sente que está sendo cuidado; isto lhe acalma, pois sente que fazer o outro se empatizar fará com que o outro encontre alguma solução para seu conflito. Portanto, causar o sofrer ao outro é uma forma de garantir sua vida.
+
+#### **O usuário e o niilismo**
+
+O usuário não aceita a diferença social, não quer raciocinar sobre isso, apenas usa drogas como tentativa de ir para um mundo perfeito imediatamente. E isso é um niilismo, pois o abuso de drogas leva à morte.
+
+#### **A droga e o niilista**
+
+A droga é a forma pela qual o niilista expressa o ódio. O efeito da droga é tratável; ao se incentivar o niilista à droga, ele simplesmente tenta se anular mais fortemente. É um ódio forte, um ódio em que nem mesmo a racionalidade opera. Um ódio que ultrapassa a normalidade de um ódio comum, que chega a um ódio tão forte que cega o indivíduo.
+
+#### **O comportamento antissocial do niilista**
+
+O niilista tenta ser odiado para chamar atenção, tenta ser uma pessoa ruim na tentativa de distorcer o sentido humano, da pessoa humana. Tenta ser odiado jogando o peso do que não pode perdoar nos outros.
+
 #### **A convivência social do niilista (NOVO)**
 
 O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
@@ -6963,6 +7169,8 @@ Um fenômeno curioso é quando um herdeiro ganha fortunas de seus antepassados, 
 
 A chave para a libertação da escravidão moderna é entender como funciona a mentalidade do escravista, e isto, por vezes, nem mesmo os herdeiros dos bilionários conseguem compreender. Dizem que ganhar dinheiro parece fácil para as pessoas das quais herdaram, mas o difícil é entender a mentalidade que enxerga que ganhar dinheiro é fácil, e essa mentalidade é o niilismo, o qual, muitas vezes, oculta suas ações. Se vê na superfície o bilionário em seu requinte, mas suas ações por trás da fortuna não são vistas, nem ações modernas nem históricas. Então, pela ótica deste documento, é fácil compreender por que foi "fácil" construir os bilhões, enquanto uma multidão julga complexa a cabeça do bilionário, ele usa do sarcasmo pelas pessoas não entenderem o que é muito simples: ele é um niilista.
 
+> O ódio do niilista é gigantesto, é um ódio inarravel. Uma escuridão em seu coração, uma total falta de amor. 
+
 ### **A nova sociedade (NOVO)**
 
 Após a libertação da escravidão, a falência dos milionários e o cessar do pagamento a grandes dívidas inventadas na história pelos países, haverá um problema estrutural: empresas e produções voltadas para bens de consumo inúteis, tecnologias inúteis à sobrevivência, tais como produção de carros de luxo, de artigos que somente bilionários aproveitam. Armas bélicas, iates, etc. Há toda uma indústria do luxo que não prioriza em nada as necessidades mais básicas populares. Se houver toda força aplicada em construir tecnologias inúteis, o mundo continua na pobreza, uma vez que a produção é voltada para artigos fúteis, artigos que quebram rápido, artigos que poluem o meio ambiente e custam caro para ser descartados e reciclados.
@@ -6993,7 +7201,7 @@ Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realid
 
 ### **A cúpula de manipulação mundial**
 
-Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes.
+Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes. Descubra a miseria entre os ricos. Quando a inocencia do povo acabar sobre a mentalidade niilsita, as coisas podem ser diferentes.
 
 ### **Os ensinamentos de Jesus e a revolta niilista**
 
@@ -7034,6 +7242,8 @@ Certamente, para o niilista, ter um conjunto de regras que o salvariam da própr
 Um serviço escravo não é sempre imposto, mas às vezes é vendido, é oferecido como forma de aplacar dúvidas, medos e anseios existenciais. É uma forma de pausar à força o pensamento, impedi-lo de sintonizar-se com a realidade da finitude do homem e ainda o quase completo desconhecimento do que seja a alma e como ela permanecerá no tempo.
 
 Isto explica o fato de que, em países como o Brasil, se aceite algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceite fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
+
+> Oração pela alma: Oh senhor me mostrasste o mundo nu e cru, vi a violencia, a miseria, a escassez, a pobreza, e todo o mal do mundo, vi o mal e o bem. Vi meu irmao praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer consigo para sempre. Elimine de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de duvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poder amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesma que exista os que praticam o mal, pois te amarei acima de todas as coisas.
 
 ### **A libertação da matrix - Os três pilares da riqueza**
 
@@ -7297,197 +7507,47 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 #Rascunhos
 
-> O nada, não é nada, é um ato da anulação ontológica. 
-> O nada não é uma determinação no Absoluto, isto é, é uma definição que não diz respeito a porque o Absoluto é nada e não outra coisa. Portanto, o nada, ainda que destituido de ontologia, e referido a um estado, é algo.
-> O ato de personalização não surge no ato atemporal de plenitude do Espírito. A circularidade do Espírito emgloba ele mesmo, é completa do ato de Ser. O ato de Ser necessita ser pleno para que se realize o Ser. Aquilo que é, é integralmente. Isto quer dizer que, aquilo que existe, executa sua tarefa de existir integralmente para se considerar existente. Desta forma, temos que, a plenitude agia com o Espírito fundamentador. Tal como a plenitude também poderia agir com o personalizador. Sendo uma ponta de interseção entre ambos, o espirito funamentador e o personalizador.
-> Genes mistura algo lindo como a transcendencia do eu, a tentativa de um casal de se unir para sempre, como uma amortização da noticia grave do suicidio espiritual. Como se quisesse dissassociar a auto violencia com uma referencia ao nascimento, como se colocando um ciculo de vivificação, na auto anulação, pudesse ser um eufemismo para a informação da morte eterna.
+
+> Geneses mistura algo lindo como a transcendencia do eu, a tentativa de um casal de se unir para sempre, como uma amortização da noticia grave do suicidio espiritual. Como se quisesse dissassociar a auto violencia com uma referencia ao nascimento, como se colocando um ciculo de vivificação, na auto anulação, pudesse ser um eufemismo para a informação da morte eterna.
+
 > O fruto que adão e eva comeu era oferecido com duas modalidades, a informação da possibilidade da transcendencia. E a informação da possibilidade da morte eterna. O fruto, portanto é representado por uma ruptura do corpo, que os protegia contra o suicidio, e também os celava contra o encontro de almas. 
+
 > O diabo é representado como um tentador que oferece uma ferramente de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboriado no sentido do ato de ódio, a total ausencia de qualquer amor num coração que não enxerga outra coisa se não a vingança, que nem mesmo dá um nome para seu ódio. E torna-se seu próprio ódio.
+
+
+
+
+
+
+
+
+
+
+
 > Deixe que os mortos enterrem seus mortos, quer dizer que, o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbitrio, porém só nasce quando ama. Então isso é interpretado como um renascimento. 
+
 > O homem quando não escolhe em favor da vida, foi livre ao ter escolhido, mas não foi verdadeiramente livre.
 
-> O ódio do niilista é gigantesto, é um ódio inarravel. Uma escuridão em seu coração, uma total falta de amor. 
+
 
 > Quando o individuo opta pela plenitude, se dilui no Espirito de plenitude e adquire a vivacidade em Deus. 
 
 > A transcendencia causa uma alma viva, porem não vivificada pelo Espirito.
 
-> O ódio do niilista se canaliza na sua auto anulação. Não tem exatamente um projeto para fora de si, um alvo ou objetivo, ou até mesmo uma obsessão. O obsessivo causa um comportamento aparentemente mais visivel de revolta do que o niilista, o niilista tem um ódio intrusivo, e nao expressivo. Seu ódio se findou em tudo, não simplesmente em uma causa. Seu odio não tem de que, ou de quem, não tem um alvo. O ódio é gerenalizado, é concentrado num ponto unico: o coraçao de Deus. O niilista quer atingir o apicde da sua vingança. O niilista intenta contra seu próprio nome. 
-
-> A pobreza, miseria, quando aceita, é praticamente um bem feito a postura niilista, no sentido de que, grandes organizações estão num estado emocional mais confortavel com sua postura interior devido a aceitação da pobreza por muitos. Isto, é, se há grandes diferenças sociais no mundo, há pessoas problemáticas, pessoas que não estão usando seu senso de humanidade, pessoas que estão fora de seu senso de normalidade. A humanidade, leva em seus ombos, o peso do niiilismo de muitos. Não é dificil viver, trabalhar, o trabalho é entender e ldiar com quem está tendo dificuldade de sustentar sua própria liberdade. Viver, no sentido de sobreviver é muito facil, a complexidade do mundo esta nos que estão em crise existencial, nos que acham dificil mudar de postura. A pobreza é uma forma de sustentar o peso emocional, o decarregar de emoções do niilista.
-
-> Quando se aproxima do niilista tentando estabelecer laços de amizade ou aquilo que agregue sentido e proposito a sua vida, ele desfere muitos palavroes, como se quisesse afastar de si qualquer proximidade verdadeira, ou distorce a intenção do individuo em sua mente, sexualizando tudo ou tornando tudo passivel de interesse economico. Caso se tente aproximar do niilista de forma a agrada-lo com uma amizade, ele começa a ofender de todas as formas ou fazer algo para afastar dele vinculos verdadeiros. Mantem uma certa distancia do que considera verdadeiro, inventando brigas, pretextos para quebrar a harmonia ou para se afastar do convivio pessoal.
-
-
->Este é um empreendimento filosófico que propõe uma inversão radical do método escolástico: ao invés de construir a metafísica a partir da teologia revelada, como intentou São Tomás de Aquino em sua Suma Teológica, aqui busca-se construir o evangelho a partir da metafísica.
-
-Trata-se de uma fundamentação puramente racional que, partindo dos princípios mais elementares do pensamento (a lógica clássica), expande-se progressivamente através da ontologia, da causalidade e da noção de Absoluto, até alcançar — pela força intrínseca da razão filosófica — as portas da revelação trinitária.
-
-Este percurso não é uma negação da fé, mas uma demonstração de que a estrutura mais profunda da realidade, quando perscrutada com rigor lógico-metafísico, aponta necessariamente para um horizonte que a razão pode vislumbrar, mas não esgotar: o Mistério do Deus uno e trino.
-
-
-
-> Deus é tudo, porém, transcende tudo. O espírito cria o mundo mas está alem do mundo. Cria o homem mas transcende o homem. Deus transcende tudo.
-
-> Se Deus é invisivel ele pode compor todas as coisas e ainda assim ser tudo, preservando a identidade das coisas. Preserva a identidade e o ser das coisas como delas. Ao passo que é invisivel. A invisibilidade compoe tudo, ao passo que não provoca alteração em tudo. Deus tem a translucidez perfeita. A pureza total. Sua identidade é indiferenciada, não se opoe a identidade das coisas ou ao ser das coisas.
-
 > O relativo da dualidade ainda é relativo para as outras almas relativas.
 
 > As almas no relativo sao relativas umas as outras, isto é, não é necessario a determinação de uma separação.
 
-> O start da ação do relativo acontece no tempo da plenitude, o relativo, portanto, sendo pleno, poderia não se determinar, e ser integralmente relaativo, porem, no tempo da plenitude, e sob a persona da plenitude, o tempo é determinado pelo espírito, no sentido de ser ebservado, conhecido e personalizavel.
-
-> As possibilidades suspensas não necessariamente são determinadas, isto quer dizer que, o que é suspenso está indiferenciado. A autodeterminação quer dizer, uma configuração para relativo, seja determinado ou não determinado. Se determinado, o é no tempo da plenitude.
-
->descubra a miseria entre os ricos
-
-> Quando a inocencia do povo acabar sobre a mentalidade niilsita, as coisas podem ser diferentes.
-
-> A pureza de Deus transcende qualquer identidade do sou, ainda que esteja em estado relativo, é um relativo individual. Deus é indiferenciado.
-
-## objeção: Quando é o tempo do Espírito, se o Espírito precisa ter sido puro em sua auto determinação? Isto quer dizer que o universo mancharia sua pureza, então o tempo não pode ser dado como origem na plenitude, mas em um momento posterior a plenitude.
-
-> Quando Deus auto determina temos o fundamentador e o espírito perfeito, o fundamentador tem a ação da força, a ação de nutrir o absoluto com a sustentação do Ser. Sua ação no temporal é estatica, sua ação é temporal. Porém, o espírito perfeito, determina o campo das possibilidades tal como potencial ou atualizado. O espírito é vivo no tempo. O espírito tem todo o seu tempo determinado.  Portanto o indiferenciado, não pode conter uma determinação inicial. O espírito, independente de se dar integralmente como é, relativo e indiferenciado, ele se atualiza para alem de si mesmo. Sobre o relativo fundamental há ainda uma determinação operante, que pode modificar cenários. O relativo não equivale ao espírito, no sentido de que, o tempo está consumado nas possibilidades, podem o Espírito é vivo e sempre operante. Não há uma pausa para o espírito. Ainda no relativo o Espírito é vivo e se determina relativo. Desta forma o salto temporal, do relativo para a determinação é segundo sua plenitude, ou seja, sua persona. 
-
-Desta forma temos que, o tempo está sob determinação do espírito e não o espírito sobre determinação do tempo do relativo. O tempo do relativo, se estivesse sob determinação de si mesmo, estaria consumado e não aceitaria atualizações. Porém, tendo como determinante o Espírito, o tempo ainda que consumado se atualiza segundo o espírito e não segundo sua consumação.
-
-Então há tres níveis de realidade, o plano horizontal temporal infinito, o plano vertical consumado do relativo. Porém, este campo de possibilidades sofre uma linha de atualziação quando munido de auto determinação. Sendo portanto, que, o relativo possui uma dimensão temporal, atemporal, e auto determinante. A auto determinação incide sobre o atemporal e temporal. De forma que, o relativo é o produto de sua autodeterminação e não do relativo. 
-
-Desta forma, o Espírito, ainda que num tempo inicial de atemporalidade, e ainda que dispondo de todo o tempo consumado, que é o campo das possibilidades. Tem uma linha temporal diferente do tempo que pode startar do ponto de vista fenomenico. O espírito pode dar start ao tempo fenomenico, pois não parte de um estado atemporal, o tempo em si ainda existe, de forma que, a ação do espírito de Ser, é indiferenciada, no que tange a se dar sem atualizações.
-
-Isto é, o universo mancharia a pureza inicial o relativo e o espírito indiferenciado. Porém, A linha tempora do relativo ainda existe.
-
-> Deus tinha o proposito de criar o homem pois isso se relaciona com sua plenitude. O proposito nasceu com Deus. Porém, o momento temporal determinado da criaçãosurge em qual tempo, sendo que somente a plenitude pura se dá como tal, sem nenhuma determinação previa?
-
-
-Se Deus transcende infinitamente a identidade e o seu Ser. Numa linha vertical. Isto quer dizer que há mais principios lógicos. Um principio diagonal. Que não é a identidade e nem a existencia. O existir e a identidade não permitem decisões em sua esfera. A decisão de criação deveria ser no ato único. 
-
-Mesmo que se ache o start, como se define a constante ação desde o momento da plenitude? Se o indiferenciado se da como tal?
-
-O salto atemporal para uma determinação temporal ainda continua um mistério.
-
-Tende ao infinito uma regressão, se algo agiu sobre o tempo do espirito e este algo porta o tempo, e outro algo agiu sobre o atemporal, e regride infniitamente o tempo primeiro que teve a primeira ação. Ou seja, o indeterminado precisa de uma determinaçaõ em si, e essa determinaçaõ precisa ser indeterminada. Ao levarmos a uma escala sempre anterior, temos a inexistencia do determinador e sua ação sobre o indiferenciado.
-
-Para agir sobre o indiferenciado não se pode ser um determinador. Deveria haver um tempo anterior ao proprio relativo e o Espírito. Isto quer dizer que, deveria haver uma realidade espiritual. Um Deus sobre o próprio Deus, e neste deveria haver uma temporalidade, então o indiferenciado ficaria intacto mesmo que determinado. E nesse Deus sobre Deus, que se estende ao infinnito, até ser totalmente puro. E ter a ação do determinador, ainda que não exista.
-
-Portanto, Deus, quando causa a si mesmo, se eleva ao infinito. Havendo, uma realidade ultima inancançavel, que determina inexplicavelmente pela lógica, no relativo. Um Deus temporal inancançãvel ate para si mesmo, que transende a si num ciculo temporal causal a todo instante.
-
-Portanto, o tempo do espírito pode determinar sobre a plenitude do relativo. Deus está alem do tempo e da atemporalidade, transcende a si mesmo infinitamente. A realidade inancancável pela razão dá a vazão ao ato mesmo dentro da plenitude atemporal. Pois, Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, rumo a uma realidade que extrapola o absoluto cognocível e a noção de temporal e atemporal.
-
-
-
-> Ao imaginarmos que o tempo do Espírito é como o tempo fenomênico, onde o tempo passado está consumado e o tempo futuro ainda suspenso nas possibilidades, temos um tempo linear, no qual o observador age no momento presente. Porém, ao não termos o tempo pelo ângulo linear de um fluxo presente, podemos abrir a liberdade do observador para toda a linha temporal, e não somente para o observador que navega no tempo. Se o observador navegante está consumado, não há mais o observador potencial de ação; porém, se o observador está navegando em toda a extensão temporal e a observando por inteiro, o observador tem uma linha temporal infinita para determinar o ponto de start do fenômeno e do tempo linear.
-
-
-
-
-> O niilista tem constante necessidade de expressão, precisa contantemente expressar seus pensameetnos que considera insanos, precisa do otismismo das pessoas, desabafar, o niilismo consome muita energia mental, causa grande ansiedade, e terror no individuo, que constamente precisa se expressar para criar otimismo e se livrar do desespero causado pela sua postura. Ao não poder se experssar o niilista começa a se encerrar numa crise de desespero, desconsolo. Passa a ter episodios de agressividade. Pois o conteudo de seu pensamento é uma pressão que quer ser esternalizada. O niilista se passa muitas vezes por inconveniente, immportuno ou sem afazeres, pois tem constante necessidade de amparo. O niilista sobrevive do otimismo alheio, ao declarar-se contrario a sua propria vida, quando expressa isso, encontra um otimismo, uma barreira contra seu proprio ideal, o que o alimenta para seu dia a dia de otimismo. Isto é, o niilista pode manter sua postura e sobreviver do otimismo alheio sem precisar desenvolver seu proprio, pois para seu dia a dia precisa de uma mentalidade de progresso e tranquilidade.
-
-
-
-> O empresário niilsita não cobra pela branding, ele ganha em cima do esforço alheio. Ele não precisa aparecer, portanto, é errado não pagar quem quer doar sua imagem. Tres coisas gastam muita energia mental e precisam ser bem remuneradas: exposição em excesso, controle de dinheiro em excesso e liderança de gigantes equipes. O individuo, precisa de meios para aliviar-se da pressão, por isso, é uma conversão de energia e se constitui como trabalho. No entanto, isto tem limite, e não é feito sobre a exploração de mão de obra. Os empreendores coachs passam a imrpessão que o sucesso é dado pela branding, pelo individuo que escolhe assumir grande carga emocional. Porém, se todos o fizerem a sociedade ficam sem sua base, sem seus medicos, policiais, bombeiros. Portanto, a solução é identificar o proposito do niilista, e desta forma, a humanidade passa a entender como funciona a mente daqueles que tem o acumulo de riquezas. Para passar a interpretar estes como uma ameaça e não como um acontecimento por um mérito que não existe. Através desse documento é demonstrados os caminhos para a riqueza, ou pela branding, ou pela exploração. E se é pela exploração como no acumulo de bilhoes, certamente a humanidade deve se precaver contra esses, pois o ato de reunir pela exploração continua sua violencia no ato de usar tais recursos para manipular a politica, causar guerras, confusões e miséria. Pois o propísito do niilista não se encerra no acumulo de riquezas, mas na degradação do mundo. Quando a humanidade entende o proposito do grande acumulo de fortunas, passa a desenvolver metodologias para deter isto, uma vez que reconhece que o proposito disso não é merito ou um avanço social necessariamente, mas se constitui como uma confusão mental, um intuito sintomatico. Desconhecendo o proposito niilista a humanidade toma as medidas que mais acha urgente, entra na superficie das catastrofes ao invés de se atentar ao acumulo de fortunas. Isto quer dizer que, existe um véu sobre os olhos da humanidade, não enxergando a verdaeira motivação dos super ricos, a humanidade não associa toda a causa das guerras, catastrofes politics, manipulação, miséria a indole do bilionario, pois interpreta que o acumulo de riqueza tem um fim único no próprio acumulo.
-
-A humanidade intreta que o mecanismo do acumulo de dinheiro alimenta o bilionario somente com bens de hostentação, e considera isso um problema superficial. Quando, na verdade, ao ter o entendimento real da mente do bilionário, passaria a temer deixar tal acumulo nas mãos de poucos. Pois sabendo da sintomatica que levou o bilionário a ser obcecado por riqueza, tambem pode inferir que toda a manipulação politica que ocasiomam conflitos, fome e guerra advem de uma mente niilista tendo um grande poder em mãos, e isto pode ser atribuido aos bilionários como causadores dos problemas, da desigualdade.
-
-A humandidade, portanto, ciente do que é o niilismo ativa seus mecanismos para desabastacer os bilionários de suas fortunas. Desta forma, a manipulação midiatica acaba, a manipulação politica também, a distribuição de riquezas se torna uniforme, e a humanidade passa a realmente aproveitar aquilo que produz, e até mesmo sobra tecnologia, esforços e mão de obra para focar na sustentabilidade. Quando se retira as fortunas das mãos de individuos que estão em estado de confusão mental ou obsessivos por erradicar o sentido do mundo, se tem um mundo governado por quem se atenta as reais necessidades deste mundo. E se passa a criar regras para a produção, para produzir itens mais duráveis, se para de produzir tecnologias inuteis ou itens de ostentação que dispendem grande energia intelectual, e se para de produzir itens de guerra.
-
-> O individuo que realmente tem branding, que não é levado pelo uso de elementos quimicos, ou pelo niilismo que o conefre desproposito, desamor ao outro, e foco em si mesmo, e foco existencial por nao crer em nada, ao cessar o niilismo, dispensa a branding verdadeira. A branding real é formada por um estudo extenso do ser humano para ter uma previsibilidade da ampla gama de reações de um povo. A branding é trazida pela erudição. O niilista pode ou não desenvolver uma branding artificial.
-
-
-> O niilista tenta ser odiado para chamar atenção, tenta ser uma pessoa ruim na tentativa de distorcer o sentido humano, da pessoa humana. Tenta ser odiado jogando o peso do que não pode perdoar nos outros.
-
-
-> A alma no estado relativo é um infinito a parte da infinitude do Espírito que é indetectavel. O sou contempla de todo o tempo em si tal como o Espírito, e atualiza esse tempo tal como o Espírito. Porém, carece da sabedoria absoluta, se não esta transpassado por tal sabedoria. Pois o Espírito tem a sabedoria anterior aos tempos.
-
 > A alma fadada ao inferno impede sua atualização, porém está findada numa infinitude, isto quer dizer que queima a todo instante, é estática. Deixa um corpo imovel, sem atualização.
-
-
-> Quando o niilista provoca a situação no outro que é espelho do seu interior, como situação de escravidão, aprisionamento, escassez, desengano, sente que está sendo cuidado, isto lhe acalma, pois sente que fazer o outro se empatizar fará com que o outro encontre alguma solução para seu conflito. Portanto, causar o sofrer ao outro, é uma forma de garantir sua vida.
-
-
 
 > Renascer pelo Espírito, singifica que o homem ainda tem sua liberdade quando opta pelo niilismo, porém, não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador. No sentido de que, é envolvido pelo Espírito, quando coagem com a vontade do Espírito.
 
-
 > Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possívelmente erroneas sobre a moralidade dos anjos.
-
-
-
-
-> Ações da cupula niilista: incentiva a fome através de arquetipos de magreza na moda. Causa insegurança global com não tratado de armas nucleares. Causa teatrização do crime em capitais mundiais. Causa guerras sem sentido. Promove falsas aartistas que nao tem a formação necesaria para digerir criticas.
-
-
-
-
-
-
-
-
-
-
-
-
-> O impossível disrupotivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna, realizada no próprio ato de Ser. Ou seja, o Ser...
-
 
 > O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, da próprio sentimento superfulo de grandeza que culmina num desejo que está para alem das possibilidades, porem que culmina no nada. É um auto engano mental de que a realidade é superavel, para uma segunda realidade falsa.
 
-> No relativo qualquer coisa é possível.
-
-> O niilista não quer ver um mundo ideal, o assusta. O niilista sai da brincadeira que é o trabalho, organização social. Ele vê que concorre para o funcionamento, e quando o funcionamento já não o trás super benefícios, ou dominio e controle, ele corrompe os mecanismos da brincadeira, ou seja, usa de ma fé para obter o dinheiro, para burlar, sua opressão interior o faz delirar por dinheiro. Como se pudesse salva-lo. Ou por obsessões adversas. O niilista não desperta da brincadeira, pois a brincadeira não é uma imersao, mas se distrai dela com uma sintomatica. Não pode ver o sentido nas coisas.
-
-
-
-> O ato da plenitude é uma itersecção entre o ato da fundamentação e o da personalização. Em ambas as ações, exite o mesmo vinculo. 
-
-
-> Para suspender o nada é preciso definir o que é nada, o nada não existindo, nao ha como suspender o nada. É necessario suspender a propría substancia. Aceitando a substancia como não substancia, se obtem o verdadeiro indiferenciado, pois se pode suspender ate a substancia. Adicionando um operador lógico invaido pela lógica classica, se tem o indiferenciado. A aceitação do impossível. Temos então que, o Ser pode não ser e ter sua ação. E esse estado é positivo.
-
+> A alma enquanto homem é homem, enquanto relativa é seu sonho.
 
 > A serpente queria que adão e eva morressem, então transviou o propósito da maça, abrindo a mente deles para uma paixão amorosa. E para, ao mesmo tempo, serem como deuses. 
 
-> A alma enquanto homem é homem, enquanto relativa é seu sonho?
-
-
-
 > O homem herdou de adão e eva a corrupção, no sentido do eu livre. Adão e eva conheceram o bem e o mal no sentido da corrupação.
-
-> O usuario, nao aceita a diferença social, nao quer raciocinar sobre isso, apenas usa drogas, como tentativa de ir para um mundo perfeito imediatamente. E isso é um niilismo, pois o abuso de drogas leva a morte.
-
-
-> A droga é a forma pela qual o niilista expressa o ódio, o efeito da droga é tratavel, ao se incentivar o niilista a droga, ele simplesmente tenta se anular mais fortemente. É um ódio forte, um ódio em que nem mesmo a racionalidade opera. Um ódio que ultrapassa a normalidade de um ódio comum, que chega a um ódio tão forte que cega o individuo.
-
-> O individuo finge demencia para afastar e entendiar as pessoas de sua companhia, ou manifesta um comportamento anormal, para afastar e ter chances de se isolar.
-
-
-
-
-Possibilidade – O domínio do pensável e do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
-
-Impossibilidade – O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
-
-Incognoscível – O domínio que transcende inteiramente toda estrutura do pensamento, da linguagem e da referência conceitual; inacessível à razão discursiva, ainda que possa ser pressentido por vias não conceituais.
-
-
-> Oração pela alma: Oh senhor me mostrasste o mundo nu e cru, vi a violencia, a miseria, a escassez, a pobreza, e todo o mal do mundo, vi o mal e o bem. Vi meu irmao praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer consigo para sempre. Elimine de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de duvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poder amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesma que exista os que praticam o mal, pois te amarei acima de todas as coisas.
-
-
-
-> A negação do nada não existe, o que existe é a negação da determinação, de o que é como o que é, para produzir o indiferenciado. A unica forma de suspender o Ser é por sua via negativa. E a via negativa transcende o principio lógico ou é ou não é. O ser é aquilo que existe, uma substancia definida e formalizada, ou um estado. Quando o ser humano tenta pensar no incausado imediatamente he vem o nada, porem o nada alem de ser ilógico, é uma deterinação referencial.
-
-Portanto, o Ser não esta retido em uma definição do que é. Em outras palavras, não precisa da existencia formalizada, está alem da própria definição de si mesmo. Quando se possibilita a existencia de uma realidade que é, e não é ao mesmo tempo, temos a suspensão da definição.
-
-Pois segundo a lógica de aristoteles, sempre haverá definições ou estados fixos para as coisas, ou se é ou não se é. A lógica aristotélica não permite indefinições para absoluto. Ao rompermos a lógica aristotélica, como unica via de investigação da realidade, temos a lógica superior, que possibilita indefiniçoes, pois não deduz a totalidade pelo observavel.
-
-Desta forma, ao produzirmos uma realidade que é e não é, isto é, o impossível do que é. E não o impossível do que não é, pois o que não é não existe. Temos, portanto, o indiferenciado. Uma realidade purissima que emerge de si mesma e que se dá como tal em razão de si mesma. 
-
-O que é e sua definição como aquilo que é, não estando preso a lógica classica, se despreende de seu estatuto como imposição para o absoluto, e assim nos livramos da determinação obrigatória que se dá segundo a lógica classica, de que ou se é ou se não é, não há uma indefinição.
-
-Ao suspendermos o estatuto fixo daquilo que é, podemos libertar as possilidades, de forma que possam estar suspensas. O estatudo do que é define que tudo que é depende de sua existência. Isto quer dizer que, algo só pode agir se existe para agir. Porém, na suspensão da lógica, temos que, algo pode agir sem que exista para agir, temos, portanto, uma possivel ação sem causa. Uma açao purissima.
-
-O que é, portanto se suspende, quando tiramos seu contorno claro e decisivo, quando eliminamos sua obrigatoriedade como unica opção, e aceitamos sua via oposta, e a via oposta é uma contravenção a observação a priori. Todas as coisas precisam existir para existir, isto é, precisam existir para ter seus efeitos na realidade.
-
-Desta vez esta suspenso o que é, e ate o que é sem que seja. Rompemos a obrigatóriedade e a determinação de haver o que é ou o que não é. Obrigação que delimitava o absoluto em duas opções físicas, ou seja, a lógica atribuia duas vias de escolha, sem que fosse possível considerar ambas afim de produzir uma suspensão. A lógica, portanto, atribui duas condições únicas, e que precisam se dar uma ou outra.
-
-Ao suspendermos essa obrigatoriedade, temos uma realidade em que o que é não precisa ser. E, poderiamos romper a identidade na qual, o objeto só é a ou b, e não há uma terceira opção. Se para abosoluto, aquilo que é só pode ter uma essencia fixa, criamos, da mesma forma, uma definição. Temos que, para absoluto algo pode ser e nao ser ao mesmo tempo, e os entes podem misturar suas essencias ao passo que mantem a individualidade. 
-
