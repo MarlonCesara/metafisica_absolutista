@@ -7576,6 +7576,8 @@ Isto é, eram perfeitamente feitos um para o outro, estavam numa forma pura, ond
 
 O ato da relação deu origem a algo diferente da pureza inciial e da harmonia, algo que poderia morrer. E essa união foi de cunho proibitivo pois causaria a possibilidade de corrupção. Quando comeram a fruta ainda eram como deuses, porém, ao comerem e morrerem, foram representados pelo primeiro homem e primeira mulher da humanidade. Ao morrerem tinham a corrupção.
 
-O fruto corrompia pois gerava entes corruptíveis. E a união representada por adão e eva é um potencial diminuido. Deus não necessita ser um homem e mulher para criar, já é em si um indiferenciado.
+O fruto corrompia pois gerava entes corruptíveis. E a união representada por adão e eva é um potencial diminuido. Deus não necessita ser um homem e mulher para criar, já é em si um indiferenciado. Quando a projeção acaba, a narrativa expressa que a morte acontece, porém, o acabar da projeção é no momento da prole. Ambos morrem e há a prole. Isto indica que a prole assumiu adão e eva, transferiu a simbologia para seu estatuto de corrupção. O findar da projeção, da diminuilção do indiferenciado, simbolizou a criação do homem.
+
+
 
 
