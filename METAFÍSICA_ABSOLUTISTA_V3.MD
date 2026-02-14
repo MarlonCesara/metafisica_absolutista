@@ -7516,6 +7516,11 @@ O fruto que Adão e Eva comeu era oferecido com duas modalidades: a informação
 **O Diabo e o Ódio**
 O diabo é representado como um tentador que oferece uma ferramenta de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboreado no sentido do ato de ódio, a total ausência de qualquer amor num coração que não enxerga outra coisa senão a vingança, que nem mesmo dá um nome para seu ódio e torna-se seu próprio ódio.
 
+
+
+
+
+
 **Deixe que os Mortos Enterrem seus Mortos**
 "Deixe que os mortos enterrem seus mortos" quer dizer que o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbítrio, porém só nasce quando ama. Então isso é interpretado como um renascimento.
 
@@ -7527,6 +7532,10 @@ Quando o indivíduo opta pela plenitude, se dilui no Espírito de plenitude e ad
 
 **A Alma Vivificada**
 A transcendência causa uma alma viva, porém não vivificada pelo Espírito.
+
+
+
+
 
 **A Relatividade das Almas**
 O relativo da dualidade ainda é relativo para as outras almas relativas. As almas no relativo são relativas umas às outras, isto é, não é necessária a determinação de uma separação.
@@ -7551,9 +7560,9 @@ A serpente queria que Adão e Eva morressem, então transviou o propósito da ma
 
 > O paraíso é a mais alta aspiração do homem unida a mais alta aspiração de Deus.
 
-> Os anjos são projeções do desejo. Se o homem é como o anjo, será a projeção de um desejo de homem. 
+> Os anjos são projeções do desejo. Se o homem é como o anjo, será a projeção de um desejo de homem. Eles serão o sonho de um novo homem. Serão uma projeção viva, de transcendencia.
 
-> O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a auto-presença. Conforme a auto presença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que, o atemporal torna-se sabedoria, e a linha perperndicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal continua na consumação, de forma que a consumação esteja constantemente aberta a temporalidade, num tempo atual.
+> O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a auto-presença. Conforme a auto presença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que, o atemporal torna-se sabedoria, e a linha perperndicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal continua na consumação, de forma que a consumação esteja constantemente aberta a temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
 
 
 
