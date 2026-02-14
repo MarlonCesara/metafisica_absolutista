@@ -7570,6 +7570,12 @@ A serpente queria que Adão e Eva morressem, então transviou o propósito da ma
 
 
 
+> Adão e Eva não tinham pecado no sentido de ser uma dimiuição do Espírito expandido. Quando comeram a maça, herdaram a corrupção no sentido que simbolizaram um ato unitivo. O fruto representado um pelo outro. O rompimento do corpo, a nudez do relativo e a possibilidade da indiferenciaçaõ da dualidade. Porém, o próprio rompimento do corpo simbolizou a morte. Isto é, adão e eva tinham um corpo especial que os protegia da corrupção, o fruto desfez o statudo de incorruptivel. Isto quer dizer que, no instante que decidiram se fazer como deuses, houve uma mudança radical na natureza de ambos. Deixaram de ser como deuses, como uma projeção determinada de Deus, estando na harmonia inicial. Essa projeção colapsou, e tornaram-se nus, necessitados de roupas. 
 
+Isto é, eram perfeitamente feitos um para o outro, estavam numa forma pura, onde poderiam se unir. Ao comerem do fruto proibido, morreram e se esconderam um do outro, no sentido de não evidenciar sua natureza verdadeira. Usavam roupas, isto é, o corpo humano. 
+
+O ato da relação deu origem a algo diferente da pureza inciial e da harmonia, algo que poderia morrer. E essa união foi de cunho proibitivo pois causaria a possibilidade de corrupção. Quando comeram a fruta ainda eram como deuses, porém, ao comerem e morrerem, foram representados pelo primeiro homem e primeira mulher da humanidade. Ao morrerem tinham a corrupção.
+
+O fruto corrompia pois gerava entes corruptíveis. E a união representada por adão e eva é um potencial diminuido. Deus não necessita ser um homem e mulher para criar, já é em si um indiferenciado.
 
 
