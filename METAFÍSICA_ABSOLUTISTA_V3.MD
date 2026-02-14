@@ -7470,3 +7470,13 @@ Incognoscível – O domínio que transcende inteiramente toda estrutura do pens
 
 
 > Oração pela alma: Oh senhor me mostrasste o mundo nu e cru, vi a violencia, a miseria, a escassez, a pobreza, e todo o mal do mundo, vi o mal e o bem. Vi meu irmao praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer consigo para sempre. Elimine de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de duvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poder amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesma que exista os que praticam o mal, pois te amarei acima de todas as coisas.
+
+
+
+> A negação do nada não existe, o que existe é a negação da determinação, de o que é como o que é, para produzir o indiferenciado. A unica forma de suspender o Ser é por sua via negativa. E a via negativa transcende o principio lógico ou é ou não é. O ser é aquilo que existe, uma substancia definida e formalizada, ou um estado. Quando o ser humano tenta pensar no incausado imediatamente he vem o nada, porem o nada alem de ser ilógico, é uma deterinação referencial.
+
+Portanto, o Ser não esta retido em uma definição do que é. Em outras palavras, não precisa da existencia formalizada, está alem da própria definição de si mesmo. Quando se possibilita a existencia de uma realidade que é, e não é ao mesmo tempo, temos a suspensão da definição.
+
+Pois segundo a lógica de aristoteles, sempre haverá definições ou estados fixos para as coisas, ou se é ou não se é. A lógica aristotélica não permite indefinições para absoluto. Ao rompermos a lógica aristotélica, como unica via de investigação da realidade, temos a lógica superior, que possibilita indefiniçoes, pois não deduz a totalidade pelo observavel.
+
+Desta forma, ao produzirmos uma realidade que é e não é, isto é, o impossível do que é. E não o impossível do que não é, pois o que não é não existe. Temos, portanto, o indiferenciado. Uma realidade purissima que emerge de si mesma e que se dá como tal em razão de si mesma. 
