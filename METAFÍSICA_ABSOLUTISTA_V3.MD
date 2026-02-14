@@ -7578,6 +7578,6 @@ O ato da relação deu origem a algo diferente da pureza inciial e da harmonia, 
 
 O fruto corrompia pois gerava entes corruptíveis. E a união representada por adão e eva é um potencial diminuido. Deus não necessita ser um homem e mulher para criar, já é em si um indiferenciado. Quando a projeção acaba, a narrativa expressa que a morte acontece, porém, o acabar da projeção é no momento da prole. Ambos morrem e há a prole. Isto indica que a prole assumiu adão e eva, transferiu a simbologia para seu estatuto de corrupção. O findar da projeção, da diminuilção do indiferenciado, simbolizou a criação do homem.
 
-
+Adão e eva foram expulsos do paraíso simbolizando que eram sua propria prole, que deixaram de herança quem era, o estatudo da morte da projeção tornou-se possubilidade de corrupção. Viram que estavam nus e se cobriram no sentido de usar um corpo efemero. Ou seja, como o corpo humano.
 
 
