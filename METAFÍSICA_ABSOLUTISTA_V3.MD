@@ -7550,3 +7550,5 @@ A alma enquanto homem é homem, enquanto relativa é seu sonho.
 A serpente queria que Adão e Eva morressem, então transviou o propósito da maçã, abrindo a mente deles para uma paixão amorosa e para, ao mesmo tempo, serem como deuses. O homem herdou de Adão e Eva a corrupção, no sentido do eu livre. Adão e Eva conheceram o bem e o mal no sentido da corrupção.
 
 > O paraíso é a mais alta aspiração do homem unida a mais alta aspiração de Deus.
+
+> Os anjos são projeções do desejo. Se o homem é como o anjo, será a projeção de um desejo de homem. 
