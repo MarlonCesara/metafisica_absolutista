@@ -7552,3 +7552,5 @@ A serpente queria que Adão e Eva morressem, então transviou o propósito da ma
 > O paraíso é a mais alta aspiração do homem unida a mais alta aspiração de Deus.
 
 > Os anjos são projeções do desejo. Se o homem é como o anjo, será a projeção de um desejo de homem. 
+
+> O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a auto-presença. Conforme a auto presença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que, o atemporal torna-se sabedoria, e a linha perperndicular se torna ação sob o contexto atemporal.
