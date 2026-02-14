@@ -7480,3 +7480,14 @@ Portanto, o Ser não esta retido em uma definição do que é. Em outras palavra
 Pois segundo a lógica de aristoteles, sempre haverá definições ou estados fixos para as coisas, ou se é ou não se é. A lógica aristotélica não permite indefinições para absoluto. Ao rompermos a lógica aristotélica, como unica via de investigação da realidade, temos a lógica superior, que possibilita indefiniçoes, pois não deduz a totalidade pelo observavel.
 
 Desta forma, ao produzirmos uma realidade que é e não é, isto é, o impossível do que é. E não o impossível do que não é, pois o que não é não existe. Temos, portanto, o indiferenciado. Uma realidade purissima que emerge de si mesma e que se dá como tal em razão de si mesma. 
+
+O que é e sua definição como aquilo que é, não estando preso a lógica classica, se despreende de seu estatuto como imposição para o absoluto, e assim nos livramos da determinação obrigatória que se dá segundo a lógica classica, de que ou se é ou se não é, não há uma indefinição.
+
+Ao suspendermos o estatuto fixo daquilo que é, podemos libertar as possilidades, de forma que possam estar suspensas. O estatudo do que é define que tudo que é depende de sua existência. Isto quer dizer que, algo só pode agir se existe para agir. Porém, na suspensão da lógica, temos que, algo pode agir sem que exista para agir, temos, portanto, uma possivel ação sem causa. Uma açao purissima.
+
+O que é, portanto se suspende, quando tiramos seu contorno claro e decisivo, quando eliminamos sua obrigatoriedade como unica opção, e aceitamos sua via oposta, e a via oposta é uma contravenção a observação a priori. Todas as coisas precisam existir para existir, isto é, precisam existir para ter seus efeitos na realidade.
+
+Desta vez esta suspenso o que é, e ate o que é sem que seja. Rompemos a obrigatóriedade e a determinação de haver o que é ou o que não é. Obrigação que delimitava o absoluto em duas opções físicas, ou seja, a lógica atribuia duas vias de escolha, sem que fosse possível considerar ambas afim de produzir uma suspensão. A lógica, portanto, atribui duas condições únicas, e que precisam se dar uma ou outra.
+
+Ao suspendermos essa obrigatoriedade, temos uma realidade em que o que é não precisa ser. E, poderiamos romper a identidade na qual, o objeto só é a ou b, e não há uma terceira opção. Se para abosoluto, aquilo que é só pode ter uma essencia fixa, criamos, da mesma forma, uma definição. Temos que, para absoluto algo pode ser e nao ser ao mesmo tempo, e os entes podem misturar suas essencias ao passo que mantem a individualidade. 
+
