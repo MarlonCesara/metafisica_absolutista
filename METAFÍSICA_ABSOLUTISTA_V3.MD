@@ -7507,47 +7507,44 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 #Rascunhos
 
+**Gênesis e a Transcendência do Eu**
+Gênesis mistura algo lindo como a transcendência do eu, a tentativa de um casal de se unir para sempre, como uma amortização da notícia grave do suicídio espiritual. Como se quisesse dissociar a auto violência com uma referência ao nascimento, como se colocando um ciclo de vivificação na auto anulação pudesse ser um eufemismo para a informação da morte eterna.
 
-> Geneses mistura algo lindo como a transcendencia do eu, a tentativa de um casal de se unir para sempre, como uma amortização da noticia grave do suicidio espiritual. Como se quisesse dissassociar a auto violencia com uma referencia ao nascimento, como se colocando um ciculo de vivificação, na auto anulação, pudesse ser um eufemismo para a informação da morte eterna.
+**O Fruto do Conhecimento**
+O fruto que Adão e Eva comeu era oferecido com duas modalidades: a informação da possibilidade da transcendência e a informação da possibilidade da morte eterna. O fruto, portanto, é representado por uma ruptura do corpo, que os protegia contra o suicídio e também os selava contra o encontro de almas.
 
-> O fruto que adão e eva comeu era oferecido com duas modalidades, a informação da possibilidade da transcendencia. E a informação da possibilidade da morte eterna. O fruto, portanto é representado por uma ruptura do corpo, que os protegia contra o suicidio, e também os celava contra o encontro de almas. 
+**O Diabo e o Ódio**
+O diabo é representado como um tentador que oferece uma ferramenta de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboreado no sentido do ato de ódio, a total ausência de qualquer amor num coração que não enxerga outra coisa senão a vingança, que nem mesmo dá um nome para seu ódio e torna-se seu próprio ódio.
 
-> O diabo é representado como um tentador que oferece uma ferramente de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboriado no sentido do ato de ódio, a total ausencia de qualquer amor num coração que não enxerga outra coisa se não a vingança, que nem mesmo dá um nome para seu ódio. E torna-se seu próprio ódio.
+**Deixe que os Mortos Enterrem seus Mortos**
+"Deixe que os mortos enterrem seus mortos" quer dizer que o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbítrio, porém só nasce quando ama. Então isso é interpretado como um renascimento.
 
+**O Homem e o Livre Arbítrio**
+O homem quando não escolhe em favor da vida foi livre ao ter escolhido, mas não foi verdadeiramente livre.
 
+**A Plenitude em Deus**
+Quando o indivíduo opta pela plenitude, se dilui no Espírito de plenitude e adquire a vivacidade em Deus.
 
+**A Alma Vivificada**
+A transcendência causa uma alma viva, porém não vivificada pelo Espírito.
 
+**A Relatividade das Almas**
+O relativo da dualidade ainda é relativo para as outras almas relativas. As almas no relativo são relativas umas às outras, isto é, não é necessária a determinação de uma separação.
 
+**A Alma no Inferno**
+A alma fadada ao inferno impede sua atualização, porém está findada numa infinitude, isto quer dizer que queima a todo instante, é estática. Deixa um corpo imóvel, sem atualização.
 
+**O Renascimento pelo Espírito**
+Renascer pelo Espírito significa que o homem ainda tem sua liberdade quando opta pelo niilismo, porém não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador. No sentido de que é envolvido pelo Espírito quando coagem com a vontade do Espírito.
 
+**Os Anjos e os Desejos de Deus**
+Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possivelmente errôneas sobre a moralidade dos anjos.
 
+**O Inferno como Lugar do Ilógico**
+O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, do próprio sentimento supérfluo de grandeza que culmina num desejo que está para além das possibilidades, porém que culmina no nada. É um autoengano mental de que a realidade é superável para uma segunda realidade falsa.
 
+**A Alma Enquanto Homem**
+A alma enquanto homem é homem, enquanto relativa é seu sonho.
 
-
-> Deixe que os mortos enterrem seus mortos, quer dizer que, o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbitrio, porém só nasce quando ama. Então isso é interpretado como um renascimento. 
-
-> O homem quando não escolhe em favor da vida, foi livre ao ter escolhido, mas não foi verdadeiramente livre.
-
-
-
-> Quando o individuo opta pela plenitude, se dilui no Espirito de plenitude e adquire a vivacidade em Deus. 
-
-> A transcendencia causa uma alma viva, porem não vivificada pelo Espirito.
-
-> O relativo da dualidade ainda é relativo para as outras almas relativas.
-
-> As almas no relativo sao relativas umas as outras, isto é, não é necessario a determinação de uma separação.
-
-> A alma fadada ao inferno impede sua atualização, porém está findada numa infinitude, isto quer dizer que queima a todo instante, é estática. Deixa um corpo imovel, sem atualização.
-
-> Renascer pelo Espírito, singifica que o homem ainda tem sua liberdade quando opta pelo niilismo, porém, não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador. No sentido de que, é envolvido pelo Espírito, quando coagem com a vontade do Espírito.
-
-> Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possívelmente erroneas sobre a moralidade dos anjos.
-
-> O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, da próprio sentimento superfulo de grandeza que culmina num desejo que está para alem das possibilidades, porem que culmina no nada. É um auto engano mental de que a realidade é superavel, para uma segunda realidade falsa.
-
-> A alma enquanto homem é homem, enquanto relativa é seu sonho.
-
-> A serpente queria que adão e eva morressem, então transviou o propósito da maça, abrindo a mente deles para uma paixão amorosa. E para, ao mesmo tempo, serem como deuses. 
-
-> O homem herdou de adão e eva a corrupção, no sentido do eu livre. Adão e eva conheceram o bem e o mal no sentido da corrupação.
+**A Serpente e a Corrupção**
+A serpente queria que Adão e Eva morressem, então transviou o propósito da maçã, abrindo a mente deles para uma paixão amorosa e para, ao mesmo tempo, serem como deuses. O homem herdou de Adão e Eva a corrupção, no sentido do eu livre. Adão e Eva conheceram o bem e o mal no sentido da corrupção.
