@@ -4214,12 +4214,13 @@ O fruto corrompia pois gerava entes corruptíveis. E a união representada por A
 
 Adão e Eva foram expulsos do paraíso simbolizando que eram sua própria prole, que deixaram de herança quem era, o estatuto da morte da projeção tornou-se possibilidade de corrupção. Viram que estavam nus e se cobriram no sentido de usar um corpo efêmero, ou seja, como o corpo humano. O fim da projeção teve seu ponto de intersecção na criação do primeiro homem e primeira mulher. A projeção se fez real em seus efeitos. Morrem no instante em que a criação se fez, no sentido de que o Altíssimo ultrapassou a dualidade, no sentido de que a dualidade foi dispensável, no sentido de que quiseram ser como Deuses e esse era o preço do fruto do conhecimento.
 
+> Adão e Eva entraram em uma realidade da qual não poderiam sair. Acreditaram em um amor humano como fundamento de sua eternidade. Acreditaram que poderiam ser perfeitos. E herdaram a efemeridade como consequência — uma efemeridade que os protege.
+
 **O Diabo e o Ódio**
 O diabo é representado como um tentador que oferece uma ferramenta de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboreado no sentido do ato de ódio, a total ausência de qualquer amor num coração que não enxerga outra coisa senão a vingança, que nem mesmo dá um nome para seu ódio e torna-se seu próprio ódio.
 
 **A Serpente e a Corrupção**
 A serpente queria que Adão e Eva morressem, então transviou o propósito da maçã, abrindo a mente deles para uma paixão amorosa e para, ao mesmo tempo, serem como deuses. O homem herdou de Adão e Eva a corrupção, no sentido do eu livre. Adão e Eva conheceram o bem e o mal no sentido da corrupção.
-
 
 #### **A metafísica posterior: depois do mundo**
 
