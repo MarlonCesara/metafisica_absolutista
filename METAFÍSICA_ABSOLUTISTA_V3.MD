@@ -7378,6 +7378,9 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 A presença do Espírito é transparente, ela tranpassa o sou. Porém, a presença do sou é unificada. 
 O sou tem autodominio, auto presença e auto conhecimento.
+A presença no relativo, é contraparte do relativo, de forma que, presença esta para relativo, e não somente o relativo está para a presença. Isto quer dizer que a própria presença representa sua definição como tal, e não somente como relativo. 
+
+A presença, portanto, tem força sobre si mesma e não somente sobre o campo relativo. Pois a presença está sob um relativo individual, e não em um relativo individual. A presença é o próprio relativo, não apenas tem um relativo. Desta forma, a presença tem a vazão de si mesma, não está confinada em si, mas tem uma autonommia não somente sobre o campo das possibilidades como sobre si mesma.
 
 > O niilista mata para tentar expressar a sua auto opressão.
 
