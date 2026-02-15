@@ -7100,12 +7100,6 @@ Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilion�
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
 
 
-### **A Igreja e o absolutismo: a intervenção do absolutismo na doutrina**
-
-A igreja é focada na caridade, não no exato entendimento metafísico da realidade, porém se preocupa com as ferramentas da fé e recuperação do niilismo. São propriedades sobrenaturais instituídas por Jesus, e revelações que estão no sentido da plenitude. O corpo da igreja admira a tentativa de conectar fé em razão, mas se satisfaz com as palavras de Jesus e os dons disponibilizados para a recuperação dos fiéis. Então, a igreja não é uma instituição filosófica lógica, mas de recuperação com meios naturais e sobrenaturais, da recuperação da alma. Tal como não se atenta à sintomática e ao pecado como sintomática, mas a uma linguagem simples que permite um breve e rápido entendimento. Não é necessário compreender e não é preciso compreender a metafísica para exercer os dons transmitidos por Jesus.
-
-A ação do absolutismo é emocional e política, muda como o homem interpreta a si e a existencia de uma forma mais ampla e profunda que traga conforto emocional, pois alem da fé tem o amparo lógico como base para se sentir seguro no território do real. Alem disso o absolutismo influencia profundas mudanças no cenario politico e social, pois uma nova compreensão do ser humano fomenta ao povo novos tipos de maneira de lidar com super ricos, novos tipos de defesa e uma alta previsibilidade de suas ações.
-
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
 Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
@@ -7373,4 +7367,32 @@ E o que é a matrix? A matrix é a construção mais cruel da cúpula. A cúpula
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
+
+
+
+
+
+
+
+
+
+### **A Igreja e o absolutismo: a intervenção do absolutismo na doutrina**
+
+A igreja é focada na caridade, não no exato entendimento metafísico da realidade, porém se preocupa com as ferramentas da fé e recuperação do niilismo. São propriedades sobrenaturais instituídas por Jesus, e revelações que estão no sentido da plenitude. O corpo da igreja admira a tentativa de conectar fé em razão, mas se satisfaz com as palavras de Jesus e os dons disponibilizados para a recuperação dos fiéis. Então, a igreja não é uma instituição filosófica lógica, mas de recuperação com meios naturais e sobrenaturais, da recuperação da alma. Tal como não se atenta à sintomática e ao pecado como sintomática, mas a uma linguagem simples que permite um breve e rápido entendimento. Não é necessário compreender e não é preciso compreender a metafísica para exercer os dons transmitidos por Jesus.
+
+A ação do absolutismo é emocional e política, muda como o homem interpreta a si e a existencia de uma forma mais ampla e profunda que traga conforto emocional, pois alem da fé tem o amparo lógico como base para se sentir seguro no território do real. Alem disso o absolutismo influencia profundas mudanças no cenario politico e social, pois uma nova compreensão do ser humano fomenta ao povo novos tipos de maneira de lidar com super ricos, novos tipos de defesa e uma alta previsibilidade de suas ações.
+
+
+### **O verticalismo espiritual da igreja sobre as previsões metafisicas**
+
+O ponto divergente entre a interpretação dos anjos, e das relações dos sous entre o absolutismo e a dotruna cristã não necessariamente precisa ser interpretado como um conflito. O objetivo claro e nitido do cristianismo é conectar o homem a vida, está numa linha vertical estreitamente direcionada a espiritual, e não a uma linha horizontal na qual se explora as possibilidades.
+
+Portanto, é comum a igreja não estabelecer a definição exata do conceito de pecado, e nem se entreter em filosofias transcendentais, ao passo que considera também o transcendente simplista como estar conectado ou não a vida. Toda previsão da igreja se simplifica de forma a ser ou não ser, e não exatamente no que fazer no pós falencia corporea. 
+
+Portanto, na visão da verticalidade, ou seja, olhar o homem como passivel de ser ou nao ser em Deus, há um estreitamento das previsões metafisicas em direção a espiritualidade, e este é o sentido da religião. Porem, filosofias diversas, apesar de serem verificas do ponto de vista lógico, e até mesmo fazerems sentido biblico, não se conectam com a lógica verticalista que aborda o homem somente em sua possibilidade espíritual e não em sua vertical. O mistério, portanto, do amor entre sous fica retido no verticalismo, pois elimina o foco deste. A doutrina trabalha no fundamento ultimo do hommem o qual dará vazão a todas as possibilidades. Portanto, não se extrai da doutrina uma metafisica ou uma psicologica lógica dos conceitos mais altos, mas extrai un fim pratico e unico que é a conversão.
+
+
+
+
+
 
