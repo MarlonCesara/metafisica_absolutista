@@ -4993,47 +4993,6 @@ O gesto de Jesus foi o humano elevado ao impossível, a necessidade absoluta de 
 
 E, para a pergunta sobre o que é o amor, só haverá uma resposta: **é Jesus.**
 
-
-## **A Igreja e o Absolutismo: a intervenção do absolutismo na doutrina**
-
-A Igreja é orientada primordialmente para a caridade, e não para o entendimento metafísico exato da realidade. Ainda assim, preocupa-se profundamente com as ferramentas da fé e com a superação do niilismo. Ela se fundamenta em propriedades sobrenaturais instituídas por Jesus Cristo, bem como nas revelações que apontam para a plenitude do ser.
-
-O corpo da Igreja admira a tentativa de conciliar fé e razão, mas encontra suficiência nas palavras de Cristo e nos dons transmitidos para a restauração dos fiéis. Assim, não se configura como uma instituição filosófico-lógica no sentido estrito, mas como uma instituição de recuperação — por meios naturais e sobrenaturais — da alma humana.
-
-Nesse contexto, não se detém longamente na sintomática do pecado enquanto análise conceitual, mas utiliza uma linguagem simples, acessível e pastoral, que possibilita compreensão rápida e eficaz. Não é necessário compreender a metafísica para exercer os dons transmitidos por Cristo; a eficácia espiritual não depende de elaboração filosófica.
-
-Já a ação do absolutismo é de natureza emocional e política. Ele transforma a maneira como o homem interpreta a si mesmo e a própria existência, oferecendo uma compreensão mais ampla e profunda que proporciona conforto interior. Além da fé, fornece um amparo lógico que sustenta a segurança no território do real.
-
-O absolutismo também influencia mudanças significativas no cenário político e social, pois uma nova compreensão do ser humano fomenta no povo novas formas de lidar com os super-ricos, novos modos de defesa e uma maior previsibilidade das próprias ações coletivas.
-
-
-
-## **O verticalismo espiritual da Igreja diante das previsões metafísicas**
-
-A divergência entre certas interpretações acerca dos anjos e das relações dos *sous* — no confronto entre absolutismo e doutrina cristã — não precisa necessariamente ser compreendida como conflito.
-
-O objetivo claro do cristianismo é reconectar o homem à Vida. Ele opera numa linha vertical, estritamente direcionada ao espiritual, e não numa linha horizontal que explora a multiplicidade das possibilidades existenciais.
-
-Por essa razão, é comum que a Igreja não estabeleça definições exaustivas e analíticas do conceito de pecado, nem se detenha extensivamente em especulações filosófico-transcendentais. O transcendente, na perspectiva cristã, simplifica-se na condição de estar ou não estar conectado à Vida.
-
-Toda previsão e orientação da Igreja tende a reduzir-se à estrutura essencial do ser ou não ser — e não a descrever minuciosamente o que ocorre após a falência corpórea.
-
-Assim, na visão da verticalidade — isto é, ao considerar o homem como passível de ser ou não ser em Deus — há um estreitamento das previsões metafísicas em direção exclusiva à espiritualidade. Esse é o sentido próprio da religião.
-
-Filosofias diversas podem ser logicamente verificáveis e até encontrar consonância bíblica; contudo, não se integram necessariamente à lógica verticalista, que aborda o homem unicamente sob a perspectiva de sua possibilidade espiritual, e não sob a exploração horizontal das possibilidades ontológicas.
-
-O mistério do amor entre *sous*, portanto, permanece retido nessa verticalidade, pois o foco não está na expansão especulativa das relações, mas na orientação fundamental ao Absoluto.
-
-A doutrina trabalha no fundamento último do homem, do qual decorrerão todas as demais possibilidades. Não se extrai dela uma metafísica sistemática nem uma psicologia lógica dos conceitos mais elevados; extrai-se, antes, um fim prático e único: a conversão.
-
-Jesus, portanto, não instituiu uma instituição filosófica ou metafísica no sentido sistemático e especulativo, mas uma religião — isto é, uma via de reconciliação entre o homem e Deus.
-
-Não fundou uma escola dedicada à elaboração conceitual da estrutura última do ser, mas estabeleceu um caminho de vida, centrado na conversão, na caridade e na restauração da alma. A prioridade não era a formulação de um sistema ontológico completo, mas a transmissão de uma realidade viva.
-
-Assim, Aquele que a tradição reconhece como Jesus Cristo não deixou um tratado metafísico, mas instituiu meios concretos — naturais e sobrenaturais — para a elevação do homem.
-
-A filosofia pode emergir posteriormente como esforço de compreensão; a religião, porém, nasce como resposta existencial e transformadora.
-
 ### **CAPÍTULO 31 – O EXISTÊNCIALISMO**
 
 #### **A estranha cidade das almas perdidas**
