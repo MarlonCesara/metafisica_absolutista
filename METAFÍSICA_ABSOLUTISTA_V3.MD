@@ -7381,3 +7381,7 @@ O sou tem autodominio, auto presença e auto conhecimento.
 
 > O niilista mata para tentar expressar a sua auto opressão.
 
+> O niilista rejeita as coisas boas no sentido de situações que aumentem a dignidade do humano. Prefere sempre o pior, o que mais tira o sentido. Se há festas bonitas, opta por lugaraes sujos e mal frequentados. Se há lugares calmos, opta por perigosos, sempre esta buscando destituir as situações de sentido extraindo o pior do mundo e ampliando isso.
+
+> O niilista sente uma grande furia que precisa expressar o tempo todo. A normalidade corta seus sentidos de forma que se identifique em um conflito numa situação em que todos julgam a normalidade. Porém, a visão da anomalia em si, faz com que o niilista incida sobre a normalidade alheia na tentativa de alertar o outro sobre seu conflito. Portanto, a normalidade lhe fere, lhe causa impaciencia, em vista de que para ele, pelo ponto de vista interior, há uma discrepancia. 
+
