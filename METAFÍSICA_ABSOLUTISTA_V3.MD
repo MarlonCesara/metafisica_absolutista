@@ -7379,5 +7379,5 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 A presença do Espírito é transparente, ela tranpassa o sou. Porém, a presença do sou é unificada. 
 O sou tem autodominio, auto presença e auto conhecimento.
 
-
+> O niilista mata para tentar expressar a sua auto opressão.
 
