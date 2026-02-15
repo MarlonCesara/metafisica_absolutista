@@ -2567,6 +2567,8 @@ No relativo, qualquer coisa é possível.
 
 O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna realizada no próprio ato de Ser.
 
+**O Tempo do Espírito**
+O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a autopresença. Conforme a autopresença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal torna-se sabedoria, e a linha perpendicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
 
 
 
@@ -3405,6 +3407,9 @@ O amor é a **energia divina que vivifica as possibilidades**, transformando o r
     -   *Exemplo:* Só posso dominar A completamente se estiver fundido em A, de forma que a visão é o próprio A em meus olhos.
     -   *Exemplo:* Todos são no Ser, mas nem todos são em todos, cada um é em si e é no Ser.
 
+**A Relatividade das Almas**
+O relativo da dualidade ainda é relativo para as outras almas relativas. As almas no relativo são relativas umas às outras, isto é, não é necessária a determinação de uma separação.
+
 ##### **Dons interiores (Transcendência)**
 -   O homem, como alma determinada do Ser, pode autodeterminar-se sobre o próprio Ser que o fundamenta.
 -   Quanto mais profunda sua conexão com o Ser, maior sua capacidade de influenciar a natureza do Ser.
@@ -3958,6 +3963,13 @@ Ao perceberem que estavam nus, não se esconderam apenas das vistas de Deus — 
 
 > As almas do inferno não transcendem a consciência ao eliminá-la, pois a transcendência envolve o transcendido. Transcender é transcender de uma definição. Já o estado inferno é a anulação da unidade em prol da perdição de si e não da transcendência de si.
 
+**A Alma no Inferno**
+A alma fadada ao inferno impede sua atualização, porém está findada numa infinitude, isto quer dizer que queima a todo instante, é estática. Deixa um corpo imóvel, sem atualização.
+
+**O Inferno como Lugar do Ilógico**
+O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, do próprio sentimento supérfluo de grandeza que culmina num desejo que está para além das possibilidades, porém que culmina no nada. É um autoengano mental de que a realidade é superável para uma segunda realidade falsa.
+
+
 #### **O relativo dos anjos**
 
 Ao descrever seres que não são humanos, mas possuem liberdade metafísica e funções divinas, subentende-se que a Bíblia refere-se aos sous que estão pressupostos no relativo — não revividos pelo tempo do espírito, mas existentes, suspensos no campo das possibilidades. Não há caminhos lógicos para deduzir dois tipos distintos de entes com livre-arbítrio; para além da distinção entre Deus e homem, não há sentido formal e lógico que sustente outra categoria. Por isso, a única interpretação coerente para os anjos é vê-los como o homem ainda em seu estado relativo. 
@@ -3980,6 +3992,11 @@ Esta visão ilumina a afirmação de Cristo de que no estado ressurreto "os home
 Gênesis enfatiza, de forma vaga, a transcendência relacional; porém, o Evangelho não parece ter foco em explorar as possibilidades para a alma na vida eterna, nem faz qualquer referência a essa possibilidade que lhe atribua um grau de importância considerável. Interpreta-se que o Evangelho tem como foco a necessidade mais fundamental e urgente do homem: a permanência no Ser, para que assim possa explorar o aval de possibilidades implícitas. Portanto, o Evangelho não propõe referências precisas ou mais detalhadas, nem mesmo sobre o modelo de vida no próprio paraíso. Por outro lado, dá enfoque total à questão fundamental que exploraremos a seguir: a de precaver o homem de uma das mais terríveis possibilidades que podem ser encaradas, uma vez que a alma tenha diante de si uma infinitude de possibilidades após a libertação do mundo material. 
 
 Em suma, em substituição à filosofia da transcendência relacional, afirma-se: no paraíso, qualquer coisa é possível. Interpretação semelhante é dizer: há possibilidades para todas as aspirações da alma humana.
+
+**Os Anjos e os Desejos de Deus**
+Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possivelmente errôneas sobre a moralidade dos anjos.
+
+Se o homem é como o anjo, será a projeção de um desejo de homem. Eles serão o sonho de um novo homem. Serão uma projeção viva, de transcendência. Porém a interpretação rígida tira o teor da religião de religar o homem, e não abordar aspectos que não corroboram ou que desviam a centralização da união com o homem e a vida. Por isso, ao considerar o cunho religioso, é possível interpretar em um sentido estreito a vida.
 
 ### **CAPÍTULO 26: A REGRESSÃO DA ALMA FRENTE À TRANSCENDÊNCIA**
 
@@ -4323,6 +4340,26 @@ Portanto, **uma morte escolhida infinitamente é uma morte verdadeira**. Não se
 
 Assim, a liberdade do *sou* manifesta-se em sua potência última: a de definir-se, mesmo que para além de si, como **negação perpétua** — um ato contínuo de auto-supressão que, embora não consumado absolutamente, torna-se real e irrevogável pela constância infinita de sua própria vontade.
 
+## O renascimento pelo Espírito da plenitude
+
+**Deixe que os Mortos Enterrem seus Mortos**
+"Deixe que os mortos enterrem seus mortos" quer dizer que o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbítrio, porém só nasce quando ama. Então isso é interpretado como um renascimento.
+
+**O Homem e o Livre Arbítrio**
+O homem quando não escolhe em favor da vida foi livre ao ter escolhido, mas não foi verdadeiramente livre.
+
+**A Plenitude em Deus**
+Quando o indivíduo opta pela plenitude, se dilui no Espírito de plenitude e adquire a vivacidade em Deus.
+
+**A Alma Vivificada**
+A transcendência causa uma alma viva, porém não vivificada pelo Espírito.
+
+**O Renascimento pelo Espírito**
+Renascer pelo Espírito significa que o homem ainda tem sua liberdade quando opta pelo niilismo, porém não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador, no sentido de que é envolvido pelo Espírito quando coagem com a vontade do Espírito.
+
+**O Homem e o Espírito**
+O homem tem espírito, é fundamentador de si, no sentido de ser corruptível e é personalizável. É uma individualização, feito à imagem e semelhança de Deus. Porém o homem se une com Deus pelo espírito. É a sustentação da fundamentação e a personalidade, no sentido de ser inteiro a si mesmo pela ação do Espírito. O espírito que se coloca no mesmo rumo do Espírito do Ser.
+
 #### **A metafísica original: antes do Ser**
 
 Ao retrocedermos o Eu indiferenciado, podemos criar um “antes” da criação, de forma a criarmos um passado anterior aos tempos. Como se pudéssemos projetar este passado físico no próprio Ser, num estado onde o Ser seria anterior a si mesmo.
@@ -4355,6 +4392,28 @@ Uma reltividade dual, implica em determinação segundo a genetica da dualidade,
 Essa dualidade teria sofrido um rompimento total, de forma que, o fruto causava uma diluição do eu da dualidade, uma transcendencia que não aniquilava mas causava uma pane definitiva no ser da dualidade de forma representativa.
 
 > A morte é ficar nu. E isso é herdado de Adão e Eva, que queriam transcender de forma figurativa, para Deus e para a dualidade.
+
+**Gênesis e a Transcendência do Eu**
+Gênesis mistura algo lindo como a transcendência do eu, a tentativa de um casal de se unir para sempre, como uma amortização da notícia grave do suicídio espiritual. Como se quisesse dissociar a autoviolência com uma referência ao nascimento, como se colocar um ciclo de vivificação na auto anulação pudesse ser um eufemismo para a informação da morte eterna.
+
+**O Fruto do Conhecimento**
+O fruto que Adão e Eva comeram era oferecido com duas modalidades: a informação da possibilidade da transcendência e a informação da possibilidade da morte eterna. O fruto, portanto, é representado por uma ruptura do corpo, que os protegia contra o suicídio e também os selava contra o encontro de almas.
+
+Adão e Eva não tinham pecado no sentido de ser uma diminuição do Espírito expandido. Quando comeram o fruto, herdaram a corrupção no sentido que simbolizaram um ato unitivo. O fruto representado um pelo outro. O rompimento do corpo, a nudez do relativo e a possibilidade da indiferenciação da dualidade. Porém, o próprio rompimento do corpo simbolizou a morte. Isto é, Adão e Eva tinham um corpo especial que os protegia da corrupção; o fruto desfez o estatuto de incorruptível. Isto quer dizer que, no instante que decidiram se fazer como deuses, houve uma mudança radical na natureza de ambos. Deixaram de ser como deuses, como uma projeção determinada de Deus, estando na harmonia inicial. Essa projeção colapsou, e tornaram-se nus, necessitados de roupas.
+
+Isto é, eram perfeitamente feitos um para o outro, estavam numa forma pura, onde poderiam se unir. Ao comerem do fruto proibido, morreram e se esconderam um do outro, no sentido de não evidenciar sua natureza verdadeira. Usavam roupas, isto é, o corpo humano.
+
+O ato da relação deu origem a algo diferente da pureza inicial e da harmonia, algo que poderia morrer. E essa união foi de cunho proibitivo pois causaria a possibilidade de corrupção. Quando comeram a fruta ainda eram como deuses, porém, ao comerem e morrerem, foram representados pelo primeiro homem e primeira mulher da humanidade. Ao morrerem tinham a corrupção.
+
+O fruto corrompia pois gerava entes corruptíveis. E a união representada por Adão e Eva é um potencial diminuído. Deus não necessita ser um homem e mulher para criar, já é em si um indiferenciado. Quando a projeção acaba, a narrativa expressa que a morte acontece, porém, o acabar da projeção é no momento da prole. Ambos morrem e há a prole. Isto indica que a prole assumiu Adão e Eva, transferiu a simbologia para seu estatuto de corrupção. O findar da projeção, da diminuição do indiferenciado, simbolizou a criação do homem.
+
+Adão e Eva foram expulsos do paraíso simbolizando que eram sua própria prole, que deixaram de herança quem era, o estatuto da morte da projeção tornou-se possibilidade de corrupção. Viram que estavam nus e se cobriram no sentido de usar um corpo efêmero, ou seja, como o corpo humano. O fim da projeção teve seu ponto de intersecção na criação do primeiro homem e primeira mulher. A projeção se fez real em seus efeitos. Morrem no instante em que a criação se fez, no sentido de que o Altíssimo ultrapassou a dualidade, no sentido de que a dualidade foi dispensável, no sentido de que quiseram ser como Deuses e esse era o preço do fruto do conhecimento.
+
+**O Diabo e o Ódio**
+O diabo é representado como um tentador que oferece uma ferramenta de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboreado no sentido do ato de ódio, a total ausência de qualquer amor num coração que não enxerga outra coisa senão a vingança, que nem mesmo dá um nome para seu ódio e torna-se seu próprio ódio.
+
+**A Serpente e a Corrupção**
+A serpente queria que Adão e Eva morressem, então transviou o propósito da maçã, abrindo a mente deles para uma paixão amorosa e para, ao mesmo tempo, serem como deuses. O homem herdou de Adão e Eva a corrupção, no sentido do eu livre. Adão e Eva conheceram o bem e o mal no sentido da corrupção.
 
 
 #### **A metafísica posterior: depois do mundo**
@@ -4447,6 +4506,8 @@ Então, ao longe, uma luz começou a pulsar: pequena, como uma estrela distante,
 A criança entrou nas águas calmas e repousou. Após um descanso de infância — puro e sem pressa — nasceu nela o desejo de compreender. Nesse instante, seu corpo começou a se transmutar, assumindo uma nova forma, mais adequada à compreensão do que viria. E assim, com os olhos abertos ao mistério e a alma leve como a brisa inicial, a criança continuou a explorar aquela terra fantástica e cristalina.
 
 #### **Um Vislumbre do Paraíso: A Terra Renovada e a Experiência da Unidade**
+
+> O paraíso é a mais alta aspiração do homem unida à mais alta aspiração de Deus. A alma enquanto homem é homem, enquanto relativa é seu sonho.
 
 Em meio a um vasto planalto transparente, onde o chão reflete o céu como um espelho de vidro polido, um homem de barba grisalha e trajes simples, porém dignos — um manto azul com bordados dourados e um cinto de linho — contemplava, com olhos de filósofo, um conjunto de montanhas de cristal que se erguiam diante dele. Esta visão ecoa a Jerusalém Celeste de Ap 21,18-21: *"A muralha era de jaspe e a cidade, de ouro puro, semelhante a vidro puro..."*
 
@@ -7233,6 +7294,13 @@ Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilion�
 
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
 
+
+### **A Igreja e o absolutismo: a intervenção do absolutismo na doutrina**
+
+A igreja é focada na caridade, não no exato entendimento metafísico da realidade, porém se preocupa com as ferramentas da fé e recuperação do niilismo. São propriedades sobrenaturais instituídas por Jesus, e revelações que estão no sentido da plenitude. O corpo da igreja admira a tentativa de conectar fé em razão, mas se satisfaz com as palavras de Jesus e os dons disponibilizados para a recuperação dos fiéis. Então, a igreja não é uma instituição filosófica lógica, mas de recuperação com meios naturais e sobrenaturais, da recuperação da alma. Tal como não se atenta à sintomática e ao pecado como sintomática, mas a uma linguagem simples que permite um breve e rápido entendimento. Não é necessário compreender e não é preciso compreender a metafísica para exercer os dons transmitidos por Jesus.
+
+A ação do absolutismo é emocional e política, muda como o homem interpreta a si e a existencia de uma forma mais ampla e profunda que traga conforto emocional, pois alem da fé tem o amparo lógico como base para se sentir seguro no território do real. Alem disso o absolutismo influencia profundas mudanças no cenario politico e social, pois uma nova compreensão do ser humano fomenta ao povo novos tipos de maneira de lidar com super ricos, novos tipos de defesa e uma alta previsibilidade de suas ações.
+
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
 Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
@@ -7500,84 +7568,4 @@ E o que é a matrix? A matrix é a construção mais cruel da cúpula. A cúpula
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
-
-
-
-
-
-#Rascunhos
-
-**Gênesis e a Transcendência do Eu**
-Gênesis mistura algo lindo como a transcendência do eu, a tentativa de um casal de se unir para sempre, como uma amortização da notícia grave do suicídio espiritual. Como se quisesse dissociar a auto violência com uma referência ao nascimento, como se colocando um ciclo de vivificação na auto anulação pudesse ser um eufemismo para a informação da morte eterna.
-
-**O Fruto do Conhecimento**
-O fruto que Adão e Eva comeu era oferecido com duas modalidades: a informação da possibilidade da transcendência e a informação da possibilidade da morte eterna. O fruto, portanto, é representado por uma ruptura do corpo, que os protegia contra o suicídio e também os selava contra o encontro de almas.
-
-**O Diabo e o Ódio**
-O diabo é representado como um tentador que oferece uma ferramenta de vingança, um ódio que desferido diretamente contra o coração de Deus, que é matar aquilo que ele criou. O fruto, portanto, é saboreado no sentido do ato de ódio, a total ausência de qualquer amor num coração que não enxerga outra coisa senão a vingança, que nem mesmo dá um nome para seu ódio e torna-se seu próprio ódio.
-
-
-
-
-
-
-**Deixe que os Mortos Enterrem seus Mortos**
-"Deixe que os mortos enterrem seus mortos" quer dizer que o motor do movimento é o amor. O ser humano pode escolher entre o bem e o mal. Porém precisa renascer do espírito. Isto quer dizer que o homem tem livre arbítrio, porém só nasce quando ama. Então isso é interpretado como um renascimento.
-
-**O Homem e o Livre Arbítrio**
-O homem quando não escolhe em favor da vida foi livre ao ter escolhido, mas não foi verdadeiramente livre.
-
-**A Plenitude em Deus**
-Quando o indivíduo opta pela plenitude, se dilui no Espírito de plenitude e adquire a vivacidade em Deus.
-
-**A Alma Vivificada**
-A transcendência causa uma alma viva, porém não vivificada pelo Espírito.
-
-
-
-
-
-**A Relatividade das Almas**
-O relativo da dualidade ainda é relativo para as outras almas relativas. As almas no relativo são relativas umas às outras, isto é, não é necessária a determinação de uma separação.
-
-**A Alma no Inferno**
-A alma fadada ao inferno impede sua atualização, porém está findada numa infinitude, isto quer dizer que queima a todo instante, é estática. Deixa um corpo imóvel, sem atualização.
-
-**O Renascimento pelo Espírito**
-Renascer pelo Espírito significa que o homem ainda tem sua liberdade quando opta pelo niilismo, porém não está participante da verdadeira vida, pois não se inclina no mesmo rumo que o espírito plenificador. No sentido de que é envolvido pelo Espírito quando coagem com a vontade do Espírito.
-
-**Os Anjos e os Desejos de Deus**
-Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possivelmente errôneas sobre a moralidade dos anjos.
-
-**O Inferno como Lugar do Ilógico**
-O inferno seria o lugar do ilógico, uma solução furtiva que deriva da própria imaginação, do próprio sentimento supérfluo de grandeza que culmina num desejo que está para além das possibilidades, porém que culmina no nada. É um autoengano mental de que a realidade é superável para uma segunda realidade falsa.
-
-**A Alma Enquanto Homem**
-A alma enquanto homem é homem, enquanto relativa é seu sonho.
-
-**A Serpente e a Corrupção**
-A serpente queria que Adão e Eva morressem, então transviou o propósito da maçã, abrindo a mente deles para uma paixão amorosa e para, ao mesmo tempo, serem como deuses. O homem herdou de Adão e Eva a corrupção, no sentido do eu livre. Adão e Eva conheceram o bem e o mal no sentido da corrupção.
-
-> O paraíso é a mais alta aspiração do homem unida a mais alta aspiração de Deus.
-
-> Os anjos são projeções do desejo. Se o homem é como o anjo, será a projeção de um desejo de homem. Eles serão o sonho de um novo homem. Serão uma projeção viva, de transcendencia. Porém a interpretação rigida tira o teor da religião de religar o homem, e não abordar aspectos que não corroboram ou que desviam a centralziação da união com homem e a vida. Por isso, ao considerar o cunjo religioso, é possível interpretar em um sentido estreito a vida.
-
-> A igreja é focada na caridade, não no exato entendimento metafisico da realidade, porém se preocupa com as ferramentas da fé e recuperação do niilismo. São propriedades sobrenaturais instituidas por Jesus, e revelações que estão no sentido da plenitude. O corpo da igreja admira a tentativa de conecctar fé em razão, mas se satisfaz com as palavras de Jesus e os dons disponibilizados para a recuperação dos fiéis. Então, a igreja não é uma instituição filosófica lógica, mas de recuperalção com meios naturais e sobrenaturais, da recuperação da alma. Tal como não se atenta a sintomatica e ao pecado como sintomatica, mas uma uma linguagem simples que permite um breve e rapido entendimento. Não é necessario compreender e não é preciso compreender a metafisica para exercer os dons transmitidos por Jesus. 
-
-> O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a auto-presença. Conforme a auto presença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que, o atemporal torna-se sabedoria, e a linha perperndicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal continua na consumação, de forma que a consumação esteja constantemente aberta a temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
-
-> O homem tem espírito, é fundamentador de si, no sentido de ser corruptivel e é personalizavel. É uma individualização, feito a imagem e semelhança de Deus. Porém o homem se une com Deus pelo espírito. É a sustentação da fundamentação e a personalidade, no sentido de ser inteiro a si mesmo pela ação do Espírito. O espírito que se coloca no mesmo rumo do Espírito do Ser.
-
-
-
-> Adão e Eva não tinham pecado no sentido de ser uma dimiuição do Espírito expandido. Quando comeram a maça, herdaram a corrupção no sentido que simbolizaram um ato unitivo. O fruto representado um pelo outro. O rompimento do corpo, a nudez do relativo e a possibilidade da indiferenciaçaõ da dualidade. Porém, o próprio rompimento do corpo simbolizou a morte. Isto é, adão e eva tinham um corpo especial que os protegia da corrupção, o fruto desfez o statudo de incorruptivel. Isto quer dizer que, no instante que decidiram se fazer como deuses, houve uma mudança radical na natureza de ambos. Deixaram de ser como deuses, como uma projeção determinada de Deus, estando na harmonia inicial. Essa projeção colapsou, e tornaram-se nus, necessitados de roupas. 
-
-Isto é, eram perfeitamente feitos um para o outro, estavam numa forma pura, onde poderiam se unir. Ao comerem do fruto proibido, morreram e se esconderam um do outro, no sentido de não evidenciar sua natureza verdadeira. Usavam roupas, isto é, o corpo humano. 
-
-O ato da relação deu origem a algo diferente da pureza inciial e da harmonia, algo que poderia morrer. E essa união foi de cunho proibitivo pois causaria a possibilidade de corrupção. Quando comeram a fruta ainda eram como deuses, porém, ao comerem e morrerem, foram representados pelo primeiro homem e primeira mulher da humanidade. Ao morrerem tinham a corrupção.
-
-O fruto corrompia pois gerava entes corruptíveis. E a união representada por adão e eva é um potencial diminuido. Deus não necessita ser um homem e mulher para criar, já é em si um indiferenciado. Quando a projeção acaba, a narrativa expressa que a morte acontece, porém, o acabar da projeção é no momento da prole. Ambos morrem e há a prole. Isto indica que a prole assumiu adão e eva, transferiu a simbologia para seu estatuto de corrupção. O findar da projeção, da diminuilção do indiferenciado, simbolizou a criação do homem.
-
-Adão e eva foram expulsos do paraíso simbolizando que eram sua propria prole, que deixaram de herança quem era, o estatudo da morte da projeção tornou-se possubilidade de corrupção. Viram que estavam nus e se cobriram no sentido de usar um corpo efemero. Ou seja, como o corpo humano. O fim da projeção teve seu ponto de intersecção na criação do primeiro homem e primeira mulher. A projeção se fez real em seus efeitos. Morrem no instante em que a criação se fez, no sentido de que, o altissimo ultrapassou a dualidade, no sentido de que a dualidade foi dispensávavel, no sentido de que quiseram ser como Deuses e esse era o preço do fruto do conhecimento. C
-
 
