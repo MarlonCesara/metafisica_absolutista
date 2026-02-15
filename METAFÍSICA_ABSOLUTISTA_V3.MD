@@ -3798,8 +3798,12 @@ Gênesis enfatiza, de forma vaga, a transcendência relacional; porém, o Evange
 
 Em suma, em substituição à filosofia da transcendência relacional, afirma-se: no paraíso, qualquer coisa é possível. Interpretação semelhante é dizer: há possibilidades para todas as aspirações da alma humana.
 
+
+
 **Os Anjos e os Desejos de Deus**
-Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possivelmente errôneas sobre a moralidade dos anjos.
+Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possivelmente errôneas sobre a moralidade dos anjos. 
+
+> Quando Jesus disse: serão como os anjos do céu, se refere que serão como uma projeção de uma vida, uma idealização de vidas. E isso pode se referir ao ato de consumação de ambos, como uma dualidade indiferenciada. 
 
 Se o homem é como o anjo, será a projeção de um desejo de homem. Eles serão o sonho de um novo homem. Serão uma projeção viva, de transcendência. Porém a interpretação rígida tira o teor da religião de religar o homem, e não abordar aspectos que não corroboram ou que desviam a centralização da união com o homem e a vida. Por isso, ao considerar o cunho religioso, é possível interpretar em um sentido estreito a vida.
 
