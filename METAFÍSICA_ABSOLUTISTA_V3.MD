@@ -7372,3 +7372,10 @@ E o que é a matrix? A matrix é a construção mais cruel da cúpula. A cúpula
 Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de seres humanos, um homem, comandado pela cúpula, se aproximou de uma das pessoas conectadas e sussurrou em seu ouvido:
 
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
+
+
+## Rascunhos
+
+A presença do Espírito é transparente, ela tranpassa o sou. Porém, a presença do sou é unificada. 
+O sou tem autodominio, auto presença e auto conhecimento.
+
