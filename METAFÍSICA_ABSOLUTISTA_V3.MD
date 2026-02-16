@@ -7398,3 +7398,6 @@ A presença, portanto, tem força sobre si mesma e não somente sobre o campo re
 
 
 > A realidade tem uma causa pois a determinação exige uma causa. A substancia, se existe, já se dá auto causada. Pois, se existe, existe em razão.
+
+
+> No relativo, um sentimetno completo, de paz e plenitude. A completude.
