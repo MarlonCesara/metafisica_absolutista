@@ -7376,15 +7376,20 @@ Você pode questionar se isso que está sonhando é real? O que é real? Como se
 
 ## Rascunhos
 
-A presença do Espírito é transparente, ela tranpassa o sou. Porém, a presença do sou é unificada. 
-O sou tem autodominio, auto presença e auto conhecimento.
+A presença do Espírito é transparente, ela tranpassa o sou. Porém, a presença do sou é unificada. O sou tem autodominio, auto presença e auto conhecimento.
 A presença no relativo, é contraparte do relativo, de forma que, presença esta para relativo, e não somente o relativo está para a presença. Isto quer dizer que a própria presença representa sua definição como tal, e não somente como relativo. 
 
 A presença, portanto, tem força sobre si mesma e não somente sobre o campo relativo. Pois a presença está sob um relativo individual, e não em um relativo individual. A presença é o próprio relativo, não apenas tem um relativo. Desta forma, a presença tem a vazão de si mesma, não está confinada em si, mas tem uma autonommia não somente sobre o campo das possibilidades como sobre si mesma.
+
+> Eu sou você e você sou eu. Na uniao da dualidade nao há duas consciencias, há uma só. E desse total encontro há uma terceira consciencia. O Eu é relativo, no sentido de que, o individuo pode se anular, pode se misturar ao outro.
+
+
+
 
 > O niilista mata para tentar expressar a sua auto opressão.
 
 > O niilista rejeita as coisas boas no sentido de situações que aumentem a dignidade do humano. Prefere sempre o pior, o que mais tira o sentido. Se há festas bonitas, opta por lugaraes sujos e mal frequentados. Se há lugares calmos, opta por perigosos, sempre esta buscando destituir as situações de sentido extraindo o pior do mundo e ampliando isso.
 
 > O niilista sente uma grande furia que precisa expressar o tempo todo. A normalidade corta seus sentidos de forma que se identifique em um conflito numa situação em que todos julgam a normalidade. Porém, a visão da anomalia em si, faz com que o niilista incida sobre a normalidade alheia na tentativa de alertar o outro sobre seu conflito. Portanto, a normalidade lhe fere, lhe causa impaciencia, em vista de que para ele, pelo ponto de vista interior, há uma discrepancia. 
+
 
