@@ -7393,3 +7393,8 @@ A presença, portanto, tem força sobre si mesma e não somente sobre o campo re
 > O niilista sente uma grande furia que precisa expressar o tempo todo. A normalidade corta seus sentidos de forma que se identifique em um conflito numa situação em que todos julgam a normalidade. Porém, a visão da anomalia em si, faz com que o niilista incida sobre a normalidade alheia na tentativa de alertar o outro sobre seu conflito. Portanto, a normalidade lhe fere, lhe causa impaciencia, em vista de que para ele, pelo ponto de vista interior, há uma discrepancia. 
 
 > A herança da corrupção foi a possibilidade da anulação da alma.
+
+
+
+
+> A realidade tem uma causa pois a determinação exige uma causa. A substancia, se existe, já se dá auto causada. Pois, se existe, existe em razão.
