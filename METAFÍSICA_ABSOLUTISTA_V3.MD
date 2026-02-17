@@ -1478,6 +1478,8 @@ Se lançarmos uma pedra nesse caldeirão, a pedra é uma pedrão ou não pedra, 
 
 Ao jogar a pedra no caldeirão novamente, o caldeirão aceita a versão dessa pedra sendo pedra, a versão dessa pedra sendo uma pedrão não pedra. Então pode suspender a pedra no relativo. Pois se joga a pedra com seu potencial de indiferenciação, com todo seu potencial mediante ao relativo.
 
+Ao desfazer o problema da limitação novamente, e dizer essa pedra pode ser uma não pedra, e jogar de volta a pedra no caldeirão, o caldeirão devolve novamente e diz: essa pedra é invariavel em sua essencia, isto é, só pode ser a pedra A e não a pedra B. Essa pedra limita as possibilidades. Então aristoteles tira a definição da metra como pedra, e como pedra e não pedra, e lança novamente. Então o caldeirão conseguiu absorve-la e a pedra desapareceu.
+
 
 
 Para o Ser, não há confinamento, há na verdade a liberdade essêncial. O Espírito opta necessariamente pelo que é eternamente. É essêncialmente bom.
