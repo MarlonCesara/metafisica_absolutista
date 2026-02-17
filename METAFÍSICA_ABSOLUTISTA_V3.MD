@@ -1468,6 +1468,23 @@ O nada, portanto, é um operador lógico aplicado sobre o Ser, que cria uma real
 
 Aceitando a impossibilidade, ou seja, a existência do Não Ser, temos o indiferenciado. Pois podemos suspender aquilo que existe. Isto quer dizer que aceitamos uma hipótese impossível para pensar o absoluto indiferenciado.
 
+O nada é a anulação do Ser. Consideramos a anulação do que "é" uma ação possível. Foge-se da lógica aristotélica, pensa-se para fora desta lógica. Fora da lógica aristotélica a produção do indiferenciado é válida. Ao considerar que algo é e não é, temos o nada verdadeiro, que é o relativo e não é nada, mas uma suspensão. Ao considerar todas as possibilidades que fogem da esfera lógica, temos o relativo. Ao implementar o impossível na realidade, podemos fazê-lo de forma não disruptiva.
+
+O ente nadificado, é algo que é e não é. Ao produzirmos este ente, podemos suspender como possibilidade. Sem que suspendamos a coisa como não coisa. Não suspendemos a impossibilidade, há somente a possibilidade. Portanto, consideramos somente a possibilidade, afetando o estado relativo, que engloba a possibilidade e sua contravenção. A visualziação da contravenção do que contraria a lógica classica é possível, é acessível a razão, não formalmente construido mentalmente, mas referenciavel. Quando possibilitamos o absoluto sair da metrica da lógica classica, ou é ou não é, podemos retirar o que é e o que não é de seu enquadramenento. Dizendo que é e não é. Ou seja, dizendo que não há uma linha diretiva para defini-lo, mas há uma contravenção. 
+
+Ex: há um caldeirão no qual pode haver qualquer coisa, mas nenhuma coisa é definida ali dentro. Porém, jogamos o possível de aristoteles dentro desse caldeirão. O pote imadiatamente triturará o possível de aristoteles, pois aristoteles diz ao pote que não pode haver o impossível para o elemento jogado. Porém, para o caldeirão, pode haver qualquer coisa, ate o impossível do possível que o aristoteles jogou. Ou seja, o caleirão identifica que existe uma limitação no objeto, pois ha uma regra nesse objeto que impede que o caleirão o suspenda. E lança de volta o objeto para aristoteles. 
+
+Se lançarmos uma pedra nesse caldeirão, a pedra é uma pedrão ou não pedra, ou seja, é preciso lança-la com uma definição. Porém, o caldeirão tem sua mente mais aberta e diz que a pedra pode ser uma não pedra. Ou aristoteles aceita o caldeirão diz e o caldeirão destruirá a pedra, ou o calderão pode devolve-la intacta sem que tenha levado a pedra para o relativo.
+
+Ao jogar a pedra no caldeirão novamente, o caldeirão aceita a versão dessa pedra sendo pedra, a versão dessa pedra sendo uma pedrão não pedra. Então pode suspender a pedra no relativo. Pois se joga a pedra com seu potencial de indiferenciação, com todo seu potencial mediante ao relativo.
+
+
+
+Para o Ser, não há confinamento, há na verdade a liberdade essêncial. O Espírito opta necessariamente pelo que é eternamente. É essêncialmente bom.
+
+
+A produção do relativo foi pensar no Espírito com o potencial de realizar o impossível.
+
 ### Título: A Suspensão do Ser e a Lógica do Indiferenciado
 
 #### O Nada como Ato de Anulação Ontológica
