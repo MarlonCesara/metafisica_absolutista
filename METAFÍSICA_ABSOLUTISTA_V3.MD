@@ -8,6 +8,23 @@ Para tornar possível esse entendimento e conduzir até ele, este tratado aprese
 
 Este tratato usa como base diversas reflexões ao longo dos séculos de pensadores renomados, de forma que, se encontre um conjunto viavel e rigoroso de pensamento que se obtem de caminhos lógicos exatos.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
 
 #### **O Contexto Histórico e a Necessidade de um Organon**
@@ -204,9 +221,9 @@ Este quadro sistêmico demonstra que a pergunta metafísica fundamental — *"Po
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
 Ao examinar sua natureza, emergem três categorias radicais que antecedem e fundamentam até mesmo noções como "ente" ou "essência":
-1.  **Possibilidade:** O domínio do pensável, conforme delimitado pelas leis lógicas. O domínio do pensável e do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
-2.  **Impossibilidade:** O domínio do impensável, aquilo que viola as leis lógicas. O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
-3.  **Incognoscível:** O domínio que transcende inteiramente a estrutura do pensamento e da linguagem. O domínio que transcende inteiramente toda estrutura do pensamento, da linguagem e da referência conceitual; inacessível à razão discursiva, ainda que possa ser pressentido por vias não conceituais.
+1.  **Possibilidade:** O domínio do pensável conforme delimitado pelas leis lógicas. O domínio do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
+2.  **Impossibilidade:** Aquilo que viola as leis lógicas. O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
+3.  **Incognoscível:** O domínio que transcende inteiramente toda estrutura do pensamento, da linguagem e da referência conceitual; inacessível à razão discursiva, ainda que possa ser pressentido por vias não conceituais.
 
 #### **4.2 – O Mapa da Realidade Cognoscível e Transcendente**
 
@@ -364,7 +381,7 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-### **PROPOSIÇÃO IV: A CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL**
+### **PROPOSIÇÃO IV: A AUTO CAUSALIDADE NO ABSOLUTO COGNOSCÍVEL**
 
 #### **O Absoluto como Princípio Irredutível**
 
@@ -473,9 +490,37 @@ A análise causal revela que o Absoluto é:
 
 Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fundamento último de toda realidade. Não faria sentido buscar uma fundamentação anterior ou mais primitiva, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### **A Natureza Pessoal do Autocausal**
 
-A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige personalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
+A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
 
 > _"Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."_
 
@@ -897,6 +942,16 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 
 
 
+
+
+
+
+
+
+
+
+
+
 ### **PROPOSIÇÃO VI: A ESTRUTURA DA AUTO CAUSALIDADE**
 
 #### **As Três Dimensões da Ação do Espírito**
@@ -1031,6 +1086,14 @@ O Espírito fundamentador tem uma ação isolada, no sentido de fundamentar, ao 
     -   A Alma (personificação do Espírito como Filho) introduz a liberdade e a personalidade na estrutura do Absoluto.
 
 Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autodeterminação divinas.
+
+
+
+
+
+
+
+
 
 
 
@@ -1960,7 +2023,41 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 
 
+### **PROPOSIÇÃO VII: O ESPÍRITO INDIFERENCIADO**
 
+O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, suspende o Espírito criado sob um aspecto único; é tudo.
+
+Ao suspendermos o Espírito determinado como nada, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
+
+Um espírito deterinado sob um fator extrinseco, cuja liberdade poderia ser contrária ao que é, e não direcionado necessariamente ao existir. Portanto, não estaria rendido, de forma a ser indetectavel, de forma que sua vontade seja tão pura, que em nada possui dissonancia no que é. De forma que não precise nem mesmo existir para que tenha sua ação instaurada, aproxima-se em pureza, ao ato de inexistir, porém, conserva seus efeitos, portanto, existe, de forma pura.
+
+Ao se determinar o fator auto-causal (Espírito) como nada, temos uma determinação para o Espírito que foge à esfera de ser uma realidade auto-causal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si.
+
+O Espírito, portanto, é o indiferenciado do Espírito; não é determinado no sentido de que seja nada, mas paira puro sobre o que é. E sua ação é pura. Fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. É indetectável, porém tem sua ação sobre aquilo que é.
+
+O fator auto-causal é na medida em que é por si mesmo. Portanto, temos a ação auto-causal, que é dividida em três esferas distintas, e o campo de ação do auto-causal, que é o próprio absoluto. São duas faces de uma mesma realidade: o absoluto é auto-causal no sentido de ser espiritualmente ativo em si mesmo, ao passo que dispõe de si nessa auto-causalidade, que é a liberdade no âmbito auto-causal.
+
+Para justificar um Espírito auto-causal, não se pode recorrer a um Espírito que nada é, pois o nada, apesar de primeiramente parecer não possuir atributos, não possui pessoalidade para realizar a autocausalidade. Temos, portanto, que há um Espírito puríssimo, aquele que dispensa qualquer determinação de si, no sentido de que o Espírito não é uma unidade mandante no absoluto, ou seja, não se identifica como um “Sou”, mas se identifica como o “Ser”, aquilo que paira sobre o absoluto em seu próprio ato de Ser. O Espírito que age sem precisar ordenar está adequado ao que é, e condizente com o que é.
+
+O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como determinador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada).
+
+A auto-causalidade, portanto, incidindo sobre o nada, ou qualquer determinação para o absoluto possível — ou até mesmo incidindo sobre um absoluto indiferenciado, como será evidenciado a seguir —, está para o existir de forma a se determinar em prol do que existe. Se existe o absoluto, o Espírito é consistente com o que existe; e, se o que existe é necessário e não contingente, o Espírito segue essa lógica de necessidade.
+
+Estando justificada a existência do absoluto, está justificada a existência do Espírito absoluto, pois, para tudo que existe, há uma causa de sua existência e sua determinação que, no caso do absoluto, só pode estar em si mesma.
+
+Sendo assim, o Espírito do absoluto é x, no sentido de que é indiferente a um condutor de si e rendido ao existir. É conforme o que o absoluto é. Sua vontade existe sob o ímpeto do que é, e não sob um ímpeto único.
+
+O nada é uma contraparte daquilo que é. É um desvio do que é em prol de uma realidade não plena.
+
+Concluímos, portanto, a visão do que é auto-causal: o Espírito indiferenciado, que repousa puríssimo sob a plenitude do que é. Em outras palavras, a ação do Espírito Absoluto é tão pura que age de forma indetectável; sua ação se dá sem que seja necessária sua existência determinada. Sua ação não depende de um determinador; sua ação é a própria determinação que se dá como se é.
+
+Se existe o todo, sua determinação é a realização do todo, imediata e incausada.
+
+Ex.: O rio flui; alguém precisa tê-lo mandado fluir. Porém, não é preciso que alguém mande, pois o fluir coage com uma vontade. O fluir detém sua própria vontade. O fluir é a própria vontade.
+
+Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto conforme se é. Sendo o Espírito contraparte viva do que se dá em seu campo de liberdade.
+
+Seja qual for absoluto, o Espírito existe para absoluto, ainda que sem definição do que está para absoluto. 
 
 
 ### **PROPOSIÇÃO X: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
@@ -2002,6 +2099,34 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 1.  O **Relativo** do Espírito como fundamentação do fenômeno.
 2.  O **Espírito** como princípio ativo.
 3.  A **Testemunho temporal** como efeito relacional.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### **O Testemunho Temporal do Espírito**
 
@@ -2509,6 +2634,25 @@ O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma re
 
 **O Tempo do Espírito**
 O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a autopresença. Conforme a autopresença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal torna-se sabedoria, e a linha perpendicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -7405,3 +7549,5 @@ A presença, portanto, tem força sobre si mesma e não somente sobre o campo re
 > Se absuluto naturalmente existe, absoluto é auto causado e auto determinado. Pois, A necessita de uma causa para ser A e não B, tal como precisa de uma causa para ser A ou não A.
 
 > A lógica classica é como uma mascara que impede a visualização mental do absoluto indiferenciado.
+
+> No coração da dualidade, tem um X. Ou seja, o coração de uma das almas terá um X, no encontro com outra.
