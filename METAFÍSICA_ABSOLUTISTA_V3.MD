@@ -7403,3 +7403,5 @@ A presença, portanto, tem força sobre si mesma e não somente sobre o campo re
 > No relativo, um sentimetno completo, de paz e plenitude. A completude.
 
 > Se absuluto naturalmente existe, absoluto é auto causado e auto determinado. Pois, A necessita de uma causa para ser A e não B, tal como precisa de uma causa para ser A ou não A.
+
+> A lógica classica é como uma mascara que impede a visualização mental do absoluto indiferenciado.
