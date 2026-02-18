@@ -662,15 +662,6 @@ A tentativa de fundamentar a realidade revela que:
 
 
 
-000
-
-
-
-
-
-
-
-
 
 
 
@@ -1274,10 +1265,11 @@ Se o relativo não pode se autodeterminar, não é realmente autocausal. Desta f
 
 **Exemplo ilustrativo:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou.
 
+**O Tempo do Espírito**
+O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a autopresença. Conforme a autopresença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal torna-se sabedoria, e a linha perpendicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
 
 
 
-111
 
 
 
@@ -2719,8 +2711,6 @@ No relativo, qualquer coisa é possível.
 
 O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna realizada no próprio ato de Ser.
 
-**O Tempo do Espírito**
-O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a autopresença. Conforme a autopresença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal torna-se sabedoria, e a linha perpendicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
 
 
 
@@ -3145,6 +3135,24 @@ O "sou" humano não é uma ilusão ou imperfeição, mas **uma expressão person
 > _"Já não sou eu quem vive, mas Cristo vive em mim. A vida que agora vivo no corpo, vivo-a pela fé no filho de Deus, que me amou e se entregou por mim."_
 > _— Gálatas 2:20_
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### **CAPÍTULO 16: PARALELISMO ONTOLÓGICO**
 
 #### **O Ser em sua Manifestação Integral**
@@ -3236,6 +3244,18 @@ O Ser é o paradoxo vivente que:
 
 > _"Nele vivemos, nos movemos e existimos."_
 > _— Atos 17:28_
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### **CAPÍTULO 17: DETERMINADORES (SOUS) - ONTOLOGIA DA RELAÇÃO**
 
