@@ -7921,3 +7921,5 @@ Este é um paradoxo genuíno, e sua honestidade em mantê-lo aberto é um sinal 
 ---
 
 > A Adão e Eva morreram para se unir para sempre. Herdamos a morte, como um gesto de amor, no qual morreriamos para nos unir com o outro. Como se tivessemos sucedido a mesma paixaõ. Como se o universo nos exortasse de alguma forma a teer a mesma experiencia romantica. 
+
+O nada é uma anulação da substancia, um estado da substancia anulada.
