@@ -7960,3 +7960,5 @@ O niilista tenta se expressar, como se nunca pudesse mais encontrar o seu amor.
 O niilista em Adão e eva se expressou de forma a provocar a morte.
 
 O niilista tem momentos de perca de sanidade e de crueldade.
+
+> O niilista tenta suprimir seu sentimento pela vida. Cria-se um choro retido no seu coração.
