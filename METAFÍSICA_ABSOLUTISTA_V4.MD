@@ -23,7 +23,7 @@ Este tratato usa como base diversas reflexões ao longo dos séculos de pensador
 
 
 
-
+# AS TRÊS PESSOAS DA TRINDADE
 
 
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
@@ -1485,10 +1485,7 @@ O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a 
 
 
 
-
-
-
-
+# O SER E O NADA 
 
 
 ### **PROPOSIÇÃO VII: O NADA RELACIONAL**
@@ -2434,6 +2431,22 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 ### **PROPOSIÇÃO VII: O ESPÍRITO INDIFERENCIADO**
 
+Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo. Precisamos, uma vez entendido o conceito de indiferenciado, retornar a investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no nada, agora vamos atribuir o mesmo grau de pureza no Espírito. E logo em seguinda relacionar o relativo com o Espírito.
+
+No entanto, nos veem a pergunta primordial, como o Espírito pode ser auto causal? Ao imaginarmos um Espírito determinado chegariamos no mesmo problema de uma realidade determinada para absoluto assim como investigamos anteriormente. O Absoluto não poderia portar o nada ou o fenomeno inicialmente sem poluir sua pureza.
+
+Portanto, como deveria ser o Espírito? De que forma gerariamos um Espírito "Relativo"? Ou seja, um Espírito indiferenciado, em palavras mais apropriadas para justifica-lo juntamete a justificação do relativo?
+
+Uma vez tendo entendido o que é determinação para absoluto e o que é o indiferenciamento, se pode facilmente aplicar a mesma visão sobre o Espírito. Não se pode diferencia-lo fazendo com o que o mesmo tenha sua ação sobre um dominio diferente daquilo que já é para absoluto.
+
+Por exeplo, se o Espírito se dasse num primeiro momento determinado, isto quer dizer, voltado a outro direcionamento que não seja ao ato já instaurado do Ser, então não seria justificavel. É preciso que sua ação seja justificavel, instaurada conforme aquilo que já é, e absolutamente necessaria. Isto quer dizer que a vontade do Espírito é rendida ao ato de Ser. É a doação total de si em prol do Ser. 
+
+Uma vez rendido ao que é, o Espírito tem sua ação ainda que em um estado indetectavel, ainda que em um estado purissimo. Sua ação não passa pela decisão de agir, mas é instaurada no que é. O Espírito flui na existencia, é conforme o existir. O Espírito não passa por sua decisão para Existir, simplesmente é conforme uma necessidade ontológica.
+
+
+
+
+
 O Espírito auto causal, como emerge do relativo? Na verdade, não emerge do relativo, o absoluto naturalmente existe. Seja tendo como contra parte o relaativo. O Absoluto é o que é. Porém, o Espírito é purissimo, não há determinação para o Espírito, que é segundo absoluto. Deixa-se repousar absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
 
 O relativo naturalmente existe, e é relativo por sua auto determinação e auto fundamentação. Isto é, naturalmente há o nada, e há a vida, o Espírito que paira sobre o nada, e fomenta esse nada como sua contra parte de liberdade.
@@ -2569,7 +2582,7 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 
 
 
-
+# A CRIAÇÃO
 
 
 
@@ -2903,58 +2916,6 @@ O ato da plenitude é uma interseção entre o ato da fundamentação e o da per
 No relativo, qualquer coisa é possível.
 
 O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna realizada no próprio ato de Ser.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -3342,7 +3303,7 @@ O "sou" humano não é uma ilusão ou imperfeição, mas **uma expressão person
 
 
 
-
+# A RELAÇÃO DOS SOUS
 
 
 
@@ -4713,7 +4674,40 @@ A serpente queria que Adão e Eva morressem, então transviou o propósito da ma
 
 O pós-mundo é uma construção individual e também coletiva. Ao imaginarmos a aspiração do homem, podemos traçar uma linha intuitiva. Ao imaginarmos um mundo renovado, com o espírito evidenciado de certa forma num corpo espiritual, comandado pela mente: um mundo de novas possibilidades, parecido com este, mas renovado e ampliado. Este seria um cenário projetável interessante.
 
-###  **CAPÍTULO 27: ALEGORIAS METAFÍSICAS**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#  **ALEGORIAS METAFÍSICAS**
 
 Será apresentado agora o esboço de uma visão sobre o além, isto é, a realidade pós-morte corporal. Essa visão tem caráter positivista: sempre que não houver uma inferência lógica possível, recorrei à melhor hipótese imaginável, como nos casos da descrição do paraíso ou dos confins da liberdade humana. Esta obra foi inspirada, em grande parte, na teologia católica, pois ela oferece uma coerência lógica e intuitiva notável. 
 
@@ -5650,7 +5644,44 @@ O corpo do purgatório tem uma dor de consciência menos sombria. A dor física 
 Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo todo que isso passará. Aguardam o retorno da alma, apesar de ainda sofrerem a privação da auto visão.
 
 
-### **CAPÍTULO 32: A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+333
+
+#O NIILISMO E SUA SINTOMÁTICA
+
+#A ESSÊNCIA METAFÍSICA E ESPIRITUAL DO NIILISMO**
 
 #### **O Perfil do Niilista Existencial: Uma Cartografia da Autoaniquilação**
 
@@ -6357,20 +6388,6 @@ Seguiram seu caminho com um propósito íntimo orientado para a vida e para o fu
 
 **A porta do céu não é alta demais para os pequenos, nem estreita demais para os humildes. É precisamente à altura de quem sabe ajoelhar-se, e da largura exata de um coração que aprendeu a amar.**
 
- #### **A direita política como grito de socorro (NOVO)**
-
-O niilista tenta se levantar no contexto social com um pedido de socorro à sua condição. Seu voto na direita é um voto na própria ruína. Um processo que visa demonstrar que, enquanto o mundo parece indiferente à sua decisão, o niilista não permanece indiferente ao status quo da normalidade, desferindo contra este o seu golpe de socorro. O niilista sabe que a direita política vai contra os interesses da pessoa humana, e não somente dos ricos, pois fomenta a destruição total. Na direita política não há favorecidos.
-
-A direita é um demonstrar do barco individual que se afunda na correnteza do oceano na vida do indivíduo, e o indivíduo demonstra esse naufrágio querendo naufragar a economia. O indivíduo de direita sabe que está se agredindo ao apoiar a direita, porém o faz porque é seu manifesto contra sua própria postura interior. É a tentativa de emanar um problema silencioso que rompe dentro de si e não tem voz senão em seu voto. É a tentativa de expressão de uma verdade não assumida nem mesmo para si mediante a própria catástrofe. A direita é um movimento emocional, uma patologia social que nasce da decisão de espírito e eclode na opção política ou na ação política que se torna não mais politizada e em favor da guerra. O direitismo é uma atitude antidemocrática que tem como único intuito a expressão de uma realidade interior, é um movimento de agressão social, é apoiar os que fomentam a violência e a desordem social movidos pelos próprios interesses mesquinhos.
-
-A causa emocional do direitismo não necessita ser plenamente entendida para que a direita seja destituída da política, basta que se entenda como uma crise de sentido ou crise existencial a atitude de direita. E também é necessário que se entenda que o combate à direita não se dá por meio de conscientização, não é possível conscientizar um estado de mania. Um estado de zumbificação de um ser humano que padece do pior dos males e que desespera a todo instante pela vida que perderá. O direitismo é um estado de desespero, um afundar do barco político, um estado de agitação que leva a sociedade ao fundo se deixar proliferar. A única forma de combater é pela força, coerção. Ao indivíduo que se agarra por estar se afundando, é necessário desagarrá-lo à força para que solte e pare de afundar o outro. O desespero não controlado do indivíduo não pode ser aplacado pelo discurso de conscientização, ou um simples discurso pela paz. O niilista não está preocupado com o bem-estar social e do mundo, está preocupado com o que lhe é mais urgente, que é sua própria salvação.
-
-A sociedade já compreendeu, neste momento em que estão sendo escritas estas palavras, que o discurso político, a tentativa de conscientização, de comoção ou de politização da pessoa humana de direita não tem efeito. A sociedade, ainda que não esteja disposta a se aprofundar na metafísica e no sentimento humano que causa a direita, entende o necessário. Entende que não se vence a direita pela conscientização. Entende que a direita é um estado de mania persistente, e vê isto como uma crise existencial, como um querer pela destruição. A única forma de vencer a direita é imobilizando-a, abalando os seus alicerces e depois imobilizando-a. O ser humano niilista desaba sobre sua própria decisão, desacredita que sua decisão seja verdade, necessita de subterfúgios mentais, necessita ser segurado, controlado para não se autodestruir até mesmo através da política. Um ser humano não pode suportar a decisão pessoal pela própria perdição, é uma ideia grande demais para o intelecto humano, uma ideia insuportável.
-
-O ódio que o niilista desenvolve por sua própria decisão, e a irracionalidade que enxerga na mesma, é expelido em forma de agressão e violência. A violência se dá no niilismo pelo ser humano não suportar a própria informação que sustenta mediante sua postura rígida. Mediante ao seu ódio absoluto, que o leva a ignorar até suas mais altas aspirações humanas. Um ódio que derrota ele mesmo e o prostra numa posição humilhante. A descarga de violência é o torpor da decisão niilista, quando o indivíduo transbordou sua infeliz decisão, quando quer colocar sobre o outro o peso de sua revolta. A direita política é a violência disfarçada de política.
-
-O verdadeiro instinto do niilista é estar livre de seu autojulgamento, é livrar-se da informação, é dar para alguém sua liberdade de forma que a oriente de forma melhor. É ceder o seu eu a outro, pois considera pesada sua decisão. A vontade verdadeira do niilista é que alguém assuma o leme de sua vida; é parar de remar e ser imobilizado de si mesmo. É se esvair de sua própria consciência, é dormir, estar apagado e alheio à sua própria decisão. A vontade do niilista é livrar-se de seu autojulgamento que o amedronta a todo instante; é fugir ao dever de si mesmo e de ser seu próprio guia rumo à eternidade. O niilista quer ser dominado, imobilizado; quer amortizar sua angústia enorme. Quer sair de sua consciência humana que conflita tanto com a decisão de sua alma. Quer subtrair seu corpo de si, de forma que se despreenda de tanta angústia e pesar pela decisão que julga ser natural, devido à possibilidade de ser livre. O niilista tenta não ver mal algum na sua decisão, mas seu corpo se rebela a todo instante sobre tamanha insanidade.
-
 ### **CAPÍTULO 42: A CRÍTICA SOCIAL E ECONÔMICA ESTRUTURAL**
 
 #### **A Anatomia da Empresa Niilista**
@@ -6934,7 +6951,77 @@ Pois só Tu podes salvar o insalvável, podes realizar o impossível.
 
 Amém.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# O NIILISMO HISTÓRICO E POLÍTICO
+
+
+
 ### **CAPÍTULO 45: O NIILISMO INSTITUCIONALIZADO E SEU COLAPSO**
+
+
+ #### **A direita política como grito de socorro (NOVO)**
+
+O niilista tenta se levantar no contexto social com um pedido de socorro à sua condição. Seu voto na direita é um voto na própria ruína. Um processo que visa demonstrar que, enquanto o mundo parece indiferente à sua decisão, o niilista não permanece indiferente ao status quo da normalidade, desferindo contra este o seu golpe de socorro. O niilista sabe que a direita política vai contra os interesses da pessoa humana, e não somente dos ricos, pois fomenta a destruição total. Na direita política não há favorecidos.
+
+A direita é um demonstrar do barco individual que se afunda na correnteza do oceano na vida do indivíduo, e o indivíduo demonstra esse naufrágio querendo naufragar a economia. O indivíduo de direita sabe que está se agredindo ao apoiar a direita, porém o faz porque é seu manifesto contra sua própria postura interior. É a tentativa de emanar um problema silencioso que rompe dentro de si e não tem voz senão em seu voto. É a tentativa de expressão de uma verdade não assumida nem mesmo para si mediante a própria catástrofe. A direita é um movimento emocional, uma patologia social que nasce da decisão de espírito e eclode na opção política ou na ação política que se torna não mais politizada e em favor da guerra. O direitismo é uma atitude antidemocrática que tem como único intuito a expressão de uma realidade interior, é um movimento de agressão social, é apoiar os que fomentam a violência e a desordem social movidos pelos próprios interesses mesquinhos.
+
+A causa emocional do direitismo não necessita ser plenamente entendida para que a direita seja destituída da política, basta que se entenda como uma crise de sentido ou crise existencial a atitude de direita. E também é necessário que se entenda que o combate à direita não se dá por meio de conscientização, não é possível conscientizar um estado de mania. Um estado de zumbificação de um ser humano que padece do pior dos males e que desespera a todo instante pela vida que perderá. O direitismo é um estado de desespero, um afundar do barco político, um estado de agitação que leva a sociedade ao fundo se deixar proliferar. A única forma de combater é pela força, coerção. Ao indivíduo que se agarra por estar se afundando, é necessário desagarrá-lo à força para que solte e pare de afundar o outro. O desespero não controlado do indivíduo não pode ser aplacado pelo discurso de conscientização, ou um simples discurso pela paz. O niilista não está preocupado com o bem-estar social e do mundo, está preocupado com o que lhe é mais urgente, que é sua própria salvação.
+
+A sociedade já compreendeu, neste momento em que estão sendo escritas estas palavras, que o discurso político, a tentativa de conscientização, de comoção ou de politização da pessoa humana de direita não tem efeito. A sociedade, ainda que não esteja disposta a se aprofundar na metafísica e no sentimento humano que causa a direita, entende o necessário. Entende que não se vence a direita pela conscientização. Entende que a direita é um estado de mania persistente, e vê isto como uma crise existencial, como um querer pela destruição. A única forma de vencer a direita é imobilizando-a, abalando os seus alicerces e depois imobilizando-a. O ser humano niilista desaba sobre sua própria decisão, desacredita que sua decisão seja verdade, necessita de subterfúgios mentais, necessita ser segurado, controlado para não se autodestruir até mesmo através da política. Um ser humano não pode suportar a decisão pessoal pela própria perdição, é uma ideia grande demais para o intelecto humano, uma ideia insuportável.
+
+O ódio que o niilista desenvolve por sua própria decisão, e a irracionalidade que enxerga na mesma, é expelido em forma de agressão e violência. A violência se dá no niilismo pelo ser humano não suportar a própria informação que sustenta mediante sua postura rígida. Mediante ao seu ódio absoluto, que o leva a ignorar até suas mais altas aspirações humanas. Um ódio que derrota ele mesmo e o prostra numa posição humilhante. A descarga de violência é o torpor da decisão niilista, quando o indivíduo transbordou sua infeliz decisão, quando quer colocar sobre o outro o peso de sua revolta. A direita política é a violência disfarçada de política.
+
+O verdadeiro instinto do niilista é estar livre de seu autojulgamento, é livrar-se da informação, é dar para alguém sua liberdade de forma que a oriente de forma melhor. É ceder o seu eu a outro, pois considera pesada sua decisão. A vontade verdadeira do niilista é que alguém assuma o leme de sua vida; é parar de remar e ser imobilizado de si mesmo. É se esvair de sua própria consciência, é dormir, estar apagado e alheio à sua própria decisão. A vontade do niilista é livrar-se de seu autojulgamento que o amedronta a todo instante; é fugir ao dever de si mesmo e de ser seu próprio guia rumo à eternidade. O niilista quer ser dominado, imobilizado; quer amortizar sua angústia enorme. Quer sair de sua consciência humana que conflita tanto com a decisão de sua alma. Quer subtrair seu corpo de si, de forma que se despreenda de tanta angústia e pesar pela decisão que julga ser natural, devido à possibilidade de ser livre. O niilista tenta não ver mal algum na sua decisão, mas seu corpo se rebela a todo instante sobre tamanha insanidade.
+
 
 #### **O Niilismo Moderno nas Grandes Organizações: Gênese e Colapso**
 
@@ -7962,3 +8049,5 @@ O niilista em Adão e eva se expressou de forma a provocar a morte.
 O niilista tem momentos de perca de sanidade e de crueldade.
 
 > O niilista tenta suprimir seu sentimento pela vida. Cria-se um choro retido no seu coração.
+
+> O niilista, passa a imitar uma criança, a imitar uma alegria tola que julga ser a felicidade em si. Passa a tentar visualizar o mundo com simplicidade, simulando um pensamento positivo e uma alegria sem o conflito do pensamnto que carrega, que atenta contra sua plenitude.
