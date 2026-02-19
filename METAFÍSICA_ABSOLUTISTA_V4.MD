@@ -1157,9 +1157,9 @@ Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira
 
 #### **17.2 O Enigma do "Start" Fenomênico**
 
-O Espírito, mesmo dispondo de todo o tempo consumado (campo das possibilidades), possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é indiferenciada no que tange a se dar sem atualizações, mas não é estática.
+O Espírito, mesmo dispondo de todo o tempo consumado, possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é consumada no que tange a se dar sem atualizações, mas não é estática.
 
-O universo "mancharia" a pureza inicial somente se concebêssemos o relativo e o Espírito indiferenciado como realidades estáticas e fechadas. Porém, a linha temporal do relativo existe como *potência ativa*, não como completude inerte.
+O universo "mancharia" a pureza inicial somente se concebêssemos o Espírito como realidade estática e fechada. Porém, a linha temporal do Espírito existe como *potência ativa*, não como completude inerte.
 
 Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda é vivo, isto é, hábil para ação. O tempo do Espírito não passa, no sentido de ser banalizado ou inanimado. O tempo do Espírito é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, porém, ao mesmo tempo em toda sua extensão. Então podemos comparar a capacidade de ação do Espírito ao observador linear: neste instante, eu ou você podemos executar uma ação, pois estamos num ponto específico do tempo; num ponto passado, não podemos executar nenhuma ação e nem em um ponto futuro, somente num presente. Caso o tempo todo estivesse consumado e realizado para o observador, este também não poderia executar nenhuma ação.
 
@@ -1173,7 +1173,7 @@ Desta forma, se o tempo fosse consumado para o Espírito consciente no sentido d
 
 #### **17.3 O Observador Eterno: Chave da Solução**
 
-**Exemplo ilustrativo:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou, pois o observador é indiferenciado.
+**Exemplo ilustrativo:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou.
 
 O Espírito como Observador absoluto:
 - Não tem um "primeiro momento" de observação
@@ -2434,6 +2434,20 @@ Assim concluímos não com uma resposta, mas com um convite: da argumentação �
 
 ### **PROPOSIÇÃO VII: O ESPÍRITO INDIFERENCIADO**
 
+O Espírito auto causal, como emerge do relativo? Na verdade, não emerge do relativo, o absoluto naturalmente existe. Seja tendo como contra parte o relaativo. O Absoluto é o que é. Porém, o Espírito é purissimo, não há determinação para o Espírito, que é segundo absoluto. Deixa-se repousar absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
+
+O relativo naturalmente existe, e é relativo por sua auto determinação e auto fundamentação. Isto é, naturalmente há o nada, e há a vida, o Espírito que paira sobre o nada, e fomenta esse nada como sua contra parte de liberdade.
+
+O Espírito age, de forma indetectavel. Sua ação da o que é, no sentido, não de mandar que relativo seja tal como relativo, mas de se doar como vontade do que é. De ser a plenitude daquilo que necessariamente é.
+
+Exemplo: a caichoeira cai inevitavelmente, ou seja, o relativo existe inevitavelmente, e só pode ser por vontade do Espírito, pois se auto determina relativo. E essa vontade emerge pura, pois age de forma a deixar ser o que já é. 
+
+O absoluto naturalmente existe, e impoe o existir a completude, pois existe tal como é.
+
+O ato absoluto é o ato de ser necessário, tendo como contra parte o relativo, ou seja, a si mesmo. O relativo evidencia o absoluto, pois o relativo, nada é. E na ausencia do nada, há absoluto.
+
+E, determina sobre o relativo, sendo que já tem integralmente a si mesmo como necessário, ou seja, não contingente.
+
 O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, suspende o Espírito criado sob um aspecto único; é tudo.
 
 Ao suspendermos o Espírito determinado como nada, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
@@ -2467,6 +2481,23 @@ Ex.: O rio flui; alguém precisa tê-lo mandado fluir. Porém, não é preciso q
 Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto conforme se é. Sendo o Espírito contraparte viva do que se dá em seu campo de liberdade.
 
 Seja qual for absoluto, o Espírito existe para absoluto, ainda que sem definição do que está para absoluto. 
+
+O Espírito, portanto, paira sobre absoluto e é o absoluto. Sua ação é ato puro de existir. Não incide sobre uma contraparte substancial, como um elemento que move outro elemento, mas é em si a própria elementação. É elemento de si mesmo. É um existir, e não o existente.
+
+É um Espírito sem determinação. Simplesmente é, e sua vontade coage com seu aato de Ser, pois não é contigente. Isto é, é unicamente direcionado ao existir. E sua personalidade e tendencia é o existir unidirecional.
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### **PROPOSIÇÃO X: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
