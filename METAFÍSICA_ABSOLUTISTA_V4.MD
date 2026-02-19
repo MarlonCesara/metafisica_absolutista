@@ -7923,3 +7923,9 @@ Este é um paradoxo genuíno, e sua honestidade em mantê-lo aberto é um sinal 
 > A Adão e Eva morreram para se unir para sempre. Herdamos a morte, como um gesto de amor, no qual morreriamos para nos unir com o outro. Como se tivessemos sucedido a mesma paixaõ. Como se o universo nos exortasse de alguma forma a teer a mesma experiencia romantica. 
 
 O nada é uma anulação da substancia, um estado da substancia anulada.
+
+O niilista tenta se expressar, como se nunca pudesse mais encontrar o seu amor. 
+
+O niilista em Adão e eva se expressou de forma a provocar a morte.
+
+O niilista tem momentos de perca de sanidade e de crueldade.
