@@ -2449,6 +2449,7 @@ Ex: O Espírito tem uma ação tão rapida que o determinador da ação se afast
 
 O Espírito entendeu sem precisar entender, observou sem precisar observar, agiu sem ter precidado agir. Está puramente instaurado no que é. Como se fosse a vida do que é, e não o determinador do que é. Poussui todas as propriedades do determinador, porem sem precisar ter sido efetivamente o determinador.
 
+O Espírito é a vida do nada, é o solo no qual as coisas são realizadas, é a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação. É um determinador doado ao todo de forma a se expandir até tornar sua presença altisssima e indetectavel. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que.
 000
 
 O Espírito auto causal, como emerge do relativo? Na verdade, não emerge do relativo, o absoluto naturalmente existe. Seja tendo como contra parte o relaativo. O Absoluto é o que é. Porém, o Espírito é purissimo, não há determinação para o Espírito, que é segundo absoluto. Deixa-se repousar absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
