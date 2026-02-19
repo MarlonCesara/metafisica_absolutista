@@ -2443,9 +2443,11 @@ Por exeplo, se o Espírito se dasse num primeiro momento determinado, isto quer 
 
 Uma vez rendido ao que é, o Espírito tem sua ação ainda que em um estado indetectavel, ainda que em um estado purissimo. Sua ação não passa pela decisão de agir, mas é instaurada no que é. O Espírito flui na existencia, é conforme o existir. O Espírito não passa por sua decisão para Existir, simplesmente é conforme uma necessidade ontológica.
 
+Exemplo: imagine que o absoluto é um circulo negro, o circulo representa o relativo. O Espírito não precisa criar, ou decidir criar esse circulo, ele já se dá instaurado como existente e criador, já se sucedeu dessa forma, um circulo. Não houve uma ordem ou uma inclinação pessoa do Espírito para haver o circulo ou o não circulo. Simplesmente o espírito é rendido ao que é. E isto quer dizer que, o Espírito pode se dar tal como o relativo, incausado, e indetectavel no sentido de que sua ação é perfeitamente homogenea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
 
+Ex: O Espírito tem uma ação tão rapida que o determinador da ação se afasta da ação infinitamente. É uma velocidade tão infinita que o determinador é indetectavel, e só pode se constatar sua ação. Ou seja, o determinador não precisou estar lá para que há ação existisse, sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é dispensável, é altissismo, existe mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir, sua ação é totalmente invisível.
 
-
+000
 
 O Espírito auto causal, como emerge do relativo? Na verdade, não emerge do relativo, o absoluto naturalmente existe. Seja tendo como contra parte o relaativo. O Absoluto é o que é. Porém, o Espírito é purissimo, não há determinação para o Espírito, que é segundo absoluto. Deixa-se repousar absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
 
