@@ -8133,4 +8133,4 @@ O niilista se enxe subitamente de ira e parte para cima do individuo querendo qu
 
 - Admiro sua tentativa mas, mesmo assim pode não ser eficaz, preciso apenas mostrar o que eu sinto, se fora eu que escolhi, então não te responsabilizarei, mas não quero sofrer, preciso de voce para me sentir melhor e para sobreviver o tempo necessario ate meu findar.
 
-
+O niilismo é diferente até mesmo a vingança. Pois a vingança é querer mudar algo que está em vida, e o niilista quer matar a si mesmo. O niilista não está vingando exatamente, como se tivesse um objetivo para com a vida, para finalizar na vida, mas está espelhando o sofrimento, seu ódio ultrapassou o sentimento de vingança, e findou na sua auto destruição. O niilista já não se direciona a algo que está na vida, mas tem como unico descarregar de sua ira a completa inação, a chegada ao seu findar no qual nem mesmo a vingança exercerá, de forma que nem mesmo presenciará quem será atingido pela sua ira.
