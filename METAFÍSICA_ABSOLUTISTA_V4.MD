@@ -8109,3 +8109,28 @@ O desvio de dinheiro não tem um fim no próprio dinheiro desviado, mas tem um f
 
 
 O niilista entra num estado de despersonalizacao de apatia..neg propriedades de dua perdobalidade. O niilista insistentemente quer a a resposta e confunde essa resposta com os dons pessoas das pessoas. Se ve pessoas muito simples, quer a simpicidade a todo custo. Se ve pessoas inteligentes, quer a inteligencia. Se ve pessoas ricas, quer a riqueza. Se ve pessoas eruditas, quer a edurição. Se ve um amor verdadeiro, quer esse amor. Se ve a felicidae em filhos, mudar de cidade, obtenção de bens, etc. Pois esses traços pessoas ou posses associados ao bem estar do indiivduo dao a impressao para o niilista, que ele terá sua cura obtendo esses trejeitos ou dons pessoais.
+
+
+
+
+
+
+
+
+Dialogo imaginario entre o niilista e o individuo não niilista:
+
+- Vejo teu sossego, sua paz, como se nada estivesse acontecendo, mas eu não estou bem.
+
+- Se és niliista, nada posso fazer, foi o que escolherá não foi? Ou alguém te obrigará a tal? Se tem tanto ódio, lança-te no inferno e me deixa em paz, eu viverei sem tu.
+
+- Voce não pode falar desta forma comigo, sem nenhuma compaixão, necessita fazer de tudo para que eu mude de ideia
+
+- Mas porque eu o faria, se é voce que quer? A mesma libedade que eu tenha voce tem. Se queres isso, então o faça, pois é de sua liberdade e é seu dom ser livre.
+
+O niilista se enxe subitamente de ira e parte para cima do individuo querendo que o outro sinta o que ele sente. Num ato de frustração, desconsolo e infelcidade, não pode ver o outro contente com sua decisão pela vida, livre do ódio absoluto. Não pode aceitar a si mesmo, por isso, não pode aceitar o sossego do outro. 
+
+- Pois bem, farei o que voce quer, tentarei te ensinar a parar com esse seu pensamento.
+
+- Admiro sua tentativa mas, mesmo assim pode não ser eficaz, preciso apenas mostrar o que eu sinto, se fora eu que escolhi, então não te responsabilizarei, mas não quero sofrer, preciso de voce para me sentir melhor e para sobreviver o tempo necessario ate meu findar.
+
+
