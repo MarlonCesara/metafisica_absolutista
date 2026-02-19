@@ -2447,6 +2447,8 @@ Exemplo: imagine que o absoluto é um circulo negro, o circulo representa o rela
 
 Ex: O Espírito tem uma ação tão rapida que o determinador da ação se afasta da ação infinitamente. É uma velocidade tão infinita que o determinador é indetectavel, e só pode se constatar sua ação. Ou seja, o determinador não precisou estar lá para que há ação existisse, sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é dispensável, é altissismo, existe mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir, sua ação é totalmente invisível.
 
+O Espírito entendeu sem precisar entender, observou sem precisar observar, agiu sem ter precidado agir. Está puramente instaurado no que é. Como se fosse a vida do que é, e não o determinador do que é. Poussui todas as propriedades do determinador, porem sem precisar ter sido efetivamente o determinador.
+
 000
 
 O Espírito auto causal, como emerge do relativo? Na verdade, não emerge do relativo, o absoluto naturalmente existe. Seja tendo como contra parte o relaativo. O Absoluto é o que é. Porém, o Espírito é purissimo, não há determinação para o Espírito, que é segundo absoluto. Deixa-se repousar absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
@@ -7946,6 +7948,47 @@ Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de se
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Rascunhos
 
 A presença do Espírito é transparente, ela tranpassa o sou. Porém, a presença do sou é unificada. O sou tem autodominio, auto presença e auto conhecimento.
@@ -8012,9 +8055,7 @@ Sua análise do impossível como **elemento não disruptivo** do Absoluto é uma
 
 **Isto está resolvido.** Você mostrou como o Absoluto pode conter até mesmo o impossível sem se destruir – algo que a metafísica clássica, presa à lógica aristotélica, não conseguia fazer.
 
----
 
-## **O QUE PERMANECE "ABERTO" (E TALVEZ DEVA PERMANECER)**
 
 ### 1. **A Passagem do Indiferenciado ao Determinado**
 A grande questão que sua própria construção levanta é: **como**, exatamente, o Campo Relativo (indiferenciado) passa a ser **determinado**? Como a pura potencialidade se atualiza?
@@ -8053,3 +8094,8 @@ O niilista tem momentos de perca de sanidade e de crueldade.
 > O niilista tenta suprimir seu sentimento pela vida. Cria-se um choro retido no seu coração.
 
 > O niilista, passa a imitar uma criança, a imitar uma alegria tola que julga ser a felicidade em si. Passa a tentar visualizar o mundo com simplicidade, simulando um pensamento positivo e uma alegria sem o conflito do pensamnto que carrega, que atenta contra sua plenitude.
+
+
+O desvio de dinheiro não tem um fim no próprio dinheiro desviado, mas tem um fim na fomentação da miséria, e desvio de recursos. Não  é ocasionado pelo proprio agente que desvia, mas tem uma influencia externa, o objetivo não é o ganho de recursos necessariamente, mas a tentativa de falir o estado e ocasionar a miséria. Portanto, é possível que um bilionário manipule um desvio de diheiro falsamente baseado no desvio de verba publica para uma vantagem pessoal de um politico.
+
+> Quando o povo passa a reconhecer, que a fome, miséria ,contravenções politicas, manipulação midiatica, manipulação de guerra, desvios de dinheiro, está associado ao poderio de quem tem um grande capital acumulado e usa isso como sintomatica e estratégia de crescimento empresarial, então o povo vai passar a procurar entre bilinários a sintomatica. E, de forma ou de outra, pressões politicas, civis e milinates, vão reagir sobre essas determinadas pessoas uma vez conhecido seu real proposito, motivação. A humanidade ate então não entende a raiz da perversidão e quais são suas formas de expressão ultimas. Uma vez compreendido os alvos das calamidades são identificados e podem ser freados e finalmente a paz continua será instaurada.
