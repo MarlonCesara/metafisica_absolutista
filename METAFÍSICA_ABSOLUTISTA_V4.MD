@@ -8152,4 +8152,4 @@ O niilismo é diferente até mesmo a vingança. Pois a vingança é querer mudar
 
 > A alma é totalmente livre, para ser outra, sair de si ou ser mais que si. 
 
-> O renascimento pelo espírito continua um mistério, o individuo nasce, porém, é necessario optar pela vida que é sue primeiro movimento. Portanto, há um primeiro ato de liberdade, esse primeiro ato de liberdade segue de um segundo ato que é decidir pela vida por si, a verdadeira vida.
+> O renascimento pelo espírito continua um mistério, o individuo nasce, porém, é necessario optar pela vida que é sue primeiro movimento. Portanto, há um primeiro ato de liberdade, esse primeiro ato de liberdade segue de um segundo ato que é decidir pela vida por si, a verdadeira vida. O individuo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se nnão fosse vivo. 
