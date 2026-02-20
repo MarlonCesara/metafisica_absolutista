@@ -8148,3 +8148,8 @@ O niilismo é diferente até mesmo a vingança. Pois a vingança é querer mudar
 > Quando o niilista possui uma pessoa que absorve sua expressão, o niilista pode até mesmo desenvolver uma convivencia natural com outras pessoas. Porém, quando o niilista perde sua base de expressão, pode recorrer a outras pessoas para tal. Quando não há ninguem para que se expresse, pode recorrer a vicios para aliviar sua consciencia do seu conteudo.
 
 > O niilista tente a querer obter muitos bens para ''remunerar'' os individuos com o intuito de poder se expressar neles, como se usasse os recursos financeiros para amortecer o peso do niilismo sobre si. Ao passo que pode usar de outros meios também. E isso o salva de precisar estar inconciente de seu estado.
+
+
+> A alma é totalmente livre, para ser outra, sair de si ou ser mais que si. 
+
+> O renascimento pelo espírito continua um mistério, o individuo nasce, porém, é necessario optar pela vida que é sue primeiro movimento. Portanto, há um primeiro ato de liberdade, esse primeiro ato de liberdade segue de um segundo ato que é decidir pela vida por si, a verdadeira vida.
