@@ -7949,6 +7949,11 @@ Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de se
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
 
 
+##**Chamado nas redes sociais**
+
+E se voce pudesse transformar o mundo com um like? E se alguém tivesse criado essa formula? Pois bem, eu criei. Decodifiquei a biblica, em especial o evagelho e geneses, e achei o código que pode acabar com toda a miséria. É uma tradução metfisica e lógica rigorosa que ajuda a huamnidade a entender realmente qual o origem sobre os males da terra para finalemnte poder atuar sobre esse mal.
+
+Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabalho de entender, de like para que ela chegue a mais pessoas e que possa ser conheecida pelo mundo inteiro.
 
 
 
