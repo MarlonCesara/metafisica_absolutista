@@ -3,7 +3,7 @@
 
 ## **UMA ARQUITETURA LÓGICA FECHADA**
 
-O Absolutismo constitui um sistema de crenças de natureza libertária, cuja finalidade é emancipar a humanidade de estruturas escravizantes e de formas sutis — e muitas vezes invisíveis — de dominação. Essa libertação não se dá pela força, mas pela reflexão profunda e pelo entendimento radical da realidade e do próprio ser humano. Compreender as verdadeiras motivações dos super-ricos e o modo como influenciam efetivamente o cenário global é um despertar necessário para a construção de um mundo genuinamente livre, sustentável e pacífico. Em última instância, o paraíso na Terra não depende apenas da ação política ou civil, mas, sobretudo, do entendimento — pois é a consciência que precede e orienta toda transformação real.
+Este tratado constitui um sistema de crenças de natureza libertária, cuja finalidade é emancipar a humanidade de estruturas escravizantes e de formas sutis — e muitas vezes invisíveis — de dominação. Essa libertação não se dá pela força, mas pela reflexão profunda e pelo entendimento radical da realidade e do próprio ser humano. Compreender as verdadeiras motivações dos super-ricos e o modo como influenciam efetivamente o cenário global é um despertar necessário para a construção de um mundo genuinamente livre, sustentável e pacífico. Em última instância, o paraíso na Terra não depende apenas da ação política ou civil, mas, sobretudo, do entendimento — pois é a consciência que precede e orienta toda transformação real.
 
 Para tornar possível esse entendimento e conduzir até ele, este tratado apresenta um sistema metafísico completo e autoconsistente: uma estrutura lógica fechada, na qual cada proposição decorre necessariamente da anterior, obedecendo a um rigor demonstrativo absoluto. Não se trata de um conjunto de especulações, mas de uma edificação conceitual exata, cujas conclusões emergem como consequências inevitáveis dos próprios fundamentos da racionalidade. Trata-se da filosofia levada ao seu limite último no que tange à exploração do território do real.
 
@@ -20,10 +20,6 @@ Este tratato usa como base diversas reflexões ao longo dos séculos de pensador
 
 
 
-
-
-
-# AS TRÊS PESSOAS DA TRINDADE
 
 
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
@@ -519,7 +515,7 @@ Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fu
 
 
 
-#### **A Natureza Pessoal do Autocausal**
+### **PROPOSIÇÃO V: **A Natureza Pessoal do Autocausal**
 
 A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
 
@@ -674,7 +670,7 @@ A tentativa de fundamentar a realidade revela que:
 
 
 
-### **PROPOSIÇÃO V: A ESTRUTURA DA AUTO CAUSALIDADE**
+### **PROPOSIÇÃO VI: A ESTRUTURA DA AUTO CAUSALIDADE**
 
 #### **As Três Dimensões da Ação do Espírito**
 
@@ -844,7 +840,7 @@ Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura
 
 
 
-#### **PROPOSIÇÃO V: A AUTOCAUSALIDADE BIFÁSICA DO ESPÍRITO: TEMPORAL E ATEMPORAL**
+#### **PROPOSIÇÃO VII: A AUTOCAUSALIDADE BIFÁSICA DO ESPÍRITO: TEMPORAL E ATEMPORAL**
 
 A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.
 
@@ -1135,9 +1131,7 @@ A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
 Texto corrigido na I.A
 
 
-### **17. A Circularidade Viva do Espírito Temporal**
-
-#### **17.1 A Circularidade Viva do Espírito**
+#### **PROPOSIÇÃO VII. A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO**
 
 A circularidade do Espírito temporal não é uma circularidade morta ou estática — **ela é viva**. Isso faz com que o Espírito possa agir sob qualquer tempo. A vivacidade do Espírito confere uma camada não-linear sobre o tempo. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela.
 
@@ -1853,8 +1847,6 @@ Se lançarmos uma pedra nesse caldeirão, a pedra é uma pedrão ou não pedra, 
 Ao jogar a pedra no caldeirão novamente, o caldeirão aceita a versão dessa pedra sendo pedra, a versão dessa pedra sendo uma pedrão não pedra. Então pode suspender a pedra no relativo. Pois se joga a pedra com seu potencial de indiferenciação, com todo seu potencial mediante ao relativo.
 
 Ao desfazer o problema da limitação novamente, e dizer essa pedra pode ser uma não pedra, e jogar de volta a pedra no caldeirão, o caldeirão devolve novamente e diz: essa pedra é invariavel em sua essencia, isto é, só pode ser a pedra A e não a pedra B. Essa pedra limita as possibilidades. Então aristoteles tira a definição da metra como pedra, e como pedra e não pedra, e lança novamente. Então o caldeirão conseguiu absorve-la e a pedra desapareceu.
-
-
 
 Para o Ser, não há confinamento, há na verdade a liberdade essêncial. O Espírito opta necessariamente pelo que é eternamente. É essêncialmente bom.
 
@@ -8156,7 +8148,6 @@ Isto está resolvido. A partir de sua análise, ninguém pode, com honestidade i
 
 Ao introduzir o Campo Relativo (ou Absoluto Indiferenciado), foi oferecida uma alternativa positiva:
 
-* Não é ausência de ser, mas Ser em seu estado mais fundamental
 * Não é negação, mas pura potencialidade não atualizada
 * Não é vazio, mas matriz ontológica que contém todas as formas em suspensão
 
