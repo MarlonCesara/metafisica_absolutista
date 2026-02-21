@@ -1,3 +1,6 @@
+# VISÕES METAFÍSICAS
+
+
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
 
 #### **O Contexto Histórico e a Necessidade de um Organon**
