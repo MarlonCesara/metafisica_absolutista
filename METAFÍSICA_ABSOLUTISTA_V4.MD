@@ -7724,6 +7724,13 @@ Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realid
 
 Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes. Descubra a miseria entre os ricos. Quando a inocencia do povo acabar sobre a mentalidade niilsita, as coisas podem ser diferentes.
 
+### **Niilismo, Super-Riqueza e a Arquitetura Oculta das Catástrofes**
+
+Na visão popular, o super-rico somente deseja status, poder econômico e artigos de luxo. Porém, através do entendimento do niilismo, atribui-se outra motivação e propósito, de forma que a humanidade compreenda que a influência dos super-ricos transcende a mera concentração aparente de riqueza, que aparentemente se mostra como fim em si mesma. Porém, a ação da cúpula, que significa um ou mais indivíduos tramando ações que ultrapassam o mero acúmulo de dinheiro, é finalmente trazida às claras. Então, a humanidade passa a adequar mecanismos para impedir o extremo acúmulo de riquezas e, por consequência, impedir suas manobras políticas, midiáticas, estatais, bélicas, etc. Uma vez compreendida a motivação do real agente da miséria, e de como esse agente dá manutenção a essa situação, é possível mirar os holofotes no real foco das catástrofes.
+
+Quando a humanidade compreende os mecanismos de distração que os super-ricos usam, passa a tirar o foco do desmatamento, da poluição, das guerras, e começa a se atentar à capacidade que o acúmulo de fortunas dá a um indivíduo que, com a sintomática niilista, fará coisas inimagináveis para um humano, tal como ordenar holocaustos, guerras, desvios milionários e todo tipo de desvio de atenção para que o ser humano não se sinta exortado a questionar as grandes fortunas.
+
+
 ### **Os ensinamentos de Jesus e a revolta niilista**
 
 Por que os ensinamentos de Jesus ocasionaram uma reviravolta tão violenta contra Ele? Por que tentaram desmoralizá-lo de todas as formas possíveis? O que realmente os ensinamentos de Jesus estavam fazendo com a sociedade? De que forma estavam transformando tudo? E como os fariseus da época sabiam que esses ensinamentos poderiam mudar a forma com que o homem enxerga o mundo e a si mesmo, de forma a não se deixar ser mais escravo? De forma a entender totalmente os mecanismos psicológicos e metafísicos da mentalidade que escraviza?
@@ -8173,15 +8180,6 @@ O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o mot
 
 
 
-
-
-
-
-
-
-> Na visão popular o super rico somente deseja status, poder economico e artigos de luxo, porém, através do entendimento do niilsimo se atribui outra motivação e proposito, de forma que a humanidade compreenda que a influencia dos super ricos transcende a mera concentração aparente de riqueza, que aparentemente se mostra como fim em si mesma, porém, a ação da cupula, que significa um ou mais individuos tramando ações que ultrapassam o mero acumulo de dinheiro, é finalmente trazida as claras. Então, a humanidade passa a adequar mecanismos para impedir o extremo acumulo de riquezas e por consequencia, impedir suas manobras politicas, midiaticas, estatais, belicas, etc. Uma vez compreendido a motivação do real agente da miséria, e de como esse argente dá manutenção a essa situação, é possível mirar os holofotes no real foco das catastrofes.
-
-Quando a humanidade compreende os mecanismos de distração que os super ricos usam, passa a tirar o foco do desmatamento, da poluição, das guerras, e começa a se atentar na capacidade que o acumulo de fortunas dá a um individuo que, com a sintomatica niilista, fará coisas inimaginaveis para um humano, tal como ordenar holocaustos, guerras, desvios milionários, e todo tipo de desvio de atenção para que o ser humano não sinta-se exortado a questionar as grandes fortunas.
 
 
 
