@@ -1,7 +1,7 @@
 
-# METAFÍSICA ABSOLUTISTA
+# VISÕES METAFÍSICAS
 
-## **O SISTEMA METAFÍSICO ABSOLUTISTA: UMA ARQUITETURA LÓGICA FECHADA**
+## **UMA ARQUITETURA LÓGICA FECHADA**
 
 O Absolutismo constitui um sistema de crenças de natureza libertária, cuja finalidade é emancipar a humanidade de estruturas escravizantes e de formas sutis — e muitas vezes invisíveis — de dominação. Essa libertação não se dá pela força, mas pela reflexão profunda e pelo entendimento radical da realidade e do próprio ser humano. Compreender as verdadeiras motivações dos super-ricos e o modo como influenciam efetivamente o cenário global é um despertar necessário para a construção de um mundo genuinamente livre, sustentável e pacífico. Em última instância, o paraíso na Terra não depende apenas da ação política ou civil, mas, sobretudo, do entendimento — pois é a consciência que precede e orienta toda transformação real.
 
