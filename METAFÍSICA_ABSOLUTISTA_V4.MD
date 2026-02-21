@@ -8153,3 +8153,8 @@ O niilismo é diferente até mesmo a vingança. Pois a vingança é querer mudar
 > A alma é totalmente livre, para ser outra, sair de si ou ser mais que si. 
 
 > O renascimento pelo espírito continua um mistério, o individuo nasce, porém, é necessario optar pela vida que é sue primeiro movimento. Portanto, há um primeiro ato de liberdade, esse primeiro ato de liberdade segue de um segundo ato que é decidir pela vida por si, a verdadeira vida. O individuo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se nnão fosse vivo. 
+
+
+> O relativo se dá naturalmente, sem causa, e seu statuto positivo de perfeito equilibrio, tem uma causa, que está efetivamente emconjunto com sua ação positiva. O relativo é porque há uma razão em si para tal, uma causa. Sua necessidade ontológica não dispensa a necessidade de ser auto causal, em vista que sua postividade é intacta como é, e não está em desequilibrio. Não há eleita uma de suas formas, ou determinado um estado para relativo, portanto, a causa de sua estabilidade é a si memso, tal como é também a causa de qualquer instabilidade, isto é, qualquer determinação em si. Há fenomenos, portanto, há instabilidade no relativo, sendo possível a determinação, há uma causa para a não determiação. E está causa existe incausada tal como o relativo. Tem sua ação sem ser necessário o sujeito da ação, é conforme o que é. É um determinador altissimo. Sua ação é efetivada sem a necessidade do determinador. Seu determinador é dissolvido na completude, e entregue conforme o que é.
+
+
