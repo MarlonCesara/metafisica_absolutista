@@ -1,11 +1,5 @@
 ### **PROPOSIÇÃO I: A SIMETRIA LÓGICA**
 
-#### **Introdução**
-
-No capítulo anterior, estabelecemos os fundamentos da epistemologia crítica, demonstrando como o conhecimento humano se estrutura a partir da relação entre sujeito e objeto. Agora, avançamos para o domínio da lógica, onde a questão fundamental não é mais *como* conhecemos, mas *o que* torna o conhecimento possível enquanto estrutura coerente. Se a epistemologia investiga os limites e possibilidades do ato de conhecer, a lógica examina as próprias leis que governam o pensamento quando este pretende apreender o real. A presente proposição demonstrará que a lógica clássica, embora necessária, é insuficiente para descrever a realidade em seu devir temporal, exigindo uma expansão simétrica que integre a dimensão dinâmica da existência.
-
----
-
 #### **O Contexto Histórico e a Necessidade de um Organon**
 
 A fundação da lógica como disciplina sistemática é obra de Aristóteles (384-322 a.C.), desenvolvida em resposta às limitações percebidas na filosofia platônica. Enquanto Platão orientava a investigação para o mundo transcendente das Ideias ou Formas, Aristóteles buscou estabelecer um método formal para o pensamento correto acerca do mundo real — um *organon* (ferramenta) para a ciência e a demonstração.
@@ -22,31 +16,29 @@ De volta a Atenas, no Liceu, Aristóteles sistematizou sua descoberta no *Organo
 
 2.  **Princípio da Não-Contradição (¬(A ∧ ¬A)):**
     > *“ἀδύνατον ἅμα εἶναι καὶ μὴ εἶναι τὸ αὐτὸ καὶ κατὰ τὸ αὐτό”* (“É impossível que a mesma coisa, ao mesmo tempo, pertença e não pertença a uma mesma coisa sob um mesmo aspecto.”)
-    É o princípio supremo da consistência sincrónica. Se algo é verdadeiro, a sua contraditória é, *ipso facto*, falsa. A realidade não admite contradições simultâneas.
+    É o princípio supremo da consistência sincrônica. Se algo é verdadeiro, a sua contraditória é, *ipso facto*, falsa. A realidade não admite contradições simultâneas.
 
 3.  **Princípio do Terceiro Excluído (A ∨ ¬A):**
     > *“ἀνάγκη ἢ φάναι ἢ ἀποφάναι”* (“É necessário afirmar ou negar.”)
-    Toda proposição declarativa possui um, e apenas um, valor de verdade: verdadeiro ou falso. Não existe uma terceira opção lógica, estabelecendo uma avaliação definitiva e atemporal.
+    Toda proposição declarativa possui, e apenas um, valor de verdade: verdadeiro ou falso. Não existe uma terceira opção lógica, estabelecendo uma avaliação definitiva e atemporal.
 
 #### **Impacto e Lacuna**
 
 Estes princípios tornaram-se o fundamento da racionalidade ocidental, permitindo o desenvolvimento da ciência empírica, do direito formalizado e, posteriormente, das ciências da computação. Aristóteles, portanto, não se limitou a observar o mundo; **ele forjou a ferramenta cognitiva definitiva para que o mundo pudesse ser observado, analisado e compreendido com rigor**. Ao fazê-lo, erigiu a lógica como a ponte indestrutível entre o *logos* interior (pensamento) e o *logos* exterior (realidade estruturada).
 
-No entanto, uma análise crítica revela que esta estrutura, embora necessária, é **suficiente apenas para uma descrição atemporal ou sincrónica da realidade**. O Princípio da Identidade define a essência, mas permanece mudo sobre a **persistência dessa identidade através do fluxo temporal**. Esta lacuna — a ausência de um princípio que regule a identidade *no* e *ao longo do* tempo — é o ponto de partida para a expansão metafísica que se segue.
-
----
+No entanto, uma análise crítica revela que esta estrutura, embora necessária, é **suficiente apenas para uma descrição atemporal ou sincrônica da realidade**. O Princípio da Identidade define a essência, mas permanece mudo sobre a **persistência dessa identidade através do fluxo temporal**. Esta lacuna — a ausência de um princípio que regule a identidade *no* e *ao longo do* tempo — é o ponto de partida para a expansão metafísica que se segue.
 
 ### **DA LÓGICA CLÁSSICA À ONTOLOGIA TEMPORAL**
 
 #### **Análise Crítica dos Princípios: A Questão Temporal**
 
-Uma análise profunda dos princípios lógicos fundamentais — **Identidade, Não-Contradição e Terceiro Excluído** — revela que sua aparente auto-evidência oculta uma distinção crucial entre **atemporalidade e temporalidade**, distinção esta essencial para qualquer metafísica que pretenda descrever a realidade em seu devir.
+Uma análise profunda dos princípios lógicos fundamentais—**Identidade, Não-Contradição e Terceiro Excluído**—revela que sua aparente auto-evidência oculta uma distinção crucial entre **atemporalidade e temporalidade**, distinção esta essencial para qualquer metafísica que pretenda descrever a realidade em seu devir.
 
 #### **Reinterpretação Ontológica dos Princípios**
 
 1.  **O Princípio da Identidade (A = A)** estabelece a essência invariável de um ente, mas opera exclusivamente num plano **atemporal**. Ele define **o que algo é** em sua própria natureza, abstraindo completamente de sua permanência ou mudança no fluxo do tempo. É uma condição estática e eterna.
 
-2.  **O Princípio da Não-Contradição (¬(A ∧ ¬A))** introduz, ainda que implicitamente, uma **dimensão temporal**. A cláusula "ao mesmo tempo" é fundamental. Este princípio não proíbe que um ente seja A em um momento e não-A em outro; ele garante a impossibilidade de um ente **assumir estados ontologicamente opostos simultaneamente**. É uma lei de **consistência sincrónica**.
+2.  **O Princípio da Não-Contradição (¬(A ∧ ¬A))** introduz, ainda que implicitamente, uma **dimensão temporal**. A cláusula "ao mesmo tempo" é fundamental. Este princípio não proíbe que um ente seja A em um momento e não-A em outro; ele garante a impossibilidade de um ente **assumir estados ontologicamente opostos simultaneamente**. É uma lei de **consistência sincrônica**.
 
 3.  **O Princípio do Terceiro Excluído (A ∨ ¬A)** opera em um contexto que exige uma **decisão definitiva**. Ele afirma que, para qualquer proposição bem-formulada, não há um estado intermediário entre ser verdadeira e ser falsa. Este princípio exige um veredito final, posicionando-se assim numa dimensão **atemporal de avaliação definitiva**.
 
@@ -58,29 +50,34 @@ O Princípio da Identidade, por sua vez, define a essência mas permanece mudo s
 
 A pura lógica atemporal de Aristóteles é necessária, mas não suficiente, para descrever um mundo em que os entes persistem e se modificam. Faz-se necessária a formulação de um princípio complementar que regule a identidade *no* e *ao longo do* tempo.
 
----
-
-### **O Princípio da Não-Disformidade: ¬(A = B)**
+#### **Introdução ao Princípio da Não-Disformidade (¬(A = B))**
 
 Para preencher definitivamente a lacuna identificada, propõe-se aqui o **Princípio da Não-Disformidade**. Este princípio funciona como o **correlato temporal necessário do Princípio da Identidade**. Se a Identidade garante que **A é A** num sentido absoluto e atemporal, a Não-Disformidade assegura que **A não pode tornar-se B** sem, com isso, deixar de ser A e perder sua própria determinação ontológica. É a lei que protege a individualidade no fluxo do devir.
 
-#### **Síntese Conceitual**
-
+##### **Síntese Conceitual:**
 1.  O **Princípio da Não-Disformidade (¬(A = B))** estabelece a identidade persistente de um ente ao longo do tempo, assegurando que A não pode, em nenhum momento, ser identificado como B, um ente de essência distinta.
 2.  O **Princípio da Identidade (A = A)**, seu par atemporal, estabelece a essência invariável de um ente, definindo **o que algo é** em si mesmo, abstraindo completamente de sua trajetória temporal.
 
-#### **Fundamentos Ontológicos**
-
+##### **Fundamentos Ontológicos:**
 1.  **Distinção Radical entre Entes:** Um ente **não pode transmutar-se em outro** sem uma violação catastrófica de sua identidade. A mudança (de acidentes) é possível; a transmutação (de substância), não.
 2.  **Preservação da Individualidade:** A **continuidade temporal** de um ente exige que ele **não se confunda com outro**, mesmo em diferentes estados ou estágios de sua existência.
 
 #### **A Necessidade do Princípio da Não-Disformidade**
 
+##### **A Identidade Requer uma Defesa no Tempo**
 -   A **Identidade** declara *"A é A"* (definição estática e imutável).
 -   A **Não-Disformidade** declara *"A não é e não pode se tornar B"* (proteção dinâmica contra a dissolução ontológica).
 -   Sem este princípio, abrem-se portas para absurdos metafísicos como *"Sócrates é Platão"* ou *"este círculo é um quadrado"*, onde identidades distintas se misturam, tornando todo conhecimento e comunicação impossíveis.
 
----
+#### **Conclusão da Proposição: A Simetria dos Princípios Lógicos**
+
+O **Princípio da Não-Disformidade** é, portanto, **a contraparte temporal indispensável do Princípio da Identidade**. Enquanto a **Identidade** afirma *o que algo é*, a **Não-Disformidade** protege *o que algo não é e não pode vir a ser*. Isso não apenas **preenche uma lacuna crítica na lógica clássica**, mas também **fortalece e expande a estrutura metafísica** ao erradicar ambiguidades entre entes distintos no fluxo do tempo.
+
+Em suma, a integridade do real é sustentada por um par de forças lógicas:
+-   **Identidade (Atemporal):** *"A = A"* → Define a essência.
+-   **Não-Disformidade (Temporal):** *"¬(A = B)"* → Garante a permanência e não confusão da essência.
+
+Esta reformulação torna a lógica intrinsecamente mais robusta para lidar com problemas de **mudança, identidade persistente e distinção categórica**, preparando o terreno para uma metafísica capaz de descrever a realidade dinâmica.
 
 ### **Classificação Sistêmica dos Princípios Lógicos Fundamentais**
 
@@ -89,24 +86,793 @@ Para preencher definitivamente a lacuna identificada, propõe-se aqui o **Princ�
 | **Ser vs. Não-Ser**      | Terceiro Excluído **(A ∨ ¬A)**   | Não-Contradição **(¬(A ∧ ¬A))**     | Garantir a determinação e consistência (truth-value) |
 | **Ser vs. Outro**        | Identidade **(A = A)**           | **Não-Disformidade (¬(A = B))**     | Garantir a individuação e distinção ontológica |
 
----
-
-### **Conclusão: A Simetria dos Princípios Lógicos**
-
-O **Princípio da Não-Disformidade** é, portanto, **a contraparte temporal indispensável do Princípio da Identidade**. Enquanto a **Identidade** afirma *o que algo é*, a **Não-Disformidade** protege *o que algo não é e não pode vir a ser*. Isso não apenas **preenche uma lacuna crítica na lógica clássica**, mas também **fortalece e expande a estrutura metafísica** ao erradicar ambiguidades entre entes distintos no fluxo do tempo.
+### **Síntese Final da Estrutura Lógica:**
 
 A análise demonstra que os princípios lógicos fundamentais organizam-se de forma simétrica em dois eixos relacionais distintos, cada um com uma manifestação atemporal e outra temporal:
 
 1.  **Eixo Ontológico (Ser/Não-Ser):**
     -   **Atemporal:** **Terceiro Excluído (A ∨ ¬A)**. Define o campo de possibilidades lógicas definitivas.
-    -   **Temporal:** **Não-Contradição (¬(A ∧ ¬A))**. Garante a consistência sincrónica dos estados de um ente.
+    -   **Temporal:** **Não-Contradição (¬(A ∧ ¬A))**. Garante a consistência sincrônica dos estados de um ente.
 
 2.  **Eixo Identitário (Ser/Outro):**
     -   **Atemporal:** **Identidade (A = A)**. Define a essência invariável de um ente.
-    -   **Temporal:** **Não-Disformidade (¬(A = B))**. Garante a integridade diacrónica de um ente, protegendo-o da confusão com outro.
+    -   **Temporal:** **Não-Disformidade (¬(A = B))**. Garante a integridade diacrônica de um ente, protegendo-o da confusão com outro.
 
 Esta estrutura revela uma **simetria lógica profunda** e completa, integrando **temporalidade e ontologia** num sistema coerente e fechado. O **Princípio da Não-Disformidade** surge, assim, não como um acréscimo opcional, mas como um pilar necessário para garantir a **integridade dos entes no domínio do tempo**, complementando definitivamente a lógica clássica com a sua dimensão dinâmica ausente.
 
-#### **Conexão com o Próximo Capítulo**
 
-Estabelecida a simetria lógica fundamental e demonstrada a necessidade do Princípio da Não-Disformidade como correlato temporal da Identidade, resta-nos agora investigar como esta estrutura se manifesta concretamente no domínio da experiência. Se a lógica nos fornece as leis do pensamento e da realidade, a ontologia deve examinar os próprios entes que se submetem a tais leis. No capítulo seguinte, avançaremos para a análise do ser enquanto ser, aplicando esta estrutura simétrica à compreensão da substância, dos acidentes e da própria dinâmica do devir.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### **PROPOSIÇÃO II: REFORMULAÇÃO DOS PRINCÍPIOS CAUSAIS METAFÍSICOS**
+
+#### **A Dupla Fundamentação da Realidade**
+
+A aplicação da estrutura lógica previamente estabelecida ao domínio da causalidade revela que toda realidade contingente exige uma **dupla fundamentação necessária e irredutível**: uma para a sua **existência** e outra para a sua **identidade**. Esta análise causal eleva os princípios lógicos do plano do pensamento para o plano do ser.
+
+1.  **Causa Existencial:** Responde à questão fundamental: *"Por que A existe em vez de não existir?"*
+    -   Situa-se no plano da **efetividade ontológica**, correspondendo à dimensão dinâmica dos princípios do Terceiro Excluído e da Não-Contradição.
+
+2.  **Causa Identitária (ou Essencial):** Responde à questão determinativa: *"Por que A é precisamente A e não outra coisa?"*
+    -   Reflete o plano da **essência atemporal**, vinculando-se diretamente ao Princípio da Identidade e, por extensão, ao da Não-Disformidade.
+
+Esta distinção radical demonstra que a causalidade não se aplica apenas ao surgimento e à permanência dos entes (causa existencial), mas igualmente à sua **determinação essencial específica** (causa identitária). Enquanto a primeira garante *que* algo persista no ser, a segunda explica *o que* esse algo é em sua natureza intrínseca e por que permanece sendo *isso*.
+
+#### **Os Quatro Princípios Causais Metafísicos**
+
+Os quatro princípios causais, assim formulados, constituem um sistema completo e autoconsistente de fundamentação metafísica, onde toda realidade encontra sua **razão suficiente** (*ratio sufficiens*) tanto no plano da existência quanto no da essência.
+
+| Princípio Causal                  | Formulação                                                                 | Equivalente Lógico                          | Âmbito de Aplicação       |
+|-----------------------------------|----------------------------------------------------------------------------|---------------------------------------------|---------------------------|
+| **1. Causa Existencial**          | Tudo que existe tem uma causa que explica por que existe em vez de não existir. | Princípio do Terceiro Excluído **(A ∨ ¬A)** | Fundamentação da Existência |
+| **2. Causa Existencial Continuada** | Tudo que persiste no ser tem uma causa que sustenta sua existência.        | Princípio da Não-Contradição **(¬(A ∧ ¬A))** | Persistência da Existência |
+| **3. Causa Identitária**          | Tudo que existe tem uma razão para ser *o que é* e não de outra forma.     | Princípio da Identidade **(A = A)**         | Fundamentação da Essência   |
+| **4. Causa Identitária Continuada** | Tudo que persiste no ser tem uma causa que sustenta sua identidade.        | Princípio da Não-Disformidade **(¬(A = B))** | Persistência da Essência    |
+
+Este quadro sistêmico demonstra que a pergunta metafísica fundamental — *"Por que há algo em vez de nada?"* — desdobra-se necessariamente em duas: *"Por que este algo *existe*?"* e *"Por que este algo é *isto*?"*. A resposta completa demanda uma causa para ambas as dimensões.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### **PROPOSIÇÃO III: O ABSOLUTO COMO HORIZONTE METAFÍSICO E SEUS DOMÍNIOS**
+
+#### **O Conceito de Absoluto como Fundamento**
+
+A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
+
+Ao examinar sua natureza, emergem três categorias radicais que antecedem e fundamentam até mesmo noções como "ente" ou "essência":
+
+1.  **Possibilidade:** O domínio do pensável conforme delimitado pelas leis lógicas. O domínio do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
+
+2.  **Impossibilidade:** Aquilo que viola as leis lógicas. O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
+
+3.  **Incognoscível:** Designa-se aqui o domínio que se situa para além de toda e qualquer estrutura do pensamento, da linguagem e da referência conceitual. É, por definição, o absolutamente inacessível à razão discursiva, ainda que sua existência possa ser pressentida ou sugerida por vias não conceituais — intuição, silêncio ou experiência imediata. Este domínio não será mobilizado como ferramenta analítica, justamente por sua irredutibilidade ao pensamento; sua admissão, porém, cumpre uma função epistemológica e ontológica fundamental: a de reconhecer os limites intrínsecos da razão diante da plenitude do real.
+
+#### **O Mapa da Realidade Cognoscível e Transcendente**
+
+O **cognoscível** – esfera onde opera a razão discursiva – subdivide-se, portanto, em:
+
+-   **Possível:** Aquilo que é ontologicamente realizável, estando em perfeito alinhamento com as estruturas lógicas.
+-   **Impossível:** Aquilo que é ontologicamente irrealizável, por encontrar-se em contradição interna com tais estruturas (por exemplo, um círculo quadrado).
+
+Já o **incognoscível** radical escapa a esta dicotomia, constituindo um limite intransponível para a conceituação racional. Enquanto a razão pode mapear e definir o possível e o impossível (ambos ainda formas de cognoscibilidade, ainda que por negação), o verdadeiramente incognoscível só se pode revelar através de vias não-discursivas:
+
+-   **Experiência direta** (via intuitiva ou mística).
+-   **Sentimento humano fundamental** (via existencial, como o *mysterium tremendum et fascinans*).
+
+Esta distinção fundamental estabelece a arquitetura última do conhecimento:
+
+-   A **Razão** opera exclusivamente no âmbito do **cognoscível** (seja possível ou impossível).
+-   O **Mistério Absoluto** pertence ao domínio do **incognoscível**, acessível apenas pela experiência transcendente, além das categorias lógicas e das relações causais que sustentam o pensamento metafísico.
+
+> *"O último passo da razão é reconhecer que há uma infinidade de coisas que a ultrapassam."*
+> — Blaise Pascal, *Pensées*
+
+#### **Os Domínios Ontológicos Fundamentais: Possibilidade e Impossibilidade**
+
+A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Estes domínios são definidos pela sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
+
+### **O Domínio da Possibilidade: A Esfera da Existência Lógica**
+
+**Definição Ontológica:**
+
+A Possibilidade constitui o conjunto de todos os estados de coisas cuja estrutura essencial não viola os princípios lógicos fundamentais (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade). É o reino da **coerência metafísica realizável**.
+
+**Características Essenciais:**
+
+-   **Coerência Lógico-Estrutural:** Exibe consistência interna absoluta e compatibilidade externa com o sistema integral de princípios metafísicos.
+-   **Estrutura Determinada:** Possui contornos essenciais claramente definíveis e inteligíveis.
+-   **Relacionabilidade Sistemática:** Pode estabelecer conexões harmônicas e hierárquicas com outras possibilidades dentro do espaço metafísico.
+
+**Graus de Cognoscibilidade:**
+
+1.  **Plenamente Cognoscível:** Entes matemáticos e lógicos ideais (por exemplo, um círculo, um triângulo), cuja essência é perfeitamente apreensível pela razão pura.
+2.  **Parcialmente Cognoscível:** Objetos físicos e fenômenos naturais (por exemplo, um átomo, uma estrela), sujeitos às limitações da investigação empírica.
+3.  **Cognoscível por Analogia:** Realidades metafísicas superiores e atributos divinos (por exemplo, bondade, verdade, beleza), acessíveis apenas através de raciocínio analógico a partir de suas manifestações.
+
+**Implicação Metafísica:** Tudo o que é possível pertence ao domínio do **Lógico**, um subconjunto ativo e ordenado do Absoluto, onde a existência se manifesta de forma inteligível e estruturada. Um círculo é uma realidade geométrica possível porque sua definição — "uma figura plana com todos os pontos equidistantes de um centro" — é internamente coerente e não contém contradição.
+
+### **O Domínio da Impossibilidade: A Esfera da Existência Ilógica**
+
+**Definição Ontológica:**
+
+A Impossibilidade constitui a classe de entes ou proposições cuja própria definição essencial constitui uma violação direta e irredutível dos princípios lógicos fundamentais. É o reino da **contradição metafísica irrealizável**.
+
+**Status Metafísico:**
+
+-   **Não é a mera negação do possível:** É uma categoria positiva de incoerência.
+-   **Funciona como limite intrínseco:** Revela os contornos definitivos do espaço metafísico possível, demarcando a fronteira do pensável.
+-   **É formalmente reconhecível:** Podemos identificar e nomear a contradição lógica que o define, ainda que seu conteúdo essencial seja ininteligível.
+
+**Graus de Cognoscibilidade (ou melhor, de *Ininteligibilidade*):**
+
+1.  **Reconhecível Formalmente:** A contradição lógica pode ser identificada e articulada (sabemos *por que* é impossível).
+2.  **Ininteligível Essencialmente:** Não pode ser concebido como conteúdo positivo ou coerente pela mente humana.
+3.  **Delimitador Transcendental:** Serve como termo de comparação que mostra os limites absolutos do pensamento coerente.
+4.  **Mentalização Parcial:** Podemos mentalizar isoladamente os elementos que compõem a impossibilidade (e.g., um círculo e um quadrado), mas a síntese dos elementos contraditórios em um único conceito coerente falha irremediavelmente.
+
+#### **Tipologia da Impossibilidade: A Violação dos Princípios**
+
+A análise da impossibilidade revela sua natureza através de violações específicas:
+
+**1. Contradições Explícitas (Violação Direta dos Princípios Lógicos)**
+
+-   *Exemplo Paradigmático:* "Círculo quadrado".
+-   **Violação da Não-Contradição (¬(A ∧ ¬A)):** Um círculo, por definição, *não possui vértices ou lados retos*, enquanto um quadrado, necessariamente, *possui quatro vértices e quatro lados retos*. Afirmar que algo é simultaneamente "círculo (não-quadrado) e quadrado (não-círculo)" é uma contradição lógica direta.
+-   **Violação da Não-Disformidade (¬(A = B)):** A essência de um círculo (curva contínua, sem ângulos) é radicalmente incompatível com a de um quadrado (quatro segmentos retos, quatro ângulos). Portanto, um ente não pode **tornar-se** ou **ser identificado como** ambos sem deixar de ser um deles, violando a lei da persistência da identidade.
+-   **Consequência Ontológica:** Como a definição do "círculo quadrado" exige a coexistência de propriedades mutuamente excludentes, ele não apenas *não existe* em nosso universo, mas **não pode existir** em nenhum mundo metafisicamente possível. Sua existência destruiria os alicerces da realidade inteligível.
+
+**Implicação Metafísica Radical:** A Impossibilidade não é um mero "nada" ou ausência. Ela representa um **limite lógico intrínseco e imanente ao próprio Absoluto**. No entanto, em sua natureza totalizante e transcendente, o Absoluto não está rigidamente restrito ao que é atualmente possível *para a razão finita*. Em sua plenitude inefável, pode conter a potência de transcender, dissolver ou ressignificar o impossível, transformando-o em um novo fundamento para a existência.
+
+#### **O Domínio da Incognoscibilidade: A Transcendência Radical**
+
+**Definição Ontológica:**
+
+A Incognoscibilidade constitui a dimensão do real que excede permanentemente qualquer estruturação conceitual, seja ela plena ou parcial, permanecendo além dos aparatos lógicos, ilógicos e linguísticos. É o domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.
+
+**Modos de Manifestação:**
+
+- **Transcendência Positiva:** Aquilo que é "mais que o fenômeno" (o Bem em Platão, que está "além da essência" - *ἐπέκεινα τῆς οὐσίας*)
+- **Transcendência Negativa:** Aquilo que escapa a toda determinação (Deus em Mestre Eckhart, o "Deus além de Deus")
+- **Transcendência Dialética:** Aquilo que se revela através do colapso dos conceitos (o Absoluto hegeliano como processo auto-revelatório)
+
+**Epistemologia da Incognoscibilidade:**
+
+1. **Via Negativa (*Via Negationis*):** Só pode ser abordado pelo que não é
+2. **Experiência Limite:** Acessível apenas em estados cognitivos excepcionais
+3. **Efeitos Derivados:** Reconhecível apenas por suas consequências no domínio do cognoscível
+
+**Características Essenciais:**
+
+- **Inacessível à razão pura:** Não pode ser deduzido, demonstrado ou descrito por estruturas lógicas ou linguagem discursiva
+- **Sujeito à experiência direta:** Sua única via de aproximação é a intuição imediata ou a vivência não-conceitual
+- **Não-idealizável:** Não pode sequer ser mentalizado de forma aproximada ou difusa
+
+**Exemplo Paradigmático:** A natureza última do Absoluto enquanto pura presença não predicável, que só pode ser apreendida (se é que pode) por uma via extrarracional, como certas tradições religiosas e místicas sugerem.
+
+**Status Ontológico:** O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento, marcando o limite onde a lógica clássica cede lugar a outras formas de apreensão da realidade.
+
+#### **A Arquitetura Ontológica Fundamental: Relação entre os Domínios**
+
+A análise revela uma estrutura hierárquica que não é meramente classificatória, mas manifesta a própria arquitetura ontológica da realidade:
+
+1. **Cognoscível** (Absoluto racionalizável)
+   ↓
+2. **Possível** (realidade estruturada)
+   ↓
+3. **Impossível** (limite do possível)
+   ↓
+4. **Incognoscível** (limite do racionalizável)
+
+**Significado Ontológico:**
+
+- O **Cognoscível** revela os limites do Absoluto mentalizável
+- O **Possível** manifesta-se como ordem no seio do Absoluto
+- O **Impossível** surge como limite interno da possibilidade
+- O **Incognoscível** surge como limite interno do racionalizável
+
+#### **O Incognoscível como Negatividade Radical e Horizonte Estrutural**
+
+O incognoscível define-se por sua **negatividade radical** — não pelo que é, mas **pelo que não é**: não é o cognoscível, não é o pensável, não é o que se deixa capturar por conceitos ou estruturas lógicas. É o domínio que escapa a toda determinação positiva, o limite intransponível do Absoluto quando abordado pela razão discursiva.
+
+Sua natureza não é meramente "o ainda não conhecido", mas **o que resiste intrinsecamente à conceptualização**. Sua presença não representa uma falha no sistema do conhecimento, mas um **horizonte estrutural** — aquilo que, por essência, não se deixa reduzir às categorias do pensamento. Não é ausência, mas **excesso**; não é vazio, mas **plenitude inexprimível**.
+
+#### **Os Limites da Razão e a Integridade Epistemológica**
+
+A investigação filosófica do Absoluto concentra-se necessariamente no **cognoscível**, a esfera onde a razão opera com ferramentas lógicas e metafísicas. Isso não implica que o incognoscível seja irrelevante; pelo contrário, sua admissão é **condição para uma epistemologia honesta**. Reconhecer o incognoscível é aceitar que o conhecimento racional, por mais amplo que seja, não esgota a magnitude do real.
+
+A incorporação do incognoscível no Absoluto não é uma concessão ao irracional, mas um **gesto de humildade intelectual**. Ele marca a fronteira onde a razão, após mapear o possível e o impossível, encontra seu término — não por incapacidade, mas porque ali começa o domínio do que só pode ser **experienciado, intuído ou vivido**, nunca plenamente conceituado.
+
+#### **Conclusão: A Complementaridade Essencial**
+
+A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança.
+
+Reconhecer o incognoscível não invalida a investigação filosófica do Absoluto em seu âmbito cognoscível; antes, confere-lhe integridade epistemológica ao demarcar os limites intrínsecos da razão. Essa admissão não representa resignação, mas consciência metafísica: compreende-se que o entendimento sistemático, por mais abrangente, permanece aberto à transcendência — não como falha, mas como horizonte necessário do pensamento.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### **PROPOSIÇÃO IV: A AUTOCAUSALIDADE NO ABSOLUTO COGNOSCÍVEL**
+
+#### **O Absoluto como Princípio Irredutível**
+
+Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise, o Absoluto se revela como:
+
+-   **O *Prius* Metafísico Incontornável:** A condição de possibilidade transcendental para toda cadeia causal e todo ente contingente.
+-   **O Solo Ontológico Integral:** Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível (limite intrínseco da realidade).
+-   **O Fim da Regressão Causal:** Onde toda busca por fundamentação encontra seu termo final necessário.
+
+#### **A Causalidade da Fundamentação e da Identidade**
+
+Dado que o Absoluto existe, segue-se, por necessidade lógica, que ele é autodeterminante. Pois uma causa é exigida não apenas para a existência, mas igualmente para a identidade de todo ente. Ou seja, requer-se tanto um fundamento para o ser quanto um fundamento para o ser assim. Se A é A, há uma razão para que A exista, assim como há uma razão para que A exista precisamente como A e não como B.
+
+Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundamentação são indissociáveis. Isto significa que há um princípio de sua fundação, assim como há um princípio de sua determinação identitária. Portanto, sendo o Absoluto existente e, por definição, a totalidade, não pode haver explicação para sua existência e sua identidade a não ser em si mesmo: ele é, necessariamente, autojustificado.
+
+É imperativo que exista uma razão para sua existência e para sua identidade. O Absoluto existe e é o que é. Tendo sido estabelecida a necessidade de um determinador último, infere-se que este determinador deve, ele próprio, ser incausado. Assim, chega-se à conclusão inevitável de um Absoluto autocausado, tanto em sua existência quanto em sua essência.
+
+Se o Absoluto é A, é necessária uma razão para que seja A e não B. Se o Absoluto existe, é necessária uma razão para que exista. Ambas as modalidades de causalidade denotam o Absoluto como motivo de sua existência, tal como razão de si, como se dá. Isto é, o Absoluto não é somente causa primária de sua existência, mas é causa primária também de sua determinação.
+
+Ao inferir que o Absoluto é causa de si mesmo, isto é, tem todas as propriedades para existir sem causa e se determinar por si mesmo, concluímos que não há uma segunda natureza exterior ou anterior segundo a qual ele deva ser, nem uma razão exterior ou anterior pela qual ele deva ser como é. Isto nos leva a concluir que ele mesmo é a razão para sua estadia e para a sua configuração.
+
+Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é Ser, é necessário que isso se justifique em si da mesma forma.
+
+#### **A Natureza Autofundante do Absoluto**
+
+O Absoluto possui uma natureza **autofundante** que transcende as categorias convencionais de causalidade:
+
+-   **Não admite causa externa:** Pois transcende radicalmente a dicotomia interno/externo.
+-   **Causalidade constitutiva:** Sua "causalidade" é de outra ordem - não temporal ou eficiente, mas constitutiva e transcendental.
+-   **Causa sui ampliada:** Funciona como *causa sui* na tradição espinosista, porém radicalmente ampliada para abarcar toda a realidade possível e impossível.
+
+#### **Hierarquia dos Níveis de Causalidade**
+
+A análise revela uma estrutura hierárquica de causalidade:
+
+| Nível de Realidade | Tipo de Causalidade      | Exemplo                          | Relação com o Absoluto         |
+|--------------------|--------------------------|----------------------------------|--------------------------------|
+| **Absoluto**       | Causalidade Constitutiva | Fundamento de toda realidade     | Autofundante                  |
+| **Possível**       | Causalidade Formal/Estrutural | Leis matemáticas, princípios lógicos | Derivada e sustentada          |
+| **Físico**         | Causalidade Eficiente    | Fenômenos naturais, eventos temporais | Mediata e contingente          |
+
+#### **Implicações Metafísicas Cruciais**
+
+1.  **Término da Regressão:** Toda busca por fundamentação termina necessariamente no Absoluto.
+2.  **Derivação Causal:** As "causas" no interior do possível derivam sua força causal deste fundamento último.
+3.  **Dissolução dos Limites:** O impossível marca os limites onde a causalidade convencional se dissolve no mistério do Absoluto.
+
+**Conclusão Metafísica Fundamental:**
+O Absoluto não é um elemento a mais na cadeia causal - é o solo ontológico que torna possível qualquer causalidade. Seu estatuto único exige que o concebamos não como causa no sentido habitual, mas como:
+
+> _"A condição transcendental que simultaneamente possibilita e transcende todas as relações causais particulares"_
+
+Esta compreensão nos liberta da busca infinita por causas anteriores, revelando que toda fundamentação encontra seu termo final nesta realidade primordial.
+
+#### **A Autodeterminação Absoluta**
+
+A causalidade no Absoluto manifesta-se como **autodeterminação radical**:
+
+-   **Causalidade Absoluta:** O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.
+-   **Consequência Metafísica:** Qualquer tentativa de explicar a origem ou natureza do possível ou impossível deve partir do Absoluto como princípio inquestionável, pois ele é a única noção que não requer uma causa externa.
+
+### **Atributos Constitutivos do Absoluto**
+
+| **Atributo**         | **Definição**                                                                 | **Implicação Metafísica**                                                                 |
+|----------------------|-------------------------------------------------------------------------------|-------------------------------------------------------------------------------------------|
+| **Incondicionado**   | Não depende de nenhum princípio ou ente externo para existir ou ser o que é.  | Elimina regressão infinita; fundamento último.                                            |
+| **Omniabrangente**   | Nada lhe é exterior; até mesmo o "nada" só pode ser concebido como categoria interna a ele. | Totalidade metafísica; não há "fora" ou "alternativa" ao Absoluto.                        |
+| **Metadeterminante** | Estabelece as condições de inteligibilidade para todos os demais níveis de realidade.       | Origem de toda lógica, matemática e estrutura racional.                                   |
+
+### **As Propriedades Essenciais do Absoluto**
+
+#### **Autofundamentação (Fundamentação)**
+-   **Definição:** Refere-se à causa primeira da existência do Absoluto.
+-   **Características:**
+    -   Encontra sua razão suficiente em sua própria natureza necessária e autossubsistente.
+    -   Não depende de nada externo, anterior ou paralelo a si para existir.
+    -   **Não é contingente** - não poderia não existir.
+-   **Propriedade Essencial:** Causa integral de si mesmo.
+    -   Se o Absoluto dependesse de algo externo, não seria absoluto. Qualquer dependência externa anularia sua condição absoluta.
+
+#### **Autodeterminação (Identidade)**
+-   **Definição:** Refere-se à capacidade do Absoluto de definir sua própria natureza.
+-   **Aspectos Constitutivos:**
+    1.  **Autoexistência:** Ser presente em si mesmo - o Absoluto deve estar em si mesmo para ser o agente ativo da determinação.
+    2.  **Autonomia:** Poder sobre si mesmo - o Absoluto deve ter o domínio sobre si para que haja autodeterminação.
+    3.  **Autoconsciência:** Conhecimento de si mesmo - o Absoluto deve conhecer totalmente a sua estrutura para que haja ação autocausada.
+-   **Implicações:**
+    -   Explica como o Absoluto mantém identidade (não é caótico ou aleatório).
+    -   Mostra que o Absoluto não é apenas um "Ser estático", mas um Ser ativo que se autogoverna.
+    -   Fundamenta a liberdade metafísica (possibilidade de escolha no nível Absoluto).
+
+#### **Autocontinuidade**
+-   **Definição:** Refere-se à capacidade do Absoluto de se sustentar em seu fundamento e determinação.
+-   **Características:**
+    -   Persistência ativa (não apenas existência passiva).
+    -   Garante que o Absoluto não se dissolva na inexistência.
+    -   Mostra que a existência não é um ato único, mas um processo contínuo de autossustentação.
+-   **Conclusão:** Sua existência, permanência e identidade são **autocausadas, autodeterminadas e autocontinuadas**.
+
+### **Síntese Final: O Absoluto como Fundamento Integral**
+
+A análise causal revela que o Absoluto é:
+1.  **Autofundamentado** (não contingente)
+2.  **Autodeterminado** (não heterônomo)  
+3.  **Autocontinuado** (não decadente)
+
+Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fundamento último de toda realidade. Não faria sentido buscar uma fundamentação anterior ou mais primitiva, pois o Absoluto, enquanto síntese de possibilidade e impossibilidade, é o **conceito primeiro e irredutível** – a base sobre a qual toda a realidade se sustenta.
+
+### **PROPOSIÇÃO V: A NATUREZA PESSOAL DO AUTOCAUSAL**
+
+#### **A Exigência Metafísica da Personalidade**
+
+A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e autopresença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
+
+> *"Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."*
+
+Ao contrário de concepções impessoais do Absoluto, a autocausalidade exige:
+
+-   **Liberdade metafísica radical:** Capacidade de autodeterminação sem condicionamentos externos de qualquer natureza.
+-   **Consciência integral:** Conhecimento imediato e completo de sua própria essência e atos.
+-   **Vontade unificada:** Atividade direcionada a si mesma como fim último e bem supremo.
+
+Estes atributos diferenciam radicalmente o Absoluto de:
+1.  **Forças impessoais** (como energia cósmica ou campos quânticos)
+2.  **Princípios abstratos** (como leis matemáticas ou lógicas)
+3.  **Substâncias inertes** (como matéria bruta ou substância indiferenciada)
+
+#### **O Absoluto como Presença Autofundante**
+
+O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico estático, mas uma **atividade autofundante** que contém em si os princípios de:
+
+1.  **Automanifestação** (existência por si mesma, não derivada)
+2.  **Autoapropriação** (posse plena e domínio de sua própria natureza)
+3.  **Autotransparência** (conhecimento imediato de si como fundamento)
+
+Desta tríade surge o que denominamos **Espírito Absoluto** - a forma mais pura e radical de pessoalidade, onde ser, conhecer e agir coincidem numa unidade indissolúvel e perfeita.
+
+#### **A Superação da Dicotomia Fenômeno/Nada**
+
+A autocausalidade espiritual resolve o falso dilema metafísico entre:
+
+-   **Fenomenalização** (redução do Absoluto a suas manifestações particulares)
+-   **Nihilização** (negação do Absoluto como puro vazio ou ausência)
+
+Através de uma terceira via radical: **a Presença Pura** que:
+-   Existe por essência (não dependendo de manifestação para ser)
+-   É plenamente positiva (não definida por negação ou carência)
+-   Mantém-se em ato permanente (sem potencialidade não realizada)
+
+#### **A Estrutura do Espírito Absoluto**
+
+| Atributo Pessoal | Expressão Autocausal               | Diferencial Metafísico                       |
+|------------------|------------------------------------|----------------------------------------------|
+| **Autoconhecimento** | Causa que se conhece como causa         | Supera a causalidade cega ou impessoal           |
+| **Autodomínio**      | Causa que se possui totalmente          | Transcende a dispersão ou fragmentação ontológica |
+| **Autopresença** | Causa que está em si totalmente         | Rompe com mecanicismos e determinismos           |
+
+#### **A Autodeterminação como Fundamento da Personalidade**
+
+Para que uma realidade se autodetermine, ela precisa, necessariamente:
+
+1. **Conhecer-se** – para que possa escolher conscientemente sua própria natureza;
+2. **Dominar-se** – para executar com pleno poder o ato de autodeterminação;
+3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua determinação não seria integral, mas parcial e incompleta.
+
+Somente uma realidade que reúne **autoconhecimento, autodomínio e autopresença total** pode verdadeiramente fundar-se a si mesma. Essa tríade de atributos é justamente o que caracteriza uma **pessoalidade plena** – um Espírito que é, ao mesmo tempo, sujeito, ato e fundamento de sua própria existência. Em vias mais claras, para que uma realidade se autogoverne, essa realidade necessariamente deve conhecer-se para eleger uma determinação, autodominar-se para realizar o movimento da determinação e ter autopresença para que seja uma realidade viva em si mesma, pois se não estivesse presente na totalidade de si, não poderia determinar-se por inteira.
+
+#### **Fundamento Autocausal e a Noção de "Presença"**
+
+O Absoluto, enquanto realidade autocausada, não requer justificação externa — nem pelo "nada", nem pela fenomenalidade, nem por qualquer categoria derivada. Sua existência é autoevidente em sua **autofundamentação**, **autodeterminação** e **autocontinuidade**. Esta tríade causal revela uma natureza que transcende a mera abstração conceitual, apontando para uma **presença ontológica primordial**.
+
+-   **Presença ≠ Fenômeno:**
+    -   A "presença" aqui não é uma aparição ou manifestação empírica (como no fenômeno), mas a **condição necessária da autocausalidade em ato**.
+    -   Enquanto o fenômeno depende de um observador ou estrutura de manifestação, a presença do Absoluto é **autorreferente** e **autossuficiente**.
+
+-   **Presença ≠ Nada:**
+    -   O "nada" é uma negação conceitual, enquanto a presença do Absoluto é **afirmação pura** — não como algo "existente" no sentido contingente, mas como **fundamento imanente de si mesmo**.
+
+#### **A Personalização do Absoluto como Espírito**
+
+Se a autocausalidade implica **autoconhecimento (onisciência)**, **autodomínio (onipotência)** e **autopresença (onipresença)**, então o Absoluto não é uma força impessoal, mas um **princípio pessoal** em seu nível mais radical. Definimos essa pessoalidade metafísica como **Espírito**:
+
+1.  **Espírito como Autoconsciência Causal**
+    -   O Absoluto não "tem" autoconsciência como um atributo acrescentado; **ele é autoconsciência em ato**.
+    -   Sua autodeterminação é, simultaneamente, um **ato de conhecimento de si** — não no sentido discursivo, mas como **identidade pura entre ser e conhecer-se**.
+
+2.  **Espírito como Liberdade Metafísica**
+    -   A autodeterminação implica **capacidade de autoafirmação além da necessidade lógica**.
+    -   O Absoluto não é obrigado a ser "A" ou "não-A"; **ele se define como A (ou como além de A) por ato livre de sua natureza autocausada**.
+
+3.  **Espírito como Unidade Dinâmica**
+    -   Enquanto os entes derivados estão sujeitos à distinção entre essência e existência, o Espírito Absoluto **é essência-existência em unidade indivisa**.
+    -   Essa unidade não é estática, mas **ativa** — um eterno autoestabelecimento.
+
+#### **Por que "Espírito" e não "Substância" ou "Energia"?**
+
+-   **Substância** sugere um substrato passivo, enquanto o Absoluto é **causalidade pura em ato**.
+-   **Energia** remete a um princípio físico ou impessoal, enquanto o Absoluto é **interioridade absoluta** (ainda que não humana).
+-   **Espírito** capta a síntese de **autoconsciência**, **liberdade** e **atividade imanente**.
+
+#### **A Autodeterminação como Essência do Absoluto**
+
+O Absoluto não é um "vazio que se preenche", mas uma **presença** que:
+-   **Autoexiste**: Não deriva de nada externo; sua existência é autofundada.
+-   **Autodetermina-se**: Sua aparente "indiferenciação" é, na verdade, **liberdade metafísica** – a capacidade de se diferenciar sem perder a unidade.
+-   **Autossustenta-se**: A "forma" (manifestação) não é acrescentada a ele, mas emana de sua **natureza autoconsciente**.
+
+#### **A Personalidade como Estrutura da Autocausalidade**
+
+1.  **Autoconhecimento**: O Absoluto não "pensa" – ele **é** o ato de conhecer a si mesmo como fonte de todas as possibilidades.
+2.  **Autodomínio**: Sua liberdade não é escolha, mas **soberania ontológica** – a capacidade de ser, simultaneamente, o indiferenciado e o diferenciado.
+3.  **Autoexpressão**: As manifestações (formas, fenômenos) são **atos de sua autodeterminação contínua**.
+
+### **Conclusão: Do Nada ao Absoluto Autoconsciente**
+
+A tentativa de fundamentar a realidade revela que:
+-   O não fenômeno e o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis.
+-   O fundamento "criador" é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.
+
+Esta análise demonstra de forma inequívoca que:
+
+1.  **A autocausalidade pura exige personalidade:** Não pode haver autocausalidade sem autoconhecimento, autodomínio e autopresença.
+2.  **O Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto):** Sua natureza é mais adequadamente compreendida como pessoal do que como impessoal.
+3.  **A noção de Espírito capta melhor esta realidade que:**
+    - Conceitos impessoais (como "Energia universal")
+    - Abstrações vazias (como "O Nada")
+    - Metáforas físicas (como "Fonte cósmica")
+
+Portanto, a autocausalidade nos conduz necessariamente à concepção do Absoluto como **Espírito Pessoal** - realidade viva, consciente e livre que fundamenta toda a existência.
+
+> *"Deus é Espírito; e importa que os que o adoram o adorem em espírito e em verdade."*
+> — João 4:24
+
+**Em síntese final:**
+-   O campo fenomenológico e o não fenômeno são **ferramentas conceituais** que apontam para além de si mesmas.
+-   O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o não fenômeno**.
+-   Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### **PROPOSIÇÃO V: A ESTRUTURA DA AUTOCAUSALIDADE**
+
+#### **As Três Dimensões da Ação do Espírito**
+
+O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológicas complementares:
+
+##### **1. Autodeterminação Vertical (Espírito Fundamentador)**
+-   **Definição:** Qualidade do ente de agir incorruptivelmente, isto é, em prol de sua existência e do sistema que o sustenta.
+-   **Características para o Absoluto:**
+    -   **Incorruptibilidade:** O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+    -   **Fundamentação:** O Espírito age como princípio de sustentação ontológica (autofundamentação).
+-   **Princípio:** *"Eu Existo"* (pura afirmação ontológica).
+
+##### **2. Autodeterminação Diagonal (Espírito Plenificador)**
+-   **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo à sua existência e plenitude.
+-   **Características para o Absoluto:**
+    -   **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+    -   **Autodeterminação Essencial:** O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
+    -   *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
+-   **Princípio:** *"Escolho o que me realiza como Absoluto."*
+
+##### **3. Autodeterminação Horizontal (Espírito Personalizador)**
+-   **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+-   **Características para o Absoluto:**
+    -   **Personalização:** Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).
+    -   **Liberdade Direcionada:** A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma perfeita à sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.
+    -   *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
+-   **Princípio:** *"Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."*
+
+### **As Três Dimensões da Ação Divina**
+
+| Dimensão       | Espírito como... | Princípio                                  | Modo de Ação               |
+|----------------|------------------|--------------------------------------------|----------------------------|
+| **Vertical**   | Fundamentador    | "Eu Existo" (Autoafirmação ontológica)     | Incorruptível, necessário  |
+| **Diagonal**   | Plenificador     | "Escolho o que me realiza" (Autodeterminação) | Despersonalizado, perfeccionista |
+| **Horizontal** | Personalizador   | "Sigo minha identidade" (Automanifestação) | Livre, pessoal, relacional |
+
+#### **Conclusão: A Unidade Trinitária da Ação Divina**
+
+Esta tríplice dimensão da ação do Espírito não representa uma divisão, mas uma **unidade dinâmica** que manifesta a plenitude do Ser divino:
+
+1.  **Como Fundamentador,** o Espírito é o **doador da vida** - fonte incriada de toda existência.
+2.  **Como Plenificador,** o Espírito é a **direção à plintude** - razão e sabedoria que estrutura a realidade.
+3.  **Como Personalizador,** o Espírito é a **pessoalidade** - amor pessoal e dom que personaliza.
+
+### **AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
+
+#### **As Pessoas da Autocausalidade Divina**
+
+A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, que correspondem às Pessoas da Santíssima Trindade.
+
+##### **1. O Poder Fundante (Espírito Fundamentador)**
+-   **Atributos:**
+    -   **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
+    -   **Inabalabilidade:** Não se curva a contingências; sua natureza é *autossustentação pura*.
+    -   **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
+-   **Símbolo:** O Trovão (a irrupção incontestável do Ser).
+-   **Princípio:** *"Antes de toda forma, há a fortaleza que a sustenta."*
+
+##### **2. A Sabedoria Plenificadora (Espírito Realizador)**
+-   **Atributos:**
+    -   **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
+    -   **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.
+    -   **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
+-   **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
+-   **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
+
+##### **3. A Liberdade Personalizante (Espírito Personificador)**
+-   **Atributos:**
+    -   **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
+    -   **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
+    -   **Vontade Lúdica:** Transforma a plenitude em *criatividade sagrada*, onde até a assimetria da paixão pessoal é um movimento da liberdade e do sagrado.
+-   **Símbolo:** A Criatividade do Ser (onde o Absoluto expande a si mesmo não somente em sua perfeição mas em suas tendências criativas).
+-   **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*
+
+#### **Unidade na Trindade**
+
+Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:
+-   O **Poder** (Fundamentador) garante que o universo não desmorone.
+-   A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável.
+-   A **Liberdade** (Personalizador) introduz a personalidade no cosmo.
+
+Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
+
+#### **Correlação Sistemática com a Autocausalidade**
+
+A relação entre as autodeterminações do Espírito e as Pessoas da Trindade manifesta-se assim:
+
+### **A Trindade da Autocausalidade**
+
+| Dimensão da Autocausalidade | Pessoa Divina | Atributo Principal | Princípio |
+|-----------------------------|---------------|--------------------|-----------|
+| **Vertical (Fundamentadora)** | Deus Pai | Autoexistência | "Eu Sou" (Êxodo 3:14) |
+| **Diagonal (Plenificadora)** | Espírito Santo | Santificação | "Espírito que santifica" (2 Tessalonicenses 2:13) |
+| **Horizontal (Personalizadora)** | Deus Filho | Encarnação | "Verbo que se fez carne" (João 1:14) |
+
+#### **Resumo Trinitário Metafísico**
+
+1.  **Pai (Vertical):** Fundamenta a existência. É a fonte incriada de todo ser.
+2.  **Espírito Santo (Diagonal):** Completa e santifica sem persona fixa. É o amor e a sabedoria que perfazem toda a criação.
+3.  **Filho (Horizontal):** Encarna a personalidade divina na história. É o Verbo pessoal através de quem todas as coisas foram feitas.
+
+> *"Há um só corpo e um só Espírito, assim como a esperança para a qual vocês foram chamados é uma só; há um só Senhor, uma só fé, um só batismo, um só Deus e Pai de todos, que é sobre todos, por meio de todos e em todos."*
+> — Efésios 4:4-6
+
+A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
+
+#### **A Ação Trinária**
+
+Sendo o Absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operante no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si. Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada, é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do Absoluto como tal.
+
+A forma personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
+
+Isto significa que a ação do Espírito Perfeito está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular.
+
+A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o fundamentador e o personalizador que é o Espírito da plenitude.
+
+O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independentemente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como via única. As três ações se divergem, portanto, na esfera do Absoluto.
+
+O Espírito Fundamentador e o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador e o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto.
+
+O Espírito fundamentador tem uma ação isolada, no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito Perfeito. Portanto, poderíamos considerar uma persona própria. Ao passo que o Espírito personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a ação da pessoa fundamentadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador.
+
+O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora, estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem as duas ações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
+
+> O Espírito Santo é o amor entre o Pai e o Filho.
+
+#### **Conclusão**
+
+-   O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.
+-   A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
+-   O Espírito do Ser tem três dimensões de ação que se distinguem em pessoas distintas em sua autodeterminação:
+    -   O Espírito fundamental (Pai) e o plenificador (Espírito Santo) garantem a existência e a perfeição.
+    -   A Alma (personificação do Espírito como Filho) introduz a liberdade e a personalidade na estrutura do Absoluto.
+
+Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autodeterminação divinas.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### PROPOSIÇÃO VI: A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO
+
+#### A Circularidade Viva do Espírito
+
+A circularidade do Espírito temporal não é uma circularidade morta ou estática — **ela é viva**. Isso faz com que o Espírito possa agir sob qualquer tempo. A vivacidade do Espírito confere uma camada não linear sobre o tempo. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela.
+
+Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumada —, a partir da consumação emerge uma nova dimensão. Há, portanto, três características fundamentais:
+
+1.  **Atemporalidade** (consumação do tempo)
+2.  **Temporalidade** (sucessão de momentos)
+3.  **Autocausalidade** (que confere uma dimensão *exterior* ao tempo)
+
+Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. Deste modo, temos uma consumação não estática ou pré-formatada, mas viva em si e em qualquer instante em si. Desta forma, temos uma realidade atemporal viva, na qual o tempo está consumado, mas é autodeterminado e livre em si como determinador. Desta forma, advém uma realidade atemporal frutífera, um solo fértil para o *start* do fenômeno no tempo do Espírito.
+
+Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o *start* fenomênico.
+
+**Exemplo:** O tempo do Espírito não é uma linha reta consumada; é uma linha reta que é viva em cada centímetro de extensão. Então, a decisão pode partir em qualquer tempo do Espírito, ou seja, em qualquer centímetro dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria *start*, pois ela já estaria em um momento de consumação atemporal estático.
+
+#### O Enigma do "Start" Fenomênico
+
+O Espírito, mesmo dispondo de todo o tempo consumado, possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é consumada no que tange a se dar sem atualizações, mas não é estática.
+
+O universo "mancharia" a pureza inicial somente se concebêssemos o Espírito como realidade estática e fechada. Porém, a linha temporal do Espírito existe como *potência ativa*, não como completude inerte.
+
+Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda é vivo, isto é, hábil para ação. O tempo do Espírito não passa, no sentido de ser banalizado ou inanimado. O tempo do Espírito é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, porém, ao mesmo tempo em toda sua extensão. Então podemos comparar a capacidade de ação do Espírito ao observador linear: neste instante, eu ou você podemos executar uma ação, pois estamos num ponto específico do tempo; num ponto passado, não podemos executar nenhuma ação e nem em um ponto futuro, somente num presente. Caso o tempo todo estivesse consumado e realizado para o observador, este também não poderia executar nenhuma ação.
+
+Mas sendo toda extensão um momento presente, o observador está apto para agir, pois é vivo.
+
+Desta forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciência, não haveria mais ação. Porém, a consciência está para todo o tempo, e tem poder de ação para todo o tempo.
+
+**Exemplo:** Digamos que alguém percorra toda uma rua, e nessa corrida, possa ter bebido água enquanto corria, mas ao acabar de correr, não pode beber mais água pois já percorreu o caminho que poderia ter bebido. Desta forma, pode-se interpretar erroneamente o Espírito sob um tempo consumado. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim, temos seu potencial de ação em todo o percurso preservado.
+
+#### O Observador Eterno: Chave da Solução
+
+**Exemplo ilustrativo:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou.
+
+O Espírito como Observador absoluto:
+- Não tem um "primeiro momento" de observação
+- Sua observação é constitutiva de seu ser
+- Observa o tempo consumado *a partir de uma posição que transcende a linearidade temporal*
+
+Isto resolve o problema da objeção sobre quando o Espírito despertou ou esteve autoconsciente pela primeira vez. Pois, se sempre esteve autoconsciente e está consumado, em qual momento sua autoconsciência poderia determinar o universo? Sua consciência consumada já teria vivido toda a temporalidade, e decidido não agir, pois teria se dado segundo sua consumação.
+
+A resposta é que o tempo e o fenômeno podem se consumar, no sentido de ter um *start* e um final, ao compararmos o Espírito com o universo: temos um tempo para começar e um tempo de ação para acabar, se atribuíssemos teor autocausal ao universo. Porém, ao pensarmos no Espírito, que é vivo, o Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de ser inativo após a observação da totalidade de si. O Espírito pode esgotar o tempo no que tange à observação, mas não esgota a ação observadora. O infinito do Espírito, portanto, continua sua vivência autoconsciente a partir da infinitude. Temos então, para o Espírito, uma linha de continuidade a partir da consumação.
+
+Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estância e estado de Ser de "Infinito consciente", ao passo que o infinito consciente tem uma linha perpendicular sobre si, que é a continuação da consciência, a continuação do ato de estar consciente, ainda que partindo de um tempo consumado de observação.
+
+**Exemplo:** Um olho observou totalmente a si mesmo, observou todo o tempo em si, porém, o ato da observação continua. O observar não cessa, pois não é um fenômeno ou matéria não autocausal. Isto quer dizer que podemos atribuir a visão da totalidade como um dom do Espírito que é a "sabedoria", mas não como um fechamento ontológico de possibilidades. Isto quer dizer que a visão da totalidade temporal não esgota a ação do Espírito, não cega. Mas lhe atribui uma base de observação natural que se projeta a favor de uma nova temporalidade. Isto quer dizer que, sob a eternidade do Espírito, há sempre uma renovação.
+
+E quando foi que a consumação da sabedoria do Espírito deu origem à primeira observação posterior à infinitude observada previamente? Ao considerarmos que a totalidade vivida ainda está operante, ou seja, consciente, temos a renovação constante da infinitude observada, e um momento nesta infinitude pré-existente. Portanto, temos um momento na temporalidade da infinitude já consciente, e a capacidade de renovação do Espírito.
+
+A renovação age, portanto, sobre toda a esfera de tempo. Portanto, temos uma infinitude diagonal e uma horizontal: a infinitude pré-existente, e uma infinitude que se estende desta como renovação. Nessa renovação constante há um tempo em que pode se dar o *start* do fenômeno. Isto quer dizer que, para além da infinitude observada, há o observador indo em prol de uma infinitude observada perpendicular.
+
+**Exemplo:** O Espírito observou a infinitude; em cada observação, o observador não se esgota e continua observando ainda que o tempo passe. O observador viveu a infinitude, mas nunca se esgota do novo. Dentro da sua consumação da observação há vida, não há estaticidade. Desta forma, para todo tempo, temos um tempo perpendicular, que é o tempo vivificado infinitamente.
+
+O teor de vida do Espírito causa uma linha que cruza a infinitude; o tempo de observar, para o Espírito, nunca se finda.
+
+Gera-se um acúmulo de observação consumado, ao passo que temos uma observação viva sobreposta a esse acúmulo. Desta forma, Deus está presente em tudo (onipresença), tudo conhece (onisciência) e tudo pode (onipotência). Deus, portanto, não só conhece a si mesmo de uma forma temporal/atemporal, como também vive o eterno presente do Espírito, sendo este o observador vivo.
+
+#### O Primeiro Ato do Espírito Plenificador
+
+E como o Espírito escolheria o momento no tempo em que deseja viver, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é o da suspensão perfeita, ou seja, da plenitude indiferenciada, em que tempo se deu o primeiro ato de vivificação do Espírito? O primeiro ato teria que se dar concomitantemente à totalidade, isto é, seria parte do ato atemporal de plenitude, ou seja, do ato de pureza incausado. O consumado, em sua plenitude, teria um momento de plenitude para tal escolha, e chamaremos esse momento de tempo do Espírito. E que diríamos ser o começo dos tempos, isto é, a criação do mundo.
+
+Portanto, o *start* da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora, isto é, atemporalmente, este momento já existia segundo a plenitude do Espírito. Foi, portanto, num momento perfeito dentro da temporalidade linear, ou seja, infinita, que se deu o *start* da ação determinada. Isto é, o Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indiferenciamento havia, por natureza da plenitude, uma ação perfeita para o *start* da ação do Espírito no tempo.
+
+Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências; mas apenas em seu aspecto relativo poderia fazer uma atualização abrangente. Assim, o Espírito se consuma no relativo, ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora comporte a atemporalidade, também se manifesta no tempo.
+
+E como o Espírito decide o tempo que deseja viver em sua consumação? Qualquer estado da alma corresponde à sua essência, à sua *persona*. Isto é, o momento no tempo em que o Espírito se localiza faz jus à sua *persona*, considerando que sua *persona* é o reflexo de sua plenitude.
+
+A pergunta "quem és tu?" sintoniza-se perfeitamente com a pergunta "que tempo és tu?". Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo.
+
+Neste ínterim, a pergunta "Qual é o tempo em que o Espírito se localizou pela primeira vez?" não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria "Qual é a idade do Espírito?", entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
+
+#### O Primeiro Ato do Espírito Personalizador
+
+Mas em que tempo age o Espírito personalizador, se este sempre existiu? A única explicação é que, diferentemente do Espírito perfeito, cuja existência e ação se dão em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua origem na temporalidade. O Espírito personalizador, portanto, teve sua primeira ação no tempo. Porém, a ação do Espírito personalizador deveria ser num momento temporal posterior à ação do Espírito plenificador. Pois a ação do Espírito personalizador não é necessariamente voltada à plenitude, mas a acidentes; isto é, o relativo puro e atemporal não pode conter decisões não alinhadas somente à plenitude. Pois, entre duas decisões igualmente plenas e rumo à plenitude, nenhuma seria tomada. Ou seja, todas as possibilidades do relativo devem estar suspensas de forma plena e não contraditória entre si mesmas.
+
+O Espírito plenificador se dissolve na completude, pois gera em favor da perfeição já instaurada no relativo, que se dá completo como tal, ainda que em constante mudança interna. As mudanças internas não interferem na plenitude, que se instaura ainda sob as constantes e imprevisíveis mudanças. Porém, a ação da alma, não necessariamente baseada numa plenitude estreita, corrompe o relativo, de forma que toda alma se origina com uma idade, isto é, com um tempo em si e perante uma ação temporal do Espírito. A alma de Jesus, desta forma, sempre existiu de forma inativa na Trindade; porém, teve sua ação, ou seja, gerou modificações na realidade a partir do momento de seu revelar no tempo. E o tempo teve seu *start* com a ação do Espírito plenificador. Isso revela que, apesar de o Espírito personalizador estar presente na criação ou no *start* dos tempos, sua ação só poderia ser efetivada num momento posterior à ação do Espírito plenificador.
+
+Desta forma, a alma de Jesus não foi simplesmente revelada como possibilidade, no sentido de que agia antes por intermédio de seu Espírito perfeito, mas teve sua ação direta concretizada a partir de um momento único posterior à criação. Assim, não houve um processo de criação da alma de Jesus diretamente do relativo, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora. O que houve foi uma ativação da ação personalizadora da terceira pessoa da Trindade. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo, ao passo que também sempre existiu atemporalmente.
+
+#### O Propósito Divino e o Momento da Criação
+
+> *"Deus tinha o propósito de criar o homem, pois isso se relaciona com sua plenitude. O propósito nasceu com Deus. Porém, o momento temporal determinado da criação surge em qual tempo, sendo que somente a plenitude pura se dá como tal, sem nenhuma determinação prévia?"*
+
+Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
+
+#### A Regressão Infinita e a Solução Transcendente
+
+Mesmo que se encontre o "*start*", como se define a constante ação desde o momento da plenitude? Se o indiferenciado se dá como tal, como explicar a transição para a determinação sem violar sua pureza?
+
+Tende ao infinito uma regressão: se algo agiu sobre o tempo do Espírito e este algo porta o tempo, e outro algo agiu sobre o atemporal, regride infinitamente o tempo primeiro que teve a primeira ação. Ou seja, o indeterminado precisa de uma determinação em si, e essa determinação precisa ser indeterminada. Ao levarmos a uma escala sempre anterior, temos a inexistência do determinador e sua ação sobre o indiferenciado.
+
+Para agir sobre o consumado, não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio tempo do Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Deus — um "Deus sobre Deus" — e nesta deveria haver uma temporalidade, mantendo a consumação. E nesse "Deus sobre Deus", que se estende ao infinito, até ser totalmente puro, teria a ação do determinador, ainda que não exista como entidade separada.
+
+#### A Autocausalidade como Elevação Infinita
+
+Portanto, Deus, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no nada. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante.
+
+Assim, **o tempo do Espírito pode determinar sobre o nada** precisamente porque Deus está além do tempo e da atemporalidade, transcendendo a si mesmo infinitamente. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Pois Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, rumo a uma realidade que extrapola o absoluto cognoscível e a noção de temporal e atemporal.
+
+Se o relativo não pode se autodeterminar, não é realmente autocausal. Desta forma, a autocausalidade não se desloca da determinação temporal. A partir do momento atemporal da aparição do Absoluto, o teor autocausal — isto é, o Espírito observador — confere uma linha *perpendicular* ao tempo consumado.
+
+#### Síntese: O Tempo do Espírito
+
+O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a autopresença. Conforme a autopresença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal torna-se sabedoria, e a linha perpendicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
