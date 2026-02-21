@@ -8079,10 +8079,6 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
-Segue seu texto com **correções mínimas de português**, reorganizado e estruturado, sem alteração de conteúdo ou substituição de ideias — apenas ajustes gramaticais, ortográficos e de pontuação.
-
----
-
 # RASCUNHOS METAFÍSICOS
 
 
@@ -8170,5 +8166,29 @@ O Espírito não pode se nadificar, pois é instaurado pela existência, é conf
 O renascimento pelo espírito continua um mistério. O indivíduo nasce, porém é necessário optar pela vida, que é seu primeiro movimento. Portanto, há um primeiro ato de liberdade. Esse primeiro ato de liberdade segue de um segundo ato, que é decidir pela vida por si, a verdadeira vida.
 
 O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se não fosse vivo.
+
+
+
+
+
+
+
+
+
+
+
+
+
+> Na visão popular o super rico somente deseja status, poder economico e artigos de luxo, porém, através do entendimento do niilsimo se atribui outra motivação e proposito, de forma que a humanidade compreenda que a influencia dos super ricos transcende a mera concentração aparente de riqueza, que aparentemente se mostra como fim em si mesma, porém, a ação da cupula, que significa um ou mais individuos tramando ações que ultrapassam o mero acumulo de dinheiro, é finalmente trazida as claras. Então, a humanidade passa a adequar mecanismos para impedir o extremo acumulo de riquezas e por consequencia, impedir suas manobras politicas, midiaticas, estatais, belicas, etc. Uma vez compreendido a motivação do real agente da miséria, e de como esse argente dá manutenção a essa situação, é possível mirar os holofotes no real foco das catastrofes.
+
+Quando a humanidade compreende os mecanismos de distração que os super ricos usam, passa a tirar o foco do desmatamento, da poluição, das guerras, e começa a se atentar na capacidade que o acumulo de fortunas dá a um individuo que, com a sintomatica niilista, fará coisas inimaginaveis para um humano, tal como ordenar holocaustos, guerras, desvios milionários, e todo tipo de desvio de atenção para que o ser humano não sinta-se exortado a questionar as grandes fortunas.
+
+
+
+
+
+
+
+
 
 
