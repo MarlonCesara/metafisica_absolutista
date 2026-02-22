@@ -838,6 +838,8 @@ A alma de Jesus, dessa forma, sempre existiu de modo nativo na Trindade; porém,
 
 Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, no sentido de que agia antes por intermédio de seu Espírito perfeito, mas teve sua ação direta concretizada a partir de um momento único posterior à criação. Assim, não houve um processo de criação da alma de Jesus diretamente do Espírito, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora. O que houve foi uma ativação da ação personalizadora da terceira pessoa da Trindade. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo, ao passo que também sempre existiu atemporalmente.
 
+A alma não teve sua ação no primeiro momento da completude, mas tem potêncial de ação no tempo do Espírito.
+
 > Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetemos o homem vivo antes mesmo de ser criado. E chamemos essa projeção de anjos. Desta forma, temos seres que são vivos, porém, como projeções.
 
 #### Síntese: O Tempo do Espírito
