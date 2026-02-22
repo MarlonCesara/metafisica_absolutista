@@ -2496,6 +2496,39 @@ O Espírito, portanto, paira sobre absoluto e é o absoluto. Sua ação é ato p
 
 É um Espírito sem determinação. Simplesmente é, e sua vontade coage com seu aato de Ser, pois não é contigente. Isto é, é unicamente direcionado ao existir. E sua personalidade e tendencia é o existir unidirecional.
 
+O nada não é só algo que porta as possibilidades do nada, mas porta a ação do ente. O ente não só cria do nada, mais age do nada. Sua ação sobre si mesmo advem do nada. 
+
+Para entender melhor o conceito de Espírito indiferencido, e sua diferença com o relativo ou com o que é criado no relativo. Imaginemos que o Espírito determine um outro Espírito do relativo. Este outro Espírito seria Ele mesmo e estaria suscetivel ao campo da possibilidade e da impossibilidade. Este novo Deus seria determinado uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espiríto de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
+
+Se Deus tentasse criar um ente que se indiferencia essencialmente, porém que existe como A. O Existir designado pela lógica de aristoteles naturalmente possui diferenciação. A, existe como A. O ato de existir de aristoteles não é purissimo, pois produz necessariamente um ente de essencia determinada.
+
+O Ser é purissimo ao ponto de não necessitar se concretizar como A, apesar de ser positivo, dispensa existir sob a lógica aristotelica, no sentido de que não está preso ao existir de aristoteles, que é uma dualidade entre existir e não existir. O existir purissimo tem sua ação, ainda que seja indetectavel. Se age, existe. Sem que seja formalizado como A, atua na realidade, e é positivo porque atua, e não porque é formalizado A.
+
+Portanto, temos a sintese do relativo, que é o nada indiferenciado, e do Espírito em sua indiferenciação. Ambos, são uma vida positiva purissima, tanto o Espírito, como seu campo de ação criativa, que é o relativo.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
