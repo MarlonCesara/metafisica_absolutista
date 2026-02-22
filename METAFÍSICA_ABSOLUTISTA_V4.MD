@@ -8297,10 +8297,6 @@ Ao introduzir o Campo Relativo (ou Absoluto Indiferenciado), foi oferecida uma a
 
 Isto está resolvido. O fundamento deixou de ser um “buraco negro” metafísico (o nada) e tornou-se uma plenitude indiferenciada – algo que pode, de fato, ser pensado como autojustificado.
 
-
-
-
-
 ## 6. Liberdade, Espírito e Renascimento
 
 O Espírito não pode se nadificar, pois é instaurado pela existência, é conforme o absoluto.
@@ -8312,7 +8308,7 @@ O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o mot
 
 
 
-
+> O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
 
 
 
