@@ -7862,9 +7862,18 @@ Ou pensa que uma multidão, que mantemos distraída, vai aceitar usualmente que 
 
 A multidão”, diziam, “é como um bebê num sono leve: no primeiro barulho acordam e fazem um estardalhaço. Precisam ficar dormindo, quase inconscientes, tão distraídos que não se revoltam, não se rebelam, não tomam a riqueza para si; continuam produzindo e dando tudo para nós nos deleitarmos em requintes e em luxos, para jogarmos dinheiro fora, queimarmos, fazermos piscinas de joias. Essa grande fartura é devida a estarem inconscientes, a não questionarem essa cúpula. Enquanto essa cúpula existir, teremos iates, carros luxuosos, um luxo que eles não conhecem e talvez nunca conhecerão.”
 
-E diziam, aqui podemos qualquer coisa, se um cantor famoso se recusar a passar nossa mensagem, haverá centenas de paparezes o atormentando a todo instante, ate ele aceitar cantar nossas musicas. 
+E diziam, aqui podemos qualquer coisa, se um cantor famoso se recusar a passar nossa mensagem, haverá centenas de paparezes o atormentando a todo instante, ate ele aceitar cantar nossas musicas. Nos definimos quem faz sucesso e quem deixa o sucesso, quem fica na midia e quem é cancelado. Nos conduzimos o cardume fidalgo.
+
+Nós somos os comandantes, quem tem o dinheiro comanda tudo fidalgo. Voce pensa que os politicos tem algum poder? Nós influeciamos tudo.
 
 Esse conselho está na voz dos artistas, nas celebridades que voce nao imagina, nos filmes de holliwood, esta nos cinemas, estamos agindo em todos os lugares. E toda essa massa não faz nenhuma ideia disso, o cidadão é um tolo, que sonha com a liberdade, que a sociedade será justa um dia, quando nos os manipulamos como marionetes, pensam o que nos queremos que pensem, se vão para guerra é nós que queremos que vão, se matam em guerra porque queremos que se matem, as familias se separam porque queremos isso, há fome quando queremos que haja fome. Há noticias quando queremos que haja, a humanidade vive num show guiado por nós, e não se da conta. E com sua ajuda, esse imperio, esse paraiso particular que criamos não vai acabar fidalgo, aqui qualquer coisa que voce quer é possível, o sofrimento destes faz isso ser interessante como é.
+
+Aproveitamos também o legado do passado, e continuamos esse legado, alimentamos as geraões futuras com miseria, para que também nossos sucessores as comandem e assim se vai de geraão em geração.
+
+Fidalgo, voce vai aprender como tornar o cidadão uma completo incosciencia de sua situação, alguém que não questiona, preso em sua pequena visão de mundo, sem nunca desfrutar dessa visão privilegiada, de mansões e hiates. Tudo isso não é só esforço e visão estrategica como voce pensa, voce ergueu suas fortunas utilizando um legado sustentado a anos, e agora precisa estar consciente do que lhe permitiu se destacar realmente tanto entre os demais.
+
+Sem miseria, sem distrações, dificilmente voce teria chegado aqui fidalgo, agora voce é um de nós e precisa se portar como tal.
+
 
 Faça um pedido fidalgo, quer ficar com qualquer famosa? Escolha uma celebridade e nos te daremos uma noite com essa pessoa. Escolha qualquer carro, qualquer viagem. Quer ser uma celebridade? Adorado por todos? Temos o poder. Para nós não há limitações fidalgo, mas isso tem um preço.
 
@@ -7876,9 +7885,14 @@ Veja bem, todo mês fazemos uma reunião e decidimos o que manipular e como agir
 
 Veja, bem, este é o mapa da estrutura social, aqui esta olicerçado tudo. No mapa tinha as bases da soceidade, familia, religião, politica e toda a estrutura sob como uma parte influencia na outra. Havia centenas de telefones, de pessoas da midia, politicos, empresas, emissoras, artistas. Havia informações compradas de diversos artistas e pessoas que também serviam como argumento de convencimento a fazerem o que querem. Havia diversas analises psicologicas dos melhores analistas sociais, havia uma grande equipe respaldando a manipulação engenhosa, da sociedade.
 
+Ultimamente estamos tentando atacar a estrutura da familia e as instutições religiosas, em novos estudos, percebemos que isso fortifica o povo de forma a prevenir o crime, e o crime é uma das melhores formas de distrações.
+
+Portanto, seu papel fidalgo, é enrriquecer nossa visão estratégia, para dar manutenção no nosso legado juntamente a nós. Seu pensamento devve agora estar mais avançado do que um mero acumulador de riquezas, agora voce vai aprender a manter o povo incosciente de seus esbanhos, e sob a aceitação de viver com pouco.
+
 O fidalgo, a medida que iria participando das reuniões, passou a se questioanar sobre o porque precisa participar, disse ao conselho que só queria pagar as taxas e se ausentar, mas o conselho o advertiu que precisa de sua influencia, e de seu poder intelectual. O fidalgo parou por um momento para questionar sobre porque o dinheiro é tão importante assim para chegar a este ponto, para chegar a esse limite de não ser mais humano, de destruir seu proprio mundo e o paraiso que quisera um dia poder ser real na terra.
 
-O fidalgo só chegou a conclusão que só poderia estar doente, e que aquilo era uma grande doença que ainda ninguém nomeou.
+O fidalgo só chegou a conclusão que só poderia estar doente, e que aquilo era uma grande doença que ainda ninguém nomeou. Uma obsessão por dinheiro de tal proporção, só pode estar associado a uma sintomatica de uma doença. 
+
 
 
 
