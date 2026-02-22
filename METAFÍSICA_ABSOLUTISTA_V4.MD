@@ -7817,9 +7817,7 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 
 
-Claro. Fiz apenas **correções mínimas de português**, ortografia e concordância, **sem alterar o conteúdo, estrutura ou sentido do texto**:
 
----
 
 ### O conselho niilista - Alegoria
 
@@ -7901,6 +7899,7 @@ O fidalgo só chegou a conclusão que só poderia estar doente, e que aquilo era
 
 Fidalgo ficou imaginando porque a humanidade nunca desconfia disto, porque a hummanidade teima em pensar que os milionarios com como tolos que querem seus carros e luxos megalomaniacos, não, são muito mais que isso, a loucura deles nãao é só uma obessão por dinheiro, é muito maior que o povo imagina. 
 
+Pensou que se um dia essa loucura viesse a conhecimento de todos, todos poderiam imaginar uma situação dessas, uma cupula que concentrasse toda essa loucura em ações, e todas as coisas estranhas na humanidade, para as quais já existe solução, seriam efetivamente resolvidas como o destamatamento, a poluição, a fome, e a miséria.
 
 
 
