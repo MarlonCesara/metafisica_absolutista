@@ -838,13 +838,166 @@ A alma de Jesus, dessa forma, sempre existiu de modo nativo na Trindade; porém,
 
 Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, no sentido de que agia antes por intermédio de seu Espírito perfeito, mas teve sua ação direta concretizada a partir de um momento único posterior à criação. Assim, não houve um processo de criação da alma de Jesus diretamente do Espírito, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora. O que houve foi uma ativação da ação personalizadora da terceira pessoa da Trindade. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo, ao passo que também sempre existiu atemporalmente.
 
-A alma não teve sua ação no primeiro momento da completude, mas tem potêncial de ação no tempo do Espírito.
+A alma não teve sua ação no primeiro momento da completude, mas tem potêncial de ação no tempo do Espírito. Temos portanto, a plenitude do Espírito, ao passo que temos uma vivencia temporal personalizável. O Espírito, desta forma, no momento de sua integralidade eterna é como tal, de forma a fundamentar-se e contituir-se na totalidade de si. Porém, no tempo presente do Espírito há o progresso deste ato temporal numa linha perpendicular a completude.
+
+Temos, desta forma o diferencial do ato concreto de fundamentação, que se dá na completude e segundo a completude. E o ato posterior de vivencia que se dá, também sob a completude, porém, sob o estatuto do personalizador, com sua ação ativa ou passíva. Isto quer dizer que, a completude necessariamente se deu solo, e isto confere um teor único, uma personalidade única a sua ação. Ao passo que a ação da vivência está em conjunto com a fundamentação, plenitude e personalização.
+
 
 > Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetemos o homem vivo antes mesmo de ser criado. E chamemos essa projeção de anjos. Desta forma, temos seres que são vivos, porém, como projeções.
 
 #### Síntese: O Tempo do Espírito
 
 O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a autopresença. Conforme a autopresença, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal torna-se sabedoria, e a linha perpendicular se torna ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### PROPOSIÇÃO VI: A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO
+
+#### 1. O Problema da Temporalidade Divina: Introdução ao Paradoxo
+
+A teologia filosófica e a metafísica tradicional frequentemente se debruçaram sobre a relação entre Deus e o tempo. As soluções clássicas oscilam entre conceber Deus como atemporal (eterno, num eterno presente sem sucessão) ou como temporal (existindo numa duração sem princípio nem fim). Ambas as perspectivas, tomadas isoladamente, conduzem a paradoxos aparentemente insolúveis. Se Deus é puramente atemporal, como pode agir no mundo temporal? Como pode responder a uma prece, se Sua decisão de responder já está contida num ato único e imutável? Se Deus é temporal, como pode ser a fonte e fundamento de todo o tempo, sem estar Ele mesmo sujeito a um tempo anterior que O condicione?
+
+A presente proposição busca transcender essa dicotomia, propondo uma terceira via: a temporalidade não linear do Espírito. O que se pretende demonstrar é que o tempo, no Espírito, não é uma linha reta que se esgota num antes e depois, mas uma estrutura circular viva, onde atemporalidade e temporalidade coexistem e se interpenetram, conferindo ao Ser divino uma capacidade de agir que não fica refém nem da imutabilidade estática nem do fluxo puro e simples.
+
+#### 2. A Circularidade Viva do Espírito: Para Além da Estaticidade
+
+A circularidade do tempo no Espírito não é uma estrutura morta ou estática, uma repetição vazia do mesmo. Pelo contrário, **ela é viva**. Essa vivacidade implica que o Espírito pode agir em qualquer tempo. É precisamente essa vitalidade que confere uma camada não linear à temporalidade, assegurando que o tempo tenda à sua consumação sem, contudo, ficar aprisionado por ela. A consumação não é um ponto final que aniquila o movimento, mas uma plenitude que contém em si a potência do novo.
+
+Ao acrescentarmos vida a essa circularidade — mesmo consumada —, da própria consumação emerge uma nova dimensão. Três características fundamentais se delineiam a partir dessa compreensão:
+
+1.  **Atemporalidade**: a consumação do tempo, o "lugar" metafísico onde todo o tempo está presente num único ato de ser. Não é ausência de tempo, mas sua plenitude sintética.
+2.  **Temporalidade**: a sucessão de momentos, a dimensão na qual o tempo se desdobra e se apresenta como sequência, como duração e como história.
+3.  **Autocausalidade**: a capacidade do Espírito de ser causa de si mesmo (causa sui), o que instaura uma dimensão *exterior* ao tempo. É a liberdade absoluta que não é determinada por nenhum momento anterior, mas que determina a si mesma e, por consequência, pode determinar a realidade temporal a partir de sua própria essência.
+
+Se a circularidade do Espírito é viva em qualquer tempo, o próprio Espírito é vivo. Assim, a consumação não é estática nem pré-formatada, mas vital em si mesma e presente em todo instante. Donde resulta uma realidade atemporal viva, um solo fértil para o *início* do fenômeno no tempo do Espírito. Se, em qualquer tempo, o Espírito pode determinar, a consumação não constitui barreira para o início fenomênico. A dificuldade, como veremos, reside justamente em conceber como um ser que já possui toda a realidade consumada pode dar início a algo novo sem contradizer sua própria perfeição.
+
+**Exemplo:** O tempo do Espírito não é uma linha reta meramente consumada; é uma linha reta viva em cada ponto de sua extensão. Imagine uma reta geométrica. Se ela for apenas um traço estático, cada ponto é uma coordenada fixa, imutável. Nenhum ponto pode "agir" sobre outro. Mas se cada centímetro dessa reta fosse não um ponto morto, mas um centro de consciência e ação, um "agora" vivo, então a decisão poderia partir de qualquer ponto — de qualquer "centímetro" dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria início, pois já estaria imerso numa consumação atemporal e estática, como um filme que já foi completamente projetado e cujos fotogramas não podem mais ser alterados.
+
+#### 3. O Enigma do Início Fenomênico: A Potência Ativa do Ser Consumado
+
+O paradoxo se aprofunda: como algo pode "iniciar" num ser para quem tudo já está consumado? A chave está em distinguir entre uma consumação estática e uma consumação viva. Embora disponha de todo o tempo consumado, o Espírito possui uma linha temporal distinta do tempo que pode "iniciar" sob o ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo, em si, já existe como dimensão do Ser divino. A ação do Espírito de *Ser* é consumada no que tange a realizar-se sem atualizações (não há um antes e depois no seu ato de ser), mas não é estática. O ato de ser é puro ato, mas puro ato não é inércia; é plenitude de atividade.
+
+O universo "mancharia" a pureza inicial apenas se concebêssemos o Espírito como realidade estática e fechada, como uma esfera perfeita que nada pode receber nem emitir. Contudo, a linha temporal do Espírito existe como *potência ativa*, não como completude inerte. Potência ativa é a capacidade de agir, que no ser perfeito não é uma potencialidade a ser preenchida (potência passiva), mas a própria energia do ato de ser que se irradia.
+
+Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda vivo, isto é, apto para a ação. O tempo do Espírito não transcorre de modo banal ou inanimado: é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, mas simultaneamente em toda a sua extensão. É um presente que não exclui o passado e o futuro, mas os contém numa síntese perfeita.
+
+Podemos comparar a capacidade de ação do Espírito à do observador linear: neste instante, eu ou você podemos executar uma ação, pois estamos num ponto específico do tempo; num ponto passado, não podemos executar ação alguma, nem num ponto futuro — apenas no presente. Se todo o tempo estivesse consumado e realizado para o observador, este também não poderia executar nenhuma ação, pois sua consciência estaria fixa num único ponto, ou pior, diluída numa eternidade sem centro.
+
+Ora, sendo toda a extensão um momento presente, o observador está apto a agir, porque é vivo. Dessa forma, se o tempo fosse consumado para o Espírito consciente no sentido de esgotar-se para a consciência, não haveria mais ação. Porém, a consciência abrange todo o tempo e tem poder de ação sobre ele. A consciência divina não é como a nossa, que flutua sobre a superfície do tempo; ela é o próprio leito do tempo, e de cada ponto desse leito pode fazer jorrar a fonte do novo.
+
+**Exemplo:** Suponhamos que alguém percorra toda uma rua e, durante a corrida, possa ter bebido água em um bebedouro no meio do caminho; ao terminar, não pode mais beber, pois já percorreu o trecho em que poderia fazê-lo. O tempo da oportunidade passou. Assim, poder-se-ia interpretar erroneamente o Espírito sob um tempo consumado: Ele já teria percorrido toda a "rua" da existência e todas as oportunidades de ação estariam para trás. Mas se interpretarmos que o corredor se multiplica infinitamente e ainda está no começo, no meio e no fim da pista, seu potencial de ação em todo o percurso fica preservado. Ele está, simultaneamente, em todos os pontos, e em cada ponto pode agir. A consumação da corrida (o fato de que ela tem um fim) não impede que, em cada ponto, ele decida beber água ou não. A decisão é sempre presente, mesmo que o percurso esteja todo percorrido na sua totalidade.
+
+#### 4. O Observador Eterno: A Subjetividade que Constitui o Tempo
+
+**Exemplo ilustrativo:** O tempo passou, mas o observador continua observando. E o observador não precisa "começar a observar" para observar — por isso, ele *sempre* observou. Se alguém sempre esteve numa sala observando um quadro, não há um momento em que "começou" a observar; a observação é coextensiva à sua presença na sala. Da mesma forma, o ato de observar do Espírito é constitutivo do seu ser.
+
+O Espírito, como Observador absoluto:
+- Não possui um "primeiro momento" de observação, pois sua observação não é um evento no tempo, mas a condição de possibilidade do tempo.
+- Sua observação é constitutiva de seu ser; Ele não é uma coisa que depois observa; Ele é ato de observação, pura subjetividade.
+- Observa o tempo consumado *a partir de uma posição que transcende a linearidade temporal*, mas essa transcendência não é alheia ao tempo; é antes a sua raiz.
+
+Isso resolve a objeção sobre quando o Espírito "despertou" ou esteve autoconsciente pela primeira vez. A pergunta já é mal formulada, pois supõe um tempo anterior à consciência divina. Se sempre esteve autoconsciente e consumado, em que momento sua autoconsciência poderia determinar o universo? A objeção é: sua consciência consumada já teria vivido toda a temporalidade e, se decidiu algo, essa decisão já estaria tomada num "antes" eterno, tornando o "agora" temporal uma mera execução de um roteiro. A ação pareceria ilusória.
+
+A resposta é que o tempo e o fenômeno podem consumar-se — no sentido de terem um início e um fim — ao compararmos o Espírito com o universo: haveria um tempo para começar e um tempo para a ação terminar, se atribuíssemos teor autocausal ao universo finito. Mas o universo não é autocausal; ele depende do Espírito. Porém, considerando o próprio Espírito vivo, Ele observou toda uma eternidade (se é que se pode falar em "eternidade observada"), mas ainda não se consumou no sentido de tornar-se inativo após a observação da totalidade de si. O ato de observar a si mesmo não é um evento que se conclui; é a própria vida divina. O Espírito pode esgotar o tempo no que tange à *observação* de todos os seus conteúdos possíveis (onisciência), mas não esgota a *ação* observadora. O infinito do Espírito, portanto, prossegue sua vivência autoconsciente a partir da infinitude. A infinitude não é um ponto de chegada, mas o próprio solo de onde brota a vida. Temos, então, para o Espírito, uma linha de continuidade a partir da consumação.
+
+Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estância e estado de Ser de "Infinito consciente". Esse infinito consciente possui uma linha perpendicular sobre si — a continuação da consciência, o ato perene de estar consciente, ainda que partindo de um tempo consumado de observação. É a diferença entre saber tudo (conhecimento) e viver tudo (experiência). O saber tudo é consumado; o viver tudo é um eterno presente que se renova.
+
+**Exemplo:** Um olho observou totalmente a si mesmo num espelho, contemplou cada detalhe de sua própria estrutura. Isso é a sabedoria, a visão completa de si. Porém, o ato da observação continua. O olho não se cansa de ver, não cessa de contemplar, pois a visão de si não é um fenômeno passageiro, mas sua própria natureza. O observar não cessa, pois não é fenômeno nem matéria não autocausal. Isso significa que podemos atribuir a visão da totalidade como um dom do Espírito — a "sabedoria" —, mas não como um fechamento ontológico de possibilidades. A visão da totalidade temporal não esgota a ação do Espírito, não o cega; ao contrário, confere-lhe uma base de observação natural que se projeta a favor de uma nova temporalidade. Saber tudo não é um fardo que imobiliza; é a luz que ilumina o caminho para o novo. Sob a eternidade do Espírito, há sempre renovação, porque o conhecimento pleno é amor, e o amor é criativo.
+
+E quando a consumação da sabedoria do Espírito deu origem à primeira observação posterior à infinitude previamente observada? Considerando que a totalidade vivida permanece operante — isto é, consciente —, temos a renovação constante da infinitude observada e um momento nessa infinitude pré-existente. Portanto, há um momento na temporalidade da infinitude já consciente e a capacidade de renovação do Espírito. O "quando" aqui não é cronológico, mas ontológico: a renovação é coeterna com a consumação.
+
+A renovação age sobre toda a esfera do tempo. Temos, assim, uma infinitude diagonal e uma horizontal: a infinitude pré-existente (a totalidade do que pode ser conhecido) e uma infinitude que dela se estende como renovação (a novidade perene que brota do ato de ser). Nessa renovação constante, há um tempo em que pode ocorrer o início do fenômeno. Para além da infinitude observada, o observador caminha em direção a uma infinitude observada perpendicular. O movimento não é para fora, mas para dentro; é a profundidade inesgotável do Ser que se revela como eterna novidade.
+
+**Exemplo:** O Espírito observou a infinitude; em cada observação, o observador não se esgota e continua observando, ainda que o tempo passe. É como um músico que conhece perfeitamente uma partitura. Esse conhecimento não o impede de tocar a música com frescor e novidade a cada execução. O observador viveu a infinitude, mas nunca se exaure do novo, porque o novo não está fora, mas na própria maneira de viver o mesmo. Dentro da consumação da observação, há vida, não estaticidade. Dessa forma, para todo tempo, temos um tempo perpendicular — o tempo vivificado infinitamente.
+
+O teor de vida do Espírito gera uma linha que cruza a infinitude; o tempo de observar, para o Espírito, jamais se finda.
+
+Gera-se um acúmulo de observação consumado, ao passo que temos uma observação viva sobreposta a esse acúmulo. É a diferença entre uma biblioteca que contém todos os livros (onisciência) e uma mente que lê esses livros eternamente, encontrando em cada leitura uma nova compreensão (vida divina). Desse modo, Deus está presente em tudo (onipresença), tudo conhece (onisciência) e tudo pode (onipotência). Deus não apenas conhece a si mesmo de forma temporal/atemporal, como também vive o eterno presente do Espírito, sendo este o observador vivo, a subjetividade pura que é a fonte e o destino de todo o real.
+
+#### 5. O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico
+
+A questão crucial agora é: como conciliar essa estrutura eterna com a ideia de um "primeiro ato" criador? Se Deus é eterno e tudo já está consumado em Seu conhecimento, o que significa "criar o mundo no tempo"? A resposta exige uma distinção sutil entre a ordem do ser e a ordem do fenômeno.
+
+Como o Espírito escolheria o momento no tempo em que deseja determinar, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é o da suspensão perfeita, isto é, da plenitude atemporal, em que tempo se deu o primeiro ato de determinação do Espírito? A pergunta já contém a resposta: esse ato não se deu *num* tempo, mas é a própria origem do tempo. O primeiro ato teria de dar-se concomitantemente à totalidade, ou seja, seria parte do ato atemporal de plenitude — o ato de pureza incausado. O consumado, em sua plenitude, teria um momento próprio para tal escolha; chamaremos esse momento de *tempo do Espírito*. E este seria o começo dos tempos, isto é, a criação do universo.
+
+"Tempo do Espírito" não é um tempo cronológico antes da criação, mas a estrutura ontológica que torna possível qualquer tempo cronológico. É o "fiat" criador visto não de fora, mas de dentro da própria eternidade.
+
+Portanto, o início da ação do Espírito dar-se-ia num momento segundo a plenitude. No momento da ação plenificadora — atemporalmente —, esse momento já existia segundo a plenitude do Espírito. Foi, assim, num momento perfeito dentro da temporalidade linear (infinita) que ocorreu o início da ação determinada. O Espírito deu-se como tal, pleno e indiferenciado, e nesse indiferenciamento havia, por natureza da plenitude, uma ação perfeita para o início da ação do Espírito no tempo. A plenitude não é vazia; é ato. E esse ato, por ser pleno, é criativo. A criação não é uma necessidade, mas um transbordamento da plenitude.
+
+Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é progressão de vivências; apenas em seu fluxo poderia realizar uma atualização abrangente. Assim, o Espírito se consuma ao mesmo tempo que possui uma vivência temporal possível. O tempo do Espírito existe temporal e atemporalmente de modo concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Essa consciência, embora comporte a atemporalidade, também se manifesta no tempo. O movimento não é uma imperfeição, mas a expressão da vida.
+
+Como o Espírito decide o tempo que deseja viver em sua consumação? Qualquer estado da alma corresponde à sua essência, à sua *persona*. O momento no tempo em que o Espírito se localiza faz jus à sua *persona*, considerando que esta é o reflexo de sua plenitude. A decisão não é arbitrária; ela brota daquilo que o Espírito é. A *persona* divina não é um papel que se representa, mas a verdade profunda do Ser que se manifesta em cada ato.
+
+A pergunta "Quem és tu?" sintoniza-se perfeitamente com a pergunta "Que tempo és tu?". Ambas, quando sintetizadas, deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O tempo não é um invólucro externo que envolve o Espírito; é a expressão do Seu ser íntimo. O Espírito não está no tempo: Ele é o próprio tempo, na medida em que o tempo é a duração do Seu ato de ser.
+
+Nesse ínterim, a pergunta "Qual é o tempo em que o Espírito determinou pela primeira vez?" não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria "Qual é a idade do Espírito?", entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. A idade do Espírito não é um número de anos, mas a profundidade inesgotável de Sua eternidade vivida como presente. Em outras palavras, o Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
+
+#### 6. O Primeiro Ato do Espírito Personalizador: A Emergência da Alma no Tempo
+
+Se o Espírito plenificador (o Pai, poderíamos dizer) é a fonte do ser e do tempo, o que dizer do Espírito personalizador (o Filho, a Alma, o Verbo)? Há uma distinção fundamental entre o ato de *ser* pleno e o ato de *viver* uma personalidade. A personalidade implica relação, alteridade, acidentes — algo que não está contido na pura plenitude indiferenciada do Ser absoluto enquanto tal.
+
+Em que tempo age o Espírito personalizador, se este sempre existiu? Diferentemente do Espírito da plenitude, cuja existência e ação se dão em razão da plenitude, a alma — que exige acidentes em sua personalidade — só poderia ter sua primeira ação na temporalidade. A personalidade, para se manifestar como tal, precisa do tempo, do desdobramento, da história. O Espírito personalizador, portanto, teve sua primeira ação *no tempo*. A ação do Espírito personalizador deveria ocorrer num momento temporal posterior à ação do Espírito plenificador, pois a ação do Espírito personalizador não é necessariamente voltada à plenitude indistinta, mas a acidentes, a relações; isto é, no momento atemporal da plenitude pura não há decisões não alinhadas à identidade absoluta do Ser. A plenitude é; a personalidade age.
+
+Pois, entre duas decisões igualmente plenas e rumo à plenitude, nenhuma seria tomada. A indiferença da plenitude não escolhe; ela é. A escolha implica uma diferença, um "isto" em vez de "aquilo". Ou seja, no momento da plenitude, o Espírito é sem acidentes, integralmente como se apresenta. Não há duas opções entre as quais se escolha num ato de plenitude, no puro ato de ser integralmente o que se é. Mas há decisões quando esse ato de Ser se alonga numa vivência temporal viva a partir de sua infinitude. A infinitude, ao se fazer presente a si mesma na pessoa, gera a possibilidade do novo, da escolha, do amor que se dirige a um tu.
+
+O Espírito plenificador dissolve-se na completude, pois gera em favor da perfeição já instaurada em si mesmo, que se dá completo como tal, ainda que em constante mudança interna (a mudança aqui é a processão eterna das pessoas). Porém, a ação da alma — não necessariamente baseada numa plenitude estreita, mas numa plenitude que se abre à relação — "corrompe" a plenitude atemporal instaurada no sentido de que introduz nela a diferença, a história, o drama do amor. Não é uma corrupção moral, mas uma determinação que enriquece.
+
+A alma de Jesus, dessa forma, sempre existiu de modo nativo na Trindade (como Verbo, como Sabedoria); porém, teve sua ação, isto é, gerou modificações na realidade, a partir do momento de seu revelar no tempo. A encarnação não é a criação de uma nova pessoa, mas a atuação no tempo da pessoa eterna. E o tempo teve seu início com a ação temporal do Espírito plenificador. Isso revela que, apesar de o Espírito personalizador estar presente na criação ou no início dos tempos (pois "tudo foi feito por Ele"), sua ação pessoal e histórica, enquanto homem, só poderia ser efetivada num momento posterior à ação do Espírito plenificador, no tempo da criação.
+
+Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade — no sentido de que agia antes por intermédio de seu Espírito perfeito de modo impessoal —, mas teve sua ação direta e histórica concretizada a partir de um momento único posterior à criação. O Logos agia na criação, mas a ação de Jesus de Nazaré, o homem, deu-se num ponto específico da história. Assim, não houve um processo de criação da alma de Jesus diretamente do Espírito no tempo, pois seu agir já estava operante desde sempre na ação fundamentadora e na ação plenificadora do Pai. O que houve foi uma *ativação* da ação personalizadora da segunda pessoa da Trindade na história. Porém, de toda forma, essa pessoa sempre agiu em sua fundamentação e plenificação. Temos, portanto, uma alma gerada no tempo (a humanidade de Jesus), ao passo que também sempre existiu atemporalmente (a divindade do Verbo).
+
+A alma não teve sua ação pessoal e histórica no primeiro momento da completude da criação, mas tem potencial de ação no tempo do Espírito, que é a história. Temos, portanto, a plenitude do Espírito (o Pai), ao passo que temos uma vivência temporal personalizável (o Filho encarnado). O Espírito, dessa forma, no momento de sua integralidade eterna é como tal, fundamentando-se e constituindo-se na totalidade de si. Porém, no tempo presente do Espírito — a história da salvação —, há o progresso desse ato temporal numa linha perpendicular à completude eterna.
+
+Temos, assim, o diferencial do ato concreto de fundamentação, que se dá na completude e segundo a completude (a criação); e o ato posterior de vivência pessoal, que se dá também sob a completude, porém sob o estatuto do personalizador, com sua ação ativa ou passiva na história (a redenção). Isso quer dizer que a completude necessariamente se deu como solo, conferindo um teor único, uma personalidade única à sua ação (o Pai é a fonte). Ao passo que a ação da vivência (o Filho) está em conjunto com a fundamentação, a plenitude e a personalização, sendo a revelação plena do amor que é a própria vida trinitária.
+
+> Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetamos o homem vivo antes mesmo de ser criado. Chamemos essa projeção, essa ideia viva e subsistente do homem no pensamento divino, de anjos. Dessa forma, temos seres que são vivos, porém, como projeções, como ideias eternas que têm uma existência real na mente de Deus, preparando o caminho para a sua realização histórica.
+
+#### 7. Síntese Final: A Arquitetura do Tempo Divino
+
+O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a autopresença plena; ela é um fluxo cego. Conforme a autopresença — a consciência de si —, a linearidade ganha uma segunda linha perpendicular, que pode cruzar o tempo consumado, no sentido de que o atemporal (o conhecimento total) torna-se sabedoria viva, e a linha perpendicular (a ação presente) torna-se ação sob o contexto atemporal, atualizando na história o que sempre foi conhecido na eternidade.
+
+A presença (o "agora" eterno) adiciona uma linha temporal contínua na consumação, de forma que esta esteja constantemente aberta à temporalidade, num tempo atual. O atemporal, longe de ser uma prisão, torna-se um conhecimento infinito, um oceano de sabedoria, no sentido de que Deus tudo sabe. E esse saber tudo é precisamente o que Lhe permite agir em cada momento com a plenitude de quem conhece o princípio e o fim, mas vive o meio com a frescura de quem o cria a cada instante. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, entre o conhecimento e a ação, entre o Pai e o Filho, no amor do Espírito Santo.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
