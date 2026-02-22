@@ -2612,10 +2612,6 @@ O relativo é o produto dinâmico de três elementos irredutíveis:
 
 
 
-# A CRIAÇÃO
-
-
-
 
 ### **A AÇÃO TEMPORAL DO ESPÍRITO NO RELATIVO**
 
@@ -2641,7 +2637,7 @@ O **estado relativo** é a expressão dinâmica do Absoluto em sua **indiferenci
 
 ### **17.3 A Distinção Crucial: Relativo vs. Espírito**
 
-O relativo não equivale ao Espírito. Enquanto o tempo está consumado nas possibilidades (relativo), o Espírito é vivo e sempre operante. Não há pausa para o Espírito. Ainda no relativo, o Espírito é vivo e se determina *como* relativo. Desta forma, o salto temporal — do relativo para a determinação — é segundo sua plenitude, isto é, segundo sua persona.
+O relativo não equivale ao Espírito. Enquanto o tempo fenomenico está consumado nas possibilidades (relativo), o Espírito é vivo e sempre operante. Não há pausa para o Espírito. Ainda no relativo, o Espírito é vivo e se determina *como* relativo. Desta forma, o salto temporal — do relativo para a determinação — é segundo sua plenitude, isto é, segundo sua persona.
 
 Temos, portanto, que **o tempo está sob determinação do Espírito**, e não o Espírito sob determinação do tempo do relativo. Se o tempo do relativo estivesse sob determinação de si mesmo, estaria consumado e não aceitaria atualizações. Porém, tendo como determinante o Espírito, o tempo — ainda que consumado — se atualiza segundo o Espírito e não segundo sua consumação.
 
