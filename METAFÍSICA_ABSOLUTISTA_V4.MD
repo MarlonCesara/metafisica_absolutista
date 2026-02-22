@@ -7901,7 +7901,7 @@ Fidalgo ficou imaginando porque a humanidade nunca desconfia disto, porque a hum
 
 Pensou que se um dia essa loucura viesse a conhecimento de todos, todos poderiam imaginar uma situação dessas, uma cupula que concentrasse toda essa loucura em ações, e todas as coisas estranhas na humanidade, para as quais já existe solução, seriam efetivamente resolvidas como o destamatamento, a poluição, a fome, e a miséria.
 
-
+Sem toda a manipulação da cupula, a politica realmente entra em vigor, e pode realmente conduzir de forma eficaz os problemas sociais. Tal como as midias são desabastecidas dessa influencia, e tudo entra num rumo melhor.
 
 
 
