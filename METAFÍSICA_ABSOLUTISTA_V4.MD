@@ -7817,24 +7817,28 @@ Em síntese, o niilista atinge os três pilares através do niilismo: a sede pel
 
 
 
+Claro. Fiz apenas **correções mínimas de português**, ortografia e concordância, **sem alterar o conteúdo, estrutura ou sentido do texto**:
+
+---
+
 ### O conselho niilista - Alegoria
 
-Um bilionário que chamaremos de fidalgo recebe um envolope, o qual o convida para uma reunião, dizendo ter grande importancia e conficialidade. O bilionário recebe um cheque de um bilhao e uma carta de beneficios, é uma especie de club definindo como o conselho. Então o bilionario, com duvida, decide participar para ver o que é. Este bilionario já possui grande influencia e tem o desejo de aumentar seus empreendimentos ate o limite.
+Um bilionário, que chamaremos de Fidalgo, recebe um envelope, o qual o convida para uma reunião, dizendo ter grande importância e confidencialidade. O bilionário recebe um cheque de um bilhão e uma carta de benefícios; é uma espécie de clube, definido como “O Conselho”. Então o bilionário, com dúvida, decide participar para ver do que se trata. Este bilionário já possui grande influência e tem o desejo de aumentar seus empreendimentos até o limite.
 
-A reunião tinha outros bilionarios. E vagarosamente começaram a introduzir ideias em sua cabeça. No começo disseram que era uma especie de club para super ricos. Porém, uma psicologia estranha começou a ser levemente introduzida nas aulas:
+A reunião tinha outros bilionários. E, vagarosamente, começaram a introduzir ideias em sua cabeça. No começo disseram que era uma espécie de clube para super-ricos. Porém, uma psicologia estranha começou a ser levemente introduzida nas aulas:
 
-Diziam: a estratégia de negocio envolve uma psicologia, que é direcionada as massas, alem de tecnicas passadas de milenios pelos antepassados, para o aumento de riquezas, uma dessas tecnicas é descrita no livro ''a arte da guerra''. E disseram que há outras tecnicas em segredo que fomentam e protegem a fortuna. 
+Diziam: a estratégia de negócio envolve uma psicologia que é direcionada às massas, além de técnicas passadas há milênios pelos antepassados, para o aumento de riquezas; uma dessas técnicas é descrita no livro “A Arte da Guerra”. E disseram que há outras técnicas em segredo que fomentam e protegem a fortuna.
 
-E convidaram fidalgo para participar, porem o advertiram de que era um segredo eximio, sob pena de morte anuncia-lo, porem, que aumentaria e conservaria suas fortunas ate o ultimo de seus dias.
+E convidaram Fidalgo para participar, porém o advertiram de que era um segredo exímio, sob pena de morte anunciá-lo, mas que aumentaria e conservaria suas fortunas até o último de seus dias.
 
-Fidalgo fechou o acordo e queria participar daquilo que chamavam de conselho. 
+Fidalgo fechou o acordo e queria participar daquilo que chamavam de Conselho.
 
-Ao longo das aulas, foram apresentando tecnicas cada vez mais funestaas, tecnias que lhe causavam nauseas, mas fidagalgo já não poderia mais recusar fazer parte daquilo. 
+Ao longo das aulas, foram apresentando técnicas cada vez mais funestas, técnicas que lhe causavam náuseas, mas Fidalgo já não poderia mais recusar fazer parte daquilo.
 
-As tecnicas envolviam contratar politicos e arquitetar tecnicas de desvio para enfraquecer a população.
+As técnicas envolviam contratar políticos e arquitetar métodos de desvio para enfraquecer a população.
 Criar holocaustos massivos, guerras.
-Manipulação da midia mundial.
-Manipulação de grande artistas.
+Manipulação da mídia mundial.
+Manipulação de grandes artistas.
 Ataques contra as igrejas.
 Compra de parlamentares.
 
@@ -7842,27 +7846,33 @@ Tudo era apresentado com elegância e racionalidade fria.
 
 “Não é maldade”, diziam. “É gestão.”
 
-Enfim, havia uma série de processos ocultos planejados pela cupula, e uma trama, uma camada de varias pessoas e intituições protegiam a informaão sobre quem pronunciava essas decisões.
+Enfim, havia uma série de processos ocultos planejados pela cúpula, e uma trama, uma camada de várias pessoas e instituições protegiam a informação sobre quem pronunciava essas decisões.
 
-Os conhecimentos mais elevados acerca da psicologia, tencologia eram usados. Tecnicas de enfraquecer as familias através de pragmmatismo de comportaento barato através da midia, tal como anunciar artistas tornando comum a desunião por motivos tolos. Qulauqer tecnica funesta e sem excrupulos era bem vinda.
+Os conhecimentos mais elevados acerca da psicologia e tecnologia eram usados. Técnicas de enfraquecer as famílias através do pragmatismo de comportamento barato por meio da mídia, tal como anunciar artistas tornando comum a desunião por motivos tolos. Qualquer técnica funesta e sem escrúpulos era bem-vinda.
 
-A apresentação ao club tentavam fazer que fosse bem atratavida diziam?
+A apresentação ao clube tentava ser bem atrativa. Diziam:
 
-"Quando se chega no patamar dos bilionarios, o negócio deixa de ser só negócio, estamos acima de tudo! Até mesmo do empreender, estamos acima da lei, da politica, o segredo do bilionario é não competir a nível empresarial, manipulamos a humanidade, e estes, pensam que estão livres só porque tem um emprego usual, ou uma mini empresa. Mas, nós estamos nnum nível muito acima da estratégia de negócio, manipulamos o mundo e o mundo nos desconhece!
+“Quando se chega ao patamar dos bilionários, o negócio deixa de ser só negócio; estamos acima de tudo! Até mesmo do empreender, estamos acima da lei, da política. O segredo do bilionário é não competir a nível empresarial; manipulamos a humanidade, e estes pensam que estão livres só porque têm um emprego usual ou uma miniempresa. Mas nós estamos num nível muito acima da estratégia de negócio: manipulamos o mundo e o mundo nos desconhece!
 
-Não conhecem a total verdade sobre o mundo, não questionam os acontecimentos. Quando ocasionamos uma catastrofe, a fome, a miseria, guerras, interpretam como um acontecimento politico natural, estão de olhos taapdos, não questionam de onde vem esses acontecimentos, quem realmente os produz e com qual intuito.
+Não conhecem a total verdade sobre o mundo, não questionam os acontecimentos. Quando ocasionamos uma catástrofe, a fome, a miséria, guerras, interpretam como um acontecimento político natural. Estão de olhos tapados, não questionam de onde vêm esses acontecimentos, quem realmente os produz e com qual intuito.
 
-A guerra é interessante para mante-los distraidos, a fome é ocasionada por diversos meios para mante-los lutando por algo, enquanto damos manutenção em nossos bilioes. O acumulo de nossas riquezas não é consequencia somente de nossos esforços, mas é consequencia das manipulações. 
+A guerra é interessante para mantê-los distraídos; a fome é ocasionada por diversos meios para mantê-los lutando por algo, enquanto damos manutenção em nossos bilhões. O acúmulo de nossas riquezas não é consequência somente de nossos esforços, mas é consequência das manipulações.
 
-Ou pensa que uma multidão, que mantemos distraida, vai aceitar usualmente que alguns individuos tenham tanto e outros nada sem nenhuma distração? Sem fomentarmos o grande teatro da violencia? 
+Ou pensa que uma multidão, que mantemos distraída, vai aceitar usualmente que alguns indivíduos tenham tanto e outros nada, sem nenhuma distração? Sem fomentarmos o grande teatro da violência?
 
-A multidão, diziam, é como um bebe num sono leve, no primeiro barulho acordma e fazem um estardalha-lo, precisma ficar dormindo, quase incosncientes, tão distraidos que não se revoltam, não se rebelam, não tomam a riqueza para si, continuam produzindo e dando tudo para nós, nos deleitarmos em requintes e em luxos, para jogarmos dinheiro fora, queimarmos, fazermos piscinas de joias, essa grande fartura, é devida a estarem incosncientes, a não questionarem essa cupula. Enquanto essa cupula existir, teremos hiates, carros luxuosos, um luxo que eles não conhecem e talvez nunca conhecerão.
+A multidão”, diziam, “é como um bebê num sono leve: no primeiro barulho acordam e fazem um estardalhaço. Precisam ficar dormindo, quase inconscientes, tão distraídos que não se revoltam, não se rebelam, não tomam a riqueza para si; continuam produzindo e dando tudo para nós nos deleitarmos em requintes e em luxos, para jogarmos dinheiro fora, queimarmos, fazermos piscinas de joias. Essa grande fartura é devida a estarem inconscientes, a não questionarem essa cúpula. Enquanto essa cúpula existir, teremos iates, carros luxuosos, um luxo que eles não conhecem e talvez nunca conhecerão.”
 
 E gargalhou de forma funesta.
 
+“Fidalgo, esse Conselho existe porque você atingiu um certo patamar de fortuna e precisa contribuir com a manutenção de nossas fortunas, porque, de qualquer forma, estamos contribuindo com a sua. Não seria justo que fizéssemos toda a manipulação sozinhos e você simplesmente desfrutasse da inconsciência do povo; porém, ela tem um preço. Precisamos patrocinar e pagar muitas pessoas para isso, e você precisa também contribuir, já que se tornou multibilionário; precisa também pagar o preço e aprender o que estamos fazendo e para quê.
 
+Veja bem, todo mês fazemos uma reunião e decidimos o que manipular e como agir para fomentar mais distrações. Nossa principal técnica é causar empecilhos, coisas para o ser humano se preocupar enquanto estamos no luxo extremo.”
 
+Veja, bem, este é o mapa da estrutura social, aqui esta olicerçado tudo. No mapa tinha as bases da soceidade, familia, religião, politica e toda a estrutura sob como uma parte influencia na outra. Havia centenas de telefones, de pessoas da midia, politicos, empresas, emissoras, artistas. Havia informações compradas de diversos artistas e pessoas que também serviam como argumento de convencimento a fazerem o que querem. Havia diversas analises psicologicas dos melhores analistas sociais, havia uma grande equipe respaldando a manipulação engenhosa, da sociedade.
 
+O fidalgo, a medida que iria participando das reuniões, passou a se questioanar sobre o porque precisa participar, disse ao conselho que só queria pagar as taxas e se ausentar, mas o conselho o advertiu que precisa de sua influencia, e de seu poder intelectual. O fidalgo parou por um momento para questionar sobre porque o dinheiro é tão importante assim para chegar a este ponto, para chegar a esse limite de não ser mais humano, de destruir seu proprio mundo e o paraiso que quisera um dia poder ser real na terra.
+
+O fidalgo só chegou a conclusão que só poderia estar doente, e que aquilo era uma grande doença que ainda ninguém nomeou.
 
 
 
