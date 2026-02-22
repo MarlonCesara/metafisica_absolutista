@@ -7862,6 +7862,12 @@ Ou pensa que uma multidão, que mantemos distraída, vai aceitar usualmente que 
 
 A multidão”, diziam, “é como um bebê num sono leve: no primeiro barulho acordam e fazem um estardalhaço. Precisam ficar dormindo, quase inconscientes, tão distraídos que não se revoltam, não se rebelam, não tomam a riqueza para si; continuam produzindo e dando tudo para nós nos deleitarmos em requintes e em luxos, para jogarmos dinheiro fora, queimarmos, fazermos piscinas de joias. Essa grande fartura é devida a estarem inconscientes, a não questionarem essa cúpula. Enquanto essa cúpula existir, teremos iates, carros luxuosos, um luxo que eles não conhecem e talvez nunca conhecerão.”
 
+E diziam, aqui podemos qualquer coisa, se um cantor famoso se recusar a passar nossa mensagem, haverá centenas de paparezes o atormentando a todo instante, ate ele aceitar cantar nossas musicas. 
+
+Esse conselho está na voz dos artistas, nas celebridades que voce nao imagina, nos filmes de holliwood, esta nos cinemas, estamos agindo em todos os lugares. E toda essa massa não faz nenhuma ideia disso, o cidadão é um tolo, que sonha com a liberdade, que a sociedade será justa um dia, quando nos os manipulamos como marionetes, pensam o que nos queremos que pensem, se vão para guerra é nós que queremos que vão, se matam em guerra porque queremos que se matem, as familias se separam porque queremos isso, há fome quando queremos que haja fome. Há noticias quando queremos que haja, a humanidade vive num show guiado por nós, e não se da conta. E com sua ajuda, esse imperio, esse paraiso particular que criamos não vai acabar fidalgo, aqui qualquer coisa que voce quer é possível, o sofrimento destes faz isso ser interessante como é.
+
+Faça um pedido fidalgo, quer ficar com qualquer famosa? Escolha uma celebridade e nos te daremos uma noite com essa pessoa. Escolha qualquer carro, qualquer viagem. Quer ser uma celebridade? Adorado por todos? Temos o poder. Para nós não há limitações fidalgo, mas isso tem um preço.
+
 E gargalhou de forma funesta.
 
 “Fidalgo, esse Conselho existe porque você atingiu um certo patamar de fortuna e precisa contribuir com a manutenção de nossas fortunas, porque, de qualquer forma, estamos contribuindo com a sua. Não seria justo que fizéssemos toda a manipulação sozinhos e você simplesmente desfrutasse da inconsciência do povo; porém, ela tem um preço. Precisamos patrocinar e pagar muitas pessoas para isso, e você precisa também contribuir, já que se tornou multibilionário; precisa também pagar o preço e aprender o que estamos fazendo e para quê.
