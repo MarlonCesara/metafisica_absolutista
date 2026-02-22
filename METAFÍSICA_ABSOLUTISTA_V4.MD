@@ -7887,6 +7887,12 @@ Veja, bem, este é o mapa da estrutura social, aqui esta olicerçado tudo. No ma
 
 Ultimamente estamos tentando atacar a estrutura da familia e as instutições religiosas, em novos estudos, percebemos que isso fortifica o povo de forma a prevenir o crime, e o crime é uma das melhores formas de distrações.
 
+Casais separados produzem crianças frustradas, isso fortifica o crime, pois é uma mao de obra barata e facilmente conduzida, e o crime conduz a distrações, e as distrações criminosas são formas baratas de conduzir as massas. Fazemos a propaganda do crime, incentivamos a separação familiar e a sexualidade precoce, e a sociedade faz o resto sem precisarmos gastar com armamentos. 
+
+Somente basta promover o distrator do crime, fornecemos um arcenal de armas. Propagandas em musicas e video clipes que tornam a figura do traficante mais legal. E basta, também traçamos formas mais baratas de produzir distrações, pensamos também em uma manipulação economica, por isso usamos muito figuras midiaticas, artistas, e ideologias que passamos através deles.
+
+Temos os telefones de praticamente todos os presidentes, de quase todos os artistas relevantes da midia, de grande figuras do esporte, estamos em tudo.
+
 Portanto, seu papel fidalgo, é enrriquecer nossa visão estratégia, para dar manutenção no nosso legado juntamente a nós. Seu pensamento devve agora estar mais avançado do que um mero acumulador de riquezas, agora voce vai aprender a manter o povo incosciente de seus esbanhos, e sob a aceitação de viver com pouco.
 
 O fidalgo, a medida que iria participando das reuniões, passou a se questioanar sobre o porque precisa participar, disse ao conselho que só queria pagar as taxas e se ausentar, mas o conselho o advertiu que precisa de sua influencia, e de seu poder intelectual. O fidalgo parou por um momento para questionar sobre porque o dinheiro é tão importante assim para chegar a este ponto, para chegar a esse limite de não ser mais humano, de destruir seu proprio mundo e o paraiso que quisera um dia poder ser real na terra.
