@@ -7807,6 +7807,86 @@ Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga
 
 Em síntese, o niilista atinge os três pilares através do niilismo: a sede pelo poder, motivada pelo desejo de destruição e não pelo desejar de bonança. Tem o pilar da concentração por julgar qualquer pensamento elevado desnecessário a si, que está fadado ao nada. E tem o foco pessoal, por despeito a todos e por narcisismo, não por erudição e excesso de reflexão. O rico niilista, portanto, tem um pensamento rico artificialmente provocado; seu pensamento, na verdade, não está atrás de riqueza, mas acidentalmente a atrai.
 
+
+
+
+
+
+
+
+
+
+
+### O conselho niilista - Alegoria
+
+Um bilionário que chamaremos de fidalgo recebe um envolope, o qual o convida para uma reunião, dizendo ter grande importancia e conficialidade. O bilionário recebe um cheque de um bilhao e uma carta de beneficios, é uma especie de club definindo como o conselho. Então o bilionario, com duvida, decide participar para ver o que é. Este bilionario já possui grande influencia e tem o desejo de aumentar seus empreendimentos ate o limite.
+
+A reunião tinha outros bilionarios. E vagarosamente começaram a introduzir ideias em sua cabeça. No começo disseram que era uma especie de club para super ricos. Porém, uma psicologia estranha começou a ser levemente introduzida nas aulas:
+
+Diziam: a estratégia de negocio envolve uma psicologia, que é direcionada as massas, alem de tecnicas passadas de milenios pelos antepassados, para o aumento de riquezas, uma dessas tecnicas é descrita no livro ''a arte da guerra''. E disseram que há outras tecnicas em segredo que fomentam e protegem a fortuna. 
+
+E convidaram fidalgo para participar, porem o advertiram de que era um segredo eximio, sob pena de morte anuncia-lo, porem, que aumentaria e conservaria suas fortunas ate o ultimo de seus dias.
+
+Fidalgo fechou o acordo e queria participar daquilo que chamavam de conselho. 
+
+Ao longo das aulas, foram apresentando tecnicas cada vez mais funestaas, tecnias que lhe causavam nauseas, mas fidagalgo já não poderia mais recusar fazer parte daquilo. 
+
+As tecnicas envolviam contratar politicos e arquitetar tecnicas de desvio para enfraquecer a população.
+Criar holocaustos massivos, guerras.
+Manipulação da midia mundial.
+Manipulação de grande artistas.
+Ataques contra as igrejas.
+Compra de parlamentares.
+
+Tudo era apresentado com elegância e racionalidade fria.
+
+“Não é maldade”, diziam. “É gestão.”
+
+Enfim, havia uma série de processos ocultos planejados pela cupula, e uma trama, uma camada de varias pessoas e intituições protegiam a informaão sobre quem pronunciava essas decisões.
+
+Os conhecimentos mais elevados acerca da psicologia, tencologia eram usados. Tecnicas de enfraquecer as familias através de pragmmatismo de comportaento barato através da midia, tal como anunciar artistas tornando comum a desunião por motivos tolos. Qulauqer tecnica funesta e sem excrupulos era bem vinda.
+
+A apresentação ao club tentavam fazer que fosse bem atratavida diziam?
+
+"Quando se chega no patamar dos bilionarios, o negócio deixa de ser só negócio, estamos acima de tudo! Até mesmo do empreender, estamos acima da lei, da politica, o segredo do bilionario é não competir a nível empresarial, manipulamos a humanidade, e estes, pensam que estão livres só porque tem um emprego usual, ou uma mini empresa. Mas, nós estamos nnum nível muito acima da estratégia de negócio, manipulamos o mundo e o mundo nos desconhece!
+
+Não conhecem a total verdade sobre o mundo, não questionam os acontecimentos. Quando ocasionamos uma catastrofe, a fome, a miseria, guerras, interpretam como um acontecimento politico natural, estão de olhos taapdos, não questionam de onde vem esses acontecimentos, quem realmente os produz e com qual intuito.
+
+A guerra é interessante para mante-los distraidos, a fome é ocasionada por diversos meios para mante-los lutando por algo, enquanto damos manutenção em nossos bilioes. O acumulo de nossas riquezas não é consequencia somente de nossos esforços, mas é consequencia das manipulações. 
+
+Ou pensa que uma multidão, que mantemos distraida, vai aceitar usualmente que alguns individuos tenham tanto e outros nada sem nenhuma distração? Sem fomentarmos o grande teatro da violencia? 
+
+A multidão, diziam, é como um bebe num sono leve, no primeiro barulho acordma e fazem um estardalha-lo, precisma ficar dormindo, quase incosncientes, tão distraidos que não se revoltam, não se rebelam, não tomam a riqueza para si, continuam produzindo e dando tudo para nós, nos deleitarmos em requintes e em luxos, para jogarmos dinheiro fora, queimarmos, fazermos piscinas de joias, essa grande fartura, é devida a estarem incosncientes, a não questionarem essa cupula. Enquanto essa cupula existir, teremos hiates, carros luxuosos, um luxo que eles não conhecem e talvez nunca conhecerão.
+
+E gargalhou de forma funesta.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
 Num cenário pós-apocalíptico, uma nova crença se ergue: a de um ser humano capaz de compreender todo o sistema e dominar as máquinas a ponto de aliviar o sofrimento de milhões de pessoas conectadas a ele. O desejo humano pelo paraíso na Terra, pela paz absoluta, chegou ao extremo de atribuir a esse homem poderes sobre-humanos, transformando-o em uma singularidade — uma entidade que transcende os limites da própria humanidade. Assim nasce a figura de Neo, um heroi moderno. No mundo pós-apocalíptico que se segue, manifesta-se a grande ilusão: a espera por uma libertação. O mecanismo político e tecnológico que se sucedeu estava tão proliferado que se tornou complexo de ser driblado depois de estabelecido, e por isso Neo precisou ser criado com capacidades quase sobre-humanas. 
