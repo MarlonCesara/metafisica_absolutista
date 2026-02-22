@@ -7899,7 +7899,7 @@ O fidalgo, a medida que iria participando das reuniões, passou a se questioanar
 
 O fidalgo só chegou a conclusão que só poderia estar doente, e que aquilo era uma grande doença que ainda ninguém nomeou. Uma obsessão por dinheiro de tal proporção, só pode estar associado a uma sintomatica de uma doença. 
 
-
+Fidalgo ficou imaginando porque a humanidade nunca desconfia disto, porque a hummanidade teima em pensar que os milionarios com como tolos que querem seus carros e luxos megalomaniacos, não, são muito mais que isso, a loucura deles nãao é só uma obessão por dinheiro, é muito maior que o povo imagina. 
 
 
 
