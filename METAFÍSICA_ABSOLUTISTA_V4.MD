@@ -8286,6 +8286,20 @@ O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o mot
 
 
 
+> O relativo, não pode ser subdividido, em relativos individuais, ainda que existam muitos observadores. Porém, a determinação de um observador, num estado relativo, isto é, na completude, se diferencia de outros determinadores. Cada determinador, na completude, num estado relativo, é realivo para outro determinador. Isto é, se A é relativo, portanto, para B, A é relativo. Não há um relativo individual para cade determinador. Pois o nada não se subdivide. 
+
+> Portanto, o determinador ainda mantem sua unidade e essencia, de forma a ser um determinador no estado relativo. A unidade, é um auto determiador sobore o relativo indiferenciado, isto quer dizer que há um relativo particular. O absoluto determinado. Ao estar sobre o relativo, com potencial de ação desse relativo, a alma não compete com outro determinador pela ação no mesmos relativo. Pois, sua ação sobre o relativo, estando este em estado puro de indiferenciação é a propria ação inerte de deixa-lo puro. Portanto, a alma, deixando o relativo como tal, sem determinar, já opera sobre todo ele. Desta forma, se determina um relativo. 
+
+> O paralelismo entre relativos no estado de indiferenciação, isto é quando o determinador não determina localidade, distancia de si entre outros. Se dá de forma que, cada relativo torna-se um nada refereciável, isto opoe o relativo não referenciavel.
+
+O relativo fundamental está sob tutela do indiferenciado, enquanto o relativo individual relativiza o todo, outros determinadores e o proprio ente se de sua vontade. Portanto, é sobreposto, com a criação do homem, não somente determinadores, mas uma relativização determinada. No sentido de que a alma, para relativo, ainda é relativa, individualmente. Está a um limite de distancia de outros relativos inalcancável. 
+
+A criação, portanto, não particiona o relativo fundamental, mas produz determinadores que mantem um estado de relativo particular, que relativiza entre eles. Desta forma, um pode ser indetectável para o outro, ainda que aparentemente o relativo seja uma unidade.
+
+O Espaço e tempo, para o relativo fundamental, se todos os relativos determinados estivessem num estado relativo é diferente do Espaço e tempo linear. No espaço e tempo linear duas coisas não podem ocupar o mesmo contexto de forma que não se colidam. Quando se determina outros determinadores sob o relativo fundamental, ou seja, o relativo do Ser, a relatividade se torna numerosa e relacional. Um relativo é relativo para outro relativo, e não somente em si mesmo. Temos portanto uma espacialidade não linear. 
+
+Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico. 
+
 
 
 
