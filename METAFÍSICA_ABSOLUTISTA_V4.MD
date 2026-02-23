@@ -8323,6 +8323,8 @@ O absoluto fundamental é indeterminado.
 
 > Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
 
+> O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
+
 
 
 
