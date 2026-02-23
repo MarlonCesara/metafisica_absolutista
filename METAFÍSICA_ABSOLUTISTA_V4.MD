@@ -8300,8 +8300,8 @@ O Espaço e tempo, para o relativo fundamental, se todos os relativos determinad
 
 Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico. 
 
+> No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel. 
 
-
-
+> Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
 
 
