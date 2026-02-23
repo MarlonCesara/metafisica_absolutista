@@ -8309,6 +8309,14 @@ Desta forma temos para cada relativo, todo o espaço de si, um espaço infindave
 
 Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico. 
 
+> O determinador, num estado relativo, isto é, sem quer determinação, permanece a indeterminação determinada. Isto quer dizer que, até mesmo o absoluto se determina, fazendo com que cada alma seja um absoluto. Isto quer dizer que, o absoluto determinado absoluto, cada um tem a soberania sob seu absoluto individual. 
+
+O absoluto individual, é detectavel, é determinado absoluto, não é transparente a outro absoluto individual. É homogeneo, soluvel. Exemplo: dois absolutos podem se tocar, se misturar, estarem distantes, individualmente.
+
+O absoluto fundamental é indeterminado.
+
+
+
 > No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel. 
 
 > Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
