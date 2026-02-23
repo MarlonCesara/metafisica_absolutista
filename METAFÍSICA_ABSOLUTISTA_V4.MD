@@ -8305,3 +8305,5 @@ Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma 
 > Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
 
 
+
+> Para a cupula niilista não interessa a destruição, o niilista não quer a morte, quer a solução desesperada, tem uma mania. Portanto, é mais provavel uma ferramente de controle em massa, que já se institui como trabalho escravo, miséria, de forma a ser instaurada tecnologicamente. Ou seja, um futuro catastrofico seria imaginado, não como a distruição completa, mas como o uso da tecnologia desenfreado para experimentos, de forma a tentar extrair do humano soluções para crises niilistas.
