@@ -8298,6 +8298,8 @@ A criação, portanto, não particiona o relativo fundamental, mas produz determ
 
 O Espaço e tempo, para o relativo fundamental, se todos os relativos determinados estivessem num estado relativo é diferente do Espaço e tempo linear. No espaço e tempo linear duas coisas não podem ocupar o mesmo contexto de forma que não se colidam. Quando se determina outros determinadores sob o relativo fundamental, ou seja, o relativo do Ser, a relatividade se torna numerosa e relacional. Um relativo é relativo para outro relativo, e não somente em si mesmo. Temos portanto uma espacialidade não linear. 
 
+Desta forma temos para cada relativo, todo o espaço de si, um espaço infindavel, e uma transcendencia para esse mesmo espaço. Ainda que outros relativos estejam no absoluto, o absoluto porta relativos, e ainda é indiferenciado, sendo translucido a essas determinações.
+
 Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico. 
 
 > No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel. 
