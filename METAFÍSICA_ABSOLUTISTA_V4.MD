@@ -7904,7 +7904,7 @@ Desde os tempos da guerra, há táticas de manipulação, como privar as fontes 
 
 O próximo passo da cupula é não precisar mais dispendiar recursos para ocasionar a manipulação, para fazer o ser humano render respostas, render sofrimento. O proximo passo é automatizar a manutenção da escravidão, é não mais dispendiar recursos para lubridiar, enganar. E isto desencadeia de uma forma causal e óbvia as teorias da matrix, a tecnologia em favor da escravidão.
 
-
+A cupula é falha ate a humanidade se dar conta disso, porem, se a manipulação for sistematizada, mecanizada, se houver uma força maior que a força de destruição, que também destroi o niilista, então as preocupações com a descoberta serão desnecessarias. A humanidade, sem ser dominada pela tecnologia, ainda tem meios eficazes de destruir o imperio dos bilionarios, porem, após um dominio massivo através da tecnologia, quais seriam realmente as chances? Portanto, é urgente que, a humanidade conheça os mecanismos da cupula e como ela age. Como se programa e reinventa ao longo da história, e o que pretende. Quais são seus medos, e suas falhas. E quem realmente são. 
 
 
 
