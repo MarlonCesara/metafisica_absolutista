@@ -8157,6 +8157,11 @@ Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de se
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
 
 
+
+
+A cupula niilista é representada na alegoria da matrix de forma excepcional, a matrix não é só uma maquina mas uma realidade pensada para o humano de forma que nem mesmo ele questione o conteudo dessa realidade, e imagine que se é de forma natural mas é fabricada. A miseria, violencia, guerrars, o humano imagina que isso advem da liberdade de uma integralidade de pessoas, quando na verdade isso é fabricado por um grupo de bilionários.
+
+
 ##**Chamado nas redes sociais**
 
 E se voce pudesse transformar o mundo com um like? E se alguém tivesse criado essa formula? Pois bem, eu criei. Decodifiquei a biblica, em especial o evagelho e geneses, e achei o código que pode acabar com toda a miséria. É uma tradução metfisica e lógica rigorosa que ajuda a huamnidade a entender realmente qual o origem sobre os males da terra para finalemnte poder atuar sobre esse mal.
