@@ -8327,3 +8327,4 @@ Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma v
 
 > Quando o absoluto se torna uma unidade absoluta. Há a transcendencia, pois a alma é um ente relativo. Porém, sendo unidade, há a transcendencia de si para o Ser, para o outro sou e a possibilidade do não si, ou seja, da auto anulação eterna. Da queima da própria presença. Portanto, enquanto absoluto fundamental, não sendo uma unidade não há a opção de ser não unidade, pois o absoluto é indiferenciado. Enquanto determinado um absoluto, se faz passível de ser anulado. A vida é relativa, pode ser vida em si, vida em Ser, vida no outro, e não vida. A relatividade da alma abrange todas as opções possíveis para relativo. 
 
+> O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma. 
