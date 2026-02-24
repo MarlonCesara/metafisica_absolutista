@@ -8208,7 +8208,6 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
-## Rascunhos
 
 
 
@@ -8216,10 +8215,7 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
-
-# RASCUNHOS METAFÍSICOS
-
-
+# RASCUNHOS
 
 ## 1. A Presença, o “Sou” e o Relativo
 
@@ -8264,15 +8260,6 @@ Há fenômenos, portanto há instabilidade no relativo. Sendo possível a determ
 
 
 ## 5. Lógica e Absoluto
-
-
-
-
-
-
-
----
-
 
 ## 6. Liberdade, Espírito e Renascimento
 
@@ -8328,12 +8315,7 @@ O absoluto fundamental é indeterminado.
 
 > O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
 
-
-
-
-
 > O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
-
 
 > O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
 
@@ -8341,4 +8323,7 @@ A humanidade se afungenta na catastrofe dos que se afogam, e se agarram com toda
 
 Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma visão metafisica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espírituais do niilismo, porém atua fortemente na organização social uma vez essa sintomatica social sendo compreendida, a soeciedade desenvolverá formas de lidar e de barrar a ação niilista. Uma politica com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De mosntros, causadores e manipulaores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma politica atráves do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, alem de disporem de um mundo que os incentiva a melhora a cada dia.
 
+
+
+> Quando o absoluto se torna uma unidade absoluta. Há a transcendencia, pois a alma é um ente relativo. Porém, sendo unidade, há a transcendencia de si para o Ser, para o outro sou e a possibilidade do não si, ou seja, da auto anulação eterna. Da queima da própria presença. Portanto, enquanto absoluto fundamental, não sendo uma unidade não há a opção de ser não unidade, pois o absoluto é indiferenciado. Enquanto determinado um absoluto, se faz passível de ser anulado. A vida é relativa, pode ser vida em si, vida em Ser, vida no outro, e não vida. A relatividade da alma abrange todas as opções possíveis para relativo. 
 
