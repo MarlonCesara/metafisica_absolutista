@@ -2527,13 +2527,11 @@ Portanto, temos a sintese do relativo, que é o nada indiferenciado, e do Espír
 
 
 
+### **PROPOSIÇÃO VIII: O ESPÍRITO INDIFERENCIADO E SUA AÇÃO INDIFERENCIADA**
 
+Como, portanto, o espírito sendo puro, tem propriedades como atemporalidade e temporalidade? Como o espírito possui substancia para que se configure aspectos em si como o atemporal e o temporal se é puro?
 
-
-
-
-
-
+Diferenciemos então, portanto, a substancia do Espírito, no sentido de que, o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivencia levada a ultiam instancia, na qual nem mesmo precisa de si, não dispensa os aspectos temporais, dispensa, no entanto, a necessidade de si num sentido superior. O Si, do Ser, está para alem da necessidade dele mesmo, mas não alem da necessidade da presença, da vida. O Ser é vivo, ainda seja indiferenciado, ou seja, uma vida relativa, uma vida superior a definição ontológica convencional. 
 
 
 
@@ -8329,4 +8327,14 @@ O absoluto fundamental é indeterminado.
 > O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspecacia, e estratégias para passar na frente em situações economicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua indole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu proprio proposito de vingança, se houver, ao passo que o faz se sentir diminuido.
 
 > O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
+
+
+
+
+
+> O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
+
+
+> O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
+
 
