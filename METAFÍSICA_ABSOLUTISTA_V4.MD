@@ -7906,8 +7906,17 @@ A cupula é falha ate a humanidade se dar conta disso, porem, se a manipulação
 
 
 
+### O conselho niilista - A reunião
 
+Um deles se levanta da cadeira e começa a comentar como melhorar os processos, a fabricação, e de forma fria começa a relevar todas as estratégias possíveis de crescimento das fortunas.
 
+Apontando para o quadro, de forma fria, o lider da cupula começa a falar:
+
+- Há um grande problema na multidão e se chama: raciocinio lógico, ao retirarmos a capacidade do ser humano raciocinar, garantimos o imperio que construimos. Pela tecnologia ainda não é possível eliminar essa capacidade que atrapalha o enrriquecimento. Como tirar o raciocinio de um povo?
+
+Atacando pela tecnologia ainda não é possível, vamos, portanto, acabar com a vida academica, depreciar a mão de obra especializada. ou sobrecarregar um país de trabalho também impede esse país de pensar, torna-se apenas produtivo. 
+
+O lider frio enxergou o mundo como um chão de fabrica e os seres humanos como seres maquinais, conduzidos, partes de um ritmo de produção. Pensa nos seres humanos como uma manada que precisa, por um ponto de vista estratégico, ser trabalhada de forma a aumentar a produtividade. E ve, no pensar, no raciocinio, um problema, uma ameaça as grandes intituições.
 
 
 
