@@ -8326,5 +8326,7 @@ O absoluto fundamental é indeterminado.
 > O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
 
 
+> O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. 
 
+> O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
 
