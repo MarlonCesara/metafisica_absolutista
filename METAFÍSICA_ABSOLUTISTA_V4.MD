@@ -7928,6 +7928,8 @@ Todo artista fortemente famoso precisa nos representar, se não, não o seria. N
 
 Também incentivamos o preoconceito. Provocando o ódio.
 
+Como produzir pessoas cheio de revolta, sem pais separados? Como influenciar os jovens pela musica com boas tutorias sobre eles? Como formar um pensamento voltado para produlção de violencia, de escravos do crime, de pessoas sem educação, sem bons conselhos, com a familia unida? Então, o alvo para produzir a violencia desde os tempos antigos, e o ataque ao antro familiar, a base principal da sociedade. A popularização de desvalores entre os jovens é um meio barato de produzir uma violencia sem grandes investimentos, pois também não temos um dinheiro ilimitado para financiar guerras. Basta a doação de um arcenal de armas, individuos revoltodos e fazemos uma facção, que aterroriza e distrai a população, volta os olhos do povo para a catastrofe.
+
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
 Num cenário pós-apocalíptico, uma nova crença se ergue: a de um ser humano capaz de compreender todo o sistema e dominar as máquinas a ponto de aliviar o sofrimento de milhões de pessoas conectadas a ele. O desejo humano pelo paraíso na Terra, pela paz absoluta, chegou ao extremo de atribuir a esse homem poderes sobre-humanos, transformando-o em uma singularidade — uma entidade que transcende os limites da própria humanidade. Assim nasce a figura de Neo, um heroi moderno. No mundo pós-apocalíptico que se segue, manifesta-se a grande ilusão: a espera por uma libertação. O mecanismo político e tecnológico que se sucedeu estava tão proliferado que se tornou complexo de ser driblado depois de estabelecido, e por isso Neo precisou ser criado com capacidades quase sobre-humanas. 
