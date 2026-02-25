@@ -7762,6 +7762,8 @@ O niilista deleita-se da guerra como se fosse um conteúdo peculiar, como se vis
 
 A cúpula niilista precisa que exista fome, faz com que a humanidade gaste com fatores desnecessários, faz com que a energia social de construção se dissolva em atividades inúteis quando a subsistência deveria ganhar primazia.
 
+
+
 ### **A porta do céu é estreita**
 
 Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilionários, que muitas vezes causam o mal, não possuem a mesma habilidade. O povo humilde e sofredor, que é oprimido, detém uma habilidade infinita e a mais fundamental de todas: o dom de viver.
@@ -7893,6 +7895,8 @@ Sem toda a manipulação da cupula, a politica realmente entra em vigor, e pode 
 
 
 
+
+
 > Para a cupula niilista não interessa a destruição, o niilista não quer a morte, quer a solução desesperada, tem uma mania. Portanto, é mais provavel uma ferramente de controle em massa, que já se institui como trabalho escravo, miséria, de forma a ser instaurada tecnologicamente. Ou seja, um futuro catastrofico seria imaginado, não como a distruição completa, mas como o uso da tecnologia desenfreado para experimentos, de forma a tentar extrair do humano soluções para crises niilistas.
 
 > A cupula não vive de negócios, de visões de negócios inovadoras que todos podem conhecer e copiar, vive de estratégias, de tramas contra a humanidade. Vive de enganações. A cupula não vende negócios, vende planos, ideias, tramas que fazem com que seja dificil de competir, dificil para que um trabalhador chege no mesmo patamar. Trabalha com tramas para bloquear o poder de questionamento da população. As tragédias como guerra e fome não acontecem naturalmente pelo capitalismo, são fabricadas intencionalmente, bem pensadas, articuladas. As decisões politicas da guerra estratégicamente pensadas por uma organização que se une contra a humanidade. E essa organização permanece oculta, longe da desconfiança. A humanidade só enxerga as diferenças sociais, o acumulo, mas não enxerga o potencial de manipulação que tem o poder economico e o fato de poderem se unir estrategicamente para manipulações massivas.
@@ -7918,8 +7922,11 @@ Atacando pela tecnologia ainda não é possível, vamos, portanto, acabar com a 
 
 O lider frio enxergou o mundo como um chão de fabrica e os seres humanos como seres maquinais, conduzidos, partes de um ritmo de produção. Pensa nos seres humanos como uma manada que precisa, por um ponto de vista estratégico, ser trabalhada de forma a aumentar a produtividade. E ve, no pensar, no raciocinio, um problema, uma ameaça as grandes intituições.
 
+O lider frio continuou dizendo: familias separadas geram pessoas que praticam a violencia com mais facilidade, conforme pesquisa. Então investimos em midia, em artistas que tirem o significado da familia, que tornem comum e banal a separação entre casais, que levem as crianças a uma sexualidade precoce. Os jovens pensam estar escutando musica moderna, pensam que, se é amplamente divulgado isso é bom, pois foi espalhado por ser bom, mas o que os jovens não sabem é que não escutam musica boa, escutam o que nos produzimos para que escutem, e dizem que isso é moderno é bom. Porém, tudo isso é objeto de repasse de mensagens que produzem os agentes da violencia, pessoas com uma emotividade que tem propensão a aceitação de serem criminosas. E o crime, é um grande distrator.
 
+Todo artista fortemente famoso precisa nos representar, se não, não o seria. Nós dominamos até mesmo a arte. E o artista que resiste, é duramente criticado, pois nós fomentamos a opinião pulbica, nos provocamos cancelamentos, assédio em excesso no artista. Os artistas que querem realmente ser famosos, precisam repassar paradigmas, como vida sexual sem significado, desunião familiar pratica, desfiguração do sentido do sexo. Tudo isso passa uma cultura de desunião familiar, o seio familiar é a base social, e é isto que atacamos para gerar fomentadores da distração, para gerar pessoas revoltadas.
 
+Também incentivamos o preoconceito. Provocando o ódio.
 
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
