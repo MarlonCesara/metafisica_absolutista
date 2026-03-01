@@ -8359,3 +8359,6 @@ Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma v
 
 
 > Definição de absoluto: O abosoluto, se sintetiza mediante ao pensamento filosófico como base em duas linhas de pensamento, o lógico e ilógico. Portanto, através dessas vias, é possível inferir o absoluto como a totalidade, aquilo que há ou não há. É referente ao que está, ao estado ou não estado primordial. Ao pensarmos num não universo, o que haveria de fato, pelo ponto de vista lógico? Seria o nada? O tudo? A projeção do que haveria se o universo não existisse é o absoluto. 
+
+
+> Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
