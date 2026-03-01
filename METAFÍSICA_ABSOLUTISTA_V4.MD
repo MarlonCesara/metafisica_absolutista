@@ -8352,3 +8352,10 @@ Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma v
 
 > O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
 
+
+
+
+
+
+
+> Definição de absoluto: O abosoluto, se sintetiza mediante ao pensamento filosófico como base em duas linhas de pensamento, o lógico e ilógico. Portanto, através dessas vias, é possível inferir o absoluto como a totalidade, aquilo que há ou não há. É referente ao que está, ao estado ou não estado primordial. Ao pensarmos num não universo, o que haveria de fato, pelo ponto de vista lógico? Seria o nada? O tudo? A projeção do que haveria se o universo não existisse é o absoluto. 
