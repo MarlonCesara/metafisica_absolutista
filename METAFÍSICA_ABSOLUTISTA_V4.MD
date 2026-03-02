@@ -8362,3 +8362,7 @@ Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma v
 
 
 > Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
+
+
+
+> Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
