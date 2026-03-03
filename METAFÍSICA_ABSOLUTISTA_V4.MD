@@ -241,7 +241,7 @@ Esta distinção fundamental estabelece a arquitetura última do conhecimento:
 
 #### **Os Domínios Ontológicos Fundamentais: Possibilidade e Impossibilidade**
 
-A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Estes domínios são definidos pela sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
+A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Esses domínios são definidos por sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível. O absoluto se sintetiza, mediante o pensamento filosófico, com base em duas linhas de pensamento: o lógico e o ilógico. Portanto, por meio dessas vias, é possível inferir o absoluto como a totalidade, aquilo que há ou não há. Refere-se ao que está, ao estado ou não estado primordial. Ao pensarmos em um não universo, o que haveria, de fato, do ponto de vista lógico? Seria o nada? O tudo? A projeção do que haveria ou não haveria se o universo não existisse é o Absoluto.
 
 ### **O Domínio da Possibilidade: A Esfera da Existência Lógica**
 
@@ -347,6 +347,8 @@ A incorporação do incognoscível no Absoluto não é uma concessão ao irracio
 A admissão do incognoscível não enfraquece a filosofia; pelo contrário, **fortalece-a ao evitar reducionismos**. Se o cognoscível é o campo da razão, o incognoscível é o lembrete de que a realidade ultrapassa qualquer sistema. Essa dualidade não é contraditória, mas **complementar** — como a luz que, ao mesmo tempo que revela, projeta sombras onde a visão não alcança.
 
 Reconhecer o incognoscível não invalida a investigação filosófica do Absoluto em seu âmbito cognoscível; antes, confere-lhe integridade epistemológica ao demarcar os limites intrínsecos da razão. Essa admissão não representa resignação, mas consciência metafísica: compreende-se que o entendimento sistemático, por mais abrangente, permanece aberto à transcendência — não como falha, mas como horizonte necessário do pensamento.
+
+
 
 
 
@@ -516,6 +518,17 @@ Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fu
 
 
 ### **PROPOSIÇÃO V: **A Natureza Pessoal do Autocausal**
+
+**Max Scheler**, em *A Ideia do Homem e do Eterno*, argumentou que a pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade.
+
+Vamos explorar primeiramente a autocosnciencia, acrescentando também a necessidade de auto dominio, auto conhecimento, auto presença e liberdade.
+
+A auto-consciencia é a presença viva. O auto conhecimento é conhecer-se totalmente para determinar-se totalmente. E a liberdade é a capacidade de Fundar-se, plenificar-se e personalizar-se. A intecionalidade é ser necessário.
+
+> Está em tudo - Presente completamente em sim mesmo, com uma presença viva.
+> Sabe tudo - Conhece-se inteiramente para haver ação.
+> Dominio - Tudo pode em si mesmo.
+
 
 A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
 
@@ -8235,7 +8248,7 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 # RASCUNHOS
 
-## 1. A Presença, o “Sou” e o Relativo
+## 1. Presença, “Sou” e Relativo
 
 A presença do Espírito é transparente, ela transpassa o sou. Porém, a presença do sou é unificada. O sou tem autodomínio, autopresença e autoconhecimento.
 
@@ -8243,43 +8256,96 @@ A presença, no relativo, é contraparte do relativo, de forma que a presença e
 
 A presença, portanto, tem força sobre si mesma e não somente sobre o campo relativo. Pois a presença está sob um relativo individual, e não em um relativo individual. A presença é o próprio relativo, não apenas tem um relativo. Desta forma, a presença tem a vazão de si mesma, não está confinada em si, mas tem uma autonomia não somente sobre o campo das possibilidades, como sobre si mesma.
 
+O relativo, não pode ser subdividido, em relativos individuais, ainda que existam muitos observadores. Porém, a determinação de um observador, num estado relativo, isto é, na completude, se diferencia de outros determinadores. Cada determinador, na completude, num estado relativo, é realivo para outro determinador. Isto é, se A é relativo, portanto, para B, A é relativo. Não há um relativo individual para cade determinador. Pois o nada não se subdivide.
 
-## 2. Unidade, Dualidade e Consciência
+Portanto, o determinador ainda mantem sua unidade e essencia, de forma a ser um determinador no estado relativo. A unidade, é um auto determiador sobore o relativo indiferenciado, isto quer dizer que há um relativo particular. O absoluto determinado. Ao estar sobre o relativo, com potencial de ação desse relativo, a alma não compete com outro determinador pela ação no mesmos relativo. Pois, sua ação sobre o relativo, estando este em estado puro de indiferenciação é a propria ação inerte de deixa-lo puro. Portanto, a alma, deixando o relativo como tal, sem determinar, já opera sobre todo ele. Desta forma, se determina um relativo.
 
-> Eu sou você e você sou eu. Na união da dualidade não há duas consciências, há uma só. E desse total encontro há uma terceira consciência. O Eu é relativo, no sentido de que o indivíduo pode se anular, pode se misturar ao outro.
+O paralelismo entre relativos no estado de indiferenciação, isto é quando o determinador não determina localidade, distancia de si entre outros. Se dá de forma que, cada relativo torna-se um nada refereciável, isto opoe o relativo não referenciavel.
+
+O relativo fundamental está sob tutela do indiferenciado, enquanto o relativo individual relativiza o todo, outros determinadores e o proprio ente se de sua vontade. Portanto, é sobreposto, com a criação do homem, não somente determinadores, mas uma relativização determinada. No sentido de que a alma, para relativo, ainda é relativa, individualmente. Está a um limite de distancia de outros relativos inalcancável.
+
+A criação, portanto, não particiona o relativo fundamental, mas produz determinadores que mantem um estado de relativo particular, que relativiza entre eles. Desta forma, um pode ser indetectável para o outro, ainda que aparentemente o relativo seja uma unidade.
+
+O Espaço e tempo, para o relativo fundamental, se todos os relativos determinados estivessem num estado relativo é diferente do Espaço e tempo linear. No espaço e tempo linear duas coisas não podem ocupar o mesmo contexto de forma que não se colidam. Quando se determina outros determinadores sob o relativo fundamental, ou seja, o relativo do Ser, a relatividade se torna numerosa e relacional. Um relativo é relativo para outro relativo, e não somente em si mesmo. Temos portanto uma espacialidade não linear.
+
+Desta forma temos para cada relativo, todo o espaço de si, um espaço infindavel, e uma transcendencia para esse mesmo espaço. Ainda que outros relativos estejam no absoluto, o absoluto porta relativos, e ainda é indiferenciado, sendo translucido a essas determinações.
+
+Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico.
+
+O determinador, num estado relativo, isto é, sem quer determinação, permanece a indeterminação determinada. Isto quer dizer que, até mesmo o absoluto se determina, fazendo com que cada alma seja um absoluto. Isto quer dizer que, o absoluto determinado absoluto, cada um tem a soberania sob seu absoluto individual.
+
+O absoluto individual, é detectavel, é determinado absoluto, não é transparente a outro absoluto individual. É homogeneo, soluvel. Exemplo: dois absolutos podem se tocar, se misturar, estarem distantes, individualmente.
+
+O absoluto fundamental é indeterminado.
+
+## 2. Unidade, Dualidade e Fusão das Almas
+
+Eu sou você e você sou eu. Na união da dualidade não há duas consciências, há uma só. E desse total encontro há uma terceira consciência. O Eu é relativo, no sentido de que o indivíduo pode se anular, pode se misturar ao outro.
 
 No coração da dualidade há um X. Ou seja, o coração de uma das almas terá um X no encontro com outra.
 
-> A alma é totalmente livre para ser outra, sair de si ou ser mais que si.
+A alma é totalmente livre para ser outra, sair de si ou ser mais que si.
 
+No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel.
 
-## 3. Corrupção, Morte e Herança
+Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
 
-> A herança da corrupção foi a possibilidade da anulação da alma.
+## 3. Corrupção, Morte e Nada
 
-> Adão e Eva morreram para se unir para sempre. Herdamos a morte como um gesto de amor, no qual morreríamos para nos unir com o outro. Como se tivéssemos sucedido a mesma paixão. Como se o universo nos exortasse, de alguma forma, a ter a mesma experiência romântica.
+A herança da corrupção foi a possibilidade da anulação da alma.
+
+Adão e Eva morreram para se unir para sempre. Herdamos a morte como um gesto de amor, no qual morreríamos para nos unir com o outro. Como se tivéssemos sucedido a mesma paixão. Como se o universo nos exortasse, de alguma forma, a ter a mesma experiência romântica.
 
 O nada é uma anulação da substância, um estado da substância anulada.
 
+## 4. Fundamento, Causa e Absoluto
 
-## 4. Fundamento, Causa e Substância
 
-> A realidade tem uma causa, pois a determinação exige uma causa. A substância, se existe, já se dá autocausada. Pois, se existe, existe em razão.
+No relativo, há um sentimento completo de paz e plenitude. A completude.
 
-> Se o absoluto naturalmente existe, absoluto é autocausado e autodeterminado. Pois A necessita de uma causa para ser A e não B, tal como precisa de uma causa para ser A ou não A.
-
-> No relativo, há um sentimento completo de paz e plenitude. A completude.
-
-> O relativo se dá naturalmente, sem causa, e seu estatuto positivo de perfeito equilíbrio tem uma causa, que está efetivamente em conjunto com sua ação positiva. O relativo é porque há uma razão em si para tal, uma causa. Sua necessidade ontológica não dispensa a necessidade de ser autocausal, em vista que sua positividade é intacta como é, e não está em desequilíbrio.
+O relativo se dá naturalmente, sem causa, e seu estatuto positivo de perfeito equilíbrio tem uma causa, que está efetivamente em conjunto com sua ação positiva. O relativo é porque há uma razão em si para tal, uma causa. Sua necessidade ontológica não dispensa a necessidade de ser autocausal, em vista que sua positividade é intacta como é, e não está em desequilíbrio.
 
 Não há eleita uma de suas formas, ou determinado um estado para o relativo; portanto, a causa de sua estabilidade é a si mesmo, tal como é também a causa de qualquer instabilidade, isto é, qualquer determinação em si.
 
 Há fenômenos, portanto há instabilidade no relativo. Sendo possível a determinação, há uma causa para a não determinação. E esta causa existe incausada, tal como o relativo. Tem sua ação sem ser necessário o sujeito da ação, é conforme o que é. É um determinador altíssimo. Sua ação é efetivada sem a necessidade do determinador. Seu determinador é dissolvido na completude e entregue conforme o que é.
 
 
-## 5. Lógica e Absoluto
 
-## 6. Liberdade, Espírito e Renascimento
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+A realidade tem uma causa, pois a determinação exige uma causa. A substância, se existe, já se dá autocausada. Pois, se existe, existe em razão.
+
+Se o absoluto naturalmente existe, absoluto é autocausado e autodeterminado. Pois A necessita de uma causa para ser A e não B, tal como precisa de uma causa para ser A ou não A.
+
+
+
+
+
+
+
+
+
+
+O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma.
+
+Quando o absoluto se torna uma unidade absoluta. Há a transcendencia, pois a alma é um ente relativo. Porém, sendo unidade, há a transcendencia de si para o Ser, para o outro sou e a possibilidade do não si, ou seja, da auto anulação eterna. Da queima da própria presença. Portanto, enquanto absoluto fundamental, não sendo uma unidade não há a opção de ser não unidade, pois o absoluto é indiferenciado. Enquanto determinado um absoluto, se faz passível de ser anulado. A vida é relativa, pode ser vida em si, vida em Ser, vida no outro, e não vida. A relatividade da alma abrange todas as opções possíveis para relativo.
+
+## 5. Liberdade, Espírito e Renascimento
 
 O Espírito não pode se nadificar, pois é instaurado pela existência, é conforme o absoluto.
 
@@ -8287,82 +8353,26 @@ O renascimento pelo espírito continua um mistério. O indivíduo nasce, porém 
 
 O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se não fosse vivo.
 
+O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
 
+## 6. Niilismo, Crise e Sociedade
 
+O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
 
-> O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
+O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspecacia, e estratégias para passar na frente em situações economicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua indole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu proprio proposito de vingança, se houver, ao passo que o faz se sentir diminuido.
 
+O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
 
+O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
 
+O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
 
-
-
-
-> O relativo, não pode ser subdividido, em relativos individuais, ainda que existam muitos observadores. Porém, a determinação de um observador, num estado relativo, isto é, na completude, se diferencia de outros determinadores. Cada determinador, na completude, num estado relativo, é realivo para outro determinador. Isto é, se A é relativo, portanto, para B, A é relativo. Não há um relativo individual para cade determinador. Pois o nada não se subdivide. 
-
-> Portanto, o determinador ainda mantem sua unidade e essencia, de forma a ser um determinador no estado relativo. A unidade, é um auto determiador sobore o relativo indiferenciado, isto quer dizer que há um relativo particular. O absoluto determinado. Ao estar sobre o relativo, com potencial de ação desse relativo, a alma não compete com outro determinador pela ação no mesmos relativo. Pois, sua ação sobre o relativo, estando este em estado puro de indiferenciação é a propria ação inerte de deixa-lo puro. Portanto, a alma, deixando o relativo como tal, sem determinar, já opera sobre todo ele. Desta forma, se determina um relativo. 
-
-> O paralelismo entre relativos no estado de indiferenciação, isto é quando o determinador não determina localidade, distancia de si entre outros. Se dá de forma que, cada relativo torna-se um nada refereciável, isto opoe o relativo não referenciavel.
-
-O relativo fundamental está sob tutela do indiferenciado, enquanto o relativo individual relativiza o todo, outros determinadores e o proprio ente se de sua vontade. Portanto, é sobreposto, com a criação do homem, não somente determinadores, mas uma relativização determinada. No sentido de que a alma, para relativo, ainda é relativa, individualmente. Está a um limite de distancia de outros relativos inalcancável. 
-
-A criação, portanto, não particiona o relativo fundamental, mas produz determinadores que mantem um estado de relativo particular, que relativiza entre eles. Desta forma, um pode ser indetectável para o outro, ainda que aparentemente o relativo seja uma unidade.
-
-O Espaço e tempo, para o relativo fundamental, se todos os relativos determinados estivessem num estado relativo é diferente do Espaço e tempo linear. No espaço e tempo linear duas coisas não podem ocupar o mesmo contexto de forma que não se colidam. Quando se determina outros determinadores sob o relativo fundamental, ou seja, o relativo do Ser, a relatividade se torna numerosa e relacional. Um relativo é relativo para outro relativo, e não somente em si mesmo. Temos portanto uma espacialidade não linear. 
-
-Desta forma temos para cada relativo, todo o espaço de si, um espaço infindavel, e uma transcendencia para esse mesmo espaço. Ainda que outros relativos estejam no absoluto, o absoluto porta relativos, e ainda é indiferenciado, sendo translucido a essas determinações.
-
-Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico. 
-
-> O determinador, num estado relativo, isto é, sem quer determinação, permanece a indeterminação determinada. Isto quer dizer que, até mesmo o absoluto se determina, fazendo com que cada alma seja um absoluto. Isto quer dizer que, o absoluto determinado absoluto, cada um tem a soberania sob seu absoluto individual. 
-
-O absoluto individual, é detectavel, é determinado absoluto, não é transparente a outro absoluto individual. É homogeneo, soluvel. Exemplo: dois absolutos podem se tocar, se misturar, estarem distantes, individualmente.
-
-O absoluto fundamental é indeterminado.
-
-
-
-> No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel. 
-
-> Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
-
-> O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
-
-
-> O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspecacia, e estratégias para passar na frente em situações economicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua indole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu proprio proposito de vingança, se houver, ao passo que o faz se sentir diminuido.
-
-> O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
-
-> O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
-
-> O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
-
-A humanidade se afungenta na catastrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violencia que disfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade. 
+A humanidade se afungenta na catastrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violencia que disfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
 
 Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma visão metafisica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espírituais do niilismo, porém atua fortemente na organização social uma vez essa sintomatica social sendo compreendida, a soeciedade desenvolverá formas de lidar e de barrar a ação niilista. Uma politica com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De mosntros, causadores e manipulaores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma politica atráves do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, alem de disporem de um mundo que os incentiva a melhora a cada dia.
 
+Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
 
+O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
 
-> Quando o absoluto se torna uma unidade absoluta. Há a transcendencia, pois a alma é um ente relativo. Porém, sendo unidade, há a transcendencia de si para o Ser, para o outro sou e a possibilidade do não si, ou seja, da auto anulação eterna. Da queima da própria presença. Portanto, enquanto absoluto fundamental, não sendo uma unidade não há a opção de ser não unidade, pois o absoluto é indiferenciado. Enquanto determinado um absoluto, se faz passível de ser anulado. A vida é relativa, pode ser vida em si, vida em Ser, vida no outro, e não vida. A relatividade da alma abrange todas as opções possíveis para relativo. 
-
-> O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma. 
-
-
-
-
-> O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
-
-
-
-
-
-
-
-> Definição de absoluto: O abosoluto, se sintetiza mediante ao pensamento filosófico como base em duas linhas de pensamento, o lógico e ilógico. Portanto, através dessas vias, é possível inferir o absoluto como a totalidade, aquilo que há ou não há. É referente ao que está, ao estado ou não estado primordial. Ao pensarmos num não universo, o que haveria de fato, pelo ponto de vista lógico? Seria o nada? O tudo? A projeção do que haveria se o universo não existisse é o absoluto. 
-
-
-> Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
-
-
-
-> Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
+Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
