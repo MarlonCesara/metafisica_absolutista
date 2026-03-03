@@ -8295,10 +8295,9 @@ Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro
 ## 3. Corrupção, Morte e Nada
 
 A herança da corrupção foi a possibilidade da anulação da alma.
-
 Adão e Eva morreram para se unir para sempre. Herdamos a morte como um gesto de amor, no qual morreríamos para nos unir com o outro. Como se tivéssemos sucedido a mesma paixão. Como se o universo nos exortasse, de alguma forma, a ter a mesma experiência romântica.
-
 O nada é uma anulação da substância, um estado da substância anulada.
+O pecado original é a contingencia, o rompimento do amor perfeito a seres possívelmente não perfeitos - contingentes.
 
 ## 4. Fundamento, Causa e Absoluto
 
@@ -8378,3 +8377,8 @@ Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo
 O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
 
 Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
+
+
+
+
+> 
