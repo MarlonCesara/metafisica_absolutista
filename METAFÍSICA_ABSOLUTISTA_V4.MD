@@ -521,6 +521,8 @@ Esta tríade de propriedades constitui a essência mesma do Absoluto enquanto fu
 
 **Max Scheler**, em *A Ideia do Homem e do Eterno*, argumentou que a pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade.
 
+Deus é a perfeição entregue ao Ser, ao seu próprio statuto, não por aprisionamento, mas por um amor perfeito e indestrutivel.
+
 Vamos explorar primeiramente a autocosnciencia, acrescentando também a necessidade de auto dominio, auto conhecimento, auto presença e liberdade.
 
 A auto-consciencia é a presença viva. O auto conhecimento é conhecer-se totalmente para determinar-se totalmente. E a liberdade é a capacidade de Fundar-se, plenificar-se e personalizar-se. A intecionalidade é ser necessário.
