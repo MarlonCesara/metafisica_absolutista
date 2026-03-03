@@ -8381,4 +8381,9 @@ Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia nes
 
 
 
-> 
+
+- Os anjos são projeções que não podem se materializar, portanto, sua liberdade é projetada e não constituida. São projeções purissimas da individualização do absoluto. Projeções que obtem teor de liberdade incultido na própria projeção, por isso, não constituido. Então possuiem obediencia a nível absoluto. São criados sob uma perspectiva de liberdade, e não sobre a liberdade constitutiva. Portanto, não podem desobedecer, possuem um conhecimento avançado, e não podem assumir formas materiais se não designado a seu intuito projetado. 
+
+
+- Quando Jesus fala sobre os homens que serão como os anjos, não responde a pergunta, diz que serão conforme sua projeção para tal. Jesus dá uma resposta evasiva. Pois o humano queria mais do que é preciso para a religião. 
+
