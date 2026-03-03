@@ -270,6 +270,23 @@ O sistema resultante é mais completo e rigoroso que qualquer um desses preceden
 ---
 ---
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## PROPOSIÇÃO III: DO ABSOLUTO COMO HORIZONTE METAFÍSICO
 
 ### 1. Introdução: A Exigência de um Fundamento Absoluto
@@ -282,10 +299,16 @@ Esta Proposição III investiga a natureza deste Absoluto. Se ele é a condiçã
 
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
+A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Esses domínios são definidos por sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível.
+
+O Absoluto se sintetiza, mediante o pensamento filosófico, com base em duas linhas de pensamento: o lógico e o ilógico. Portanto, por meio dessas vias, é possível inferir o Absoluto como a totalidade, aquilo que há ou não há. Refere-se ao que está, ao estado — ou não estado — primordial.
+
+Ao pensarmos em um não universo, o que haveria, de fato, do ponto de vista lógico? Seria o nada? O fenômeno? A projeção do que haveria ou não haveria, se o universo não existisse, é o Absoluto. Essa é uma forma mais facilitada de pensar no Absoluto.
+
 Ao examinar sua natureza, emergem três categorias radicais que antecedem e fundamentam até mesmo noções como "ente" ou "essência":
-1.  **Possibilidade:** O domínio do pensável, conforme delimitado pelas leis lógicas.
-2.  **Impossibilidade:** O domínio do impensável, aquilo que viola as leis lógicas.
-3.  **Incognoscível:** O domínio que transcende inteiramente a estrutura do pensamento e da linguagem.
+1.  **Possibilidade:** O domínio do pensável conforme delimitado pelas leis lógicas. O domínio do ontologicamente realizável, circunscrito pelas leis lógicas fundamentais.
+2.  **Impossibilidade:** Aquilo que viola as leis lógicas. O domínio do impensável enquanto conteúdo coerente, porém formalmente referenciável pela razão; aquilo cuja definição viola as leis lógicas, mas cuja contradição pode ser identificada e nomeada.
+3.  **Incognoscível:** Designa-se aqui o domínio que se situa para além de toda e qualquer estrutura do pensamento, da linguagem e da referência conceitual. É, por definição, o absolutamente inacessível à razão discursiva, ainda que sua existência possa ser pressentida ou sugerida por vias não conceituais — intuição, silêncio ou experiência imediata. Este domínio não será mobilizado como ferramenta analítica, justamente por sua irredutibilidade ao pensamento; sua admissão, porém, cumpre uma função epistemológica e ontológica fundamental: a de reconhecer os limites intrínsecos da razão diante da plenitude do real. 
 
 ### 3. O Mapa da Realidade Cognoscível e Transcendente
 
@@ -457,6 +480,34 @@ A Proposição III sintetiza estas tradições em um sistema coerente:
 5.  **De Jaspers e Levinas** herdamos a dimensão existencial e ética do encontro com o mistério.
 
 O sistema resultante não é eclético, mas **sistemático**: demonstra como estas diferentes abordagens correspondem a diferentes aspectos da mesma estrutura ontológica — o Absoluto como horizonte metafísico total que contém tanto o cognoscível quanto o incognoscível em relação dinâmica e complementar.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ---
 ---
