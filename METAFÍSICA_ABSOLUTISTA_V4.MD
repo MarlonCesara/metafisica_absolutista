@@ -8387,3 +8387,6 @@ Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia nes
 
 - Quando Jesus fala sobre os homens que serão como os anjos, não responde a pergunta, diz que serão conforme sua projeção para tal. Jesus dá uma resposta evasiva. Pois o humano queria mais do que é preciso para a religião. 
 
+
+
+- A cupula niilista induz o homem a esvazia o relacionamento de sentido, a tornar trivial a separaão, a normalizar, a disassociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mutuo de compreenssão. Artistas são impelidos a separação na tentativa de banalizar para o mundo, o arquetipo de familia, a construação familiar. O que causa intencionalmente individuos mal formados moralmente, alienados quanto a seu auto valor e propensos a criminalidade ou a desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhoes a um politico. O artista, tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança intituida, sem investigação ta como a figura de um politico, e de facil acesso popular e assédio. Tal como facil manipulação e ameaça.
