@@ -168,6 +168,10 @@ O **Princípio da Não-Disformidade** emerge, portanto, não como uma invenção
 
 
 
+
+
+
+
 ## PROPOSIÇÃO II: DOS PRINCÍPIOS LÓGICOS AOS PRINCÍPIOS CAUSAIS
 
 ### 1. Introdução: A Transição da Lógica para a Metafísica
@@ -831,7 +835,17 @@ O resultado é uma **demonstração necessária**: se aceitamos os princípios l
 
 
 
-## PROPOSIÇÃO V: A LIBERDADE DO ABSOLUTO
+
+
+
+
+
+
+
+
+
+
+## PROPOSIÇÃO V: A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO
 
 ### 1. Introdução: Da Natureza à Ação
 
