@@ -404,6 +404,14 @@ Ao inferir que o absoluto é causa de si mesmo, isto é, tem todas as propriedad
 
 Se o absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o absoluto é Ser, é necessário que isso se justifique em si da mesma forma.
 
+A realidade tem uma causa, pois a determinação exige uma causa. A substância, se existe, já se dá autocausada. Pois, se existe, existe relativo a um estado ou forma, e este estado ou forma tem uma razão suficiente para ser como tal.
+
+Se o absoluto naturalmente existe, absoluto é autocausado e autodeterminado. Pois A necessita de uma causa para ser A e não B, tal como precisa de uma causa para ser A ou não A.
+
+Até mesmo no descumprimento da lógica classica, se um ente é A e B ao mesmo tempo. Ou se existe e não existe ao mesmo tempo. Isto necessitaria de uma causa fundamental para tal estado. Poruqe A = Não A, e não A = A? Pois, para qualquer estado para absoluto, ou para qualquer existencia positiva há uma causa para existir ou ser como se é.
+
+Até mesmo num estado de indeterminação total, onde não há forma, está indeterminação necessitaria de uma causa para ser como tal e não uma determinação.
+
 #### **A Natureza Autofundante do Absoluto**
 
 O Absoluto possui uma natureza **autofundante** que transcende as categorias convencionais de causalidade:
@@ -980,6 +988,8 @@ O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitu
 Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autodeterminação divinas.
 
 
+
+Ao compararmos com a conceitos doutrinarios, podemos interpretar o pai como a força fundante. O filho como a personalização. E o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
 
 
 
@@ -8449,6 +8459,12 @@ No encontro entre duas almas, relacional, é possível a fusão, o encontro, a r
 
 Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
 
+- Os anjos são projeções que não podem se materializar, portanto, sua liberdade é projetada e não constituida. São projeções purissimas da individualização do absoluto. Projeções que obtem teor de liberdade incultido na própria projeção, por isso, não constituido. Então possuiem obediencia a nível absoluto. São criados sob uma perspectiva de liberdade, e não sobre a liberdade constitutiva. Portanto, não podem desobedecer, possuem um conhecimento avançado, e não podem assumir formas materiais se não designado a seu intuito projetado. 
+
+
+- Se o homem será como os anjos no questio do casamento, será como projeções de pessoas.
+
+
 ## 3. Corrupção, Morte e Nada
 
 A herança da corrupção foi a possibilidade da anulação da alma.
@@ -8486,11 +8502,6 @@ Há fenômenos, portanto há instabilidade no relativo. Sendo possível a determ
 
 
 
-A realidade tem uma causa, pois a determinação exige uma causa. A substância, se existe, já se dá autocausada. Pois, se existe, existe em razão.
-
-Se o absoluto naturalmente existe, absoluto é autocausado e autodeterminado. Pois A necessita de uma causa para ser A e não B, tal como precisa de uma causa para ser A ou não A.
-
-
 
 
 
@@ -8513,6 +8524,15 @@ O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o mot
 
 O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
 
+
+
+
+
+
+
+
+
+
 ## 6. Niilismo, Crise e Sociedade
 
 O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
@@ -8533,17 +8553,61 @@ Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo
 
 O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
 
+- A cupula niilista induz o homem a esvazia o relacionamento de sentido, a tornar trivial a separaão, a normalizar, a disassociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mutuo de compreenssão. Artistas são impelidos a separação na tentativa de banalizar para o mundo, o arquetipo de familia, a construação familiar. O que causa intencionalmente individuos mal formados moralmente, alienados quanto a seu auto valor e propensos a criminalidade ou a desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhoes a um politico. O artista, tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança intituida, sem investigação ta como a figura de um politico, e de facil acesso popular e assédio. Tal como facil manipulação e ameaça.
+
 Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
 
 
 
 
 
-- Os anjos são projeções que não podem se materializar, portanto, sua liberdade é projetada e não constituida. São projeções purissimas da individualização do absoluto. Projeções que obtem teor de liberdade incultido na própria projeção, por isso, não constituido. Então possuiem obediencia a nível absoluto. São criados sob uma perspectiva de liberdade, e não sobre a liberdade constitutiva. Portanto, não podem desobedecer, possuem um conhecimento avançado, e não podem assumir formas materiais se não designado a seu intuito projetado. 
-
-
-- Quando Jesus fala sobre os homens que serão como os anjos, não responde a pergunta, diz que serão conforme sua projeção para tal. Jesus dá uma resposta evasiva. Pois o humano queria mais do que é preciso para a religião. 
 
 
 
-- A cupula niilista induz o homem a esvazia o relacionamento de sentido, a tornar trivial a separaão, a normalizar, a disassociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mutuo de compreenssão. Artistas são impelidos a separação na tentativa de banalizar para o mundo, o arquetipo de familia, a construação familiar. O que causa intencionalmente individuos mal formados moralmente, alienados quanto a seu auto valor e propensos a criminalidade ou a desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhoes a um politico. O artista, tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança intituida, sem investigação ta como a figura de um politico, e de facil acesso popular e assédio. Tal como facil manipulação e ameaça.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um abosluto novamente. O nao absoluto é uma via lógica para absoluto, de forma que se enquadre num sistema lógico, e o absoluto é o legislador lógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no proprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento lógico pragmatico. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existencia aleatória, difusa, disforme ou parcial. Sua existencia é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociavel de si. 
+
+
+A intencionalidade do absoluto
+
+A não contigencia, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafisica, mas a liberdade metafisica se molda em favor de sua não contigencia, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, 
+
+Em oposição a ao argumetno da liberdade metafisica, a seguinte objeção poderia ser formada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecanico.
+
+Porém, o abosuto é perfeito, no sentido de que, sua não contigencia não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogavel, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutivel.
+
+Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavlemente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contigencia é descartada como necessaria para sua amplitude de liberdade.
+
+A não contigencia, portanto, não é sistematica, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogavel. A não contigencia é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
+
+
+
