@@ -8641,3 +8641,5 @@ Porem, ao tentarmos criar uma realidade sem causa externa e sem causa em si mesm
 O caos não é uma realidade auto causal. É a anulação da causa, portanto, digamos que A exista sem causa, de existir e ser como A. Portanto, A é A caoticamente. Isto indica que A não porta definição, não há movito para que há seja A, ou continua A, ou A e não A. A causa está ligada ao ente, seja esse relativo, ou determinado. A causa é indossiavel da realidade, sendo está logicamente assimetrica ou não.
 
 O caos vem do nada, o nada não é valido. O relativo é valido. E o relativo é tal como relativo. Possui uma estabilidade.
+
+Até a completa "estabilidade" não determinação, tem causa, pois é um estado positivo.
