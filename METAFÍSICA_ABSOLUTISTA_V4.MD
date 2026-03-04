@@ -8611,3 +8611,33 @@ A não contigencia, portanto, não é sistematica, no sentido de uma não ação
 
 
 
+
+
+Que provocam distrações em massa.
+
+E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.
+
+O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento.
+
+Lógica simétrica, assimétrica, impossível, disruptivo, não ruptivo.
+
+A causalidade como necessária, independente da simetria lógica.
+
+O bilionário observando a guerra como um jogo de xadrez.
+
+O ser humano é tratado ainda como elemento de produção pelos bilionários.
+
+Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias.
+
+Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes.
+
+E a humanidade continua produzindo.
+
+
+> Qualquer variação da lógica assimetrica, ainda representa conteudo positivo. Sendo o nada e o ser, ambos, em um estado de indiferença, ainda representam um conteudo positivo e referenciavel.
+
+Porem, ao tentarmos criar uma realidade sem causa externa e sem causa em si mesma, chegamos ao caos. O caos não é uma realidade positiva, não é o relativo, é uma realidade auto supressora. 
+
+O caos não é uma realidade auto causal. É a anulação da causa, portanto, digamos que A exista sem causa, de existir e ser como A. Portanto, A é A caoticamente. Isto indica que A não porta definição, não há movito para que há seja A, ou continua A, ou A e não A. A causa está ligada ao ente, seja esse relativo, ou determinado. A causa é indossiavel da realidade, sendo está logicamente assimetrica ou não.
+
+O caos vem do nada, o nada não é valido. O relativo é valido. E o relativo é tal como relativo. Possui uma estabilidade.
