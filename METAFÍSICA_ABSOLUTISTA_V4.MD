@@ -8657,3 +8657,7 @@ O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualid
 Jesus não falava de uma projeção de um comportamento perfeito, mas falava de serem como novos seres criados. Falava que seriam como a projeção.
 Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
 Os anjos tem um conhecimento direto. 
+
+
+
+> O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
