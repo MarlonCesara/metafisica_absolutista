@@ -8652,12 +8652,13 @@ Até a completa "estabilidade" não determinação, tem causa, pois é um estado
 
 
 
-O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualidade, mas segundo a unidade. Se criaria um ser mesmo, determinado por A. Sendo sua vida relativa a A. E não relativa a C. Se A cria A, então A é realtiva a A. Se B cria B, então B é relativa a B. Se A e B, criam C, C não é relativa a A ou B, mas a C. 
+O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualidade, mas segundo a unidade. Se criaria um ser mesmo, determinado por A. Sendo sua vida relativa a A. E não relativa a C. Se A cria A, então A é realtiva a A. Se B cria B, então B é relativa a B. Se A e B, criam C, C não é relativa a A ou B, mas a C. A alma relativa a A, obedece A, segue ordens, e tem um pensamento direto comandado por A. Isto a confere um raciocinio mais rapido, seguir funções. Pois sua auto causalidade é relativa a A.
 
 Jesus não falava de uma projeção de um comportamento perfeito, mas falava de serem como novos seres criados. Falava que seriam como a projeção.
 Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
 Os anjos tem um conhecimento direto. 
 
+> A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
 
 
 > O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
