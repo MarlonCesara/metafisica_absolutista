@@ -8671,6 +8671,7 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 > A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
 
+> Casamento é uma união fraca. É uma união relacional humana, sem conexão genuina interna a consciencia. Ser como uma projeção de si mesmo, é ser como anjo. Serão como projeções de si mesmos.
 
 > O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
 
