@@ -8673,3 +8673,6 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 
 > O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
+
+
+> Duas consicencias unidas, são o infinito reverberante da consciencia. A infinitude do Eu, a quebra do eu individual rumo a infinitude da cosnciecnia.
