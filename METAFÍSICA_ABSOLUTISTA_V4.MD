@@ -8658,6 +8658,17 @@ Jesus não falava de uma projeção de um comportamento perfeito, mas falava de 
 Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
 Os anjos tem um conhecimento direto. 
 
+Serão como anjos, ou seja, serão como almas projetadas e obedientes. Almas sem auto dominio. Com auto dominio comandado.
+Se comportarão é diferente de como serão. 
+
+Serão como uma projeção, uma segunda alma construida de forma monolitica, e não dualistica. 
+O homem monolitico. O anjo. Serão como homens monoliticos.
+
+Se ambos forem um só, ambos serão uma projeção da dualidade.
+
+
+
+
 > A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
 
 
