@@ -8677,3 +8677,7 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 
 > Duas consicencias unidas, são o infinito reverberante da consciencia. A infinitude do Eu, a quebra do eu individual rumo a infinitude da cosnciecnia.
+
+
+
+> Ao estabelecermos a hipotese de contornar a causalidaed, chegamos a hipotese do caos, que tem uma ordem auto-supressora, dando vazão a ordem novamente. Porem, o sentido da ordem é indossiavel dela mesma. A desordem, um elemento que não tem nem mesmo a indefinição apropriada de si, se faz o nada auto supressor. O principio da causalidade, não pode ser questionado, pois a essencia da ordem é indissociavel do ordenado, isto é, do positivo. Se A, é A, então está ordenado como A. Se X é X então se ordena como X. Portanto, o sentido de X, é irrevogavel para X não ser Y.
