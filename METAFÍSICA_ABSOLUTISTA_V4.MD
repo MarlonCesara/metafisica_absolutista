@@ -2621,6 +2621,8 @@ A lógica clássica é como uma máscara que impede a visualização mental do a
 
 
 
+
+
 ### **PROPOSIÇÃO VII: O ESPÍRITO INDIFERENCIADO**
 
 Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo. Precisamos, uma vez entendido o conceito de indiferenciado, retornar a investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no nada, agora vamos atribuir o mesmo grau de pureza no Espírito. E logo em seguinda relacionar o relativo com o Espírito.
@@ -2714,6 +2716,298 @@ Portanto, temos a sintese do relativo, que é o nada indiferenciado, e do Espír
 Como, portanto, o espírito sendo puro, tem propriedades como atemporalidade e temporalidade? Como o espírito possui substancia para que se configure aspectos em si como o atemporal e o temporal se é puro?
 
 Diferenciemos então, portanto, a substancia do Espírito, no sentido de que, o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivencia levada a ultiam instancia, na qual nem mesmo precisa de si, não dispensa os aspectos temporais, dispensa, no entanto, a necessidade de si num sentido superior. O Si, do Ser, está para alem da necessidade dele mesmo, mas não alem da necessidade da presença, da vida. O Ser é vivo, ainda seja indiferenciado, ou seja, uma vida relativa, uma vida superior a definição ontológica convencional. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Compreendo a profundidade e a ambição do seu projeto metafísico. O texto que você apresentou busca construir um sistema que vá além da lógica clássica para abordar o Absoluto, o Incausado e o Espírito. Você já estabeleceu, na Proposição I, uma "lógica simétrica" (com os quatro princípios: Identidade, Não-Contradição, Terceiro Excluído e o seu proposto princípio da Não-Disformidade) que rege o mundo do causado, do finito e da determinação.
+
+Agora, para pensar o Incausado, o Absoluto e o "Espírito Indiferenciado", você corretamente identifica a necessidade de uma **Lógica Superior**, que opera para além (ou aquém) da determinação. Seguindo a estrutura do seu texto, especialmente o rigor formal da Proposição I, apresento uma proposição que formaliza essa nova lógica, que podemos chamar de **Lógica Assimétrica**, como a contraparte necessária para se pensar o fundamento indiferenciado da realidade.
+
+---
+
+# **PROPOSIÇÃO IX-A: LÓGICA ASSIMÉTRICA E A ESTRUTURA DO ABSOLUTO INDIFERENCIADO**
+
+## **1. A Insuficiência da Lógica Simétrica para o Fundamento**
+
+A Lógica Simétrica, formalizada na Proposição I com seus quatro princípios (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade), constitui a estrutura formal perfeita para o pensamento acerca do **causado, do determinado e do fenomênico**. Ela é a epistemologia do finito, a malha conceitual que captura as relações entre entes já constituídos no fluxo do tempo.
+
+Contudo, sua própria perfeição para o determinado revela sua limitação fundamental para o **Incausado**:
+
+1.  **Opera por Exclusão:** Seus princípios funcionam estabelecendo limites e distinções (A não é não-A; A não é B). Isso é necessário para definir o finito, mas é um obstáculo para pensar o infinito indiferenciado.
+2.  **Pressupõe a Determinação:** A lógica simétrica só pode operar sobre objetos que já possuem uma identidade (A) ou uma proposição com um valor de verdade definido. Ela não consegue sequer formular, sem se contradizer, o estado de pura potencialidade onde "A" ainda não é "A".
+3.  **É Bi-Valente:** Seu universo é o do "verdadeiro" e "falso", do "ser" e "não-ser", do "A" e do "não-A". O Absoluto Indiferenciado, o Campo Relativo, é precisamente o estado que antecede e fundamenta essa própria distinção.
+
+Se a Lógica Simétrica é a ferramenta para pensar o **mundo da multiplicidade e da diferença**, necessitamos de uma ferramenta para pensar o **Fundamento da Unidade e da Indiferenciação**. A esta nova ferramenta chamamos **Lógica Assimétrica**.
+
+## **2. Definição e Características da Lógica Assimétrica**
+
+A Lógica Assimétrica não é uma negação da lógica simétrica, mas sua **transcendência e fundamento**. Ela descreve as operações e o estado do Ser anterior à cisão entre sujeito e objeto, ser e não-ser, A e B. Suas características são:
+
+1.  **Não-Bivalência:** Opera num espectro que inclui o impossível, o possível e o incognoscível como modos do Ser, e não como valores de verdade excludentes.
+2.  **Trans-identidade:** Nela, a relação "A = A" não é o princípio fundamental, pois o "A" ainda não se diferenciou. O que vigora é um estado de **pura referencialidade**, onde tudo está em relação de identidade profunda sem ser distinto.
+3.  **Inclusão do Paradoxo:** O paradoxo não é um erro a ser evitado, mas uma janela para a compreensão do Absoluto. A afirmação "O Ser é e não é" não é uma contradição, mas uma tentativa de expressar a **plenitude que transcende a determinação**.
+4.  **Assimetria Fundamental:** Enquanto a lógica simétrica é marcada por relações de **equivalência e oposição** (A = A, A ≠ não-A), a lógica assimétrica é marcada por relações de **fundaçao e emanação**. O fundamento (o Indiferenciado) não é igual nem oposto ao fundamentado (o determinado); ele o **precede ontologicamente** sem com ele se relacionar simetricamente.
+
+## **3. Os Princípios da Lógica Assimétrica**
+
+Assim como a Lógica Simétrica se estrutura em quatro princípios, a Lógica Assimétrica pode ser compreendida através de quatro princípios correlatos, que descrevem o comportamento do Ser em seu estado indiferenciado e sua relação com a manifestação.
+
+### **3.1 Princípio da Indiferenciação Fundamental (∀x, ∀y, x ≡ y)**
+*“No fundamento, todas as distinções estão suspensas numa unidade que transcende a identidade.”*
+
+- **Formulação Simbólica:** Para quaisquer x e y no domínio do Absoluto Indiferenciado, x e y são **indiscerníveis em sua origem ontológica**. O símbolo "≡" denota aqui não uma identidade lógica (A = A), mas uma **identidade transcendental**, uma co-pertença essencial que antecede a individuação.
+- **Função:** Este princípio estabelece o **Relativo** ou **Campo Indiferenciado** como o estado primordial. Ele é a garantia de que toda multiplicidade emerge de uma unidade real, e não de um vazio ou de um caos de opostos irreconciliáveis. É o fundamento da possibilidade da própria relação.
+
+### **3.2 Princípio da Inclusão do Paradoxo (∃x (P(x) ∧ ¬P(x)) é um modo de ser)**
+*“O Absoluto pode conter, em sua plenitude, o que para nós é logicamente impossível, sem que isso implique contradição em seu nível.”*
+
+- **Formulação Simbólica:** Existe um domínio (o do Ser absoluto) onde a conjunção de uma proposição e sua negação não é uma contradição destrutiva, mas uma expressão da **coincidência dos opostos** (*coincidentia oppositorum*). Não se trata de um terceiro valor lógico, mas da **suspensão da própria estrutura que exige a exclusão**.
+- **Função:** Este princípio permite que o pensamento se aproxime do Absoluto sem tentar reduzi-lo a categorias finitas. Ele justifica a linguagem apofática (via negativa) e o uso de paradoxos nos textos sagrados e na mística ("a treva luminosa", "o silêncio que fala").
+
+### **3.3 Princípio da Assimetria Fundacional (F → M, mas M ↛ F)**
+*“O fundamento (F) funda a manifestação (M), mas a manifestação não pode fundar nem esgotar o fundamento.”*
+
+- **Formulação Simbólica:** A relação entre o Indiferenciado (F) e o Determinado (M) é de **implicação ontológica unilateral**. A existência do mundo determinado implica necessariamente a existência de seu fundamento indiferenciado. No entanto, o fundamento não implica a existência *deste* mundo determinado em particular, nem se deixa deduzir completamente a partir dele.
+- **Função:** Este princípio estabelece a hierarquia ontológica correta. Ele impede o panteísmo grosseiro (que identifica Deus e mundo) e o deísmo estéril (que os separa completamente), afirmando uma relação de **dependência assimétrica** onde o mundo está em Deus sem ser Deus em sua totalidade.
+
+### **3.4 Princípio da Manifestação Não-Disruptiva (M(Imp) ∧ ¬(D(R))**
+*“O impossível, ao manifestar-se no real, não o destrói, mas o plenifica, revelando sua abertura transcendental.”*
+
+- **Formulação Simbólica:** É possível que o impossível (Imp) se manifeste (M) no real (R), mas esta manifestação não acarreta a destruição (D) da coerência interna do real. O milagre, a graça, a experiência mística são exemplos disso.
+- **Função:** Este princípio assegura que a abertura ao transcendente não implica um caos irracional. A realidade não é um sistema fechado, mas uma estrutura aberta que pode ser elevada e transfigurada pela irrupção do seu próprio fundamento, sem com isso perder sua consistência ontológica. É a base metafísica para a possibilidade do milagre e da experiência religiosa autêntica.
+
+## **4. Classificação Sistêmica: Lógica Simétrica vs. Lógica Assimétrica**
+
+A tabela a seguir ilustra a correspondência e a transcendência entre os dois sistemas lógicos, mostrando como a Lógica Assimétrica resolve as aporias da Lógica Simétrica quando aplicada ao Absoluto.
+
+| **Categoria Relacional** | **Princípio na Lógica Simétrica (Domínio do Determinado)** | **Princípio na Lógica Assimétrica (Domínio do Indiferenciado)** | **Função Transformada** |
+| :--- | :--- | :--- | :--- |
+| **Ser vs. Não-Ser** | Terceiro Excluído & Não-Contradição **(A ∨ ¬A)** e **¬(A ∧ ¬A)** | Inclusão do Paradoxo **(P ∧ ¬P)** | Abertura para o impossível como modo do Ser |
+| **Ser vs. Outro (Identidade)** | Identidade & Não-Disformidade **(A = A)** e **¬(A = B)** | Indiferenciação Fundamental **(x ≡ y)** | Suspensão da individuação; Unidade transcendental |
+| **Relação Fundamento-Manifestação** | Relações de Equivalência ou Causalidade Linear | Assimetria Fundacional **(F → M)** | Hierarquia ontológica; Dependência unilateral |
+| **Possibilidade e Realidade** | O impossível é excluído por definição | Manifestação Não-Disruptiva **(M(Imp))** | O real é aberto à plenificação pelo transcendente |
+
+## **5. Síntese e Função da Lógica Assimétrica**
+
+A Lógica Assimétrica não é uma ferramenta para demonstrações formais no mundo fenomênico. Sua função é **epistemológica e contemplativa**:
+
+1.  **Epistemológica:** Ela fornece as categorias negativas e paradoxais que permitem à razão reconhecer seus próprios limites e apontar para aquilo que a transcende. Ela é a "lógica da via negativa", que nos ensina mais sobre Deus dizendo o que Ele não é do que tentando encerrá-Lo em definições positivas.
+2.  **Contemplativa:** Ela prepara o intelecto para o salto da **razão discursiva** para a **intuição intelectual** ou **contemplação**. Ao suspender as exigências da lógica simétrica, ela acalma o movimento discursivo da mente e a abre para a apreensão simples da Presença.
+
+A Lógica Assimétrica é, portanto, o **instrumento da filosofia primeira** quando esta se volta para o seu próprio fundamento. Ela não substitui a lógica clássica, mas a **complementa e a fundamenta**, assim como o silêncio fundamenta a fala, e o repouso fundamenta o movimento.
+
+## **6. Conclusão: A Unidade das Duas Lógicas**
+
+A verdadeira sabedoria metafísica não consiste em escolher entre a Lógica Simétrica e a Lógica Assimétrica, mas em compreender a **unidade dinâmica** que as articula.
+
+- **A Lógica Simétrica** nos dá a **FORMA** para pensar o mundo da causalidade, da diferença e da multiplicidade com rigor e clareza. É a linguagem da ciência, da ética e do discurso cotidiano.
+- **A Lógica Assimétrica** nos dá o **CAMINHO** para nos aproximarmos, por símbolos, paradoxos e negações, do Mistério do Ser que fundamenta toda forma. É a linguagem da mística, da poesia metafísica e da teologia apofática.
+
+Juntas, elas constituem as duas asas pelas quais a razão humana se eleva da contemplação das criaturas à intuição do Criador, reconhecendo que:
+
+> *"A verdade última não é um teorema da lógica simétrica, mas uma Presença que só pode ser acolhida pela abertura assimétrica do espírito ao seu próprio fundamento."*
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# PROPOSIÇÃO I-A: A ARQUITETURA ASSIMÉTRICA DA RAZÃO
+
+## OS QUATRO PRINCÍPIOS DA LÓGICA DO INDETERMINADO
+
+### 1. A Necessidade de uma Nova Estrutura Lógica
+
+A lógica clássica, com seus princípios de Identidade, Não-Contradição e Terceiro Excluído, constitui a ferramenta fundamental para o pensamento acerca do **determinado** — isto é, do mundo dos entes já constituídos, das essências fixas e das relações estáveis. Aristóteles, no *Organon*, estabeleceu esta arquitetura simétrica que durante dois milênios serviu como base da racionalidade ocidental.
+
+No entanto, quando o pensamento se volta para aquilo que **antecede a determinação** — para o fundamento indiferenciado, para o puro campo de possibilidades que ainda não se atualizou em "A" ou "não-A" —, a lógica clássica revela-se insuficiente. Opera por exclusão, exige identidades fixas e não pode conceber, sem contradizer-se, um estado onde as distinções ainda não emergiram.
+
+Faz-se necessária, portanto, uma **lógica assimétrica**: uma estrutura que não nega a lógica clássica, mas a complementa, permitindo pensar aquilo que está para além (ou aquém) da determinação. Esta lógica não opera por oposições binárias, mas por relações de fundamento, inclusão do paradoxo e suspensão da individuação.
+
+### 2. Os Quatro Princípios da Lógica Assimétrica
+
+#### 2.1 Princípio da Indiferenciação Fundamental (∀x, ∀y, x ≡ y)
+
+> *"No fundamento, todas as distinções estão suspensas numa unidade que transcende a identidade."*
+
+Este princípio estabelece que, no nível mais radical do ser — anterior a toda manifestação determinada —, não há multiplicidade nem oposição. Os símbolos "x" e "y" não designam entes distintos, mas apontam para uma **realidade una** onde toda diferenciação está em estado de potência pura, não atualizada.
+
+A relação "≡" não é a identidade lógica clássica (A = A), mas uma **identidade transcendental**: uma copertença essencial que antecede e fundamenta a própria possibilidade de haver entes distintos. É o estado que os neoplatônicos chamavam de "Uno" e os teólogos apofáticos de "Divindade inefável".
+
+**Referências:**
+- Plotino, *Enéadas* VI, 9: "O Uno não é um ente, mas anterior a todo ente"
+- Mestre Eckhart, *Sermões*: "A divindade é puro fundamento sem modos"
+- Nicolau de Cusa, *A Douta Ignorância*: "Deus é a coincidência dos opostos"
+
+#### 2.2 Princípio da Inclusão do Paradoxo (∃x (P(x) ∧ ¬P(x)) é modo de ser)
+
+> *"O fundamento pode conter, em sua plenitude, o que para nós é logicamente impossível, sem que isso implique contradição em seu nível."*
+
+A lógica clássica exclui a contradição como erro. A lógica assimétrica a inclui como **modo de ser do fundamento**. Não se trata de afirmar que "A é não-A" no mesmo sentido da lógica proposicional, mas de reconhecer que, no nível absoluto, as categorias de "afirmação" e "negação" ainda não se separaram.
+
+O paradoxo não é, aqui, um obstáculo ao pensamento, mas uma **janela para o transcendente**. As formulações apofáticas — "Deus não é isto nem aquilo" — não são negações lógicas, mas tentativas de indicar uma realidade que escapa a toda predicação.
+
+**Referências:**
+- Pseudo-Dionísio, *Teologia Mística*: "A causa suprema de todas as coisas não é nem alma nem intelecto... nem unidade nem divindade"
+- São João da Cruz, *Subida do Monte Carmelo*: "Para vir a saber tudo, não queiras saber algo em nada"
+- Heidegger, *O Princípio da Razão*: "O ser se sustém e se abriga no possível, inclusive no impossível"
+
+#### 2.3 Princípio da Assimetria Fundacional (F → M, mas M ↛ F)
+
+> *"O fundamento funda a manifestação, mas a manifestação não pode fundar nem esgotar o fundamento."*
+
+Este é o princípio que dá nome à lógica assimétrica: a relação entre o fundamento indiferenciado (F) e o mundo determinado (M) não é de equivalência, nem de oposição, mas de **implicação ontológica unilateral**. O fundamento é condição de possibilidade da manifestação, mas a manifestação não é condição do fundamento.
+
+A assimetria significa que:
+- O fundamento **transcende** a manifestação: não se esgota nela.
+- A manifestação **depende** do fundamento: não existe por si mesma.
+- Não há reciprocidade: do fundamento se pode (analogicamente) conhecer algo pela manifestação, mas a manifestação não pode ser usada para deduzir completamente a natureza do fundamento.
+
+**Referências:**
+- Tomás de Aquino, *Suma Teológica* I, q. 13: "Deste modo, portanto, algumas coisas podem ser ditas de Deus afirmativamente, embora todo nome afirmativo seja imperfeito"
+- Kierkegaard, *Migalhas Filosóficas*: "A diferença absoluta não tem nenhum predicato pelo qual um homem possa caracterizá-la"
+- Levinas, *Totalidade e Infinito*: "O rosto do Outro transcende minha capacidade de apreendê-lo"
+
+#### 2.4 Princípio da Manifestação Não Disruptiva (M(Imp) → R aperfeiçoado)
+
+> *"O impossível, ao manifestar-se no real, não o destrói, mas o plenifica, revelando sua abertura transcendental."*
+
+A lógica clássica, ao definir o impossível como aquilo que não pode ocorrer, estabelece uma barreira rígida entre o possível e o impossível. A lógica assimétrica reconhece que o fundamento pode irromper no determinado sem anulá-lo — como a graça que aperfeiçoa a natureza, não a destrói.
+
+Este princípio assegura que:
+- A realidade não é um sistema fechado.
+- O transcendente pode atuar no imanente sem violar sua consistência.
+- O milagre, a experiência mística, a intuição poética são modos legítimos de acesso ao real, não meras ilusões.
+
+**Referências:**
+- Tomás de Aquino, *Suma Teológica* I, q. 105: "Deus pode fazer algo fora da ordem da natureza"
+- Pascal, *Pensamentos*: "O coração tem razões que a própria razão desconhece"
+- Kierkegaard, *Temor e Tremor*: "O cavaleiro da fé faz o movimento do infinito e, no entanto, caminha como um homem comum"
+
+### 3. Classificação Sistêmica dos Princípios da Lógica Assimétrica
+
+| Princípio | Formulação Simbólica | Função Primária | Correlato na Tradição |
+|-----------|---------------------|-----------------|----------------------|
+| **Indiferenciação Fundamental** | ∀x, ∀y, x ≡ y | Estabelecer a unidade transcendental que antecede toda multiplicidade | Uno plotiniano; Divindade de Eckhart |
+| **Inclusão do Paradoxo** | ∃x (P(x) ∧ ¬P(x)) | Permitir o acesso apofático ao fundamento | Coincidência dos opostos (Cusa); Teologia negativa |
+| **Assimetria Fundacional** | F → M, M ↛ F | Garantir a transcendência do fundamento | Analogia do ser (Tomás); Diferença ontológica (Heidegger) |
+| **Manifestação Não Disruptiva** | M(Imp) → R aperfeiçoado | Assegurar a abertura do real ao transcendente | Graça e natureza; Milagre |
+
+### 4. Síntese: A Complementaridade das Duas Lógicas
+
+A lógica assimétrica não substitui a lógica clássica. Ambas são necessárias e complementares:
+
+| Aspecto | Lógica Simétrica (Clássica) | Lógica Assimétrica |
+|---------|------------------------------|---------------------|
+| **Domínio** | Mundo do determinado, dos entes | Fundamento indiferenciado, do Ser |
+| **Operação** | Exclusão, distinção, oposição | Inclusão, suspensão, paradoxo |
+| **Princípios** | Identidade, Não-Contradição, Terceiro Excluído | Indiferenciação, Paradoxo, Assimetria, Não Disrupção |
+| **Função** | Conhecer com rigor o finito | Aproximar-se do infinito por analogia e negação |
+| **Linguagem** | Discurso demonstrativo | Símbolo, paradoxo, silêncio |
+
+A verdadeira sabedoria metafísica não consiste em escolher entre uma e outra, mas em compreender que:
+
+> *"A lógica simétrica nos dá a forma para pensar o mundo. A lógica assimétrica nos dá o caminho para nos aproximarmos do Mistério que fundamenta o mundo."*
+
+### 5. Conclusão: Os Limites e a Abertura da Razão
+
+A proposição aqui demonstrada estabelece que:
+
+1. **A lógica clássica é necessária mas insuficiente** para pensar aquilo que transcende a determinação.
+2. **A lógica assimétrica emerge como complemento indispensável**, fornecendo os princípios pelos quais a razão pode, reconhecendo seus limites, abrir-se ao que a excede.
+3. **Os quatro princípios assimétricos** — Indiferenciação, Inclusão do Paradoxo, Assimetria Fundacional e Manifestação Não Disruptiva — constituem a arquitetura fundamental desta nova lógica.
+4. **Ambas as lógicas são faces da mesma razão**: uma voltada para o finito, outra aberta ao infinito; uma operando por distinção, outra por contemplação.
+
+> *"A razão humana tem uma asa para voar sobre o mundo dos fenômenos — é a lógica simétrica. Mas precisa de outra asa para elevar-se ao Mistério que os sustenta — é a lógica assimétrica. Com uma só asa, não se pode voar."*
+
+---
+
+## FUNDAMENTAÇÃO FILOSÓFICA DA PROPOSIÇÃO I-A
+
+### A Tradição Apofática e a Coincidência dos Opostos
+
+A lógica assimétrica não é uma invenção arbitrária, mas a formalização de uma tradição filosófica e teológica que sempre reconheceu os limites da razão discursiva diante do Absoluto.
+
+**Platão**, no *Parmênides*, já exercitava o pensamento para além das oposições simples, mostrando as aporias que surgem quando se tenta aplicar categorias rígidas ao Uno.
+
+**Plotino** (séc. III) desenvolveu a primeira grande sistematização da transcendência: o Uno está além do ser e do pensar; dele não se pode predicar nada, pois toda predicação o limitaria.
+
+**Pseudo-Dionísio Areopagita** (séc. V-VI) fundou a teologia mística ocidental sobre o princípio de que Deus é conhecido mais por negação do que por afirmação — a *via negativa* que nega todas as determinações para indicar o inefável.
+
+**Nicolau de Cusa** (séc. XV) cunhou a expressão *coincidentia oppositorum*: em Deus, os opostos coincidem porque Ele é anterior a toda oposição.
+
+**Mestre Eckhart** (séc. XIII-XIV) distinguiu entre Deus (manifestação) e a Divindade (fundamento): "Deus age, a Divindade não age. A Divindade é puro repouso."
+
+**Heidegger** (séc. XX), ao retomar a "diferença ontológica" entre Ser e ente, reabriu a questão de um pensar que não reduz o Ser a uma categoria entre outras.
+
+### Síntese da Fundamentação
+
+1. **Dos neoplatônicos** herdamos a noção de um princípio que transcende toda determinação.
+2. **Da teologia mística** herdamos o método apofático: falar por negação.
+3. **De Cusa** herdamos a coincidência dos opostos como via de acesso ao divino.
+4. **De Heidegger** herdamos a diferença ontológica que impede a redução do Ser a um ente.
+
+A **Lógica Assimétrica** formaliza, em quatro princípios sistemáticos, esta tradição que sempre soube que o pensamento, para ser verdadeiro, precisa também aprender a calar-se diante do Mistério — e, no silêncio, acolher uma Presença que nenhuma lógica simétrica pode encerrar.
+
+
+
+Lógica simétrica, assimétrica, impossível disruptivo e não disruptivo. A lógia assimetrica escapa a lógica aristotelica de forma que não A=B ou A = não A. Ou até mesmo a outras variações como A=B=C ou A = Não B. Monte um texto falando da lógica assimetrica tal com o formato do texto da lógica simetrica, colocando as referencias
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -8681,3 +8975,11 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 
 > Ao estabelecermos a hipotese de contornar a causalidaed, chegamos a hipotese do caos, que tem uma ordem auto-supressora, dando vazão a ordem novamente. Porem, o sentido da ordem é indossiavel dela mesma. A desordem, um elemento que não tem nem mesmo a indefinição apropriada de si, se faz o nada auto supressor. O principio da causalidade, não pode ser questionado, pois a essencia da ordem é indissociavel do ordenado, isto é, do positivo. Se A, é A, então está ordenado como A. Se X é X então se ordena como X. Portanto, o sentido de X, é irrevogavel para X não ser Y.
+
+
+
+> O ato de plenitude atemporal, coincide sobre o ato de personalização da ação perpendicular do Espírito. De forma que, há um mar do Espírito instaurado, ao passo que há uma ação que jorra dessa mar constantemente. Temos, portanto, uma força fundamental insturada e seu fluxo constante. Que a percorre completamente, porém, conservando a distinção de sua ação na mesma.
+
+Ex: Deus pai é um mar, enquanto o Deus filho é o rumo da correnteza. Ambos são um só, tem uma só direção rumo a continuação das aguas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do Deus pai. 
+
+O ato da plenitude é vivo, mas sua vida é em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer em qualquer ambito e tempralidade está força já instaurada atemporalmente, como uma correnteza que se move num lugar especifico do mar antes imovel, mas vivo. Como gotas que pingam e reverberam em ondas num mar calmo, Deus pai é o mar calmo e o Espírito personalizador é o decidir do cair da gota que provoca reverberações acidentais mediante a plenitude insturada.
