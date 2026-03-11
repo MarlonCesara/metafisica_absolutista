@@ -8377,6 +8377,8 @@ Sem toda a manipulação da cupula, a politica realmente entra em vigor, e pode 
 
 > A cupula não vive de negócios, de visões de negócios inovadoras que todos podem conhecer e copiar, vive de estratégias, de tramas contra a humanidade. Vive de enganações. A cupula não vende negócios, vende planos, ideias, tramas que fazem com que seja dificil de competir, dificil para que um trabalhador chege no mesmo patamar. Trabalha com tramas para bloquear o poder de questionamento da população. As tragédias como guerra e fome não acontecem naturalmente pelo capitalismo, são fabricadas intencionalmente, bem pensadas, articuladas. As decisões politicas da guerra estratégicamente pensadas por uma organização que se une contra a humanidade. E essa organização permanece oculta, longe da desconfiança. A humanidade só enxerga as diferenças sociais, o acumulo, mas não enxerga o potencial de manipulação que tem o poder economico e o fato de poderem se unir estrategicamente para manipulações massivas.
 
+> A cupula diz: como voce acha que mantemos nossos bilhoes, em meio a exageros enquanto tantos estão na miseria? O que faz o ser humano aceitar tal discrepancia? o que tira o senso critico do ser humano de tal forma que ignore todo esse esbanjo do dinheiro que provem do esforço alheio? O que faz o ser humano aceitar isso pacificamente se não um estado de pasmo? Provocamos catastrofes, o medo constante, e isso induz um estado de topor geral, de forma que isso se torne o menor dos males.
+
 
 Desde os tempos da guerra, há táticas de manipulação, como privar as fontes de alimento de um exercito para derrota-lo ou provocar subdivisoes. E essas taticas, foram evoluidas pela cupula niilista, de forma a agirem sem serem percebidos. Se querem perseguir, terceirizão a perseguição. Criando cenarios onde a oposição politica ou ate mesmo o crime são responsaveis. Estão o tempo todo se mascarando e usando de taticas. Porem, a novidade é que não é um partido que manipula, não é uma instituição ou pessoas da midia, nem mesmo pequenos comercios, mas são aqueles que detem fortunas, esses tem o poderio para comprar, manipular, mandar, terceirizar ações. Fazem todo tipo de pressão para manipular, e isso é mantido a sete chaves, terceirizam, ou ate mesmo usam quartos e quintos, para fazer o que querem. Podem ser localizados, basta verificar as pessoas do mundo que portam bilioes. Há um grupo, portanto, usando taticas de guerra contra o mundo o tempo todo, mantendo a escravidão, extraindo recursos e tentando evoluir tecnologicamente para usar meios mais eficazes de controle.
 
@@ -8983,3 +8985,15 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 Ex: Deus pai é um mar, enquanto o Deus filho é o rumo da correnteza. Ambos são um só, tem uma só direção rumo a continuação das aguas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do Deus pai. 
 
 O ato da plenitude é vivo, mas sua vida é em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer em qualquer ambito e tempralidade está força já instaurada atemporalmente, como uma correnteza que se move num lugar especifico do mar antes imovel, mas vivo. Como gotas que pingam e reverberam em ondas num mar calmo, Deus pai é o mar calmo e o Espírito personalizador é o decidir do cair da gota que provoca reverberações acidentais mediante a plenitude insturada.
+
+
+
+
+
+
+
+
+
+
+
+
