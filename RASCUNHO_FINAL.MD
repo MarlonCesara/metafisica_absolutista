@@ -872,6 +872,7 @@ A resposta, porém, é que o Absoluto é perfeito: sua não contingência não e
 Isso significa que o Absoluto é livre em si mesmo: fundamenta-se, plenifica-se e personaliza-se, e sua intenção está irrevogavelmente dirigida à vida, não por estar aprisionado, mas por perfeição. A possibilidade da contingência é descartada como requisito para a amplitude de sua liberdade.
 
 A não contingência, portanto, não é algo sistemático no sentido de uma ausência de ação, de um condicionamento inerte e sem vida. Ela é perfeição: um querer pela vida que é irrevogável. A não contingência é pessoalidade, é a incorruptibilidade em sentido espiritual. Não representa uma ausência de liberdade, mas sim a **liberdade de ser a si mesmo de modo irrevogável**.
+
 ### 4. As Três Dimensões da Ação do Espírito
 
 Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológicas complementares:
@@ -961,13 +962,22 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 
 Sendo o Absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si.
 
-Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada, é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do Absoluto como tal.
+Porém, uma ação personalizadora necessita ser temporal. A plenitude atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do Absoluto como tal.
 
 A forma personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
 
 Isto significa que a ação do Espírito Perfeito está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular.
 
-A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o fundamentador e o personalizador que é o Espírito da plenitude.
+A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o Fundamentador e o Personalizador que é o Espírito da plenitude.
+
+O ato de plenitude atemporal coincide com o ato de personalização da ação do Espírito. Desse modo, há um mar do Espírito já instaurado, ao mesmo tempo em que existe uma ação que jorra constantemente nesse mar. Temos, portanto, uma força fundamental instaurada e o seu fluxo contínuo, que a percorre completamente, mas que conserva, dentro dela mesma, a distinção de sua própria ação.
+
+Exemplo: Deus Pai é como um mar, enquanto Deus Filho é o rumo da correnteza. Ambos são um só, possuem uma única direção rumo à continuidade das águas, e esse objetivo comum os une. Em toda a extensão do mar sempre houve a correnteza; porém, na ação instauradora do próprio mar, houve a ação do Deus Pai.
+
+O ato da plenitude é vivo, mas sua vida existe em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer, em qualquer âmbito e temporalidade, essa força que já foi instaurada atemporalmente, como uma correnteza que se move em um ponto específico de um mar antes imóvel, porém vivo.
+
+Assim como gotas que caem e reverberam em ondas sobre um mar calmo, Deus Pai é o mar calmo, enquanto o Espírito personalizador é o decidir do cair da gota, que provoca reverberações acidentais dentro da plenitude instaurada.
+
 
 ### 10. A Distinção das Ações na Unidade do Ser
 
@@ -1916,8 +1926,8 @@ A criação *ex nihilo* significa, portanto, **a auto-expressão do Absoluto a p
 ### Estruturando o Relativo: Princípios Fundamentais
 
 #### Definição por Negação
-- O **"relativo"** é a não-expressão de A (ex.: escuridão = não-luz).
-- Requer uma referência (A) para ser definido.
+- O **"relativo"** é a potencialização de (A, B, C...).
+- Requer uma referência (A, B, C...) para ser definido.
   - *Exemplo:* Só há o relativo se houver o relativizado.
 
 #### Referencialidade Obrigatória
@@ -1926,7 +1936,7 @@ A criação *ex nihilo* significa, portanto, **a auto-expressão do Absoluto a p
   - *Exemplo:* Só há suspensão do tudo se houver o tudo.
 
 #### Não-Coexistência de Opostos Relativos
-- A (manifestação) e B (relativo) não podem ocupar a mesma dimensão se forem contraditórios.
+- A manifestação e o relativo não podem ocupar a mesma dimensão se forem contraditórios.
   - *Exemplo:* Não pode haver luz do sol e sombra absoluta ao mesmo tempo.
 
 #### Referencial Possível
@@ -1951,38 +1961,6 @@ Esta análise revela que o relativo não é uma realidade independente, mas uma 
 > — Romanos 11:36
 
 O relativo é, em última análise, **o modo pelo qual o Absoluto se relaciona consigo mesmo** — a dança eterna da autoexpressão divina.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 ## A ESTRUTURA DO POSSÍVEL E DO IMPOSSÍVEL
 
@@ -2182,6 +2160,17 @@ A aparente dualidade (fundamento indiferenciado × determinação) dissolve-se q
 - **Autofundação** e **autocontinuidade** são o mesmo ato sob perspectivas distintas:
   - *Para a vivência do Ser temporal:* Processo infinito (causalidade reverberante).
   - *Para a vivência do Ser atemporal:* Ato único (consumação).
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2418,9 +2407,11 @@ A lógica superior não é o romper completo do sistema lógico aristotélico, m
 
 ## A Necessidade de um Espírito Puro
 
-Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo, precisamos, uma vez entendido o conceito de indiferenciado, retornar à investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no nada, agora vamos atribuir o mesmo grau de pureza ao Espírito. E logo em seguida relacionar o relativo com o Espírito.
+Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo, precisamos, uma vez entendido o conceito de indiferenciado, retornar à investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no absoluto, considerando-o não autocausal, ou seja, sem Espírito, agora vamos analisar o teor indiferenciado do absoluto segundo sua natureza espiritual, ou seja, vamos atribuir o mesmo grau de pureza ao Espírito. E, logo em seguida, relacionar o relativo com o Espírito.
 
-No entanto, nos vem a pergunta primordial: como o Espírito pode ser auto causal? Ao imaginarmos um Espírito determinado, chegaríamos no mesmo problema de uma realidade determinada para o absoluto, assim como investigamos anteriormente. O Absoluto não poderia portar o nada ou o fenômeno inicialmente sem poluir sua pureza.
+Foi necessário separar o absoluto pessoal de seu campo de ação para entendermos, de forma separada, o campo no qual o absoluto exerce sua ação criadora, para fins de melhor entendimento. Pois, uma vez entendido o conceito de indiferenciado, torna-se mais facilitado o entendimento de um Espírito indiferenciado.
+
+Para iniciarmos a investigação, neste momento, acerca do Espírito absoluto, vem-nos a pergunta primordial: como o Espírito pode ser autocausal? Ao imaginarmos um Espírito determinado, chegaríamos ao mesmo problema de uma realidade determinada para o absoluto, assim como investigamos anteriormente. O Absoluto não poderia portar o nada ou o fenômeno inicialmente sem poluir sua pureza.
 
 Portanto, como deveria ser o Espírito? De que forma geraríamos um Espírito "Relativo"? Ou seja, um Espírito indiferenciado, em palavras mais apropriadas para justificá-lo juntamente com a justificação do relativo?
 
@@ -2522,7 +2513,7 @@ O nada não é só algo que porta as possibilidades do nada, mas porta a ação 
 
 Para entender melhor o conceito de Espírito indiferenciado, e sua diferença com o relativo ou com o que é criado no relativo, imaginemos que o Espírito determine um outro Espírito do relativo. Este outro Espírito seria Ele mesmo e estaria suscetível ao campo da possibilidade e da impossibilidade. Este novo Deus seria determinado como uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espírito de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
 
-Se Deus tentasse criar um ente que se indiferencia essencialmente, porém que existe como A, o existir designado pela lógica de Aristóteles naturalmente possui diferenciação. A existe como A. O ato de existir de Aristóteles não é puríssimo, pois produz necessariamente um ente de essência determinada.
+Se Deus tentasse criar um ente que se indiferencia essencialmente, porém que existe como A, o existir designado pela lógica de Aristóteles naturalmente possui diferenciação. A existe como A. O ato de existir de Aristóteles não é puríssimo, pois produz necessariamente um ente de essência determinada. O ato de existir como A já se diferencia de B, ou seja, o simples existir ou não existir de Aristóteles já reduz o absoluto a uma essência única, isto é, já o determina. E o que é determinado não pode ser autocausal, pois exige um determinador.
 
 ## O Existir Puríssimo
 
