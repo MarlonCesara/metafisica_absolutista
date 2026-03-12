@@ -8890,25 +8890,6 @@ Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia nes
 
 
 
-O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um abosluto novamente. O nao absoluto é uma via lógica para absoluto, de forma que se enquadre num sistema lógico, e o absoluto é o legislador lógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no proprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento lógico pragmatico. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existencia aleatória, difusa, disforme ou parcial. Sua existencia é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociavel de si. 
-
-
-A intencionalidade do absoluto
-
-A não contigencia, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafisica, mas a liberdade metafisica se molda em favor de sua não contigencia, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, 
-
-Em oposição a ao argumetno da liberdade metafisica, a seguinte objeção poderia ser formada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecanico.
-
-Porém, o abosuto é perfeito, no sentido de que, sua não contigencia não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogavel, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutivel.
-
-Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavlemente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contigencia é descartada como necessaria para sua amplitude de liberdade.
-
-A não contigencia, portanto, não é sistematica, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogavel. A não contigencia é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
-
-
-
-
-
 Que provocam distrações em massa.
 
 E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.
@@ -8980,6 +8961,20 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 
 
+
+
+
+
+
+
+
+============já incorporados no rascunho final===============
+
+
+
+
+
+
 > O ato de plenitude atemporal, coincide sobre o ato de personalização da ação perpendicular do Espírito. De forma que, há um mar do Espírito instaurado, ao passo que há uma ação que jorra dessa mar constantemente. Temos, portanto, uma força fundamental insturada e seu fluxo constante. Que a percorre completamente, porém, conservando a distinção de sua ação na mesma.
 
 Ex: Deus pai é um mar, enquanto o Deus filho é o rumo da correnteza. Ambos são um só, tem uma só direção rumo a continuação das aguas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do Deus pai. 
@@ -8995,5 +8990,27 @@ O ato da plenitude é vivo, mas sua vida é em função de uma força viva, uma 
 
 
 
+
+
+
+
+
+
+
+A intencionalidade do absoluto
+
+
+O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um abosluto novamente. O nao absoluto é uma via lógica para absoluto, de forma que se enquadre num sistema lógico, e o absoluto é o legislador lógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no proprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento lógico pragmatico. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existencia aleatória, difusa, disforme ou parcial. Sua existencia é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociavel de si. 
+
+
+A não contigencia, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafisica, mas a liberdade metafisica se molda em favor de sua não contigencia, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, 
+
+Em oposição a ao argumetno da liberdade metafisica, a seguinte objeção poderia ser formada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecanico.
+
+Porém, o abosuto é perfeito, no sentido de que, sua não contigencia não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogavel, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutivel.
+
+Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavlemente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contigencia é descartada como necessaria para sua amplitude de liberdade.
+
+A não contigencia, portanto, não é sistematica, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogavel. A não contigencia é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
 
 
