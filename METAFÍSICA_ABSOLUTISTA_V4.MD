@@ -9184,3 +9184,6 @@ A não contigencia, portanto, não é sistematica, no sentido de uma não ação
 
 
 > O absoluto é auto determinado, ou auto-indeterminado.
+
+
+> A dualidade, em conjunto, se indiferencia, tornando-se uma só substancia. A dualidade, portanto, torna-se auto-determinada. Uma indeterminação auto causal.
