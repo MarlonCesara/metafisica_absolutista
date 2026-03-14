@@ -9180,3 +9180,7 @@ Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se 
 A não contigencia, portanto, não é sistematica, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogavel. A não contigencia é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
 
 
+
+
+
+> O absoluto é auto determinado, ou auto-indeterminado.
