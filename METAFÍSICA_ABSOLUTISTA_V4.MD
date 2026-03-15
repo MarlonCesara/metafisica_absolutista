@@ -3631,11 +3631,19 @@ A causalidade como necessária, independente da simetria lógica.
 
 
 
-Porem, ao tentarmos criar uma realidade sem causa externa e sem causa em si mesma, chegamos ao caos. O caos não é uma realidade positiva, não é o relativo, é uma realidade auto supressora. 
+Porem, ao tentarmos criar uma realidade sem causa externa e sem causa em si mesma, chegamos ao caos. O caos não é uma realidade positiva, não é o relativo, é uma realidade auto supressora. O caos não faz um sentido lógico tal como o nada, pois o caos nada é. O caos não possui uma pureza para se justificar.
+
+Portanto, o absoluto não porta a nenhuma causalidade, pois até mesmo na desordem, há ordem. A razão, ou seja, o Espírito, é indociável do estado de indiferenciação do Absoluto. Ambos emergem da mesma natureza absoluta. Tanto o relativo quando o espírito indifereciádo. 
 
 O caos não é uma realidade auto causal. É a anulação da causa, portanto, digamos que A exista sem causa, de existir e ser como A. Portanto, A é A caoticamente. Isto indica que A não porta definição, não há movito para que há seja A, ou continua A, ou A e não A. A causa está ligada ao ente, seja esse relativo, ou determinado. A causa é indossiavel da realidade, sendo está logicamente assimetrica ou não.
 
-O caos vem do nada, o nada não é valido. O relativo é valido. E o relativo é tal como relativo. Possui uma estabilidade.
+O caos vem do nada, o nada não é valido. O relativo é valido. E o relativo é tal como relativo. Possui uma estabilidade. Isto quer dizer que o caos, ou seja, a incausalidade, retorna a positividade. Desta forma, não somente a pureza existe, mas o auto-causal. A pureza e seu teor auto-causal.
+
+Há a forma, o estado ou determinação ou indeterminação. E há a força que matem a ordem, mantem a forma. Desta maneira, podemos pensar que, para A, há a causa, ou seja, a liga, a força que constrói A e sustenta A como A.
+
+A, desta forma, exige uma força para existir como A, e uma força inteligente para se manter como A.
+
+A causa, portanto, é a força motriz que sustenta a forma, a determinação ou indeterminação. Sem a causa, A não há absoluto, pois o absoluto, sendo positivo, sustenta-se como A, seja A indeterminado ou determinado. Isto é, sendo absoluto uma indiferenciação, a sustentação de tal estado é realativa a uma força.
 
 Até a completa "estabilidade" não determinação, tem causa, pois é um estado positivo.
 
@@ -5420,6 +5428,131 @@ A serpente queria que Adão e Eva morressem, então transviou o propósito da ma
 #### **A metafísica posterior: depois do mundo**
 
 O pós-mundo é uma construção individual e também coletiva. Ao imaginarmos a aspiração do homem, podemos traçar uma linha intuitiva. Ao imaginarmos um mundo renovado, com o espírito evidenciado de certa forma num corpo espiritual, comandado pela mente: um mundo de novas possibilidades, parecido com este, mas renovado e ampliado. Este seria um cenário projetável interessante.
+
+
+
+
+
+
+
+
+
+### Metafisica do homem - argumetnos soltos que devem ser incorporados acima.
+
+## 1. Presença, “Sou” e Relativo
+
+A presença do Espírito é transparente, ela transpassa o sou. Porém, a presença do sou é unificada. O sou tem autodomínio, autopresença e autoconhecimento.
+
+A presença, no relativo, é contraparte do relativo, de forma que a presença está para o relativo, e não somente o relativo está para a presença. Isto quer dizer que a própria presença representa sua definição como tal, e não somente como relativo.
+
+A presença, portanto, tem força sobre si mesma e não somente sobre o campo relativo. Pois a presença está sob um relativo individual, e não em um relativo individual. A presença é o próprio relativo, não apenas tem um relativo. Desta forma, a presença tem a vazão de si mesma, não está confinada em si, mas tem uma autonomia não somente sobre o campo das possibilidades, como sobre si mesma.
+
+O relativo, não pode ser subdividido, em relativos individuais, ainda que existam muitos observadores. Porém, a determinação de um observador, num estado relativo, isto é, na completude, se diferencia de outros determinadores. Cada determinador, na completude, num estado relativo, é realivo para outro determinador. Isto é, se A é relativo, portanto, para B, A é relativo. Não há um relativo individual para cade determinador. Pois o nada não se subdivide.
+
+Portanto, o determinador ainda mantem sua unidade e essencia, de forma a ser um determinador no estado relativo. A unidade, é um auto determiador sobore o relativo indiferenciado, isto quer dizer que há um relativo particular. O absoluto determinado. Ao estar sobre o relativo, com potencial de ação desse relativo, a alma não compete com outro determinador pela ação no mesmos relativo. Pois, sua ação sobre o relativo, estando este em estado puro de indiferenciação é a propria ação inerte de deixa-lo puro. Portanto, a alma, deixando o relativo como tal, sem determinar, já opera sobre todo ele. Desta forma, se determina um relativo.
+
+O paralelismo entre relativos no estado de indiferenciação, isto é quando o determinador não determina localidade, distancia de si entre outros. Se dá de forma que, cada relativo torna-se um nada refereciável, isto opoe o relativo não referenciavel.
+
+O relativo fundamental está sob tutela do indiferenciado, enquanto o relativo individual relativiza o todo, outros determinadores e o proprio ente se de sua vontade. Portanto, é sobreposto, com a criação do homem, não somente determinadores, mas uma relativização determinada. No sentido de que a alma, para relativo, ainda é relativa, individualmente. Está a um limite de distancia de outros relativos inalcancável.
+
+A criação, portanto, não particiona o relativo fundamental, mas produz determinadores que mantem um estado de relativo particular, que relativiza entre eles. Desta forma, um pode ser indetectável para o outro, ainda que aparentemente o relativo seja uma unidade.
+
+O Espaço e tempo, para o relativo fundamental, se todos os relativos determinados estivessem num estado relativo é diferente do Espaço e tempo linear. No espaço e tempo linear duas coisas não podem ocupar o mesmo contexto de forma que não se colidam. Quando se determina outros determinadores sob o relativo fundamental, ou seja, o relativo do Ser, a relatividade se torna numerosa e relacional. Um relativo é relativo para outro relativo, e não somente em si mesmo. Temos portanto uma espacialidade não linear.
+
+Desta forma temos para cada relativo, todo o espaço de si, um espaço infindavel, e uma transcendencia para esse mesmo espaço. Ainda que outros relativos estejam no absoluto, o absoluto porta relativos, e ainda é indiferenciado, sendo translucido a essas determinações.
+
+Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico.
+
+O determinador, num estado relativo, isto é, sem quer determinação, permanece a indeterminação determinada. Isto quer dizer que, até mesmo o absoluto se determina, fazendo com que cada alma seja um absoluto. Isto quer dizer que, o absoluto determinado absoluto, cada um tem a soberania sob seu absoluto individual.
+
+O absoluto individual, é detectavel, é determinado absoluto, não é transparente a outro absoluto individual. É homogeneo, soluvel. Exemplo: dois absolutos podem se tocar, se misturar, estarem distantes, individualmente.
+
+O absoluto fundamental é indeterminado.
+
+## 2. Unidade, Dualidade e Fusão das Almas
+
+Eu sou você e você sou eu. Na união da dualidade não há duas consciências, há uma só. E desse total encontro há uma terceira consciência. O Eu é relativo, no sentido de que o indivíduo pode se anular, pode se misturar ao outro.
+
+No coração da dualidade há um X. Ou seja, o coração de uma das almas terá um X no encontro com outra.
+
+A alma é totalmente livre para ser outra, sair de si ou ser mais que si.
+
+No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel.
+
+Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
+
+- Os anjos são projeções que não podem se materializar, portanto, sua liberdade é projetada e não constituida. São projeções purissimas da individualização do absoluto. Projeções que obtem teor de liberdade incultido na própria projeção, por isso, não constituido. Então possuiem obediencia a nível absoluto. São criados sob uma perspectiva de liberdade, e não sobre a liberdade constitutiva. Portanto, não podem desobedecer, possuem um conhecimento avançado, e não podem assumir formas materiais se não designado a seu intuito projetado. 
+
+
+- Se o homem será como os anjos no questio do casamento, será como projeções de pessoas.
+
+
+## 3. Corrupção, Morte e Nada
+
+A herança da corrupção foi a possibilidade da anulação da alma.
+Adão e Eva morreram para se unir para sempre. Herdamos a morte como um gesto de amor, no qual morreríamos para nos unir com o outro. Como se tivéssemos sucedido a mesma paixão. Como se o universo nos exortasse, de alguma forma, a ter a mesma experiência romântica.
+O nada é uma anulação da substância, um estado da substância anulada.
+O pecado original é a contingencia, o rompimento do amor perfeito a seres possívelmente não perfeitos - contingentes.
+
+## 4. Fundamento, Causa e Absoluto
+
+No relativo, há um sentimento completo de paz e plenitude. A completude.
+
+O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma.
+
+Quando o absoluto se torna uma unidade absoluta. Há a transcendencia, pois a alma é um ente relativo. Porém, sendo unidade, há a transcendencia de si para o Ser, para o outro sou e a possibilidade do não si, ou seja, da auto anulação eterna. Da queima da própria presença. Portanto, enquanto absoluto fundamental, não sendo uma unidade não há a opção de ser não unidade, pois o absoluto é indiferenciado. Enquanto determinado um absoluto, se faz passível de ser anulado. A vida é relativa, pode ser vida em si, vida em Ser, vida no outro, e não vida. A relatividade da alma abrange todas as opções possíveis para relativo.
+
+## 5. Liberdade, Espírito e Renascimento
+
+O Espírito não pode se nadificar, pois é instaurado pela existência, é conforme o absoluto.
+
+O renascimento pelo espírito continua um mistério. O indivíduo nasce, porém é necessário optar pela vida, que é seu primeiro movimento. Portanto, há um primeiro ato de liberdade. Esse primeiro ato de liberdade segue de um segundo ato, que é decidir pela vida por si, a verdadeira vida.
+
+O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se não fosse vivo.
+
+O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
+
+
+O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualidade, mas segundo a unidade. Se criaria um ser mesmo, determinado por A. Sendo sua vida relativa a A. E não relativa a C. Se A cria A, então A é realtiva a A. Se B cria B, então B é relativa a B. Se A e B, criam C, C não é relativa a A ou B, mas a C. A alma relativa a A, obedece A, segue ordens, e tem um pensamento direto comandado por A. Isto a confere um raciocinio mais rapido, seguir funções. Pois sua auto causalidade é relativa a A.
+
+Jesus não falava de uma projeção de um comportamento perfeito, mas falava de serem como novos seres criados. Falava que seriam como a projeção.
+Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
+Os anjos tem um conhecimento direto. 
+
+Serão como anjos, ou seja, serão como almas projetadas e obedientes. Almas sem auto dominio. Com auto dominio comandado.
+Se comportarão é diferente de como serão. 
+
+Serão como uma projeção, uma segunda alma construida de forma monolitica, e não dualistica. 
+O homem monolitico. O anjo. Serão como homens monoliticos.
+
+Se ambos forem um só, ambos serão uma projeção da dualidade.
+
+
+> A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
+
+> Casamento é uma união fraca. É uma união relacional humana, sem conexão genuina interna a consciencia. Ser como uma projeção de si mesmo, é ser como anjo. Serão como projeções de si mesmos.
+
+> O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
+
+> Duas consicencias unidas, são o infinito reverberante da consciencia. A infinitude do Eu, a quebra do eu individual rumo a infinitude da cosnciecnia.
+
+> A dualidade, em conjunto, se indiferencia, tornando-se uma só substancia. A dualidade, portanto, torna-se auto-determinada. Uma indeterminação auto causal.
+
+> O homem é uma individualização do absoluto, porem, ao se-la, não se é mais absoluto. Pois o absoluto determinado, fica alheio a si mesmo. Porem, o homem é uma individualização da liberdade no campo absoluto. Uma liberdade nao necessariamente condicionada ao Ser. Uma liberdade não indiferenciada, mas diferenciada. Portanto, o homem não é o relativo, mas é o relativo ao ser e ao outro. É a liberdade que é relativa no relativo, e no relativo do outro. Desta forma, não temos dois relativos um para o homem e um para o Espírito do Ser. 
+
+Temos, desta forma a liberdade do homem para relativo, para absoluto. O homem, assim, torna-se extenso, para o absoluto, sem que o absoluto perca seu teor absoluto.
+
+A ação do homem sobre o nada se torna individual a partir do momento da ação.
+
+
+> A alma do homem é espirito e alma, tal como Jesus. Deus pai é o ato da fundamentação eterna, e o homem é criado no tempo. Portanto, temos que a personalidade da fundamentação é trina com a alma de Jesus. O homem, no entanto, é dual: alma e espírito.
+
+
+
+
+
+
+
 
 
 
@@ -9004,118 +9137,6 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 # RASCUNHOS
-
-
-
-### Metafisica do homem
-
-## 1. Presença, “Sou” e Relativo
-
-A presença do Espírito é transparente, ela transpassa o sou. Porém, a presença do sou é unificada. O sou tem autodomínio, autopresença e autoconhecimento.
-
-A presença, no relativo, é contraparte do relativo, de forma que a presença está para o relativo, e não somente o relativo está para a presença. Isto quer dizer que a própria presença representa sua definição como tal, e não somente como relativo.
-
-A presença, portanto, tem força sobre si mesma e não somente sobre o campo relativo. Pois a presença está sob um relativo individual, e não em um relativo individual. A presença é o próprio relativo, não apenas tem um relativo. Desta forma, a presença tem a vazão de si mesma, não está confinada em si, mas tem uma autonomia não somente sobre o campo das possibilidades, como sobre si mesma.
-
-O relativo, não pode ser subdividido, em relativos individuais, ainda que existam muitos observadores. Porém, a determinação de um observador, num estado relativo, isto é, na completude, se diferencia de outros determinadores. Cada determinador, na completude, num estado relativo, é realivo para outro determinador. Isto é, se A é relativo, portanto, para B, A é relativo. Não há um relativo individual para cade determinador. Pois o nada não se subdivide.
-
-Portanto, o determinador ainda mantem sua unidade e essencia, de forma a ser um determinador no estado relativo. A unidade, é um auto determiador sobore o relativo indiferenciado, isto quer dizer que há um relativo particular. O absoluto determinado. Ao estar sobre o relativo, com potencial de ação desse relativo, a alma não compete com outro determinador pela ação no mesmos relativo. Pois, sua ação sobre o relativo, estando este em estado puro de indiferenciação é a propria ação inerte de deixa-lo puro. Portanto, a alma, deixando o relativo como tal, sem determinar, já opera sobre todo ele. Desta forma, se determina um relativo.
-
-O paralelismo entre relativos no estado de indiferenciação, isto é quando o determinador não determina localidade, distancia de si entre outros. Se dá de forma que, cada relativo torna-se um nada refereciável, isto opoe o relativo não referenciavel.
-
-O relativo fundamental está sob tutela do indiferenciado, enquanto o relativo individual relativiza o todo, outros determinadores e o proprio ente se de sua vontade. Portanto, é sobreposto, com a criação do homem, não somente determinadores, mas uma relativização determinada. No sentido de que a alma, para relativo, ainda é relativa, individualmente. Está a um limite de distancia de outros relativos inalcancável.
-
-A criação, portanto, não particiona o relativo fundamental, mas produz determinadores que mantem um estado de relativo particular, que relativiza entre eles. Desta forma, um pode ser indetectável para o outro, ainda que aparentemente o relativo seja uma unidade.
-
-O Espaço e tempo, para o relativo fundamental, se todos os relativos determinados estivessem num estado relativo é diferente do Espaço e tempo linear. No espaço e tempo linear duas coisas não podem ocupar o mesmo contexto de forma que não se colidam. Quando se determina outros determinadores sob o relativo fundamental, ou seja, o relativo do Ser, a relatividade se torna numerosa e relacional. Um relativo é relativo para outro relativo, e não somente em si mesmo. Temos portanto uma espacialidade não linear.
-
-Desta forma temos para cada relativo, todo o espaço de si, um espaço infindavel, e uma transcendencia para esse mesmo espaço. Ainda que outros relativos estejam no absoluto, o absoluto porta relativos, e ainda é indiferenciado, sendo translucido a essas determinações.
-
-Exemplo: o mesmo espaço pode ser ocupado por 2 pessoas, se forem relativas uma a outra, ou seja, o espaçamento é de cunho individual e não espacial. O relativo nadifica um para o outro em um aparente espaço unico.
-
-O determinador, num estado relativo, isto é, sem quer determinação, permanece a indeterminação determinada. Isto quer dizer que, até mesmo o absoluto se determina, fazendo com que cada alma seja um absoluto. Isto quer dizer que, o absoluto determinado absoluto, cada um tem a soberania sob seu absoluto individual.
-
-O absoluto individual, é detectavel, é determinado absoluto, não é transparente a outro absoluto individual. É homogeneo, soluvel. Exemplo: dois absolutos podem se tocar, se misturar, estarem distantes, individualmente.
-
-O absoluto fundamental é indeterminado.
-
-## 2. Unidade, Dualidade e Fusão das Almas
-
-Eu sou você e você sou eu. Na união da dualidade não há duas consciências, há uma só. E desse total encontro há uma terceira consciência. O Eu é relativo, no sentido de que o indivíduo pode se anular, pode se misturar ao outro.
-
-No coração da dualidade há um X. Ou seja, o coração de uma das almas terá um X no encontro com outra.
-
-A alma é totalmente livre para ser outra, sair de si ou ser mais que si.
-
-No encontro entre duas almas, relacional, é possível a fusão, o encontro, a relativização do eu é possível, o eu esta para realtivo, por isto é possível relativizado, se fosse um ente em separação de seu relativo de liberdade, então não seria relativizavel.
-
-Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
-
-- Os anjos são projeções que não podem se materializar, portanto, sua liberdade é projetada e não constituida. São projeções purissimas da individualização do absoluto. Projeções que obtem teor de liberdade incultido na própria projeção, por isso, não constituido. Então possuiem obediencia a nível absoluto. São criados sob uma perspectiva de liberdade, e não sobre a liberdade constitutiva. Portanto, não podem desobedecer, possuem um conhecimento avançado, e não podem assumir formas materiais se não designado a seu intuito projetado. 
-
-
-- Se o homem será como os anjos no questio do casamento, será como projeções de pessoas.
-
-
-## 3. Corrupção, Morte e Nada
-
-A herança da corrupção foi a possibilidade da anulação da alma.
-Adão e Eva morreram para se unir para sempre. Herdamos a morte como um gesto de amor, no qual morreríamos para nos unir com o outro. Como se tivéssemos sucedido a mesma paixão. Como se o universo nos exortasse, de alguma forma, a ter a mesma experiência romântica.
-O nada é uma anulação da substância, um estado da substância anulada.
-O pecado original é a contingencia, o rompimento do amor perfeito a seres possívelmente não perfeitos - contingentes.
-
-## 4. Fundamento, Causa e Absoluto
-
-No relativo, há um sentimento completo de paz e plenitude. A completude.
-
-O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma.
-
-Quando o absoluto se torna uma unidade absoluta. Há a transcendencia, pois a alma é um ente relativo. Porém, sendo unidade, há a transcendencia de si para o Ser, para o outro sou e a possibilidade do não si, ou seja, da auto anulação eterna. Da queima da própria presença. Portanto, enquanto absoluto fundamental, não sendo uma unidade não há a opção de ser não unidade, pois o absoluto é indiferenciado. Enquanto determinado um absoluto, se faz passível de ser anulado. A vida é relativa, pode ser vida em si, vida em Ser, vida no outro, e não vida. A relatividade da alma abrange todas as opções possíveis para relativo.
-
-## 5. Liberdade, Espírito e Renascimento
-
-O Espírito não pode se nadificar, pois é instaurado pela existência, é conforme o absoluto.
-
-O renascimento pelo espírito continua um mistério. O indivíduo nasce, porém é necessário optar pela vida, que é seu primeiro movimento. Portanto, há um primeiro ato de liberdade. Esse primeiro ato de liberdade segue de um segundo ato, que é decidir pela vida por si, a verdadeira vida.
-
-O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se não fosse vivo.
-
-O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
-
-
-O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualidade, mas segundo a unidade. Se criaria um ser mesmo, determinado por A. Sendo sua vida relativa a A. E não relativa a C. Se A cria A, então A é realtiva a A. Se B cria B, então B é relativa a B. Se A e B, criam C, C não é relativa a A ou B, mas a C. A alma relativa a A, obedece A, segue ordens, e tem um pensamento direto comandado por A. Isto a confere um raciocinio mais rapido, seguir funções. Pois sua auto causalidade é relativa a A.
-
-Jesus não falava de uma projeção de um comportamento perfeito, mas falava de serem como novos seres criados. Falava que seriam como a projeção.
-Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
-Os anjos tem um conhecimento direto. 
-
-Serão como anjos, ou seja, serão como almas projetadas e obedientes. Almas sem auto dominio. Com auto dominio comandado.
-Se comportarão é diferente de como serão. 
-
-Serão como uma projeção, uma segunda alma construida de forma monolitica, e não dualistica. 
-O homem monolitico. O anjo. Serão como homens monoliticos.
-
-Se ambos forem um só, ambos serão uma projeção da dualidade.
-
-
-> A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
-
-> Casamento é uma união fraca. É uma união relacional humana, sem conexão genuina interna a consciencia. Ser como uma projeção de si mesmo, é ser como anjo. Serão como projeções de si mesmos.
-
-> O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
-
-> Duas consicencias unidas, são o infinito reverberante da consciencia. A infinitude do Eu, a quebra do eu individual rumo a infinitude da cosnciecnia.
-
-> A dualidade, em conjunto, se indiferencia, tornando-se uma só substancia. A dualidade, portanto, torna-se auto-determinada. Uma indeterminação auto causal.
-
-> O homem é uma individualização do absoluto, porem, ao se-la, não se é mais absoluto. Pois o absoluto determinado, fica alheio a si mesmo. Porem, o homem é uma individualização da liberdade no campo absoluto. Uma liberdade nao necessariamente condicionada ao Ser. Uma liberdade não indiferenciada, mas diferenciada. Portanto, o homem não é o relativo, mas é o relativo ao ser e ao outro. É a liberdade que é relativa no relativo, e no relativo do outro. Desta forma, não temos dois relativos um para o homem e um para o Espírito do Ser. 
-
-Temos, desta forma a liberdade do homem para relativo, para absoluto. O homem, assim, torna-se extenso, para o absoluto, sem que o absoluto perca seu teor absoluto.
-
-A ação do homem sobre o nada se torna individual a partir do momento da ação.
-
-
-> A alma do homem é espirito e alma, tal como Jesus. Deus pai é o ato da fundamentação eterna, e o homem é criado no tempo. Portanto, temos que a personalidade da fundamentação é trina com a alma de Jesus. O homem, no entanto, é dual: alma e espírito.
 
 
 
