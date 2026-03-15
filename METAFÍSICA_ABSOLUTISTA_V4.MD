@@ -9142,9 +9142,11 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
+> A visão de Deus nao depende da visão. O pensamento, não depende do pensamento.
 
 
 
+> O renascimento do Espírito implica que o individuo era vivo, apesar de ser guiado pelos instintos corporais. E depois permanecer imovel. O seu permanecer imovel é vivo, e auto causado. Porém, ao mesmo tempo, é um não mover-se. É um não renascer. O Espirito, auto causa sua queda, porem, ao mesmo tempo, não se move por que não nasceu, não criou movimento. O amor é o motor da ação. O espirito se auto determina, porem, sua auto determinação é viva sem que tenha a verdadeira vida. O individuo permanece imovel, o ódio ao mesmo tempo que é uma atividade em direção a anulação, é uma não atividade. 
 
 
 
