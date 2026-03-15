@@ -8493,6 +8493,33 @@ O niilista deleita-se da guerra como se fosse um conteúdo peculiar, como se vis
 
 A cúpula niilista precisa que exista fome, faz com que a humanidade gaste com fatores desnecessários, faz com que a energia social de construção se dissolva em atividades inúteis quando a subsistência deveria ganhar primazia.
 
+## 6. Niilismo, Crise e Sociedade
+
+O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
+
+O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspecacia, e estratégias para passar na frente em situações economicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua indole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu proprio proposito de vingança, se houver, ao passo que o faz se sentir diminuido.
+
+O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
+
+O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
+
+O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
+
+A humanidade se afungenta na catastrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violencia que disfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
+
+Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma visão metafisica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espírituais do niilismo, porém atua fortemente na organização social uma vez essa sintomatica social sendo compreendida, a soeciedade desenvolverá formas de lidar e de barrar a ação niilista. Uma politica com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De mosntros, causadores e manipulaores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma politica atráves do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, alem de disporem de um mundo que os incentiva a melhora a cada dia.
+
+Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
+
+O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
+
+- A cupula niilista induz o homem a esvazia o relacionamento de sentido, a tornar trivial a separaão, a normalizar, a disassociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mutuo de compreenssão. Artistas são impelidos a separação na tentativa de banalizar para o mundo, o arquetipo de familia, a construação familiar. O que causa intencionalmente individuos mal formados moralmente, alienados quanto a seu auto valor e propensos a criminalidade ou a desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhoes a um politico. O artista, tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança intituida, sem investigação ta como a figura de um politico, e de facil acesso popular e assédio. Tal como facil manipulação e ameaça.
+
+Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
+
+Que provocam distrações em massa.E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento.O bilionário observando a guerra como um jogo de xadrez.O ser humano é tratado ainda como elemento de produção pelos bilionários.Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias.Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes.E a humanidade continua produzindo.
+
+A miséria é uma construção, um projeto niilista, uma idelaização mental, para construir a miséria planos precisam ser araquitetados, o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na soceidade por meio de estratégias e ações. A miséria é um mundo mental construido, tal como é a violencia, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção niilista de catastrofe de seu propria existencia. O causador da miseria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciavel, e que, se deleita do desconhecimento para deixar essa loucura germinar de forma catastrofica.
 
 
 ### **A porta do céu é estreita**
@@ -8912,7 +8939,7 @@ A cupula niilista é representada na alegoria da matrix de forma excepcional, a 
 
 ##**Chamado nas redes sociais**
 
-E se voce pudesse transformar o mundo com um like? E se alguém tivesse criado essa formula? Pois bem, eu criei. Decodifiquei a biblica, em especial o evagelho e geneses, e achei o código que pode acabar com toda a miséria. É uma tradução metfisica e lógica rigorosa que ajuda a huamnidade a entender realmente qual o origem sobre os males da terra para finalemnte poder atuar sobre esse mal.
+E se voce pudesse transformar o mundo com um like? E se alguém tivesse criado essa formula? Pois bem, eu criei. Decodifiquei a biblia, em especial o evagelho e geneses, e achei o código que pode acabar com toda a miséria. É uma tradução metafisica e lógica rigorosa que ajuda a huamnidade a entender realmente qual o origem sobre os males da terra para finalemnte poder atuar sobre esse mal.
 
 Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabalho de entender, de like para que ela chegue a mais pessoas e que possa ser conheecida pelo mundo inteiro.
 
@@ -8967,7 +8994,7 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
-
+### Metafisica do homem
 
 ## 1. Presença, “Sou” e Relativo
 
@@ -9026,25 +9053,6 @@ O pecado original é a contingencia, o rompimento do amor perfeito a seres poss�
 
 ## 4. Fundamento, Causa e Absoluto
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-### Metafisica do homem
-
 No relativo, há um sentimento completo de paz e plenitude. A completude.
 
 O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma.
@@ -9087,88 +9095,9 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 > A dualidade, em conjunto, se indiferencia, tornando-se uma só substancia. A dualidade, portanto, torna-se auto-determinada. Uma indeterminação auto causal.
 
+> O homem é uma individualização do absoluto, porem, ao se-la, não se é mais absoluto. Pois o absoluto determinado, fica alheio a si mesmo. Porem, o homem é uma individualização da liberdade no campo absoluto. Uma liberdade nao necessariamente condicionada ao Ser. Uma liberdade não indiferenciada, mas diferenciada. Portanto, o homem não é o relativo, mas é o relativo ao ser e ao outro. É a liberdade que é relativa no relativo, e no relativo do outro. Desta forma, não temos dois relativos um para o homem e um para o Espírito do Ser. 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-## 6. Niilismo, Crise e Sociedade
-
-O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
-
-O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspecacia, e estratégias para passar na frente em situações economicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua indole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu proprio proposito de vingança, se houver, ao passo que o faz se sentir diminuido.
-
-O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
-
-O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
-
-O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
-
-A humanidade se afungenta na catastrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violencia que disfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
-
-Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma visão metafisica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espírituais do niilismo, porém atua fortemente na organização social uma vez essa sintomatica social sendo compreendida, a soeciedade desenvolverá formas de lidar e de barrar a ação niilista. Uma politica com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De mosntros, causadores e manipulaores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma politica atráves do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, alem de disporem de um mundo que os incentiva a melhora a cada dia.
-
-Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
-
-O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
-
-- A cupula niilista induz o homem a esvazia o relacionamento de sentido, a tornar trivial a separaão, a normalizar, a disassociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mutuo de compreenssão. Artistas são impelidos a separação na tentativa de banalizar para o mundo, o arquetipo de familia, a construação familiar. O que causa intencionalmente individuos mal formados moralmente, alienados quanto a seu auto valor e propensos a criminalidade ou a desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhoes a um politico. O artista, tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança intituida, sem investigação ta como a figura de um politico, e de facil acesso popular e assédio. Tal como facil manipulação e ameaça.
-
-Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
-
-Que provocam distrações em massa.E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento.O bilionário observando a guerra como um jogo de xadrez.O ser humano é tratado ainda como elemento de produção pelos bilionários.Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias.Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes.E a humanidade continua produzindo.
-
-A miséria é uma construção, um projeto niilista, uma idelaização mental, para construir a miséria planos precisam ser araquitetados, o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na soceidade por meio de estratégias e ações. A miséria é um mundo mental construido, tal como é a violencia, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção niilista de catastrofe de seu propria existencia. O causador da miseria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciavel, e que, se deleita do desconhecimento para deixar essa loucura germinar de forma catastrofica.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Temos, desta forma a liberdade do homem para relativo, para absoluto. O homem, assim, torna-se extenso, para o absoluto, sem que o absoluto perca seu teor absoluto.
 
 
 
