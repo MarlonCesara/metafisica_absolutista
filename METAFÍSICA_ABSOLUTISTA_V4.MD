@@ -544,7 +544,6 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-000
 
 ### **PROPOSIÇÃO IV: A AUTO CAUSALIDADE NO ABSOLUTO LÓGICO**
 
@@ -812,12 +811,6 @@ Neste movimento, a própria distinção entre causalidade e lógica se dissolve:
 | **Auto-referência** | Paradoxos são problemas a resolver | Paradoxos são janelas para o transcendente |
 | **Limite** | O logicamente possível | O incognoscível |
 | **Expressão** | Proposições, silogismos, demonstrações | Analogia, símbolo, paradoxo, silêncio |
-
-
-
-888
-
-
 
 
 
@@ -2021,7 +2014,6 @@ A investigação demonstrou, de forma rigorosa, que o “nada” é insustentáv
 
 
 
-000
 ### **PROPOSIÇÃO VIII: O RELATIVO**
 
 #### **O Campo Relativo: O Absoluto Indiferenciado**
@@ -3584,6 +3576,103 @@ O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma re
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## Rascunhos da parte acima
+
+
+O relativo se dá naturalmente, sem causa, e seu estatuto positivo de perfeito equilíbrio tem uma causa, que está efetivamente em conjunto com sua ação positiva. O relativo é porque há uma razão em si para tal, uma causa. Sua necessidade ontológica não dispensa a necessidade de ser autocausal, em vista que sua positividade é intacta como é, e não está em desequilíbrio.
+
+Não há eleita uma de suas formas, ou determinado um estado para o relativo; portanto, a causa de sua estabilidade é a si mesmo, tal como é também a causa de qualquer instabilidade, isto é, qualquer determinação em si.
+
+Há fenômenos, portanto há instabilidade no relativo. Sendo possível a determinação, há uma causa para a não determinação. E esta causa existe incausada, tal como o relativo. Tem sua ação sem ser necessário o sujeito da ação, é conforme o que é. É um determinador altíssimo. Sua ação é efetivada sem a necessidade do determinador. Seu determinador é dissolvido na completude e entregue conforme o que é.
+
+
+
+> Qualquer variação da lógica assimetrica, ainda representa conteudo positivo. Sendo o nada e o ser, ambos, em um estado de indiferença, ainda representam um conteudo positivo e referenciavel.
+
+Lógica simétrica, assimétrica, impossível, disruptivo, não ruptivo.
+
+A causalidade como necessária, independente da simetria lógica. 
+
+
+
+Porem, ao tentarmos criar uma realidade sem causa externa e sem causa em si mesma, chegamos ao caos. O caos não é uma realidade positiva, não é o relativo, é uma realidade auto supressora. 
+
+O caos não é uma realidade auto causal. É a anulação da causa, portanto, digamos que A exista sem causa, de existir e ser como A. Portanto, A é A caoticamente. Isto indica que A não porta definição, não há movito para que há seja A, ou continua A, ou A e não A. A causa está ligada ao ente, seja esse relativo, ou determinado. A causa é indossiavel da realidade, sendo está logicamente assimetrica ou não.
+
+O caos vem do nada, o nada não é valido. O relativo é valido. E o relativo é tal como relativo. Possui uma estabilidade.
+
+Até a completa "estabilidade" não determinação, tem causa, pois é um estado positivo.
+
+
+> Ao estabelecermos a hipotese de contornar a causalidaed, chegamos a hipotese do caos, que tem uma ordem auto-supressora, dando vazão a ordem novamente. Porem, o sentido da ordem é indossiavel dela mesma. A desordem, um elemento que não tem nem mesmo a indefinição apropriada de si, se faz o nada auto supressor. O principio da causalidade, não pode ser questionado, pois a essencia da ordem é indissociavel do ordenado, isto é, do positivo. Se A, é A, então está ordenado como A. Se X é X então se ordena como X. Portanto, o sentido de X, é irrevogavel para X não ser Y.
+
+
+> O ato de plenitude atemporal, coincide sobre o ato de personalização da ação perpendicular do Espírito. De forma que, há um mar do Espírito instaurado, ao passo que há uma ação que jorra dessa mar constantemente. Temos, portanto, uma força fundamental insturada e seu fluxo constante. Que a percorre completamente, porém, conservando a distinção de sua ação na mesma.
+
+Ex: Deus pai é um mar, enquanto o Deus filho é o rumo da correnteza. Ambos são um só, tem uma só direção rumo a continuação das aguas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do Deus pai. 
+
+O ato da plenitude é vivo, mas sua vida é em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer em qualquer ambito e tempralidade está força já instaurada atemporalmente, como uma correnteza que se move num lugar especifico do mar antes imovel, mas vivo. Como gotas que pingam e reverberam em ondas num mar calmo, Deus pai é o mar calmo e o Espírito personalizador é o decidir do cair da gota que provoca reverberações acidentais mediante a plenitude insturada.
+
+A intencionalidade do absoluto
+
+O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um abosluto novamente. O nao absoluto é uma via lógica para absoluto, de forma que se enquadre num sistema lógico, e o absoluto é o legislador lógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no proprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento lógico pragmatico. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existencia aleatória, difusa, disforme ou parcial. Sua existencia é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociavel de si. 
+
+
+A não contigencia, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafisica, mas a liberdade metafisica se molda em favor de sua não contigencia, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, 
+
+Em oposição a ao argumetno da liberdade metafisica, a seguinte objeção poderia ser formada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecanico.
+
+Porém, o abosuto é perfeito, no sentido de que, sua não contigencia não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogavel, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutivel.
+
+Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavlemente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contigencia é descartada como necessaria para sua amplitude de liberdade.
+
+A não contigencia, portanto, não é sistematica, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogavel. A não contigencia é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
+
+> O absoluto é auto determinado, ou auto-indeterminado.
+
+
+
+
+
+
+
+
+
+
+
+777
 
 ### **PROPOSIÇÃO XI: A POTENCIALIDADE CRIADORA DO SER**
 
@@ -8818,9 +8907,6 @@ Em uma sala fria, com o uso de um maquinário extenso que engloba milhares de se
 
 Você pode questionar se isso que está sonhando é real? O que é real? Como se define o real?
 
-
-
-
 A cupula niilista é representada na alegoria da matrix de forma excepcional, a matrix não é só uma maquina mas uma realidade pensada para o humano de forma que nem mesmo ele questione o conteudo dessa realidade, e imagine que se é de forma natural mas é fabricada. A miseria, violencia, guerrars, o humano imagina que isso advem da liberdade de uma integralidade de pessoas, quando na verdade isso é fabricado por um grupo de bilionários.
 
 
@@ -8878,6 +8964,10 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 # RASCUNHOS
+
+
+
+
 
 ## 1. Presença, “Sou” e Relativo
 
@@ -8937,40 +9027,25 @@ O pecado original é a contingencia, o rompimento do amor perfeito a seres poss�
 ## 4. Fundamento, Causa e Absoluto
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### Metafisica do homem
+
 No relativo, há um sentimento completo de paz e plenitude. A completude.
-
-O relativo se dá naturalmente, sem causa, e seu estatuto positivo de perfeito equilíbrio tem uma causa, que está efetivamente em conjunto com sua ação positiva. O relativo é porque há uma razão em si para tal, uma causa. Sua necessidade ontológica não dispensa a necessidade de ser autocausal, em vista que sua positividade é intacta como é, e não está em desequilíbrio.
-
-Não há eleita uma de suas formas, ou determinado um estado para o relativo; portanto, a causa de sua estabilidade é a si mesmo, tal como é também a causa de qualquer instabilidade, isto é, qualquer determinação em si.
-
-Há fenômenos, portanto há instabilidade no relativo. Sendo possível a determinação, há uma causa para a não determinação. E esta causa existe incausada, tal como o relativo. Tem sua ação sem ser necessário o sujeito da ação, é conforme o que é. É um determinador altíssimo. Sua ação é efetivada sem a necessidade do determinador. Seu determinador é dissolvido na completude e entregue conforme o que é.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 O Ser não é contingente. Não pode não exitir, porem, o absoluto determinado não possui essa necessariedade ontológica. O absoluto é não anulavel. É positivo de toda forma.
 
@@ -8985,6 +9060,48 @@ O renascimento pelo espírito continua um mistério. O indivíduo nasce, porém 
 O indivíduo que não se move espiritualmente, ou seja, não tem a razão, o motor do amor, age como se fosse uma pedra. Seu corpo intenta a favor da estaticidade, não se deixa levar, mas se faz como se não fosse vivo.
 
 O livre arbitrio individual, sem substancia, está no relativo. A liberdade individual.
+
+
+O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualidade, mas segundo a unidade. Se criaria um ser mesmo, determinado por A. Sendo sua vida relativa a A. E não relativa a C. Se A cria A, então A é realtiva a A. Se B cria B, então B é relativa a B. Se A e B, criam C, C não é relativa a A ou B, mas a C. A alma relativa a A, obedece A, segue ordens, e tem um pensamento direto comandado por A. Isto a confere um raciocinio mais rapido, seguir funções. Pois sua auto causalidade é relativa a A.
+
+Jesus não falava de uma projeção de um comportamento perfeito, mas falava de serem como novos seres criados. Falava que seriam como a projeção.
+Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
+Os anjos tem um conhecimento direto. 
+
+Serão como anjos, ou seja, serão como almas projetadas e obedientes. Almas sem auto dominio. Com auto dominio comandado.
+Se comportarão é diferente de como serão. 
+
+Serão como uma projeção, uma segunda alma construida de forma monolitica, e não dualistica. 
+O homem monolitico. O anjo. Serão como homens monoliticos.
+
+Se ambos forem um só, ambos serão uma projeção da dualidade.
+
+
+> A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
+
+> Casamento é uma união fraca. É uma união relacional humana, sem conexão genuina interna a consciencia. Ser como uma projeção de si mesmo, é ser como anjo. Serão como projeções de si mesmos.
+
+> O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
+
+> Duas consicencias unidas, são o infinito reverberante da consciencia. A infinitude do Eu, a quebra do eu individual rumo a infinitude da cosnciecnia.
+
+> A dualidade, em conjunto, se indiferencia, tornando-se uma só substancia. A dualidade, portanto, torna-se auto-determinada. Uma indeterminação auto causal.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -9019,7 +9136,9 @@ O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage co
 
 Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
 
+Que provocam distrações em massa.E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento.O bilionário observando a guerra como um jogo de xadrez.O ser humano é tratado ainda como elemento de produção pelos bilionários.Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias.Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes.E a humanidade continua produzindo.
 
+A miséria é uma construção, um projeto niilista, uma idelaização mental, para construir a miséria planos precisam ser araquitetados, o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na soceidade por meio de estratégias e ações. A miséria é um mundo mental construido, tal como é a violencia, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção niilista de catastrofe de seu propria existencia. O causador da miseria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciavel, e que, se deleita do desconhecimento para deixar essa loucura germinar de forma catastrofica.
 
 
 
@@ -9053,137 +9172,3 @@ Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia nes
 
 
 
-
-
-
-Que provocam distrações em massa.
-
-E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.
-
-O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento.
-
-
-
-O bilionário observando a guerra como um jogo de xadrez.
-
-O ser humano é tratado ainda como elemento de produção pelos bilionários.
-
-Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias.
-
-Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes.
-
-E a humanidade continua produzindo.
-
-
-> Qualquer variação da lógica assimetrica, ainda representa conteudo positivo. Sendo o nada e o ser, ambos, em um estado de indiferença, ainda representam um conteudo positivo e referenciavel.
-
-Lógica simétrica, assimétrica, impossível, disruptivo, não ruptivo.
-
-A causalidade como necessária, independente da simetria lógica. 
-
-
-
-Porem, ao tentarmos criar uma realidade sem causa externa e sem causa em si mesma, chegamos ao caos. O caos não é uma realidade positiva, não é o relativo, é uma realidade auto supressora. 
-
-O caos não é uma realidade auto causal. É a anulação da causa, portanto, digamos que A exista sem causa, de existir e ser como A. Portanto, A é A caoticamente. Isto indica que A não porta definição, não há movito para que há seja A, ou continua A, ou A e não A. A causa está ligada ao ente, seja esse relativo, ou determinado. A causa é indossiavel da realidade, sendo está logicamente assimetrica ou não.
-
-O caos vem do nada, o nada não é valido. O relativo é valido. E o relativo é tal como relativo. Possui uma estabilidade.
-
-Até a completa "estabilidade" não determinação, tem causa, pois é um estado positivo.
-
-
-
-
-
-O homem paralelo - Ao imaginarmos que seja possível criar não segundo a dualidade, mas segundo a unidade. Se criaria um ser mesmo, determinado por A. Sendo sua vida relativa a A. E não relativa a C. Se A cria A, então A é realtiva a A. Se B cria B, então B é relativa a B. Se A e B, criam C, C não é relativa a A ou B, mas a C. A alma relativa a A, obedece A, segue ordens, e tem um pensamento direto comandado por A. Isto a confere um raciocinio mais rapido, seguir funções. Pois sua auto causalidade é relativa a A.
-
-Jesus não falava de uma projeção de um comportamento perfeito, mas falava de serem como novos seres criados. Falava que seriam como a projeção.
-Seriam como novos seres criados e proojetados. Serão como projeções deles mesmos.
-Os anjos tem um conhecimento direto. 
-
-Serão como anjos, ou seja, serão como almas projetadas e obedientes. Almas sem auto dominio. Com auto dominio comandado.
-Se comportarão é diferente de como serão. 
-
-Serão como uma projeção, uma segunda alma construida de forma monolitica, e não dualistica. 
-O homem monolitico. O anjo. Serão como homens monoliticos.
-
-Se ambos forem um só, ambos serão uma projeção da dualidade.
-
-
-
-
-> A alma então não é livre para ser outra sem a dualidade? Mas da mesma forma sem a possibilidade de ser completa com outra, não seria livre para o amor, para fazer parte de outra.
-
-> Casamento é uma união fraca. É uma união relacional humana, sem conexão genuina interna a consciencia. Ser como uma projeção de si mesmo, é ser como anjo. Serão como projeções de si mesmos.
-
-> O mais alto nível de consciencia é quando o em si, enxerga a si de outra consciencia. A consciencia é consciente de si, de fora de si. Através de outra.
-
-
-> Duas consicencias unidas, são o infinito reverberante da consciencia. A infinitude do Eu, a quebra do eu individual rumo a infinitude da cosnciecnia.
-
-
-
-> Ao estabelecermos a hipotese de contornar a causalidaed, chegamos a hipotese do caos, que tem uma ordem auto-supressora, dando vazão a ordem novamente. Porem, o sentido da ordem é indossiavel dela mesma. A desordem, um elemento que não tem nem mesmo a indefinição apropriada de si, se faz o nada auto supressor. O principio da causalidade, não pode ser questionado, pois a essencia da ordem é indissociavel do ordenado, isto é, do positivo. Se A, é A, então está ordenado como A. Se X é X então se ordena como X. Portanto, o sentido de X, é irrevogavel para X não ser Y.
-
-
-
-
-
-
-
-
-
-
-============já incorporados no rascunho final===============
-
-
-
-
-
-
-> O ato de plenitude atemporal, coincide sobre o ato de personalização da ação perpendicular do Espírito. De forma que, há um mar do Espírito instaurado, ao passo que há uma ação que jorra dessa mar constantemente. Temos, portanto, uma força fundamental insturada e seu fluxo constante. Que a percorre completamente, porém, conservando a distinção de sua ação na mesma.
-
-Ex: Deus pai é um mar, enquanto o Deus filho é o rumo da correnteza. Ambos são um só, tem uma só direção rumo a continuação das aguas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do Deus pai. 
-
-O ato da plenitude é vivo, mas sua vida é em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer em qualquer ambito e tempralidade está força já instaurada atemporalmente, como uma correnteza que se move num lugar especifico do mar antes imovel, mas vivo. Como gotas que pingam e reverberam em ondas num mar calmo, Deus pai é o mar calmo e o Espírito personalizador é o decidir do cair da gota que provoca reverberações acidentais mediante a plenitude insturada.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-A intencionalidade do absoluto
-
-
-O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um abosluto novamente. O nao absoluto é uma via lógica para absoluto, de forma que se enquadre num sistema lógico, e o absoluto é o legislador lógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no proprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento lógico pragmatico. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existencia aleatória, difusa, disforme ou parcial. Sua existencia é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociavel de si. 
-
-
-A não contigencia, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafisica, mas a liberdade metafisica se molda em favor de sua não contigencia, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, 
-
-Em oposição a ao argumetno da liberdade metafisica, a seguinte objeção poderia ser formada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecanico.
-
-Porém, o abosuto é perfeito, no sentido de que, sua não contigencia não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogavel, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutivel.
-
-Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavlemente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contigencia é descartada como necessaria para sua amplitude de liberdade.
-
-A não contigencia, portanto, não é sistematica, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogavel. A não contigencia é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
-
-
-
-
-
-> O absoluto é auto determinado, ou auto-indeterminado.
-
-
-> A dualidade, em conjunto, se indiferencia, tornando-se uma só substancia. A dualidade, portanto, torna-se auto-determinada. Uma indeterminação auto causal.
