@@ -9121,6 +9121,9 @@ A ação do homem sobre o nada se torna individual a partir do momento da ação
 
 
 
+> A causalidade necessaria. A lógica assimetrica, representada sob os dominios do aboluto, nao necessariamente apresenta uma negatividade, no sentido de que, o ilógico, é positivo de fato. Porem, ainda sob o ilógico, a causalidade persiste, de forma a ser necessario tanto uma explicação para o ilógico, tanto para o lógico. Isto é, é necessário compreender até mesmo a desordem lógica. A ordem, opera, portanto, até na desordem dos principios definidos por aristoteles, de forma que se façam assimetricos.
+
+Desta forma, a indeterminação, sendo indeterminada, é uma determinação, não no sentido que não é mais relativa, mas no sentido de que exige uma explicação por ser positiva.
 
 
 
