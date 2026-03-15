@@ -8691,7 +8691,8 @@ Também incentivamos o preoconceito. Provocando o ódio.
 Como produzir pessoas cheio de revolta, sem pais separados? Como influenciar os jovens pela musica com boas tutorias sobre eles? Como formar um pensamento voltado para produlção de violencia, de escravos do crime, de pessoas sem educação, sem bons conselhos, com a familia unida? Então, o alvo para produzir a violencia desde os tempos antigos, e o ataque ao antro familiar, a base principal da sociedade. A popularização de desvalores entre os jovens é um meio barato de produzir uma violencia sem grandes investimentos, pois também não temos um dinheiro ilimitado para financiar guerras. Basta a doação de um arcenal de armas, individuos revoltodos e fazemos uma facção, que aterroriza e distrai a população, volta os olhos do povo para a catastrofe.
 
 
-O miséria é uma construção ideológica de um grupo minoritario, com vantagem financeira histórica, que visa aplacar o nalfragio, o desespero existencial por meio de um mundo construido de forma que lhe pareça empatico, ou que projete nesse mundo, sua dor, de forma a pensar-se livre de suas duvidas existenciais, de seu ateismo implicito, de seu ódio.
+
+
 
 
 
@@ -9111,4 +9112,24 @@ A ação do homem sobre o nada se torna individual a partir do momento da ação
 
 
 > A alma do homem é espirito e alma, tal como Jesus. Deus pai é o ato da fundamentação eterna, e o homem é criado no tempo. Portanto, temos que a personalidade da fundamentação é trina com a alma de Jesus. O homem, no entanto, é dual: alma e espírito.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+O miséria é uma construção ideológica de um grupo minoritario, com vantagem financeira histórica, que visa aplacar o nalfragio, o desespero existencial por meio de um mundo construido de forma que lhe pareça empatico, ou que projete nesse mundo, sua dor, de forma a pensar-se livre de de seu ateismo implicito, de seu ódio. A miséria é uma tentativa de aplcar o desespero de um grupo minoritario, que descobre diante de si uma vantagem histórica e se apossa dela para representar o niilismo, e espelhar de forma mundial o seu conflito.
+
+A miséria é o manifesto do conflito. É um desejo obsessivo, louco, resignificado e materializado na humanidade de forma a lhe causar o sofrer. É uma desnaturalização do proposito humano, pela vida, beleza e bem estar geral. Em prol de uma solução inviavel para um conflito corporal. A miséria e a guerra, é a soluçao de um grupo de elite para o empasse dentro de si, é um motivo interior e particular.
+
 
