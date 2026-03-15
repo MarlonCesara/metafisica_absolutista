@@ -9101,3 +9101,6 @@ Temos, desta forma a liberdade do homem para relativo, para absoluto. O homem, a
 
 A ação do homem sobre o nada se torna individual a partir do momento da ação.
 
+
+> A alma do homem é espirito e alma, tal como Jesus. Deus pai é o ato da fundamentação eterna, e o homem é criado no tempo. Portanto, temos que a personalidade da fundamentação é trina com a alma de Jesus. O homem, no entanto, é dual: alma e espírito.
+
