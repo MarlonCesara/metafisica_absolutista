@@ -9099,5 +9099,5 @@ Se ambos forem um só, ambos serão uma projeção da dualidade.
 
 Temos, desta forma a liberdade do homem para relativo, para absoluto. O homem, assim, torna-se extenso, para o absoluto, sem que o absoluto perca seu teor absoluto.
 
-
+A ação do homem sobre o nada se torna individual a partir do momento da ação.
 
