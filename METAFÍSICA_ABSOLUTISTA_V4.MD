@@ -9165,3 +9165,12 @@ A miséria é o manifesto do conflito. É um desejo obsessivo, louco, resignific
 
 
 > Não é possível escolher não ecolher, uma vez sendo livre. Porém, não renascer pelo Espírito, ou seja, pela intenção reta a vida, que está em primazia a decisão horizontal. Ainda se é livre, porém, é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento a vida, ou do próprio movimento em função do Espírito. O individuo, simplesmente se deixa guiar de forma instinitiva. Seu ódio, não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher, acontece em um nível em que há vida, mas não a vida plena. o individuo recusa existir por si, ao passo que existe, mas não tem autodominio sobre si. É um motor imovel, ao passo que é vivo.
+
+
+
+> Há a sintomatica não intencional, que é o individuo em estado de semi vida, que escolhe não escolher. Isto é, tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente é, sem que opere nesse ser. É, como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. 
+
+E há a sintomatica intencional, que se refere a percepção do invividuo de sua intenção, da sua escolha como uma não escolha. Quer dizer que, o individuo percebe sua intencionalidade, ao passo que percebe sua estaticidade, sua passividade. 
+
+Há portanto, um cenário em que o individuo se deixa se levar pelos intintos, ao passo que percebe-se intencionalmente deixado a deriva de si como instintos.  Então são dois tipos de sintomas, os dolorosos pela intenção do individuo, e os assombrosos, pelo estado de mortidão, de semi-vida, de semi operancia, de estaticidade. De uma vida em que não haje, mas se deixa levar por ela.
+
