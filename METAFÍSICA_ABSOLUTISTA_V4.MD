@@ -9174,3 +9174,5 @@ E há a sintomatica intencional, que se refere a percepção do invividuo de sua
 
 Há portanto, um cenário em que o individuo se deixa se levar pelos intintos, ao passo que percebe-se intencionalmente deixado a deriva de si como instintos.  Então são dois tipos de sintomas, os dolorosos pela intenção do individuo, e os assombrosos, pelo estado de mortidão, de semi-vida, de semi operancia, de estaticidade. De uma vida em que não haje, mas se deixa levar por ela.
 
+O individuo, portanto se sente preso em si mesmo, refem de uma realidade que teima em não escolher, é uma vida vidrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
+
