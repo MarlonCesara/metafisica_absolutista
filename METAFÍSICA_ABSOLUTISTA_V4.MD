@@ -9176,3 +9176,5 @@ Há portanto, um cenário em que o individuo se deixa se levar pelos intintos, a
 
 O individuo, portanto se sente preso em si mesmo, refem de uma realidade que teima em não escolher, é uma vida vidrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
 
+Sintomas de assombro: Sensação de angustia, aprisionamento interior, impressão de sonolencia interior, impressão de irrealidade da vida, como se fosse produto de uma consciencia e não de si.
+
