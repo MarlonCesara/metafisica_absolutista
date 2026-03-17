@@ -9181,4 +9181,4 @@ Sintomas de assombro: Sensação de angustia, aprisionamento interior, impressã
 
 
 
-> O relativo não tem forma, mas tem ordem. 
+> O relativo não tem forma, mas tem ordem. Então não se tem mais apenas a causa identitaria, como uma limitação do pensamento ao sistema aristotelico, abordando o indiferenciado, temos a causa da ordem, do estado purissimo.
