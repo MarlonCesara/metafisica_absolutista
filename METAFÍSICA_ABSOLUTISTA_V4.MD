@@ -9178,3 +9178,7 @@ O individuo, portanto se sente preso em si mesmo, refem de uma realidade que tei
 
 Sintomas de assombro: Sensação de angustia, aprisionamento interior, impressão de sonolencia interior, impressão de irrealidade da vida, como se fosse produto de uma consciencia e não de si.
 
+
+
+
+> O relativo não tem forma, mas tem ordem. 
