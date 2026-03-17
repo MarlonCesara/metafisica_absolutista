@@ -9184,3 +9184,5 @@ Sintomas de assombro: Sensação de angustia, aprisionamento interior, impressã
 > O relativo não tem forma, mas tem ordem. Então não se tem mais apenas a causa identitaria, como uma limitação do pensamento ao sistema aristotelico, abordando o indiferenciado, temos a causa da ordem, do estado purissimo.
 
 > O absoluto é auto ordenado.
+
+> Para exemplificar porque a causa é inseparavel do absoluto, ao inferir que há ordem no absoluto, imaginemos que a ordem seja um atomo. Esse atomo tem uma regra, uma energia que o liga, para ser atomo A e não atomo B. A energia que mantem atomo A é inseparavel, da mesma forma que o motivo que mantem absoluto A e não B é inseparavel de Absoluto sendo A. Sendo assim, basta encontrar um sentido para o surgimento de uma realidade auto causal. A causa que opera no absolito para que exista como A e não B, conhece A, domina A, e está presente em A. Ou seja, a força existe, impera e conhece. Tais propriedades são indissociaveis.
