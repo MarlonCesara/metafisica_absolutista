@@ -3675,6 +3675,20 @@ A não contigencia, portanto, não é sistematica, no sentido de uma não ação
 > O absoluto é auto determinado, ou auto-indeterminado.
 
 
+> O relativo não tem forma, mas tem ordem. Então não se tem mais apenas a causa identitaria, como uma limitação do pensamento ao sistema aristotelico, abordando o indiferenciado, temos a causa da ordem, do estado purissimo.
+
+> O absoluto é auto ordenado.
+
+> Para exemplificar porque a causa é inseparavel do absoluto, ao inferir que há ordem no absoluto, imaginemos que a ordem seja um atomo. Esse atomo tem uma regra, uma energia que o liga, para ser atomo A e não atomo B. A energia que mantem atomo A é inseparavel, da mesma forma que o motivo que mantem absoluto A e não B é inseparavel de Absoluto sendo A. Sendo assim, basta encontrar um sentido para o surgimento de uma realidade auto causal. A causa que opera no absolito para que exista como A e não B, conhece A, domina A, e está presente em A. Ou seja, a força existe, impera e conhece. Tais propriedades são indissociaveis.
+
+
+
+
+
+
+
+
+
 
 
 
@@ -9142,6 +9156,9 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
+
+
+
 > A visão de Deus nao depende da visão. O pensamento, não depende do pensamento.
 
 
@@ -9170,6 +9187,11 @@ A miséria é o manifesto do conflito. É um desejo obsessivo, louco, resignific
 
 > Há a sintomatica não intencional, que é o individuo em estado de semi vida, que escolhe não escolher. Isto é, tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente é, sem que opere nesse ser. É, como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. 
 
+
+
+
+
+
 E há a sintomatica intencional, que se refere a percepção do invividuo de sua intenção, da sua escolha como uma não escolha. Quer dizer que, o individuo percebe sua intencionalidade, ao passo que percebe sua estaticidade, sua passividade. 
 
 Há portanto, um cenário em que o individuo se deixa se levar pelos intintos, ao passo que percebe-se intencionalmente deixado a deriva de si como instintos.  Então são dois tipos de sintomas, os dolorosos pela intenção do individuo, e os assombrosos, pelo estado de mortidão, de semi-vida, de semi operancia, de estaticidade. De uma vida em que não haje, mas se deixa levar por ela.
@@ -9179,10 +9201,3 @@ O individuo, portanto se sente preso em si mesmo, refem de uma realidade que tei
 Sintomas de assombro: Sensação de angustia, aprisionamento interior, impressão de sonolencia interior, impressão de irrealidade da vida, como se fosse produto de uma consciencia e não de si.
 
 
-
-
-> O relativo não tem forma, mas tem ordem. Então não se tem mais apenas a causa identitaria, como uma limitação do pensamento ao sistema aristotelico, abordando o indiferenciado, temos a causa da ordem, do estado purissimo.
-
-> O absoluto é auto ordenado.
-
-> Para exemplificar porque a causa é inseparavel do absoluto, ao inferir que há ordem no absoluto, imaginemos que a ordem seja um atomo. Esse atomo tem uma regra, uma energia que o liga, para ser atomo A e não atomo B. A energia que mantem atomo A é inseparavel, da mesma forma que o motivo que mantem absoluto A e não B é inseparavel de Absoluto sendo A. Sendo assim, basta encontrar um sentido para o surgimento de uma realidade auto causal. A causa que opera no absolito para que exista como A e não B, conhece A, domina A, e está presente em A. Ou seja, a força existe, impera e conhece. Tais propriedades são indissociaveis.
