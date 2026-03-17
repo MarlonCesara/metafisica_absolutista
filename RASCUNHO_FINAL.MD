@@ -488,6 +488,8 @@ O próximo passo inevitável é perguntar: **que implicações ontológicas deco
 
 Esta Proposição II realiza precisamente esta transição: dos princípios *lógicos* aos princípios *causais*. Demonstra-se que a dupla dimensão identificada (atemporal/temporal aplicada aos eixos Ser/Não-Ser e Ser/Outro) exige uma dupla fundamentação para tudo o que existe: uma fundamentação para sua **existência** e outra para sua **identidade**.
 
+Porém, a identidade sendo questionada e sendo considerada uma subcategoria para absoluto. Nos advem a necessidade de considerar um termo mais elevado do que a identidade, então consideremos a ordem, que é um estado que se mantem como estado ou ordenado, ao passo que é positivo, e não ao passo que segue as diretrizes da lógica classica. Se algo é A, ou se A = não A, temos, ainda que não uma identidade fixa, uma ordem. A é não A, de forma positiva e referenciável. Poderia ser A, mas é A = não A, e isso sugere a ordem. O estado de indefinição ou indiferenciação da determinação, também é um estado.
+
 ### 2. A Dupla Fundamentação da Realidade
 
 A aplicação da estrutura lógica previamente estabelecida ao domínio da causalidade revela que toda realidade contingente exige uma **dupla fundamentação necessária e irredutível**: uma para a sua **existência** e outra para a sua **identidade**. Esta análise causal eleva os princípios lógicos do plano do pensamento para o plano do ser.
