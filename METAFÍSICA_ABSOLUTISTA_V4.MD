@@ -9109,7 +9109,10 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
+> A sintomatica se diverge em dois caminhos. Os sintomas vividos, e os sintomas apaticos. Ambos se misturam e são perceptiveis.
 
+Os sintomas vividos se relacionam a percepçaõ da intenção pela anulação.
+E os sintomas apatico se associam a percepção da apatia, do assombro mediante a existencia distinta de sua conexão, de seu querer, de si. Como um estranhamento geral, como uma barreira entre a consciencia que percebe a existencia mas não se conecta.
 
 
 
