@@ -10839,3 +10839,39 @@ Portanto, o crescimento empresarial não vem da genialidade, mas do oportunismo 
 Redes como McDonald's, grandes redes de supermercados, todas essas falecem se os trabalhadores exigirem remuneração justa, pois são submetidas a formas mais inteligentes de empreendimentos que respeitam o humano e têm processos mais ágeis e facilitados. As que são fomentadas por verdadeiros empreendedores que pensam em agilidade, facilidade e no bem humano.
 
 O indivíduo passa a ignorar sua própria existência, abandonando a noção de eu.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+==================
+
+
+> Não é possível subdividir o absoluto sob pena de deixar de ser abosoluto.
+> Não é possível subdividir o nada, pois o nada não carrega propriedades de divisão.
+
+O homem, portanto não é uma individualização do absoluto, ou um particionamento do nada. Mas a liberdade pode ser determinada una, no sentido de que o homem é uma liberdade, uma personalidade que opera sob o nada, e sobre as realidades relacionais, Deus e outros homens. A substancia Espiritual pode ser individualizada, no sentido de que, não seja o próprio Espirito absoluto, e não comporta uma individualização do relativo, pois o relativo não se individualiza.
+
+O homem, portanto é livre, e conteudo Espíritual, tal como Deus, porém, nao é indiferenciado e intecionalmente necessario.
+
+
