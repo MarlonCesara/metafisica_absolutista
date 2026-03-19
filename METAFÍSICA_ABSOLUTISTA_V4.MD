@@ -10875,3 +10875,12 @@ O homem, portanto não é uma individualização do absoluto, ou um particioname
 O homem, portanto é livre, e conteudo Espíritual, tal como Deus, porém, nao é indiferenciado e intecionalmente necessario.
 
 
+> O relacionamento com Deus ao passo é um relacionamento cristalino, o homem, ao lançar-se na homogeneidade de Deus encontra a transparencia, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se em Deus torna a alma homogenea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade a alma. Uma vasão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamneto com outra alma, que confere uma personalidade, uma vazão ao outro.
+
+> Temos o lançar-se no nada, isto é, esburacar a própria alma. Dissolve-la, não é relaciona-la, é usar uma via negativa. É intencionalmente faze-lo ao passo que a açao intencional é um querer cair, é um deixar-se cair inevitavel. É um ser arrastado inevitavelmente.Um ser que ao passo que se assombra com a vida, que tem uma visão virtual, não pertecendora, se sente com medo da sua fininitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que é intencional.
+
+Tem ambas as impressões. O lançar-se no relativo não é um relacionamento que confere pureza, é uma pureza que não é relacionável a Deus, mas uma auto destruição. Então o relativo é não relacional, no sentido de que a alma se lança num estado de potencialidade de si. E isto é um não relacionamento consigo. Ao contrário de se lançar em Deus que é um relacionamento com o exterior vivo de si, com o absoluto.
+
+
+
+
