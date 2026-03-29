@@ -12889,11 +12889,21 @@ Ao lado do homem, outro super-rico, com um sorriso amarelado, diz. Os dois sorri
 
 Com os olhos vidrados na televisão, analisam o acontecimento das mortes. Sentem-se estaticamente hipnotizados pelas luzes das bombas que riscam o céu. Comemoram seu anonimato.
 
-E filosofam entre si como se fossem reis da Terra, como se ainda, em pleno século 21, existisse uma monarquia oculta. Como se tivessem o poder e precisassem conservá-lo cada vez mais; como se fossem possuidores de um paraíso que criaram para eles, onde secretamente expressam seus sentimentos para o mundo como uma carta em forma de mortes, catástrofes, enquanto elegem líderes e manipulam, como um jogo de tabuleiro, os acontecimentos. Como se formulassem um mundo para o mundo acreditar, como se ditassem a história, como se brincassem em um tabuleiro de xadrez de fazer o mundo.
+E filosofam entre si como se fossem reis da Terra, como se ainda, em pleno século vinte e um, existisse uma monarquia oculta. Como se tivessem o poder e precisassem conservá-lo cada vez mais; como se fossem possuidores de um paraíso que criaram para eles, onde secretamente expressam seus sentimentos para o mundo como uma carta em forma de mortes, catástrofes, enquanto elegem líderes e manipulam, como um jogo de tabuleiro, os acontecimentos. Como se formulassem um mundo para o mundo acreditar, como se ditassem a história, como se brincassem em um tabuleiro de xadrez de fazer o mundo.
 
 Um comenta com o outro: como todos eles não desconfiam? Não sabem de nós? Será que não querem ver? Ou estão cegos? Será que não têm inteligência? Ou será que é extremamente difícil imaginar quem somos? Será que nosso propósito é tão difícil de entender?
 
 E se um deles descobrir? Nos encontrarão e o que farão conosco? O seu colega disse: talvez não encontrem, talvez não queiram realmente entender, talvez não queiram saber sobre nós. Talvez não queiram conhecer totalmente a si mesmos.
 
-Olharam um para o outro, e de certa forma pensaram que o segredo ninguém saberia. Ninguém poderia imaginar seu intento e o que sentiam. Não poderiam imaginar que um dia saberiam exatamente quem eram, o que pensavam e como agiam.
+Olharam um para o outro, e de certa forma pensaram que o segredo ninguém saberia. Ninguém poderia imaginar seu intento e o que sentiam. Não poderiam imaginar que um dia saberiam exatamente quem eram, o que pensavam e como agiam. Talvez não queiram ver, ou talvez seja complicado demais para que vejam. 
+
+- Pode ser que um dia nos descubram. Mas enquanto isso, vamos desfrutar de tudo isso.
+
+O calvo pegou uma taça de vinho, e comia alguns aperitivos com uma postura amargurada, cheia de raiva, como se não tivesse nenhum prazer há tempos. E o de cabelo bagunçado fazia a mesma expressão, olhando para as catastrofes, como se odiasse a si mesmo e o que está vendo. Seus movimentos eram rápidos e cheios de raiva. Sua barba suja pelos aperitivos. Um olhar sem brilho, como o de uma fera morta. Um deles usava um turbante, o de cabelos grandes. E o outro estava com um palitó de alta costura, porem que ficara fino demais em suas pernas, mas assim gostava.
+
+Um virou-se para o outro e disse:
+
+- Não se preocupe. Essa massa não pensa, não é atoa que não tem esse patamar de vida, trabalham, tocam suas vidas sem nenhum questionamento. Se preocupam apenas com coisas do dia a dia. Seu pensamento não atinge patamares superiores. O outro gargalhou, e concordou com uma certa tranquilidade aparente, que disfarçada um medo oculto. E se um dia o pensamento atingir a cupula? Imaginava ocultamente. E se um dia resolverem tirar as nossas fortunas? E se chegarem de certa forma a conclusão de toda essa influencia?
+
+Há alguem que talvez nos imagina. Que sabe que estamos com medo, e que talvez imagine o alem, e mostre para o mundo uma realidade onde tudo é possivel.
 
