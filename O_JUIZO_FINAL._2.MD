@@ -9609,9 +9609,6 @@ Redes como McDonald's, grandes redes de supermercados, todas essas falecem se os
 
 O indivíduo passa a ignorar sua própria existência, abandonando a noção de eu.
 
-
-
-
 ## A classe média e a mentira
 
 A cupula niilista mantem a classe media, ou seja, indiividuos que não sofrem tal como as classes de menor ganho, como a c ou d, porque precisa ainda do ser humano para a produção de bens essenciais. Quando a tecnologia cresce e o ser humano é dispensavel para a maioria das coisas, a manutenção de uma classe media, propositalmente mantida por beneficios politicos, é desnecessaria. Então o povo todo se torna pobre, e controlado por um monopolio que está acima da politica pois tem armas de controle que exercem o papel de controle sem causarem uma destruição em massa. Caso fosse possivel dominar com bombas de destruição em massa, já teriam feito. Porém, necessitam de uma tecnologia mais discreta. A violencia, a tendencia a destruição, só esta disfarçada por trás de barreiras politicas, quando essa tendencia acha uma saida dentro de uma tecnologia capaz de burlar todas as outras, então o dominio do autoritarismo e oligarquia novamente tenta emergir. 
@@ -9623,9 +9620,12 @@ As forças que fomentaram a destruição nas antiguidades, não estão mortas, e
 
 
 
+## Rascunhos
+
+> Há uma dupla sintomática no niilismo, porque a uma dupla percepção do corpo. O corpo percebe a intencionalidade da alma, ao passo que a vitrificação da alma numa existência levada por extimulos físicos, onde o individuo não exerce o comando de ação. Ao passo que o individuo se percebe prisioneiro de si, percebe-se intencionado a um destino que não lhe pertence como corpo, pois o corpo o rejeita e repugna esse destino com toda a sua biológia.
 
 
-
+> O homem pode escolher não escolher, no sentido que, quando escolhe um ódio tamanho, simplesmente se faz metafisicamente morto. A própria rejeição à liberdade é uma não escolha. 
 
 
 
