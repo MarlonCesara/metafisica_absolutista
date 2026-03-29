@@ -12881,7 +12881,7 @@ O niilista se enche de ódio ao presenciar a verdadeira diferença, discrepânci
 
 
 
-# Os dois ricos
+### Os dois ricos
 
 No alto de um edifício de luxo, um homem do sorriso torto chama seu mordomo e diz: “Veja, Jerry, eles estão compreendendo.” Um avião atirou e matou centenas; quem dera todos tivessem um videogame tão real.
 
@@ -12895,15 +12895,18 @@ Um comenta com o outro: como todos eles não desconfiam? Não sabem de nós? Ser
 
 E se um deles descobrir? Nos encontrarão e o que farão conosco? O seu colega disse: talvez não encontrem, talvez não queiram realmente entender, talvez não queiram saber sobre nós. Talvez não queiram conhecer totalmente a si mesmos.
 
-Olharam um para o outro, e de certa forma pensaram que o segredo ninguém saberia. Ninguém poderia imaginar seu intento e o que sentiam. Não poderiam imaginar que um dia saberiam exatamente quem eram, o que pensavam e como agiam. Talvez não queiram ver, ou talvez seja complicado demais para que vejam. 
+Olharam um para o outro e, de certa forma, pensaram que o segredo ninguém saberia. Ninguém poderia imaginar seu intento e o que sentiam. Não poderiam imaginar que um dia saberiam exatamente quem eram, o que pensavam e como agiam. Talvez não queiram ver, ou talvez seja complicado demais para que vejam.
 
-- Pode ser que um dia nos descubram. Mas enquanto isso, vamos desfrutar de tudo isso.
+— Pode ser que um dia nos descubram. Mas, enquanto isso, vamos desfrutar de tudo isso.
 
-O calvo pegou uma taça de vinho, e comia alguns aperitivos com uma postura amargurada, cheia de raiva, como se não tivesse nenhum prazer há tempos. E o de cabelo bagunçado fazia a mesma expressão, olhando para as catastrofes, como se odiasse a si mesmo e o que está vendo. Seus movimentos eram rápidos e cheios de raiva. Sua barba suja pelos aperitivos. Um olhar sem brilho, como o de uma fera morta. Um deles usava um turbante, o de cabelos grandes. E o outro estava com um palitó de alta costura, porem que ficara fino demais em suas pernas, mas assim gostava.
+O calvo pegou uma taça de vinho e comia alguns aperitivos, com uma postura amargurada, cheia de raiva, como se não tivesse nenhum prazer há tempos. E o de cabelo bagunçado fazia a mesma expressão, olhando para as catástrofes, como se odiasse a si mesmo e o que está vendo. Seus movimentos eram rápidos e cheios de raiva. Sua barba, suja pelos aperitivos. Um olhar sem brilho, como o de uma fera morta. Um deles usava um turbante, o de cabelos grandes. E o outro estava com um paletó de alta costura, porém que ficara fino demais em suas pernas, mas assim gostava.
 
 Um virou-se para o outro e disse:
 
-- Não se preocupe. Essa massa não pensa, não é atoa que não tem esse patamar de vida, trabalham, tocam suas vidas sem nenhum questionamento. Se preocupam apenas com coisas do dia a dia. Seu pensamento não atinge patamares superiores. O outro gargalhou, e concordou com uma certa tranquilidade aparente, que disfarçada um medo oculto. E se um dia o pensamento atingir a cupula? Imaginava ocultamente. E se um dia resolverem tirar as nossas fortunas? E se chegarem de certa forma a conclusão de toda essa influencia?
+— Não se preocupe. Essa massa não pensa, não é à toa que não tem esse patamar de vida; trabalham, tocam suas vidas sem nenhum questionamento. Preocupam-se apenas com coisas do dia a dia. Seu pensamento não atinge patamares superiores.
 
-Há alguem que talvez nos imagina. Que sabe que estamos com medo, e que talvez imagine o alem, e mostre para o mundo uma realidade onde tudo é possivel.
+O outro gargalhou e concordou com uma certa tranquilidade aparente, que disfarçava um medo oculto. E se um dia o pensamento atingir a cúpula? Imaginava ocultamente. E se um dia resolverem tirar as nossas fortunas? E se chegarem, de certa forma, à conclusão de toda essa influência?
+
+Há alguém que talvez nos imagina, que sabe que estamos com medo e que talvez imagine o além, e mostre para o mundo uma realidade onde tudo é possível.
+
 
