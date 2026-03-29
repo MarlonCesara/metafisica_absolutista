@@ -1836,6 +1836,25 @@ A tentativa de fundamentar a realidade revela que:
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## TEMA 3: ESPÍRITO COMO AUTO-PRESENÇA SEM PSICOLOGIA
 
 ### 3.1 A Necessidade de um Conceito de Espírito
@@ -2996,7 +3015,7 @@ A investigação demonstrou, de forma rigorosa, que o "nada" é insustentável c
 
 
 
-
+444
 
 
 
@@ -4194,7 +4213,7 @@ Portanto, essa primeira proposição é a pedra angular. Ela estabelece que o Ab
 
 
 
-## TEMA 2: O ABSOLUTO COMO INDIFERENCIADO ESTÁVEL
+## O ABSOLUTO COMO INDIFERENCIADO ESTÁVEL
 
 ### 2.1 O Problema de Caracterizar o Absoluto
 
@@ -4564,7 +4583,7 @@ Com ela, temos uma solução original para o problema mais difícil de qualquer 
 
 ---
 
-## TEMA 5: A COERÊNCIA DO FENÔMENO SEM ORDEM TRANSCENDENTE
+## A COERÊNCIA DO FENÔMENO SEM ORDEM TRANSCENDENTE
 
 ### 5.1 O Último Desafio
 
@@ -5554,6 +5573,56 @@ O ato da plenitude é uma interseção entre o ato da fundamentação e o da per
 No relativo, qualquer coisa é possível.
 
 O impossível disruptivo é o mesmo que o Ser, pois o impossível, que é uma realidade talvez destrutiva, se torna realizada no próprio ato de Ser.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -12780,7 +12849,11 @@ O indivíduo passa a ignorar sua própria existência, abandonando a noção de 
 
 
 
+## A classe média e a mentira
 
+A cupula niilista mantem a classe media, ou seja, indiividuos que não sofrem tal como as classes de menor ganho, como a c ou d, porque precisa ainda do ser humano para a produção de bens essenciais. Quando a tecnologia cresce e o ser humano é dispensavel para a maioria das coisas, a manutenção de uma classe media, propositalmente mantida por beneficios politicos, é desnecessaria. Então o povo todo se torna pobre, e controlado por um monopolio que está acima da politica pois tem armas de controle que exercem o papel de controle sem causarem uma destruição em massa. Caso fosse possivel dominar com bombas de destruição em massa, já teriam feito. Porém, necessitam de uma tecnologia mais discreta. A violencia, a tendencia a destruição, só esta disfarçada por trás de barreiras politicas, quando essa tendencia acha uma saida dentro de uma tecnologia capaz de burlar todas as outras, então o dominio do autoritarismo e oligarquia novamente tenta emergir. 
+
+As forças que fomentaram a destruição nas antiguidades, não estão mortas, estão adormecidas, a espera de uma falha, de uma descoberta tecnologia que de a um grupo minoritario a capacidade de subjulgar a todos e de formar uma sociedade a sua forma, uma sociedade de elite, aqueles escolhidos paara viver enquanto os outros permanecem sob controle de maquinas e formas de opressao piores do que a do tempo da escravidão.
 
 
 
