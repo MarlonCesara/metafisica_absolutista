@@ -5769,6 +5769,8 @@ A dignidade da forma particular está precisamente em ser **expressão única do
 > Não é possível subdividir o absoluto sob pena de deixar de ser abosoluto.
 > Não é possível subdividir o nada, pois o nada não carrega propriedades de divisão.
 
+> O Ser dispoe da liberdade sobre si mesmo, se é Espírito indiferenciado, pode definir-se como Espírito diferenciado. E o faz pela sua liberdade sobre o nada. Desta forma, ocorre a relativização relacional campo relativo.
+
 O homem, portanto não é uma individualização do absoluto, ou um particionamento do nada. Mas a liberdade pode ser determinada una, no sentido de que o homem é uma liberdade, uma personalidade que opera sob o nada, e sobre as realidades relacionais, Deus e outros homens. A substancia Espiritual pode ser individualizada, no sentido de que, não seja o próprio Espirito absoluto, e não comporta uma individualização do relativo, pois o relativo não se individualiza.
 
 O homem, portanto é livre, e conteudo Espíritual, tal como Deus, porém, nao é indiferenciado e intecionalmente necessario.
