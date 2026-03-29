@@ -9620,12 +9620,13 @@ As forças que fomentaram a destruição nas antiguidades, não estão mortas, e
 
 
 
-## Rascunhos
-
-> Há uma dupla sintomática no niilismo, porque a uma dupla percepção do corpo. O corpo percebe a intencionalidade da alma, ao passo que a vitrificação da alma numa existência levada por extimulos físicos, onde o individuo não exerce o comando de ação. Ao passo que o individuo se percebe prisioneiro de si, percebe-se intencionado a um destino que não lhe pertence como corpo, pois o corpo o rejeita e repugna esse destino com toda a sua biológia.
 
 
-> O homem pode escolher não escolher, no sentido que, quando escolhe um ódio tamanho, simplesmente se faz metafisicamente morto. A própria rejeição à liberdade é uma não escolha. 
+
+
+
+
+
 
 
 
