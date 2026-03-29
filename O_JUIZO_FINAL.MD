@@ -12880,3 +12880,20 @@ A tristeza é uma constante companhia para o niilista, então sempre necessita d
 O niilista se enche de ódio ao presenciar a verdadeira diferença, discrepância social, indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o niilista.
 
 
+
+# Os dois ricos
+
+No alto de um edifício de luxo, um homem do sorriso torto chama seu mordomo e diz: “Veja, Jerry, eles estão compreendendo.” Um avião atirou e matou centenas; quem dera todos tivessem um videogame tão real.
+
+Ao lado do homem, outro super-rico, com um sorriso amarelado, diz. Os dois sorriem com aspecto de loucura: um com cabelos até o ombro, bagunçados, e o outro calvo, com pernas curtas e uma grande barriga. Ambos loucos.
+
+Com os olhos vidrados na televisão, analisam o acontecimento das mortes. Sentem-se estaticamente hipnotizados pelas luzes das bombas que riscam o céu. Comemoram seu anonimato.
+
+E filosofam entre si como se fossem reis da Terra, como se ainda, em pleno século 21, existisse uma monarquia oculta. Como se tivessem o poder e precisassem conservá-lo cada vez mais; como se fossem possuidores de um paraíso que criaram para eles, onde secretamente expressam seus sentimentos para o mundo como uma carta em forma de mortes, catástrofes, enquanto elegem líderes e manipulam, como um jogo de tabuleiro, os acontecimentos. Como se formulassem um mundo para o mundo acreditar, como se ditassem a história, como se brincassem em um tabuleiro de xadrez de fazer o mundo.
+
+Um comenta com o outro: como todos eles não desconfiam? Não sabem de nós? Será que não querem ver? Ou estão cegos? Será que não têm inteligência? Ou será que é extremamente difícil imaginar quem somos? Será que nosso propósito é tão difícil de entender?
+
+E se um deles descobrir? Nos encontrarão e o que farão conosco? O seu colega disse: talvez não encontrem, talvez não queiram realmente entender, talvez não queiram saber sobre nós. Talvez não queiram conhecer totalmente a si mesmos.
+
+Olharam um para o outro, e de certa forma pensaram que o segredo ninguém saberia. Ninguém poderia imaginar seu intento e o que sentiam. Não poderiam imaginar que um dia saberiam exatamente quem eram, o que pensavam e como agiam.
+
