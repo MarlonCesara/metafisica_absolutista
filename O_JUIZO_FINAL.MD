@@ -12873,8 +12873,10 @@ A humanidade julga que o bilionário se sacia com o dinheiro. Pelo contrário, o
 
 O niilista sente que há uma parte esquecida de si, alguém que não se lembra de quem é; há sempre uma angústia em seu peito, um medo desnecessário, como se não fosse guiado por si, mas por forças exteriores a si. Como se fosse uma marionete, ao passo que intenciona ser descartável, considera-se imóvel. Como se a realidade lhe fosse apertada, como se não conseguisse se mover. Lhe falta o motor do movimento.
 
-O niilista se julga sem auto dominio, auto presença e auto conhecimento. Porém, ao mesmo tempo sente que possui tais caracteristicas. Tem, portanto, uma visão de penumbra, como se somente enxergasse as sombras da realidade. Ambas as visões se misturam. E isso se resulta em um individuo que enxerga sua cegueira, ou que vê sua escuridão.
+O niilista se julga sem autodomínio, autopresença e autoconhecimento. Porém, ao mesmo tempo, sente que possui tais características. Tem, portanto, uma visão de penumbra, como se somente enxergasse as sombras da realidade. Ambas as visões se misturam. E isso resulta em um indivíduo que enxerga sua cegueira, ou que vê sua escuridão.
 
-A tristeza é uma constante companhia para o niilista, então sempre necessita de estimulos e sempre esta fugindo da auto reflexão, pois uma visão alienante de si não o confere uma alegria natural e cotidiana.
+A tristeza é uma constante companhia para o niilista, então sempre necessita de estímulos e sempre está fugindo da autorreflexão, pois uma visão alienante de si não lhe confere uma alegria natural e cotidiana.
+
+O niilista se enche de ódio ao presenciar a verdadeira diferença, discrepância social, indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o niilista.
 
 
