@@ -9402,7 +9402,7 @@ O niilismo tenta gritar, seus gritos são calados pelo sentido, seu impacto é a
 
 A expressão do niilismo deve ser curta, individual e quase apagada de forma que exista, mas que não predomine na politica, na ordem social. O niilismo, uma vez compreendido, é conduzido a um patamar de segurança social, um patamar de expressividade e não de militancia em cenários globais, politicos e culturais. 
 
-
+Pelo desconhecimento do mundo, o niilista achava brechas para escancarar sua expressão, achava braços para se segurar de forma a provocar o declinio tamanha a força que se segura, como alguém que se desespera e leva outros ao afogamento os apertando. O niilista, até então, no desconhecimento total do homem, achava grande expressão, grande atividade sobre as atividades positivistas, tais como o progresso, a paz e a harmonia. O niilsita tinha grande potencia de poluir com negatividade, de berrar seu conflito de forma a provocar um ruindo que não se pode desperceber ou se destrair. Seu ruido é com bombas, com guerras, com violencia. Uma vez compreendido, sua vós se torna baixa, e seu conflito passa a estar mais em seu interior do que no exterior, passa a ser mais compreendido do que imposto, passa a ser remontado, analisado, ao invés de ser estapeado no mundo como algo que ninguém via ou compreendia. Diria até que o niilismo, com seu entendimento total, finalmente ganha a expressão que sempre desejou. Ao invés de se expressar pela violencia, encontra sua expressão pela filosofia. 
 
 
 
