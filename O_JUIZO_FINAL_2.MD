@@ -9385,3 +9385,27 @@ O outro gargalhou e concordou com uma certa tranquilidade aparente, que disfarç
 Há alguém que talvez nos imagina, que sabe que estamos com medo e que talvez imagine o além, e mostre para o mundo uma realidade onde tudo é possível.
 
 
+
+
+
+### O luto contra a positividade
+
+O niilista produz no mundo um estado de luto. Quer o choro pelo seu estado, quer atenção total, quer o cuidado total em desrespeito a seu estado. Ao ver a alegria surgir, o sentido das coisas, o mundo fiar maravilhoso, se indigna e se enraivece. 
+
+O mundo é uma colisão de forças positivas, otimistas, progressistas que colidem com forças desarmonicas, com o luto, com a desfiguração da paisagem, da natureza, da cultura. Dessa colisão há o dialogo inconsciente entre ambas as forças. O dialogo se dá em atos, em acontecimentos.
+
+O mundo tente ao otimismo, tende a violar o luto daqueles que não querem ver sentido numa natureza que teima em exuberar sentido, na tecnologia que teima em estabelecer a ordem. Ao ser vencido, o niilismo arremeçado contra o sentido, desfigura o sentido, não externamente, mas em si mesmo. O niilista se protege contra a informação de várias formas. 
+
+A negatividade teima em dizer que deve predominar, mas essa é uma mentira. Em nada ajuda o niilista num cenário negativo, ainda que lhe cause dor o cenário cheio de sentido, por evidenciar o absurdo de sua postura, a melhor opção é um abiente positivo, é o que lhe produz melhora, contentamento e conforto.
+
+O niilismo tenta gritar, seus gritos são calados pelo sentido, seu impacto é amortizado pelas leis, pela tecnologia e pelo conhecimento metafísico. O niilista, portanto, não tendo expressões por meio dos super ricos, por meio de violencias extremistas, acha sua expressão na individualidade, no estilo pessoal, em pequenos atos sociais que a lei ainda não cerceou, que a tecnologia ainda não atingiu. Mas deixa de predominar no cenário de forma a levar o mundo ao acumulo de lixo, a destruição, a guerra. 
+
+A expressão do niilismo deve ser curta, individual e quase apagada de forma que exista, mas que não predomine na politica, na ordem social. O niilismo, uma vez compreendido, é conduzido a um patamar de segurança social, um patamar de expressividade e não de militancia em cenários globais, politicos e culturais. 
+
+
+
+
+
+
+
+
