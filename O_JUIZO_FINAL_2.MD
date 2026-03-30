@@ -4631,6 +4631,80 @@ Para honrar essa diretriz, estruturei este novo e grandioso bloco como o **LIVRO
 
 ---
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # **LIVRO IX: ALEGORIAS METAFÍSICAS E A JORNADA DA ALMA**
 
 Será apresentado agora o esboço de uma visão sobre o além, isto é, a realidade pós-morte corporal. Essa visão tem caráter positivista: sempre que não houver uma inferência lógica possível, recorrei à melhor hipótese imaginável, como nos casos da descrição do paraíso ou dos confins da liberdade humana. Esta obra foi inspirada, em grande parte, na teologia católica, pois ela oferece uma coerência lógica e intuitiva notável. 
@@ -5593,6 +5667,89 @@ Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo t
 
 ---
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### **PROPOSIÇÃO XLVI: A ESSÊNCIA METAFÍSICA E O PERFIL DO NIILISTA EXISTENCIAL**
 
 **1. O Perfil do Niilista Existencial: Uma Cartografia da Autoaniquilação**
@@ -6129,18 +6286,11 @@ Eles reproduzem a mesma lógica do interior para o exterior: grandes opressores 
 
 Enriquecer mediante a opressão não demonstra uma estratégia genuinamente inteligente, mas sim um clamor por reconhecimento em meio a uma fraqueza interior — um sintoma da carência de qualquer luz capaz de manter acesa a chama da vida.
 
+# O RELATIVO DA ALMA: ENSAIO SOBRE O NIILISMO
 
+## PARTE I: A FENOMENOLOGIA DO NIILISMO INDIVIDUAL
 
-
-
-5555555555555
-acabou o limite da i.a
-
-
-
-
-#### **A Criança Interior Desamparada**
-
+### 1.1 A Criança Interior Desamparada
 O emocional do niilista padece como o de uma criança necessitada de amparo. Seu comportamento assemelha-se ao de uma criança birrenta e insatisfeita, pois sua intenção interior lhe causa profundo pasmo e inquietação, exigindo consolo permanente. As formas de opressão que pratica, enquanto respostas emocionais, não se sustentam temporalmente; basta que suas motivações sejam reveladas para que sua metodologia desintegre-se. Em outras palavras, a complexidade dos mecanismos opressivos não reside neles mesmos, mas na compreensão da fenomenologia do niilismo.
 
 Não é difícil perceber que o rico concentra fortunas e que estes recursos fazem falta à sociedade. O verdadeiro desafio está em decifrar a motivação última deste acúmulo. O rico busca revestir este ato com um verniz social, apresentando-o como desenvolvimento, progresso ou acumulação para investimento. Deste modo, persuade o povo de que esta é a única via de crescimento social — quando, na realidade, não é a única, e muito menos a mais virtuosa. Este acúmulo está radicalmente enraizado na vida emocional do rico, que, como estabelecido, depende de uma riqueza exterior para anestesiar sua obsessão niilista e seu vazio espiritual.
@@ -6149,26 +6299,22 @@ O niilista está sempre triste por sua postura interior e, por isso, tenta se an
 
 Diferentemente de uma pessoa não niilista, o niilista, em todas as ocasiões festivas, tenta viver exageradamente o momento, de forma a estragá-lo, e não a aproveitá-lo. Bebe exageradamente, fala constantemente palavrões para desfigurar o sentido do ambiente, provoca desavenças e brigas. Sempre procura um prazer exagerado ao ponto de se malograr, ao passo que tenta destruir qualquer resquício de proveito real dos momentos felizes. Isto é, busca, de certa forma, o deleite, que é uma atitude não niilista; porém, faz questão de estragar esse proveito ou de exagerar até que tal proveito perca seu significado.
 
-#### **Bandeira do Niilismo e sua Ambiguidade Fundamental**
-
+### 1.2 A Bandeira do Niilismo e sua Ambiguidade Fundamental
 O niilismo possui seu movimento ideológico concretizado, expresso no crime organizado, nos mecanismos opressivos corporativos, nos governos tirânicos e nos agentes belicistas. Todos estes constituem a bandeira do niilismo erguida: uma força que simultaneamente deseja oprimir e ser redimida. O niilista é intrinsicamente ambíguo: almeja a destruição, mas também o amparo. Aspira permanecer oculto e extinguir-se, mas igualmente anseia exibir-se ostensivamente em luxos e excessos, como quem denuncia, de modo vibrante e contraditório, sua verdade interior cruel.
 
 Nada disso se reduz a uma ganância trivial, a um defeito caracterial, a um deslize moral passionais; trata-se, antes, de um desespero nascido da percepção de sua própria intenção autodestrutiva — da tirania que exerce sobre si mesmo. Quando a sociedade repudia integralmente as formas de opressão, repudia concomitantemente a expressão do niilismo, forçando o niilista a confrontar-se a si próprio, a lidar com sua própria liberdade, cujo peso insuportável ele tenta incessantemente transferir ao outro.
 
-#### **A Transferência do Fardo e a Resposta do Amor**
-
+### 1.3 A Transferência do Fardo e a Resposta do Amor
 O niilista deseja que o outro carregue o fardo de sua decisão interior. Seu objetivo último é enclausurar-se em si mesmo, impor-se o peso de um castigo eterno que, em sua percepção distorcida, merece. Contudo, tal fardo é demasiado pesado para ser suportado solitariamente; por isso, busca depositá-lo sobre a sociedade. Mas esta, por sua vez, não pode violar a liberdade individual fundamental.
 
 Há inúmeras formas de expressão niilista, que se manifestam nas mais variadas esferas: na arte, no debate público, no ativismo ideológico e em diversos comportamentos sociais. Porém, o que mais danifica a sociedade é a soberba material: o acúmulo de riquezas que priva o corpo social dos recursos necessários para enfrentar estas expressões. Afinal, privar a sociedade dos meios que poderiam fortalecer o bem comum é enfraquecer sistematicamente o combate a toda a estrutura niilista.
 
 De múltiplas formas o niilista torna-se visível. Imerso em seu conflito, ele espera que a sociedade lhe forneça respostas, uma saída para seus círculos mentais viciosos, para seus labirintos cognitivos que não conduzem a nenhuma escapatória de sua decisão interior. Contudo, a única resposta eficaz é o florescimento do amor. A sociedade não dispõe de instrumentos racionais capazes de oferecer uma solução definitiva, mas pode agir através do amor, para cultivar o amor. E isto, Jesus realizou com perfeição paradigmática.
 
-#### **A Síntese: A Exibição da Crise Interior**
+### 1.4 A Síntese: A Exibição da Crise Interior
+Assim, as formas de expressão niilistas não constituem necessariamente pedidos de resgate, mas repetições compulsivas de uma crise existencial que se projeta em ação e em rejeição ao próprio estado interior. O niilista, ao desejar a destruição, deseja igualmente o término de seu conflito, pois seu organismo rejeita seus próprios pensamentos autodestrutivos. Este rejeitar de um estado interior, no âmago humano, traduz-se na tentativa de exibir ou confidenciar sua condição ao outro. É um estado de alerta natural que se ativa no comportamento humano quando algo essencial não vai bem. Em síntese, o niilista exibe interiormente sua verdade, mas esta exibição não garante, por si só, sua cura ou redenção.
 
-Assim, as formas de expressão niilistas não constituem necessariamente pedidos de resgate, mas repetições compulsivas de uma crise existencial que se projeta em ação e em rejeição ao próprio estado interior. O niilista, ao desejar a destruição, deseja igualmente o término de seu conflito, pois seu organismo rejeita seus próprios pensamentos autodestrutivos. Este rejeitar de um estado interior, no âmago humano, traduz-se na tentativa de exibir ou confidenciar sua condição ao outro. É um estado de alerta natural que se ativa no comportamento humano quando algo essential não vai bem. Em síntese, o niilista exibe interiormente sua verdade, mas esta exibição não garante, por si só, sua cura ou redenção.
-
-#### **Conclusão: O Grito da Alma em Revolta**
-
+### 1.5 O Grito da Alma em Revolta (Conclusão Inicial)
 Enfim, o assassino clama pela vida que nega.
 O bandido sonha com a sociedade justa que destrói.
 O corrupto anseia pela ordem interior que corrompe.
@@ -6176,12 +6322,10 @@ O terrorista implora pela paz da alma que bombardeia.
 
 As atitudes que se voltam obsessivamente para a destruição terminam por violar até mesmo o princípio mais elementar da natureza humana: o instinto de autopreservação, conduzindo a um conflito espiritual insustentável. Diante do niilismo interior, o homem perde a referência de sua humanidade e lança-se numa busca desesperada e contraditória por estabilidade emocional perante a condição aterradora de sua própria interioridade.
 
-#### **A Metástase da Expressão Niilista**
-
+### 1.6 A Metástase da Expressão Niilista
 Quando um meio de expressão do niilista é bloqueado — como o rico que perde sua fortuna — não ocorre o cessar do impulso expressivo. A compulsão persiste, migrando para outra esfera, pois o cargo, a posse ou o comportamento social eram meramente veículos, bandeiras erguidas perante a sociedade. O essencial não era a ação específica — ostentação, conquistas materiais ou opressão — mas o ato catártico de descarregar a frustração decorrente de sua condição existencial, buscando desesperadamente ser compreendido, ainda que através da auto-contradição, ao expor ao outro sua "verdade" distorcida. Assim, o niilista mostra-se simultaneamente em busca de cura e aferrado à posição que o enferma. Pois até para ele, sua própria condição constitui um absurdo que exige reparação imediata: algo inaceitável, algo monstruoso. O corpo entra em conflito aberto com a alma na tentativa de desalienar-se dessa decisão interior, clamando por socorro enquanto paradoxalmente a sustenta.
 
-#### **A Expressão Niilista através do Homicídio (NOVO)**
-
+### 1.7 A Expressão Niilista através do Homicídio
 O niilista não se limita a matar corpos; sua ação mais insidiosa é a de ceifar vínculos. Ele provoca uma miséria que fragmenta relações: pais se afastam dos filhos, consumidos pela busca de um sustento que a concentração de riquezas torna cada vez mais escasso; casais se separam sob o peso de conflitos financeiros. A escassez material gera um declínio emocional coletivo, uma morte lenta dos afetos e da confiança que sustenta a sociedade.
 
 Quando não está ocupado em matar o outro simbolicamente — através da privação sentimental ou do esgotamento existencial —, o niilista pode recorrer ao homicídio físico. Este ato extremo é a expressão última de seu pavor existencial.
@@ -6190,78 +6334,42 @@ O niilista teme, acima de tudo, a morte corpórea, pois acredita conscientemente
 
 A frase "minha mente é meu guia" soa, em seu íntimo, não como um grito de autonomia, mas como uma condenação à morte. Cada homicídio que comete ou patrocina é um eco dessa auto-sentença, uma tentativa desesperada e contraditória de externalizar o abismo que carrega dentro de si. O assassinato niilista é, assim, sustentado por uma visão de mundo que transcende o corpo: é um ato metafísico de desespero.
 
-#### **A Repugnância Corporal e a Busca de Identidade**
-
+### 1.8 A Repugnância Corporal e a Busca de Identidade
 O corpo do niilista vive em estado de fuga permanente, recusando-se a aceitar como definitiva a verdade de sua alma, pois não pode reconciliar-se com tal desfecho para sua vida. O corpo possui repugnância orgânica contra o niilismo. O ódio da alma niilista constrange seu corpo, que por sua vez repele o niilismo com todos os seus mecanismos. Desta forma, se o bilionário perde sua fortuna, sua expressão simplesmente se transmuta — seja na mendicância, na violência gratuita ou em qualquer outra forma, mesmo aparentemente irracional, de expressão. Não se descarta sequer o recurso a uma violência tola, a um posicionamento político reativo como o extremismo de direita, ou qualquer outro subterfúgio para externalizar uma dureza, uma verdade interior terrível que o indivíduo não consegue articular em palavras. E que o próprio indivíduo despreza, enjoa e tenta projetar para longe de si; no fracasso de cessar seu niilismo, parte para uma busca expressiva desesperada, de adquirir uma identidade social que force os outros a restaurá-lo.
 
-#### **A Síntese Existencial**
-
+### 1.9 A Síntese Existencial e a Humanidade Inalienável
 Em síntese, o niilista é alguém que **mantém a ferida interior aberta enquanto busca incessantemente a cura**; que anseia por alguém que o convença a cessar sua loucura. Sua posição é demasiado horrível para permanecer calada, inexpressa. Sua condição inquieta-o, faz-no gritar de dor — e o grito é social, o grito é a opressão, o escravismo, a violência generalizada. E a violência frequentemente representa o colapso das formas racionais de expressão.
-
-#### **A Humanidade Inalienável**
 
 O humano, em sua aparente desumanidade, está frequentemente tentando recuperar precisamente seu âmbito humano no nível espiritual. Não basta ao humano ter atitudes humanas; sua posição interior deve estar direcionada para a vida. O niilista não deixa de ser humano: a própria expressão niilista é a prova cabal, pois escancara e repudia o próprio niilismo através de uma manifestação desesperada que revela a distorção existente dentro de si.
 
 O niilista tem consciência do absurdo, da loucura essencial de sua condição, e esta consciência é fruto de sua humanidade residual; caso contrário, o ato niilista seria totalmente desprovido de maquiavelismo, tirania ou qualquer intencionalidade malévola. O niilismo consumado dirigir-se-ia à pura ausência, inclusive da ação. As distorções ao longo do caminho que o indivíduo enfrenta não constituem o niilismo pleno, mas sim a tentativa biológica do corpo de adaptar-se ao conteúdo patológico de sua alma.
 
-#### **A Revelação Final**
-
+### 1.10 A Revelação Final
 O niilista não consegue manter-se frio, implacável ou impassível perante sua posição interior, pois isto estaria demasiado distante do senso comum humano. A maior maldade possível seria permanecer oculto, insensível, sorrateiro, e desaparecer da existência sem emitir qualquer sinal de alerta. O âmbito humano do niilista torna-se perceptível precisamente em sua revolta, em sua inadequação social clamorosa.
 
 A sintomatologia do niilista, num primeiro momento, parece operar a seu favor; porém, uma vez compreendido o mecanismo do niilismo, transforma-se numa ferramenta a serviço da sociedade, permitindo identificar tais indivíduos por seu posicionamento interior. O que estava oculto revela-se através da manifestação sintomática do comportamento niilista, tornando-se inteligível. O niilismo, portanto, quando encarnado no humano, não passa impune pelo filtro do bom senso corporal, que o expõe escancaradamente à sociedade. Permanece obscuro apenas enquanto seu comportamento não é decifrado pelas ciências psicológicas e metafísicas.
 
 **O paradoxo final é este: a própria violência do niilista é seu pedido de socorro; sua opressão é seu grito por amor; sua destruição é sua confissão distorcida de que a vida, afinal, vale a pena ser vivida.** A cura não está em combatê-lo com suas próprias armas, mas em reconhecer, por trás da máscara de ódio, o rosto desfigurado da humanidade que clama por redenção.
 
-### **CAPÍTULO 44: A VISÃO MACROSOCIAL: PARADOXOS E SOLUÇÕES**
 
-#### **A Náusea Niilista: A Anatomia do Desespero Social**
+---
 
-No "mundo de barro" — nossa existência terrena —, niilistas e não-niilistas tentavam coexistir, compartilhando o mesmo espaço vital. Contudo, este esforço assemelhava-se a um labirinto sem saída. Os niilistas jamais cessavam sua atividade corrosiva. O mal no mundo nunca dava tréguas — e este mal não era o mal convencional, mas sim o **desespero niilista afogando a sociedade**, como um náufrago que, ao submergir, arrasta consigo quem tenta socorrê-lo.
+## PARTE II: O COMPORTAMENTO, AS MÁSCARAS E OS SINTOMAS DO NIILISTA
 
-Poucos compreendiam que o que se desenrolava não eram meramente guerras, catástrofes naturais ou destruição material, mas um **holocausto de almas autoinfligido**. Estes agentes não eram anti-humanos, autômatos ou zumbis — eram humanos aterrorizados por seu fim iminente, tentando desesperadamente transmitir ao outro um vislumbre de seu tormento interior.
+Nesta seção, agrupamos as principais dinâmicas psicológicas e sociais que caracterizam o modo de vida do indivíduo afetado pelo niilismo, desde suas buscas por valor até a forma como se relaciona com seus afetos e com o mundo.
 
-Eram pessoas inseguras perante a constatação esmagadora de sua própria liberdade, repassando esta insegurança ao tecido social. Eram humanos frágeis, débeis, desprovidos de autoestima, lutando pelo reconhecimento de um **interior instável** que constantemente os desestabilizava.
-
-#### **A Mudança Social: O Paradoxo Humano e a Lição do Formigueiro**
-
-No universo intricado de um formigueiro, reina uma harmonia funcional que transcende a simples luta pela sobrevivência. Naquela sociedade minúscula e perfeitamente organizada, a fome coletiva é uma impossibilidade biológica. Cada formiga, guiada por um instinto infalível, labora não para si, mas para o organismo coletivo. Elas constituem um sistema de cooperação integral onde colheita, armazenamento e distribuição de recursos formam um ciclo impecável, garantindo a perpetuação da colônia. É uma inteligência emergente que elege o bem-comum como princípio ontológico, subordinando qualquer impulso individual ao destino coletivo.
-
-Se seres com sistemas nervosos elementares solucionaram há éons o problema da escassez, que profundo paradoxo revela o ser humano? Dotados de consciência reflexiva, capazes de decifrar o código da vida, desvendar os segredos cósmicos e tecer redes globais de comunicação, nós, ironicamente, fracassamos onde insetos "inferiores" triunfam. A questão, portanto, não é de capacidade cognitiva, mas de orientação existencial.
-
-#### **O Desvio da Inteligência Humana**
-
-O que ocorre com nosso potencial intelectual? Ele foi sequestrado por paradigmas distorcidos. Enquanto o formigueiro opera como uma consciência coletiva unificada, a sociedade humana fragmentou-se em arquipélagos de interesse particular. Nossa genialidade tecnológica é frequentemente canalizada para a criação de sistemas de competição, acumulação e desigualdade estrutural. Desenvolvemos uma capacidade agrícola que poderia nutrir a humanidade inteira, mas permitimos que a lógica do lucro e a concentração de riqueza gerem o absurdo de desertos de abundância coexistindo com oceanos de miséria. A fome persistente não representa um fracasso produtivo, mas um fracasso distributivo — um problema que as formigas nunca enfrentaram porque sua "economia" é intrinsecamente colaborativa.
-
-Ademais, nossa consciência individual — que deveria constituir nossa maior glória — transforma-se, neste contexto, em nossa vulnerabilidade fundamental. O "eu" sobrepõe-se catastrophicamente ao "nós". A ânsia de acumular, o pavor da escassez e a busca por status corrompem nosso instinto cooperativo inato. Planejamos para nosso clã, nossa corporação, nossa nação, mas raramente para a humanidade como organismo integral — um conceito que parece etéreo ante nossas necessidades imediatas. A formiga não delibera; simplesmente atua para o coletivo. O homem pondera, calcula e, com frequência, elege o caminho que beneficia a si mesmo em detrimento do todo.
-
-#### **O Diagnóstico: A Patologia Niilista como Raiz da Desarmonia**
-
-Se no formigueiro impera uma harmonia instintiva que assegura o sustento universal, e se o ser humano, dotado de inteligência cosmicamente assimétrica, é capaz de proezas tecnológicas inimagináveis, o que explica nosso fracasso coletivo em erradicar a fome, a desigualdade e a miséria? A resposta, como revela a cartografia metafísica d'"O Relativo da Alma", não reside em carência de capacidade, mas em uma patologia espiritual profunda: o niilismo. Enquanto as formigas obedecem a um desígnio coletivo inscrito em sua natureza, nós, humanos, carregamos o dom e o fardo da liberdade — e é no âmago dessa liberdade que pode germinar um ódio primordial contra a própria existência, uma força autoaniquiladora que, **quando adotada por elementos estratégicos, envenena todo o ecossistema social.**
-
-**O niilista, tal como descrito na jornada filosófica pelo estado pós-morte, não constitui a norma social, mas sua presença atua como um agente patogênico na consciência coletiva.** Ele é o arquiteto de seu inferno pessoal, um ser que, diante do espelho do Juízo Particular — que não é tribunal externo, mas a revelação inescapável de sua própria verdade interior —, prefere o desaparecimento. Ele elege o nada ante a beleza, o vazio ante a plenitude, o autoapagamento ante a responsabilidade de ser. Esta não é uma opção filosófica entre outras, mas um ato de ódio puro, um repúdio fundamental à vida que, **quando abraçado por indivíduos em posições de influência, converte-se na causa primária de grande parte da miséria estrutural.**
-
-#### **A Externalização do Vazio Interior**
-
-Esta patologia, esta "loucura do ódio" como a define o texto, é a força motriz por trás **dos sistemas de competição, acumulação e desigualdade que nos impedem de realizar a harmonia do formigueiro. A fome não é um fracasso logístico; é o sintoma de corações que se recusam a distribuir. A riqueza obscena concentrada em poucas mãos não é acidente económico; é a externalização de um vazio interior que tenta, vanamente, preencher-se com matéria.** O colonialista que proclamava que o outro "não tinha alma" estava, na realidade, projetando sua própria morte espiritual. O opressor que escraviza e explora está tentando transferir para o outro o peso insuportável de sua própria decisão interior pela autoaniquilação.
-
-**A inteligência humana, quando desconectada do amor e sequestrada por este ódio primordial, não edifica; corrompe. Ela não forja sistemas de cooperação, mas elabora sofisticados mecanismos de fuga — seja na glorificação do material, na competição desenfreada ou na sabotagem sistemática da própria alegria.** O niilista, movido por um "desejo deliberado e insistente pela morte", seja rápida ou lenta, transforma-se num agente do caos. Sua "incapacidade de suportar a própria realidade" gera uma miséria interior que ele, consequentemente, propaga pelo mundo. Ele é a encarnação da pulsão de morte que Freud discerniu, **e seu impacto desproporcional contamina o corpo social inteiro.**
-
-### **A busca de um valor artificial**
-
+### 2.1 A busca de um valor artificial
 O niilista projeta, em pequenas conquistas — não exatamente em riquezas —, o autovalor perdido. Ou seja, tenta suprir as consequências da postura niilista em sua vida com a aquisição e a obsessão por posses materiais, como heranças, adquirir bens de consumo que realmente não pode pagar e assumir situações que sustentam uma autoimagem de valor para si. Sonega até mesmo o bem aos seus familiares e às pessoas que lhe são queridas, em troca de pequenas fortunas, privilégios ou situações que lhe devolvam um valor próprio perdido, ou a sensação de adequação ao mundo em sua postura interior. Transforma os bens materiais em obsessão e passa por cima do bem do próximo — inclusive das pessoas que ama — em sua busca desesperada por si mesmo. O niilismo tira a dignidade da pessoa humana, e a obsessão por posses é uma forma de restaurar esse valor perdido. Atribui um valor de descarte, de inutilidade, de despropósito, vazio, de nadificação de si mesma.
 
 O niilista ainda é capaz de comemorar a destruição que causa em prol de suas conquistas materiais, que visam dissociá-lo ilusoriamente de sua postura interior, conferindo-lhe sensação de autovalor e realização. Para o niilista, por vezes, nada é mais importante que sua renúncia ao niilismo, e, por isto, depende de forma irracional de vitórias artificiais que simulem uma vitória interior. É capaz de passar por cima de tudo e de todos, pois o que está em jogo, para o niilista, seria sua própria vida, ou a ilusão mental de que se adequou à aceitação dessa vida.
 
-### **O constante medo da morte e a fuga do sentido**
-
+### 2.2 O constante medo da morte e a fuga do sentido
 O niilista quer acreditar que a vida não tem um sentido exterior ao biológico; portanto, os afetos verdadeiros, os momentos de reflexão, de contemplação, tudo isso confere medo e assombro ao niilista, que é obrigado a encarar o sentido, ao passo que sua posição interior está dissociada do sentido natural pela eternidade. Desta forma, o niilista constantemente tem medo da morte e das consequências de sua posição.
 
-### **A projeção do vilão niilista**
-
+### 2.3 A projeção do vilão niilista
 O niilista constrói um personagem maléfico para si. Tenta mudar seu instinto corporal em uma personalidade teatral e maldosa. Sua busca pela vingança, pelo alívio de sua postura interior, provoca uma distorção em seu instinto humano e, para estabelecer uma concordância, o indivíduo tenta se projetar como um vilão.
 
-### **A diferença entre o niilista e o obsessor (NOVO)**
-
+### 2.4 A diferença entre o niilista e o obsessor
 Diferenciamos em dois grupos, o niilista e o obsessivo. O primeiro grupo pratica tentativas de suicídio reais; o segundo grupo move ações de ódio reais que não atentam contra ele mesmo, mas almejam, de fato, despejar um grande ódio em si mesmo e no outro.
 
 Podemos citar exemplos rotineiros: enquanto o niilista usa drogas até uma overdose, o obsessivo usa rotineiramente, sem total risco de morte. Enquanto o niilista isola-se totalmente do convívio social, o obsessivo isola certas pessoas. O niilista é a descarga total de um ódio absoluto; já o obsessivo, que é a alma que irá para o purgatório, tem paixões obsessivas, de forma que almeje uma descarga de ódio e não o próprio fim.
@@ -6270,8 +6378,7 @@ Enquanto os sintomas do niilista giram em torno do esquecimento de si mesmo, o o
 
 O obsessor é capaz de romper relacionamentos apenas para poder descarregar o ódio na sociedade, como no caso de uma mulher de família que larga o marido para ficar com um homem rico. Muitas vezes, o ódio do obsessor fala mais alto que seus sentimentos e seu propósito de vida. Até mesmo seu ódio é capaz de passar por cima de coisas importantes em sua vida. É capaz até mesmo de passar por mutilações corporais para atingir um propósito de vingança.
 
-### **O segredo do niilista (NOVO)**
-
+### 2.5 O segredo e o propósito emocional do niilista
 O niilista não mata, rouba ou faz o mal porque gosta, por falta de sabedoria ou por tentação. Mas faz o mal para aliviar-lhe a dor de ir embora dessa vida, de desejar a própria anulação. De desejar a autodanação. Deus não obriga ninguém a ir para o inferno.
 
 O niilista quer desfigurar as coisas boas. Sente tanto ódio que não pode conter, a seu redor, o sentido das coisas; não suporta o sentido da vida. Por vezes, nunca quer confidenciar seu segredo. Causa problemas sociais, familiares e parentais sem nunca confidenciar o que realmente sente. Se investigam as causas psicológicas do niilista para entender seus desalinhamentos sociais, porém, o niilista não revela a verdadeira causa: um ódio tão grande que faz ele desejar desaparecer.
@@ -6282,9 +6389,7 @@ Porém, todo niilista tem o foco em um ódio primordial, em algo que o fez se od
 
 Ao tentar aproximar à força as coisas boas do niilista, as coisas lindas, ele as rejeita com violência e ira. Mantém sua vida no agridoce, nem insuportável, mas nem boa. As coisas que fazem sentido no niilista são rejeitadas, porque sua postura interior é revelada a ele quando as defronta. E as consequências disso podem ser depressão, constante estresse, mas o niilista se permite aliviar por vezes, pois sua intenção não é estritamente a dor, mas desaparecer. Apenas quer que sua vida tenha uma trajetória amena até o fim que deseja para sua vida.
 
-O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, deseja mudar essa visão. Algo inconscientemente o tenta levar a acabar com isso.
-
-O niilista é um indivíduo sensível, que se julga um miserável. Aproximar-se sem entendê-lo, como quem o considera normal e contente, é como despertar grande ira nele. Ele se sente ultrajado por não compreenderem seu sentimento de revolta, por agirem como se não estivessem vendo, quando, na verdade, as pessoas realmente não entendem e consideram algo banal. Porém, para o niilista, isto causa grande sofrimento. Aproximar-se dele apresentando coisas bonitas da vida, por vezes, pode soar uma afronta a ele.
+O niilista tem um fundo de esperança em si; algo, secretamente, dentro dele, deseja mudar essa visão. Algo inconscientemente o tenta levar a acabar com isso. O niilista é um indivíduo sensível, que se julga um miserável. Aproximar-se sem entendê-lo, como quem o considera normal e contente, é como despertar grande ira nele. Ele se sente ultrajado por não compreenderem seu sentimento de revolta, por agirem como se não estivessem vendo, quando, na verdade, as pessoas realmente não entendem e consideram algo banal. Porém, para o niilista, isto causa grande sofrimento. Aproximar-se dele apresentando coisas bonitas da vida, por vezes, pode soar uma afronta a ele.
 
 A prioridade do corpo do niilista é se salvar, por isso, por vezes, o niilista pode parecer desinteressado em coisas cotidianas normais e mais interessado em algo que o faça mudar de ideia. Ou seja, o niilista pode ficar obsessivo por algo que lhe dê uma ideia de mudança. E, estranhamente, preferir tarefas específicas, ainda que sejam mais tediosas. Pois a calma que lhe traz pensar que mudará lhe provê uma energia vital para continuar sua vida.
 
@@ -6304,36 +6409,6 @@ Quando se bloqueia o niilista de seus objetivos, o bloqueio só acontece externa
 
 Se no além quer se mostrar um zumbi, um projeto de humano em sofrimento extenuante, em vida quer se mostrar um ser humano derrubado, derrotado, como vingança do que lhe traz ódio. E o motivo de seu ódio pode abranger diversos fatores, como diferenças sociais, acontecimentos isolados, etc.
 
-Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos, ou até mesmo lançando-se na mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
-
-A mulher niilista pode se render ao mundo da pornografia, ter inúmeros parceiros como uma tentativa de auto degradação da própria imagem e da figura da mulher. Pode até mesmo desfigurar o próprio corpo com modificações pelas quais ela mesma tem desagrado, para demonstrar sua distorção interior à sociedade. Ou até mesmo negar a própria sexualidade com cirurgias que somente mutilam, sem que haja realmente um fator psicológico necessário. Pode negar a feminilidade com a intenção de negar a própria sexualidade à sociedade, de forma a tentar denegrir a feminilidade e a figura da mulher. Também tenta negar a própria fecundidade, desfigurando o potencial mais bonito do humano.
-
-A mulher niilista corrompe a paz da família querendo lucros imediatos, corrompe o emprego do marido, ou até provoca gravidez precoce querendo prender uma pessoa a si, por achar que na vida se tem imediatamente o que se quer. O niilista não aceita prazos, quer sua vingança imediata. Para o niilista, não há tempo de aprendizado, de crescimento; sua descarga de ódio é imediata no que tange a obter o que se quer para se exibir ou se vingar.
-
-### **A recuperação do niilista (NOVO)**
-
-É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
-
-### **A magia negra do maligno (NOVO)**
-
-O querer niilista pelo suicídio é uma afronta contra o próprio design que Deus criou; o preço que o niilista cobra por sua vida, muitas vezes, é uma burlagem das leis naturais, uma burlagem do outro. O niilista quer viver, desde que sua vida possa massacrar a do outro e alterar as leis pragmáticas da vida. O niilista quer ter alguma vantagem sobre tudo e sobre o outro; caso contrário, ameaça o próprio Deus, de atentar contra a sua própria vida se não for cumprido o seu desejo. Para o niilista, seu ato é uma espécie de poção mágica que o levará a resultados rápidos; intenta contra o coração de Deus, quer ferir o próprio Deus em troca de ouro, tal como a representatividade de Judas, o apóstolo que trocou seu Mestre por moedas de ouro. Judas era alguém que queria resultados rápidos, que queria reinar rapidamente sobre todos e, para isto, era capaz de qualquer coisa. O niilista usa a morte para se assimétricaizar, para querer ser maior do que o outro em qualquer aspecto. O niilista deixa-se levar pelo seu ódio de forma que se acredita com poderes mágicos aqui mesmo neste plano; acredita que ameaçar com a própria morte pode levá-lo a qualquer patamar quando, na verdade, é um atentado contra o coração de Deus. O niilista atenta contra a vida por querer demais, e o seu querer demais está vinculado a um ódio por algo; a exaltação que o niilista deseja é a adaga que deseja desferir contra o outro. O niilista não é orgulhoso em prol da exaltação, mas em prol da agressão.
-
-O niilista pensa poder negociar com a sua própria vida qualquer coisa que queira; o niilista é o indivíduo dos resultados mágicos, quer para já o que almeja. E sua rapidez não é desejo, mas força de vingança, é um ataque rápido ao seu alvo. O niilista só enxerga o ofuscar da guerra mediante seus olhos; a vida, para ele, não faz sentido se não for fazer vingança, o propósito do niilista é saciar seu intuito de vingar-se. E sua vingança só tem limite quando passa a enxergar a preciosidade da vida, a ter amor.
-
-O amor lhe faz lançar um novo olhar de compreensão sobre as falhas do outro, sobre os momentos de dificuldade, sobre os tempos de espera da vida. É só o amor que o faz compreender, ao invés de fazer um ataque rápido, impaciente e certeiro sobre si mesmo; é só o amor que o faz compreender, ao invés de agir rápido. É o amor que faz o niilista se interessar pela vida, ao invés de julgá-la e agir.
-
-Para o niilista não há o termo “compreender” anterior ao agir. O niilista simplesmente visualiza, sente e age. O compreender não é uma etapa em seu processo de entendimento da vida. E esse compreender significa resiliência, compaixão, perdão, paciência e misericórdia, qualidades fomentadas pelo amor.
-
-O niilista somente visualiza o mundo, revolta-se e pede vingança ou a mudança imediata do mundo; ao não ter seu imediatismo, não ativa dentro de si a compreensão, simplesmente age com a atitude niilista e atenta contra a sua vida. O niilista vê a vida como uma funcionalidade que deve agradá-lo ou desagradá-lo; se o desagrada, para o niilista, não há outro sentido senão forçar o autoagrado. A vida, para o niilista, é um jogo de duas faces: ou lhe serve ou é descartada, e a serventia, para o niilista, significa todos os seus desejos realizados imediatamente.
-
-Como se a vida ou tivesse um gênio da lâmpada mágica para lhe conceder tudo, ou não fizesse sentido algum para si, tendo como único proveito a ameaça mordaz da morte caso seu desejo não seja atendido.
-
-Falta ao niilista o start do amor, o estalo na consciência que o faz olhar para suas atitudes, olhar para a necessidade de profundidade nas coisas, nos fatos e nas pessoas. É o amor que faz o niilista estudar a vida, estudar o outro, olhar para os olhos do outro, reconhecer-se como humano e errante, para que reconheça o outro também.
-
-É a boa vontade do amor que falta; essa ausência torna o niilista mecanizado sentimentalmente, faz com que aja de forma fria, sem o ímpeto do amor. É o amor que o faz amenizar tudo, relevar, perdoar, abandonar seu anseio de rapidez em tudo. É o amor que o faz lutar por si mesmo, que aumenta sua vontade de sobreviver, de vencer. É o amor que desperta nele o interesse por si mesmo e pelo outro, que o faz olhar para as razões do outro, ao invés de olhar somente para as suas próprias.
-
-### **O propósito emocional do niilista (NOVO)**
-
 Muitas vezes o niilista quer os bens com um propósito emocional, pois os bens, a posse, o domínio o tornam cercado de pessoas que podem contribuir para o alívio de sua angústia. A sensação de que estão sendo transmitidas coisas boas pela coação de pessoas ao seu redor dá ao niilista uma grande segurança. Serve como amparo e alimento, e o niilista tem grande prioridade nessa tarefa; portanto, não necessariamente a riqueza traz somente a sensação de valor restaurada, mas pode trazer um alicerce emocional de atenção que o niilista usa e necessita em primazia como amparo.
 
 Muitas vezes o niilista não tem ninguém por ele, ninguém que o salve; por vezes, necessita que alguém aguente seu mau humor, sua histeria, sua desavença, suas palavras desafetuosas e seus vícios e, por vezes, não há ninguém para o salvar de si mesmo. A não ser pela graça de Deus, por vezes poucas pessoas se propõem a tal companhia; isso faz com que o niilista busque formas artificiais de alimentar seu dia a dia de pessoas. E essas pessoas podem ser os funcionários que faz subordinados, seus familiares, que de alguma forma obriga a ficar por perto, e até amigos que suborna.
@@ -6341,12 +6416,9 @@ Muitas vezes o niilista não tem ninguém por ele, ninguém que o salve; por vez
 Essa é a luta pelo eu, em que o niilista quer sair vitorioso, quer proclamar sua vitória nem que seja de forma louca ou insana sobre o outro. No alto dos edifícios, o empresário bilionário observa os operários sofrendo, enquanto ele pode desfrutar de todo o luxo; porém, não comemora a vitória verdadeira, comemora apenas o seu poder.
 
 Se o bilionário sovina, em um ato público, fosse obrigado a destituir-se de suas posses, poderíamos descrever uma cena hipotética para melhor entendimento:
-
 * O bilionário arremessa de forma insana todos os seus sacos de dinheiro do alto de um prédio. Seu sorriso é insano, um tanto quanto apático, como se fosse um boneco sorrindo. Sua risada é seca, como se sua cabeça estivesse transbordando e já não comportasse pensamentos normais, como se o estresse interior tivesse revertido em loucura. Todo o estresse que ele guardava em si, toda posição mental que o protegia de seus reais pensamentos, tudo o que o guardava de sua postura interior fora lhe tirado de uma só vez; então, comporta-se como se não tolerasse a si mesmo, não guardasse o próprio estresse, não comportasse o assombro do absurdo que está em sua mente, e nem o cansaço que questionar seus pensamentos lhe impõe.
 
-Enquanto joga todo seu dinheiro, imagina o povo como pessoas miseráveis, como se sugassem toda sua energia de volta, e só restasse a própria energia para saciá-lo, como se viver, para o niilista, fosse muito caro e ninguém quisesse pagar o preço por sua vida.
-
-Como se o povo não soubesse realmente a finalidade do dinheiro e fosse uma subcategoria de humano enquanto ele fosse o assimétrica. Enxerga o povo como se fosse seres voltados para a alimentação e sobrevivência, que só pensam na sua rotina, que aceitam ser criados em cativeiro e reproduzidos. Como se o pensamento do povo se limitasse às funções de animais em criadouro: moram, se alimentam e morrem para servir como produto de consumo dos bilionários.
+Enquanto joga todo seu dinheiro, imagina o povo como pessoas miseráveis, como se sugassem toda sua energia de volta, e só restasse a própria energia para saciá-lo, como se viver, para o niilista, fosse muito caro e ninguém quisesse pagar o preço por sua vida. Como se o povo não soubesse realmente a finalidade do dinheiro e fosse uma subcategoria de humano enquanto ele fosse o assimétrica. Enxerga o povo como se fosse seres voltados para a alimentação e sobrevivência, que só pensam na sua rotina, que aceitam ser criados em cativeiro e reproduzidos. Como se o pensamento do povo se limitasse às funções de animais em criadouro: moram, se alimentam e morrem para servir como produto de consumo dos bilionários.
 
 O bilionário enxerga o povo como desprovido de cultura, como alguém que não atinge categorias elevadas de pensamento, enquanto é ele mesmo que não pensa acerca da existência e dispõe de tanto tempo para traçar estratégias comerciais sem pensar no sentido de sua existência. O bilionário é um devoto de sua vida financeira, de tal forma que não desvia sua atenção para o campo das emoções e dos afetos.
 
@@ -6354,13 +6426,16 @@ O modelo de pensamento preferido do bilionário é se enxergar acima das nuvens,
 
 Enquanto joga sua fortuna pela janela, o bilionário, aterrorizado pela percepção do povo de que ele deveria dividir seus bens, pensa estar louco ou estar sendo vítima de uma alucinação; então se joga da janela para tentar acabar com este episódio. Como se tivesse perdido toda a sua sanidade.
 
-O niilista, no fundo, sente aversão pelo povo, pois considera que todos estão olhando impassíveis o processo de sua degradação sem fazer nada. Não considera que as pessoas respeitam a liberdade. O niilista esperava grande desespero e comoção popular de sua decisão; porém, ao se deparar com a total normalidade diante de sua atitude, tenta por si mesmo provocar no outro a empatia que ele imaginara que o outro precisa desenvolver, tenta fazer o outro sofrer, tenta matar o outro para tentar despertar no outro a visão do seu conflito.
-
-E essa ânsia por ser compreendido, por estar enraizada em alguma crença de que o outro possa lhe fazer algo, de que o outro possa corromper sua própria liberdade e livrá-lo de quem ele é.
+O niilista, no fundo, sente aversão pelo povo, pois considera que todos estão olhando impassíveis o processo de sua degradação sem fazer nada. Não considera que as pessoas respeitam a liberdade. O niilista esperava grande desespero e comoção popular de sua decisão; porém, ao se deparar com a total normalidade diante de sua atitude, tenta por si mesmo provocar no outro a empatia que ele imaginara que o outro precisa desenvolver, tenta fazer o outro sofrer, tenta matar o outro para tentar despertar no outro a visão do seu conflito. E essa ânsia por ser compreendido, por estar enraizada em alguma crença de que o outro possa lhe fazer algo, de que o outro possa corromper sua própria liberdade e livrá-lo de quem ele é.
 
 O niilista, por vezes se vê como um palhaço, um intérprete, uma personalidade que se passa por vilão opressor para fins de entretenimento, causando adrenalina no grande público. Sem que deseje esse papel, ele é realizado, pois é uma fatalidade de sua sintomática, e, sem que almeje, faz-se um personagem social, alguém dito em filmes como o lado oposto, como o que dá entusiasmo e tônus ao enredo humano, à aventura social. O niilista, pelo contrário, não se enxerga dessa forma e vê nisso uma forma insultosa de retratá-lo, e às vezes até humilhante. Pois não quer ser visto como um personagem social que gera noticiários, reviravoltas, constrangimento e medo social.
 
-### **A mulher niilista (NOVO)**
+### 2.6 A mulher niilista
+Na família, a mulher niilista tende a abandonar o marido para procurar um com recursos financeiros que atenda ao seu chamado pelo descarregar do ódio. Ao não obter, intenta contra si mesma, tornando-se alcoólatra ou viciada em narcóticos, ou até mesmo lançando-se na mendicância ou em uma vida totalmente promíscua. Pode, inclusive, ter continuamente filhos para executar uma vingança social, para desfigurar o conceito de família social.
+
+A mulher niilista pode se render ao mundo da pornografia, ter inúmeros parceiros como uma tentativa de auto degradação da própria imagem e da figura da mulher. Pode até mesmo desfigurar o próprio corpo com modificações pelas quais ela mesma tem desagrado, para demonstrar sua distorção interior à sociedade. Ou até mesmo negar a própria sexualidade com cirurgias que somente mutilam, sem que haja realmente um fator psicológico necessário. Pode negar a feminilidade com a intenção de negar a própria sexualidade à sociedade, de forma a tentar denegrir a feminilidade e a figura da mulher. Também tenta negar a própria fecundidade, desfigurando o potencial mais bonito do humano.
+
+A mulher niilista corrompe a paz da família querendo lucros imediatos, corrompe o emprego do marido, ou até provoca gravidez precoce querendo prender uma pessoa a si, por achar que na vida se tem imediatamente o que se quer. O niilista não aceita prazos, quer sua vingança imediata. Para o niilista, não há tempo de aprendizado, de crescimento; sua descarga de ódio é imediata no que tange a obter o que se quer para se exibir ou se vingar.
 
 A mulher niilista ameaça a separação familiar, se faz obsessiva por dinheiro, por descarga de ódio social, escolhe parceiros com base no poder de descarga de ódio. Caso um parceiro tenha dinheiro, mas não esteja em favor do golpeamento social através da exposição, então, para a mulher niilista, não faz diferença. A mulher niilista, quando abandona seu cônjuge sem justificativa nenhuma, está querendo expressar o que a amedronta por dentro, expressar seu suicídio. Quando substitui relações por dinheiro ou quando monetiza relações, está querendo dizer que, para ela, as coisas perderam o valor, pois o próprio ato de viver se fez sem sentido para ela, sendo adepta do niilismo. A mulher niilista tem uma visão mais nítida do seu interior e manifesta, por vezes, até um pavor maior diante da própria verdade, e desenvolve até mesmo uma obsessão aparente por bens materiais e status. A mulher niilista expressa o assombro existencial, muitas vezes, nos filhos, fazendo brincadeiras que demonstrem seu medo de se fadar no abismo. Ou, para o marido, com ameaças constantes de separação. Muitas vezes a mulher niilista tenta distorcer o sentido da relação, provocando constantes brigas, isolando o parceiro ou fazendo constantes provocações para destituir de sentido a relação.
 
@@ -6370,59 +6445,33 @@ Por vezes, a mulher niilista mostra grande apatia, uma irreatividade, querendo d
 
 O niilista só acredita no sentido biológico do amor entre casal, se encarrega só de pensar em sobreviver. Não quer considerar que existe um sentido assimétrica no amor, uma união de almas, quer acreditar que, se essa união o satisfaz biológicamente, já é eficaz e é isso tudo que bastaria. Isso justifica muito do contexto de separação familiar e da busca do outro pelo interesse financeiro. A mulher niilista considera o homem somente uma fonte genetica para fazer filhos e satisfazer seu instinto materno, ou seu instinto financeiro. O sentido assimétrica que o niilista acredita é nos bens materiais como elevação, todo o sentido espiritual que o niilista nega tem o valor espelhado nos bens bateriais ou no que ele acredita lhe trazer força, vida, e esperança, ou seja, a libertação do niilismo, o amor. Portanto, é uma contrariedade, ao passo que o niilista nega todo o sentido, sua consiencia amplia esse sentido negado em projeções externas. É como uma repressão do conscieente que o niilista faz pelo impulso do corpo pela vida, pela apreciação das coisas belas, pela visão do sentido.
 
-### **A dualidade niilista (NOVO)**
-
+### 2.7 A identificação e a dualidade do niilista
 Ao passo que o niilista é obsessivo por posses e também dependente de pequenas alegrias, afetos que quer obrigar a ficar ao seu redor para protegê-lo, é alguém fanático e, ao mesmo tempo, carente. Alguém que tem devaneios de grandeza e se esquece do amor ao próximo dentro desses devaneios.
-
-Aqui está o texto com **correções mínimas de português**, mantendo as mesmas palavras, ideias e estrutura, apenas ajustando ortografia, acentuação, concordância e pontuação:
-
-### **A identificação do niilista (NOVO)**
 
 Fatores como obesidade, vícios, comportamentos perigosos no esporte, enfim, podem ser justificados no indivíduo sem que seja necessário recorrer ao niilismo; no entanto, reconhecer o niilismo exige uma união de vários fatores, como fuga das coisas que fazem sentido na vida, desfiguração do âmbito social e afetivo, palavrões constantes, abuso de substâncias químicas, etc. É necessário ao menos mais de um fator reunido para reconhecer o niilista, até mesmo porque não é possível definir um niilista sem que sejam percebidos nele atos suicidas; pode ser um modelo de pensamento ou modo de agir. Não necessariamente alguém que faça um esporte perigoso ou consuma substâncias ilícitas é niilista, em vista que o extremismo, ou o exagero na perfeição, seria até um mal psicológico e não um traço niilista. Muito pelo contrário, o niilista poderia ser identificado até mesmo como uma pessoa rígida demais, que evita afetos e situações aventureiras em sua vida; portanto, o perfeccionismo extremo está mais próximo do niilismo do que o não perfeccionismo.
 
 Desta forma, faz-se necessário identificar vários traços do comportamento niilista no indivíduo para defini-lo como tendência a tal posição existencial. Não basta apenas ser alguém obsessivo, cheio de ira ou cheio de símbolos esotéricos para se definir niilista; é preciso uma análise mais profunda para tentar encontrar a razão de certas atitudes individuais antes de julgá-las niilismo prático.
 
-### **O niilista simulando a infância (NOVO)**
-
+### 2.8 O niilista simulando a infância
 O niilista retrocede ao estado de infância. Apego a atos manuais, obsessão por objetivos como uma birra, raciocínio parecido com o de uma criança em idealizações como: a estrela bonita, o passeio no parque. O niilista passa a esquecer do eu adulto e se coloca num estado de criança no qual adquire, em sua mentalidade, um potencial maior de aprendizado e mudança interior, pois num estado inicial de vida julga ter uma maior abertura de coração.
 
-O niilista pode desprender a culpa de seus pensamentos, se fingindo inocente como uma criança, pois quando criança trama o mal contra si mesma, seus pensamentos seriam desprovidos de peso pelo desconhecimento do mal. Então o niilista faz pequenas menções de poesia em seu pensamento e as sustenta numa posição infantil e encantada da vida que traça para amenizar sua postura interior.
-
-Porém, não arquiteta uma romantização complexa como a de um adulto, mas a romantização simplória e simples como a da criança, como observar uma estrela.
+O niilista pode desprender a culpa de seus pensamentos, se fingindo inocente como uma criança, pois quando criança trama o mal contra si mesma, seus pensamentos seriam desprovidos de peso pelo desconhecimento do mal. Então o niilista faz pequenas menções de poesia em seu pensamento e as sustenta numa posição infantil e encantada da vida que traça para amenizar sua postura interior. Porém, não arquiteta uma romantização complexa como a de um adulto, mas a romantização simplória e simples como a da criança, como observar uma estrela.
 
 O niilista deseja coisas sem questionar o propósito, tal como uma criança, que deseja um objeto e logo mais não deseja mais. Pois só obedece a uma vontade inicial, sem projetar o porquê dessa vontade.
 
-### **O niilismo como repressão do impulso corporal fundamental pela vida**
-
+### 2.9 O niilismo como repressão do impulso corporal
 O niilismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o niilismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
 
 Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente esclarecido para o indivíduo acerca da existência e de seu fundamento.
 
-Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano.
-
-E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações niilistas no inconsciente humano.
+Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano. E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do niilismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações niilistas no inconsciente humano.
 
 O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com o relativo, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento niilista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento niilista.
 
-### **O entendimento do niilista em favor das lutas sociais por igualdade (NOVO)**
-
-O fator do reconhecimento do niilismo afeta o rico que detém um acúmulo de poder de forma, primeiramente, social. Seu grupo social ou as pessoas que compõem os arredores desse grupo mudarão sua definição a respeito das motivações dos ricos, e isso afeta a forma com que se relacionam. Considerando que a pessoa humana não vive sem relacionamentos, ou vive muito mal sem eles, o indivíduo rico tenderá a se moldar segundo a tendência popular ou a pensar igual à tendência popular pensa a seu respeito. Isto é, o rico, reconhecendo uma sintomática em si e sendo reconhecido como tal, pode ter reações diferentes ao seu acúmulo de capital.
-
-Da mesma forma, a pessoa humana, reconhecendo o niilismo, reconhece que a motivação do acúmulo de capital pode estar muito distante de uma avenção aventureira, e passa a desenvolver um temor ao acúmulo de bens, fazendo com que isso necessite ser mais monitorado ou controlado. Pois, uma vez reconhecendo os sintomas do niilismo, o humano reconhece que o interesse do super-rico pode minar toda uma sociedade se, constantemente, o acúmulo de riqueza está atrelado ao pensamento niilista, o qual aproxima a pessoa humana com mais facilidade da riqueza material em decorrência de, por vezes, o niilista ser mais desprendido da empatia humana.
-
-O niilista alcança mais facilmente a riqueza por possuir os três fatores essenciais: uma ambição desenfreada, um foco existencial em demasia na descarga de frustração, e o foco pessoal que é descartar todas as emoções alheias em prol de seus interesses.
-
-O indivíduo famoso niilista descarrega uma frustração na multidão de forma que não precise compreender críticas e comentários ofensivos; basta descarregar o ódio em forma de mídia, ou até mesmo em forma de auto sabotagem.
-
-Posso melhorar o português **de forma mínima**, como você pediu, **mas precisei fazer um ajuste muito pontual no último parágrafo** para **evitar uma formulação explícita sobre autodestruição**, mantendo o **sentido filosófico intacto**. Todo o restante foi apenas correção ortográfica, acentuação e concordância, sem troca de ideias.
-
-### **A renúncia às coisas boas e às coisas difíceis da vida pelo niilista**
-
+### 2.10 A renúncia às coisas boas e a obsessão aleatória
 Se o niilista desconsidera sua vida finita e vazia de sentido, a tendência é não somente viver um luto, recusando as coisas boas, como também a recusa das dificuldades, missões, propósitos e tarefas que sejam difíceis, complexas, mas que sejam de sua responsabilidade. Isto é, o niilista não vê sentido no que se refere a “carregar suas cruzes”; ele simplesmente considera que, se não há continuidade para sua vida, o enfrentamento das dificuldades é despropositado; portanto, o próprio ato de enfrentar os obstáculos e cumprir suas responsabilidades afetivas e sociais lhe impõe um sentido que quer negar.
 
-O niilista impõe sua ira sobre o que não quer fazer e que é seu dever fazer; faz qualquer coisa para sua vida ser mais fácil, não importando se isso vai prejudicar as pessoas, pois considera que o assumir de sua luta social é algo inútil. Considera que moldar sua personalidade e comportamento também não lhe trará benefícios, pois sua vida será finita em sua mentalidade.
-
-Desta forma, nem mesmo o esforço emocional de perdoar, digerir comportamentos, compreender e entender pessoas o niilista quer fazer. Isto é, mediante a qualquer crítica, ofensa ou desagrado, o niilista prefere se afastar, tratar pessoas como objetos descartáveis, não exerce luta pelas pessoas, a não ser que precise delas e que seja menos complicada a sobrevivência ao lado dessas pessoas do que fazer o esforço de entender ou aceitar.
+O niilista impõe sua ira sobre o que não quer fazer e que é seu dever fazer; faz qualquer coisa para sua vida ser mais fácil, não importando se isso vai prejudicar as pessoas, pois considera que o assumir de sua luta social é algo inútil. Considera que moldar sua personalidade e comportamento também não lhe trará benefícios, pois sua vida será finita em sua mentalidade. Desta forma, nem mesmo o esforço emocional de perdoar, digerir comportamentos, compreender e entender pessoas o niilista quer fazer. Isto é, mediante a qualquer crítica, ofensa ou desagrado, o niilista prefere se afastar, tratar pessoas como objetos descartáveis, não exerce luta pelas pessoas, a não ser que precise delas e que seja menos complicada a sobrevivência ao lado dessas pessoas do que fazer o esforço de entender ou aceitar.
 
 O niilista julga qualquer esforço demasiado inútil, e este comportamento o deprime e começa a ferir sua estima, pois se reduz a um descarte. O ausentamento de seus deveres, tal como o ausentamento de suas alegrias, lhe confere uma estima que o deprime, que o conduz a um desejo de encerramento antecipado de sua própria trajetória. Pois suas ações niilistas vão minando seu ânimo por viver, até o ponto de achar que não há motivos para estar vivo, já que sua depressão ou os efeitos emocionais de suas atitudes podem ir aumentando gradativamente.
 
@@ -6430,150 +6479,249 @@ O niilista se ausenta da aventura das grandes dificuldades, dos conflitos que co
 
 O niilista diria: “para que tanto esforço se a vida é finita? Quem se esforça demais é um tolo”. O niilista usa de recursos que o previnam da responsabilidade de esforçar-se tanto em pensamento quanto em esforço físico; sua ausência não está somente no esforço físico, mas no esforço de estudar, raciocinar e ter novas visões. O niilista simplesmente se arremessa na monotonia do mais fácil, como se rolasse em um carrinho de rodas para seu fim, apenas com um leve impulso do braço, e como se não fizesse sentido mais esforço ou grandes emoções. Como se sua caminhada para o que pensa ser sua finitude fosse apenas um descarte, e, nesse processo de descarte, ocorresse apenas um “deslizar” suave de seu corpo, sem qualquer emoção e sem grande empenho, pois todo empenho exige um significado que está atrelado ao sentido da vida e à continuidade desta.
 
-### **A obsessão aleatória do niilista (NOVO)**
-
-O niilista pode tomar um objetivo, coisa ou pessoa para imaginar-se mudado. Isto é, projeta uma cura necessária e irremediável que está externa a si mesmo e diz para si que conviver com tal pessoa, obter tal coisa ou concluir tal objetivo lhe livrará necessariamente de sua postura. E, para defender este objetivo, pode até mesmo mentir, ser violento ou caluniar, como se estivesse defendendo a si mesmo e a sua própria vida.
-
-Vamos citar o exemplo de uma avó que defende sua neta e a afasta de qualquer risco de dela partir ou de ser independente. Ou podemos citar o objetivo de conseguir um determinado cargo numa empresa ou uma situação econômica. Até mesmo pode estar associado a conseguir um relacionamento com uma pessoa específica, e o pensamento de que somente aquela pessoa poderia lhe trazer mudanças.
+O niilista pode tomar um objetivo, coisa ou pessoa para imaginar-se mudado. Isto é, projeta uma cura necessária e irremediável que está externa a si mesmo e diz para si que conviver com tal pessoa, obter tal coisa ou concluir tal objetivo lhe livrará necessariamente de sua postura. E, para defender este objetivo, pode até mesmo mentir, ser violento ou caluniar, como se estivesse defendendo a si mesmo e a sua própria vida. Vamos citar o exemplo de uma avó que defende sua neta e a afasta de qualquer risco de dela partir ou de ser independente. Ou podemos citar o objetivo de conseguir um determinado cargo numa empresa ou uma situação econômica. Até mesmo pode estar associado a conseguir um relacionamento com uma pessoa específica, e o pensamento de que somente aquela pessoa poderia lhe trazer mudanças.
 
 O niilista pode desenvolver obsessão por aquisição de bens, como um carro específico ou uma herança. Ou até um lugar específico para morar. O niilista não necessariamente elege a riqueza, mas pode eleger objetivos limitados de aquisição material, imaginando que, ao obter esses, teria a resolução final de seu conflito e a vingança final que necessitaria sobre quem não perdoou ou sobre quem ainda conserva qualquer mágoa. Pois a posse, na maioria das vezes, está associada à agressividade, no sentido de servir para ostentação. Isto é, subjugar quem tem menos, mostrando-se possuidor de mais.
 
 Portanto, são vendidos carros de milhões para milionários, mansões, itens de luxo, de forma que os vendedores provoquem no rico niilista a ilusão de que, com aquele produto, vingarão seus “inimigos”. O mesmo é feito a pessoas sem grande renda, que assumem grandes dívidas para assumir bens parcelados que realmente não poderiam adquirir. O elemento de chamariz é aliviá-los da pressão interior do niilismo. É propor uma descarga de ódio que os aliviará, que, de certa forma, os trará paz interior.
 
-### **O uso de drogas no niilismo (NOVO)**
-
+### 2.11 O uso de drogas no niilismo
 Quando o indivíduo niilista encontra uma barreira entre a aquisição de posses, do bem que gostaria, situação ou pessoa, enraivece-se numa inaceitação inequívoca alimentada por um ódio. Seu intuito vaza para a imaginação, e nisso acontecem as drogas psicoativas, que provocam a ilusão de satisfação do ódio. Esse mecanismo acontece em pessoas que esperam resultados rápidos e óbvios da vida, tal como aproximar uma situação como a riqueza com pouco esforço. Na ausência do sucesso, o indivíduo aproxima de si a ilusão.
 
-Podemos citar o exemplo de um indivíduo que estava acostumado a ganhar dinheiro fácil devido a uma família burguesa e uma tradição burguesa. Ao não obter o seguimento dessa tradição e do dinheiro fácil, e existindo nesse indivíduo barreiras morais fornecidas pelo seu lado instintivo, o indivíduo opta por alcançar o descarrego de seu ódio na ilusão.
-
-Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício; sente estar morrendo; necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
+Podemos citar o exemplo de um indivíduo que estava acostumado a ganhar dinheiro fácil devido a uma família burguesa e uma tradição burguesa. Ao não obter o seguimento dessa tradição e do dinheiro fácil, e existindo nesse indivíduo barreiras morais fornecidas pelo seu lado instintivo, o indivíduo opta por alcançar o descarrego de seu ódio na ilusão. Neste ínterim, necessita de companhia constante, pois sente estar caindo em seu próprio vício; sente estar morrendo; necessita de conversas constantes. Teme o próprio fim, teme que um mal súbito lhe leve para sempre.
 
 O usuário de drogas guarda uma violência inequívoca, uma destruição de seu próprio cérebro, de suas memórias, em prol de uma ilusão de se vingar, de se satisfazer. Não é nem mesmo o objeto de sua realização que almeja, mas o ataque imediato às discrepâncias sociais, sem ter que passar pela luta contra elas. O ataque não visa destruir o mal no mundo, mas destruir o sentimento de ódio guardado dentro dele; ou seja, o ataque é uma tentativa de amenizar o sentimento construído.
 
 O clube de elite, na verdade, é um clube do ódio, e não o clube do requinte, da abundância. É o clube da tortura ao outro, da agressividade, porém é cravejado de objetos de valor, não como algo que exalta, mas como um símbolo de poder sobre o outro; não como um dom de apreciar o que é bom, mas como uma tendência de apreciar que a fartura de uns causa a escassez e a miséria de outros.
 
-O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras formas de descarregar seu ódio, tal como a autoagressão, que são as drogas. O indivíduo cheio de ódio tem um grande terror diante desse mesmo ódio, como se o ódio quase estivesse lhe eliminando completamente.
+O indivíduo, ao ser retirado desse clube, desse grupo do ódio, procura outras formas de descarregar seu ódio, tal como a autoagressão, que são as drogas. O indivíduo cheio de ódio tem um grande terror diante desse mesmo ódio, como se o ódio quase estivesse lhe eliminando completamente. O que caracteriza o niilista no uso de drogas é um uso furioso, com o propósito da overdose, e não um uso com limites de segurança. O usuário não aceita a diferença social, não quer raciocinar sobre isso, apenas usa drogas como tentativa de ir para um mundo perfeito imediatamente. E isso é um niilismo, pois o abuso de drogas leva à morte. A droga é a forma pela qual o niilista expressa o ódio. O efeito da droga é tratável; ao se incentivar o niilista à droga, ele simplesmente tenta se anular mais fortemente. É um ódio forte, um ódio em que nem mesmo a racionalidade opera. Um ódio que ultrapassa a normalidade de um ódio comum, que chega a um ódio tão forte que cega o indivíduo.
 
-O que caracteriza o niilista no uso de drogas é um uso furioso, com o propósito da overdose, e não um uso com limites de segurança.
+### 2.12 A convivência social, o comportamento antissocial e as relações
+O niilista tenta ser odiado para chamar atenção, tenta ser uma pessoa ruim na tentativa de distorcer o sentido humano, da pessoa humana. Tenta ser odiado jogando o peso do que não pode perdoar nos outros. O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
 
-### **A descarga de energia do niilismo no outro**
+O niilista quer causar a diferença social, a diferença espiritual que enxerga entre si e o outro. O niilista quer externalizar a diferença social e, como último ato de rebeldia, pode até mesmo tirar a própria vida, num último ato de tentar equiparar. Em sua mentalidade, tirar a própria vida causa miséria social, pois está tirando da vida uma personalidade. Está negando ao outro sua convivência, sua estadia na vida. E, se for um ato definitivo, isso é irreparável. Se o recurso do niilista não é mais financeiro, o único que lhe restaria é tornar escasso o mundo de sua própria vida.
 
-O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e, por isto, o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
+O niilista precisa das diferenças sociais não somente como pedido de uma cultura que aprendeu, que o faz ter sempre que se sentir imponente e impoderado perante o outro, mas necessita para esconder seu emocional, para tornar a convivência humana possível, para que o lidar com o outro não gaste tanta energia emocional. Pois intuitar o próprio fim e ter que conviver com o outro que tem bens eternos é, de fato, um ato que exige um grande mascaramento da própria intenção. O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
 
-Todos os atos de descarga não representam uma real busca por sentido, pois, ao buscar, imediatamente o teriam, mas representam uma descarga de sintomática temporária. E, neste tempo, poderiam, a qualquer momento, livrar-se do niilismo. Porém, acabando o tempo do mundo, a alma, sendo livre para fazer suas escolhas sem a barreira do corpo e a graça de Deus, que está nas coincidências, livramentos e ajudas na vida, corre o risco de tomar sua decisão definitiva pela sua anulação.
+A capacidade de convivência do niilista com o não niilista depende de um certo equilíbrio — e esse equilíbrio ele tenta encontrar nos bens materiais. Assim, torna-se exibicionista: precisa sempre estar em uma posição assimétrica à do outro para não ser ferido em sua autoestima, devido à sua própria condição. A relação humana produz uma sensação de normalidade, amizade e harmonia, e isso obriga o niilista a encarar o absurdo de sua postura, fazendo-o sentir-se mal; essa lucidez gera uma dissonância entre sua condição existencial e a realidade à sua volta. Essa dissonância se manifesta na tentativa de afirmar assimétricaidade — seja material, afetiva ou até mesmo no lazer. Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
 
-O niilista se mascara por trás de uma figura apressiadora de coisas boas, porém não aprecia nem mesmo o bem de seu próximo ou a bonança social, a sociedade alegre. Portanto, o rico acumulador e sovina não é um bom apreciador, mas um depreciador da sociedade. É alguém que tem uma mania incessante em busca de sua cura, para o niilista rico nada importam riquezas e conquistas, isso é uma máscara do real e mais importante desejo: o querer de si mesmo.
+Quando se aproxima do niilista tentando estabelecer laços de amizade ou aquilo que agregue sentido e propósito à sua vida, ele desfere muitos palavrões, como se quisesse afastar de si qualquer proximidade verdadeira, ou distorce a intenção do indivíduo em sua mente, sexualizando tudo ou tornando tudo passível de interesse econômico. Caso se tente aproximar do niilista de forma a agradá-lo com uma amizade, ele começa a ofender de todas as formas ou fazer algo para afastar dele vínculos verdadeiros. Mantém uma certa distância do que considera verdadeiro, inventando brigas, pretextos para quebrar a harmonia ou para se afastar do convívio pessoal. O indivíduo finge demência para afastar e entediar as pessoas de sua companhia, ou manifesta um comportamento anormal, para afastar e ter chances de se isolar.
+
+O niilista por vezes pratica atos horríveis ou merecedores de raiva geral, por querer a sensação de ser refugado, de ser excluído, exonerado; isso coage com a sua postura interior. O deixa desconfortável ser amado pelas pessoas, pois isto confere beleza e sentido à sua vida. O amor das pessoas, principalmente das mais preciosas para o niilista, o afugenta de sua decisão interior, o faz julgar um absurdo sua postura e chorar. O niilista quer se desfazer de seus relacionamentos, quer um motivo para pensar que o mundo é vazio de sentido e que não existe propósito no mundo. O indivíduo se irrita quando lhe conferem sentido à sua vida, pois tem o firme propósito de sua finitude; está obcecado pela morte e é conformado com essa intenção, de maneira que, quando lhe se aproxima o amor e o afeto, o indivíduo se enche de ira e atenta contra o afeto alheio. Há uma ânsia também por ser excluído, isolado e rodeado somente de pessoas que coagem com seu propósito interior. Pois estar em contato com pessoas que querem desfigurar o sentido das coisas coage com seu intento, de forma a não produzir colisões com o mesmo.
+
+O niilista tem constante necessidade de expressão, precisa constantemente expressar seus pensamentos que considera insanos, precisa do otimismo das pessoas, desabafar. O niilismo consome muita energia mental, causa grande ansiedade e terror no indivíduo, que constantemente precisa se expressar para criar otimismo e se livrar do desespero causado pela sua postura. Ao não poder se expressar, o niilista começa a se encerrar numa crise de desespero, desconsolo. Passa a ter episódios de agressividade, pois o conteúdo de seu pensamento é uma pressão que quer ser externalizada. O niilista se passa muitas vezes por inconveniente, importuno ou sem afazeres, pois tem constante necessidade de amparo. O niilista sobrevive do otimismo alheio; ao declarar-se contrário à sua própria vida, quando expressa isso, encontra um otimismo, uma barreira contra seu próprio ideal, o que o alimenta para seu dia a dia de otimismo. Isto é, o niilista pode manter sua postura e sobreviver do otimismo alheio sem precisar desenvolver o seu próprio, pois para seu dia a dia precisa de uma mentalidade de progresso e tranquilidade.
+
+Quando o niilista provoca no outro a situação que é espelho do seu interior, como situação de escravidão, aprisionamento, escassez, desengano, sente que está sendo cuidado; isto lhe acalma, pois sente que fazer o outro se empatizar fará com que o outro encontre alguma solução para seu conflito. Portanto, causar o sofrer ao outro é uma forma de garantir sua vida. O niilista não suporta o peso de si mesmo; sua humanidade desaba em energia no outro, e nisso se constitui a loucura do mundo: é o desabar do sentimento niilista na humanidade. Indivíduos que não suportam o próprio peso colapsam, arrastando tudo ao seu redor nesse colapso do seu humano. E essa energia desabada vaza, em loucura do niilista, em forma da opressão que provoca no seu próximo. O niilista força o outro, coage, desaba seus sintomas irrefletidamente. A posição do niilismo é algo que definitivamente o corpo humano não pode suportar e, por isto, o niilista precisa de constantes escapismos, de escapes de loucura, de atos de descarga.
+
+Todos os atos de descarga não representam uma real busca por sentido, pois, ao buscar, imediatamente o teriam, mas representam uma descarga de sintomática temporária. E, neste tempo, poderiam, a qualquer momento, livrar-se do niilismo. Porém, acabando o tempo do mundo, a alma, sendo livre para fazer suas escolhas sem a barreira do corpo e a graça de Deus, que está nas coincidências, livramentos e ajudas na vida, corre o risco de tomar sua decisão definitiva pela sua anulação. O niilista se mascara por trás de uma figura apressiadora de coisas boas, porém não aprecia nem mesmo o bem de seu próximo ou a bonança social, a sociedade alegre. Portanto, o rico acumulador e sovina não é um bom apreciador, mas um depreciador da sociedade. É alguém que tem uma mania incessante em busca de sua cura, para o niilista rico nada importam riquezas e conquistas, isso é uma máscara do real e mais importante desejo: o querer de si mesmo.
 
 O querer de si é o que realmente o rico ganancioso ou a mulher com mania por bens materiais deseja. Em ambos os casos há uma obsessão por dinheiro devido à mais severa escassez que é o não querer de si. Não há nenhum mal que desperte tanta obsessão por dinheiro, pelo poder, por posses materiais quanto a discrepância entre o eu do indivíduo com a existência. O niilismo exige sua cura imediata, exige a paz mental tão sonhada, exige o seu descanso de espírito. O jugo do niilismo é pesado.
 
-A convivência com um niilista é implacável: são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e têm seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua ao outro o autovalor extraído pelo niilismo. O niilista precisa ver a sua família arrasada, a sociedade arrasada, tudo em caos para estar em conformidade com seu luto interior.
+A convivência com um niilista é implacável: são constantes cobranças por dinheiro, a constante perturbação da paz alheia em prol de não ver as pessoas que naturalmente são calmas e têm seu sentido de vida intacto, é uma constante rejeição do outro e uma tentativa constante de denegrir o outro ou lhe extrair um valor financeiro ou pessoal que atribua ao outro o autovalor extraído pelo niilismo. O niilista precisa ver a sua família arrasada, a sociedade arrasada, tudo em caos para estar em conformidade com seu luto interior. O niilista é um humano que se aterroriza constantemente, está constantemente apanhando de si mesmo, é constantemente rígido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refém. O niilista teme perder a pessoa que mais lhe é preciosa, que é a si mesmo. Sente que está perdendo um amor para sempre. Sente-se constantemente exausto e atormentado mentalmente pelo niilismo. A sensação de auto-traição existe para o niilista, que se interpreta como seu maior inimigo, seu maior algoz, alguém íntimo a si que lhe ataca com uma adaga, é uma sensação de desconexão de si, de auto-traição. O niilista vive magoado consigo mesmo constantemente.
 
-O niilista é um humano que se aterroriza constantemente, está constantemente apanhando de si mesmo, é constantemente rígido consigo mesmo. Está sempre prisioneiro de si mesmo, pois o corpo abomina sua decisão e se sente refém. O niilista teme perder a pessoa que mais lhe é preciosa, que é a si mesmo. Sente que está perdendo um amor para sempre. Sente-se constantemente exausto e atormentado mentalmente pelo niilismo. A sensação de auto-traição existe para o niilista, que se interpreta como seu maior inimigo, seu maior algoz, alguém íntimo a si que lhe ataca com uma adaga, é uma sensação de desconexão de si, de auto-traição. O niilista vive magoado consigo mesmo constantemente.
+O niilista trai no casamento para expressar sua auto-traição, se afasta definitivamente de seu amor para expressar o afastamento definitivo de si. O pecado no casamento, por vezes, é uma expressão do niilismo; o divórcio representa a traição da criança interior e o distanciamento definitivo do niilista consigo mesmo. A ausência de contato físico no casamento é a representação niilista do autoafastamento até mesmo do prazer de existir. O prazer da conexão consigo. O niilista pratica o mal socialmente não por tentação, medo, ou qualquer outro motivo que não seja a expressão de uma inaceitação interior, uma tentativa de se fazer entender para aliviar a carga de si. O mal causado pelo niilista muitas vezes é um desabafo de algo insuportável, algo que já não sustenta. O niilista quer provocar a sensação que está sentindo, provoca a miséria para expressar que não consegue sustentar o próprio corpo; seu pensamento o suplanta, é pesado demais para ele, custa caro demais.
 
-O niilista trai no casamento para expressar sua auto-traição, se afasta definitivamente de seu amor para expressar o afastamento definitivo de si. O pecado no casamento, por vezes, é uma expressão do niilismo; o divórcio representa a traição da criança interior e o distanciamento definitivo do niilista consigo mesmo. A ausência de contato físico no casamento é a representação niilista do autoafastamento até mesmo do prazer de existir. O prazer da conexão consigo.
+É inviável pensar que um ser humano é tão fútil que prefere uma fortuna ainda que precise ver o outro na miséria. Um ser humano não poderia chegar a tal grau de imbecilidade, de ignorância, sem que tenha um aparato para tal atrocidade, e este aparato é a tendência de expressão. Vive sem prazer de vida, pois o niilismo é como um espinho em sua mente. Vive em desarmonia consigo, sem relação íntima consigo, sem diálogo consigo, sem contato consigo mesmo. Não tem uma relação íntima consigo. Vive traindo sua criança interior, sente que vai perder sua criança, seu bem precioso, sua alegria, sua infância.
 
-O niilista pratica o mal socialmente não por tentação, medo, ou qualquer outro motivo que não seja a expressão de uma inaceitação interior, uma tentativa de se fazer entender para aliviar a carga de si. O mal causado pelo niilista muitas vezes é um desabafo de algo insuportável, algo que já não sustenta.
+O rico não é tolo, sabe que o maior propósito da vida é se adequar a ela. Ao contrário do que todos pensam, o rico não busca fortuna, somente expressa o niilismo. O rico bem sabe que seu corpo se desfalecerá, está consciente disso, e que seu coração será seu guia. Embora o rico sovina possa não ter total clareza mental do seu interior, ao revelá-la, essa clareza, seu desejo projeta-se novamente no que é realmente valioso para si, projeta-se novamente em seu valor. Sua cabeça, confusa, o dispersa em meio a defesas mentais do seu intento tempestuoso; porém, num lapso de clareza, o niilista seria capaz de admitir para si mesmo, com clareza, o que é realmente precioso: o bem maior que é a vida. Seria capaz de admitir qual o seu problema existencial e reconhecer a forma como projeta este problema na sociedade de forma doentia e implacável.
 
-O niilista quer provocar a sensação que está sentindo, provoca a miséria para expressar que não consegue sustentar o próprio corpo; seu pensamento o suplanta, é pesado demais para ele, custa caro demais.
+Exatamente. Esse lapso de clareza é o momento fugaz em que as defesas, a projeção e o ruído da sintomática niilista se dissipam. Nesse instante, a pessoa não vê mais através do véu da obsessão por posses, do ódio projetado ou da necessidade de destruição. Em vez disso, vê-se a si mesma, nua e crua, diante do abismo que cavou. Nesse momento de lucidez, o indivíduo percebe que a fortuna, o poder e a dominação são apenas símbolos gritantes de uma ausência. São substitutos barulhentos para o que foi silenciado: o valor intrínseco da própria existência, a conexão consigo mesmo, o "sim" fundamental à vida. Reconhece que a implacabilidade com que trata o mundo é, na verdade, um espelho da guerra civil que trava em seu interior. O "vilão" que ele projetou no exterior é, na verdade, a personificação de sua própria auto-rejeição.
 
-É inviável pensar que um ser humano é tão fútil que prefere uma fortuna ainda que precise ver o outro na miséria. Um ser humano não poderia chegar a tal grau de imbecilidade, de ignorância, sem que tenha um aparato para tal atrocidade, e este aparato é a tendência de expressão.
+Essa admissão, por mais dolorosa que seja, é o primeiro e mais crucial passo. É o momento em que o sintoma (a ganância, a opressão) é finalmente conectado à sua fonte (o vazio existencial, o "não querer de si"). O rico sovina vê, com horror, que esteve a sacrificar tudo — o bem do próximo, seus relacionamentos, sua própria paz — no altar de um ídolo que prometia devolver-lhe algo que ele nunca perdeu de fato, apenas deixou de reconhecer: o valor incondicional de seu próprio ser. No entanto, o niilismo é uma fortaleza de defesas. Esse lapso de clareza é frequentemente breve e insuportável. A mente, aterrorizada pela revelação, rapidamente reativa seus mecanismos: a racionalização, a projeção, a busca por mais uma "conquista" que anestesie a dor do autorreconhecimento. A luta, então, não é apenas por ter esse momento de lucidez, mas por sustentá-lo, por ter a coragem de não fugir dele novamente para o conforto familiar da própria destruição.
 
-Vive sem prazer de vida, pois o niilismo é como um espinho em sua mente. Vive em desarmonia consigo, sem relação íntima consigo, sem diálogo consigo, sem contato consigo mesmo. Não tem uma relação íntima consigo. Vive traindo sua criança interior, sente que vai perder sua criança, seu bem precioso, sua alegria, sua infância.
+É aí que reside a possibilidade de mudança. Se o indivíduo conseguir não apenas admitir, mas habitar essa verdade — aceitar que o problema não está no mundo que não lhe dá valor, mas em si mesmo que não se aceita —, então a projeção pode começar a se reverter. A energia desesperada que era canalizada para acumular e oprimir pode, finalmente, ser redirecionada. Pode tornar-se a energia para reconstruir a relação consigo mesmo, para reaprender a "querer-se", para aceitar o "jugo" leve de simplesmente existir, em vez do jugo esmagador de ter que provar constantemente que se existe. Portanto, essa clareza não é o fim, mas o verdadeiro começo. É o colapso da persona niilista e o vislumbre frágil e assustador da pessoa humana que sempre esteve lá, por baixo de todas as camadas de defesa e autossabotagem. É o momento em que a busca desesperada por um "valor artificial" pode, finalmente, ceder lugar à descoberta gradual do valor real que nunca foi perdido, apenas esquecido.
 
-O rico não é tolo, sabe que o maior propósito da vida é se adequar a ela. Ao contrário do que todos pensam, o rico não busca fortuna, somente expressa o niilismo. O rico bem sabe que seu corpo se desfalecerá, está consciente disso, e que seu coração será seu guia.
+### 2.13 A magia negra do maligno e a desfiguração do sentido
+O querer niilista pelo suicídio é uma afronta contra o próprio design que Deus criou; o preço que o niilista cobra por sua vida, muitas vezes, é uma burlagem das leis naturais, uma burlagem do outro. O niilista quer viver, desde que sua vida possa massacrar a do outro e alterar as leis pragmáticas da vida. O niilista quer ter alguma vantagem sobre tudo e sobre o outro; caso contrário, ameaça o próprio Deus, de atentar contra a sua própria vida se não for cumprido o seu desejo. Para o niilista, seu ato é uma espécie de poção mágica que o levará a resultados rápidos; intenta contra o coração de Deus, quer ferir o próprio Deus em troca de ouro, tal como a representatividade de Judas, o apóstolo que trocou seu Mestre por moedas de ouro. Judas era alguém que queria resultados rápidos, que queria reinar rapidamente sobre todos e, para isto, era capaz de qualquer coisa. O niilista usa a morte para se assimétricaizar, para querer ser maior do que o outro em qualquer aspecto. O niilista deixa-se levar pelo seu ódio de forma que se acredita com poderes mágicos aqui mesmo neste plano; acredita que ameaçar com a própria morte pode levá-lo a qualquer patamar quando, na verdade, é um atentado contra o coração de Deus. O niilista atenta contra a vida por querer demais, e o seu querer demais está vinculado a um ódio por algo; a exaltação que o niilista deseja é a adaga que deseja desferir contra o outro. O niilista não é orgulhoso em prol da exaltação, mas em prol da agressão.
 
-Embora o rico sovina possa não ter total clareza mental do seu interior, ao revelá-la, essa clareza, seu desejo projeta-se novamente no que é realmente valioso para si, projeta-se novamente em seu valor. Sua cabeça, confusa, o dispersa em meio a defesas mentais do seu intento tempestuoso; porém, num lapso de clareza, o niilista seria capaz de admitir para si mesmo, com clareza, o que é realmente precioso: o bem maior que é a vida. Seria capaz de admitir qual o seu problema existencial e reconhecer a forma como projeta este problema na sociedade de forma doentia e implacável.
+O niilista pensa poder negociar com a sua própria vida qualquer coisa que queira; o niilista é o indivíduo dos resultados mágicos, quer para já o que almeja. E sua rapidez não é desejo, mas força de vingança, é um ataque rápido ao seu alvo. O niilista só enxerga o ofuscar da guerra mediante seus olhos; a vida, para ele, não faz sentido se não for fazer vingança, o propósito do niilista é saciar seu intuito de vingar-se. E sua vingança só tem limite quando passa a enxergar a preciosidade da vida, a ter amor. O amor lhe faz lançar um novo olhar de compreensão sobre as falhas do outro, sobre os momentos de dificuldade, sobre os tempos de espera da vida. É só o amor que o faz compreender, ao invés de fazer um ataque rápido, impaciente e certeiro sobre si mesmo; é só o amor que o faz compreender, ao invés de agir rápido. É o amor que faz o niilista se interessar pela vida, ao invés de julgá-la e agir.
 
-Exatamente. Esse lapso de clareza é o momento fugaz em que as defesas, a projeção e o ruído da sintomática niilista se dissipam. Nesse instante, a pessoa não vê mais através do véu da obsessão por posses, do ódio projetado ou da necessidade de destruição. Em vez disso, vê-se a si mesma, nua e crua, diante do abismo que cavou.
+Para o niilista não há o termo “compreender” anterior ao agir. O niilista simplesmente visualiza, sente e age. O compreender não é uma etapa em seu processo de entendimento da vida. E esse compreender significa resiliência, compaixão, perdão, paciência e misericórdia, qualidades fomentadas pelo amor. O niilista somente visualiza o mundo, revolta-se e pede vingança ou a mudança imediata do mundo; ao não ter seu imediatismo, não ativa dentro de si a compreensão, simplesmente age com a atitude niilista e atenta contra a sua vida. O niilista vê a vida como uma funcionalidade que deve agradá-lo ou desagradá-lo; se o desagrada, para o niilista, não há outro sentido senão forçar o autoagrado. A vida, para o niilista, é um jogo de duas faces: ou lhe serve ou é descartada, e a serventia, para o niilista, significa todos os seus desejos realizados imediatamente. Como se a vida ou tivesse um gênio da lâmpada mágica para lhe conceder tudo, ou não fizesse sentido algum para si, tendo como único proveito a ameaça mordaz da morte caso seu desejo não seja atendido.
 
-Nesse momento de lucidez, o indivíduo percebe que a fortuna, o poder e a dominação são apenas símbolos gritantes de uma ausência. São substitutos barulhentos para o que foi silenciado: o valor intrínseco da própria existência, a conexão consigo mesmo, o "sim" fundamental à vida. Reconhece que a implacabilidade com que trata o mundo é, na verdade, um espelho da guerra civil que trava em seu interior. O "vilão" que ele projetou no exterior é, na verdade, a personificação de sua própria auto-rejeição.
+Falta ao niilista o start do amor, o estalo na consciência que o faz olhar para suas atitudes, olhar para a necessidade de profundidade nas coisas, nos fatos e nas pessoas. É o amor que faz o niilista estudar a vida, estudar o outro, olhar para os olhos do outro, reconhecer-se como humano e errante, para que reconheça o outro também. É a boa vontade do amor que falta; essa ausência torna o niilista mecanizado sentimentalmente, faz com que aja de forma fria, sem o ímpeto do amor. É o amor que o faz amenizar tudo, relevar, perdoar, abandonar seu anseio de rapidez em tudo. É o amor que o faz lutar por si mesmo, que aumenta sua vontade de sobreviver, de vencer. É o amor que desperta nele o interesse por si mesmo e pelo outro, que o faz olhar para as razões do outro, ao invés de olhar somente para as suas próprias.
 
-Essa admissão, por mais dolorosa que seja, é o primeiro e mais crucial passo. É o momento em que o sintoma (a ganância, a opressão) é finalmente conectado à sua fonte (o vazio existencial, o "não querer de si"). O rico sovina vê, com horror, que esteve a sacrificar tudo — o bem do próximo, seus relacionamentos, sua própria paz — no altar de um ídolo que prometia devolver-lhe algo que ele nunca perdeu de fato, apenas deixou de reconhecer: o valor incondicional de seu próprio ser.
+O ódio do niilista se canaliza na sua auto anulação. Não tem exatamente um projeto para fora de si, um alvo ou objetivo, ou até mesmo uma obsessão. O obsessivo causa um comportamento aparentemente mais visível de revolta do que o niilista; o niilista tem um ódio intrusivo, e não expressivo. Seu ódio se findou em tudo, não simplesmente em uma causa. Seu ódio não tem de que, ou de quem, não tem um alvo. O ódio é generalizado, é concentrado num ponto único: o coração de Deus. O niilista quer atingir o ápice da sua vingança. O niilista intenta contra seu próprio nome.
 
-No entanto, o niilismo é uma fortaleza de defesas. Esse lapso de clareza é frequentemente breve e insuportável. A mente, aterrorizada pela revelação, rapidamente reativa seus mecanismos: a racionalização, a projeção, a busca por mais uma "conquista" que anestesie a dor do autorreconhecimento. A luta, então, não é apenas por ter esse momento de lucidez, mas por sustentá-lo, por ter a coragem de não fugir dele novamente para o conforto familiar da própria destruição.
+Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas. Ou seja, o pecado, em si, é pecado quando parte da nítida motivação do indivíduo de destruir o sentido das coisas boas, em favor de perpetuar e tornar mais confortável seu luto por si mesmo. A tentativa de desfigurar o sentido das coisas representa, de fato, o verdadeiro sentido do pecado.
 
-É aí que reside a possibilidade de mudança. Se o indivíduo conseguir não apenas admitir, mas habitar essa verdade — aceitar que o problema não está no mundo que não lhe dá valor, mas em si mesmo que não se aceita —, então a projeção pode começar a se reverter. A energia desesperada que era canalizada para acumular e oprimir pode, finalmente, ser redirecionada. Pode tornar-se a energia para reconstruir a relação consigo mesmo, para reaprender a "querer-se", para aceitar o "jugo" leve de simplesmente existir, em vez do jugo esmagador de ter que provar constantemente que se existe.
+O pecado representa partida. A partida eterna do existir. Não representa atos isolados, falta de sabedoria ou evolução espiritual. O propósito, portanto, do pecado define se é realmente mortal ou não. Se o propósito é realmente desfigurar o sentido das coisas boas da vida, então realmente se faz um indício de niilismo. O pecado é um conceito que visa tentar descrever a sintomática, e não a intenção. Porém, o pecado contra o Espírito Santo é uma representação aprimorada, refletindo a ideia de que o pecado é realmente pecado se for um atentado contra a plenitude do indivíduo, que concorre unidirecionalmente para a sua permanência na existência. O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é uma tentativa de construir um padrão sintomático para o niilista, que convoca o indivíduo a questionar sua posição interior e, por esta posição, inferir sobre seu próprio destino.
 
-Portanto, essa clareza não é o fim, mas o verdadeiro começo. É o colapso da persona niilista e o vislumbre frágil e assustador da pessoa humana que sempre esteve lá, por baixo de todas as camadas de defesa e autossabotagem. É o momento em que a busca desesperada por um "valor artificial" pode, finalmente, ceder lugar à descoberta gradual do valor real que nunca foi perdido, apenas esquecido.
-
-### **A ânsia por ser odiado**
-
-O niilista por vezes pratica atos horríveis ou merecedores de raiva geral, por querer a sensação de ser refugado, de ser excluído, exonerado; isso coage com a sua postura interior. O deixa desconfortável ser amado pelas pessoas, pois isto confere beleza e sentido à sua vida. O amor das pessoas, principalmente das mais preciosas para o niilista, o afugenta de sua decisão interior, o faz julgar um absurdo sua postura e chorar. O niilista quer se desfazer de seus relacionamentos, quer um motivo para pensar que o mundo é vazio de sentido e que não existe propósito no mundo.
-
-O indivíduo se irrita quando lhe conferem sentido à sua vida, pois tem o firme propósito de sua finitude; está obcecado pela morte e é conformado com essa intenção, de maneira que, quando lhe se aproxima o amor e o afeto, o indivíduo se enche de ira e atenta contra o afeto alheio.
-
-Há uma ânsia também por ser excluído, isolado e rodeado somente de pessoas que coagem com seu propósito interior. Pois estar em contato com pessoas que querem desfigurar o sentido das coisas coage com seu intento, de forma a não produzir colisões com o mesmo.
-
-### **A desfiguração do sentido**
-
-Atitudes como traição no casamento, roubo, assassinato, vícios na sexualidade que afastam a convivência do casal, como sexo solitário ou pornografia, injúria, falso testemunho, etc. Todas as recomendações dos mandamentos, no ato niilista, não são realizadas por uma mera tentação, ou por mera falta de sabedoria e aprendizado de vida, mas as ações niilistas que vão contra as recomendações dos mandamentos têm um nítido intuito de destruir o sentido das coisas.
-
-Ou seja, o pecado, em si, é pecado quando parte da nítida motivação do indivíduo de destruir o sentido das coisas boas, em favor de perpetuar e tornar mais confortável seu luto por si mesmo. A tentativa de desfigurar o sentido das coisas representa, de fato, o verdadeiro sentido do pecado.
-
-O pecado representa partida. A partida eterna do existir. Não representa atos isolados, falta de sabedoria ou evolução espiritual. O propósito, portanto, do pecado define se é realmente mortal ou não. Se o propósito é realmente desfigurar o sentido das coisas boas da vida, então realmente se faz um indício de niilismo.
-
-O pecado é um conceito que visa tentar descrever a sintomática, e não a intenção. Porém, o pecado contra o Espírito Santo é uma representação aprimorada, refletindo a ideia de que o pecado é realmente pecado se for um atentado contra a plenitude do indivíduo, que concorre unidirecionalmente para a sua permanência na existência.
-
-O pecado, portanto, não é um ato punitivo, ou um ato punido por Deus, mas é uma tentativa de construir um padrão sintomático para o niilista, que convoca o indivíduo a questionar sua posição interior e, por esta posição, inferir sobre seu próprio destino.
+### 2.14 A recuperação do niilista
+É comum o niilista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O niilista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
 
 
-#### **A Solução: Do Diagnóstico à Cura Coletiva**
+---
 
+## PARTE III: CAPÍTULO 44 - A VISÃO MACROSSOCIAL: PARADOXOS E SOLUÇÕES
+
+### 3.1 A Náusea Niilista: A Anatomia do Desespero Social
+No "mundo de barro" — nossa existência terrena —, niilistas e não-niilistas tentavam coexistir, compartilhando o mesmo espaço vital. Contudo, este esforço assemelhava-se a um labirinto sem saída. Os niilistas jamais cessavam sua atividade corrosiva. O mal no mundo nunca dava tréguas — e este mal não era o mal convencional, mas sim o **desespero niilista afogando a sociedade**, como um náufrago que, ao submergir, arrasta consigo quem tenta socorrê-lo.
+
+Poucos compreendiam que o que se desenrolava não eram meramente guerras, catástrofes naturais ou destruição material, mas um **holocausto de almas autoinfligido**. Estes agentes não eram anti-humanos, autômatos ou zumbis — eram humanos aterrorizados por seu fim iminente, tentando desesperadamente transmitir ao outro um vislumbre de seu tormento interior. Eram pessoas inseguras perante a constatação esmagadora de sua própria liberdade, repassando esta insegurança ao tecido social. Eram humanos frágeis, débeis, desprovidos de autoestima, lutando pelo reconhecimento de um **interior instável** que constantemente os desestabilizava.
+
+### 3.2 A Mudança Social: O Paradoxo Humano e a Lição do Formigueiro
+No universo intricado de um formigueiro, reina uma harmonia funcional que transcende a simples luta pela sobrevivência. Naquela sociedade minúscula e perfeitamente organizada, a fome coletiva é uma impossibilidade biológica. Cada formiga, guiada por um instinto infalível, labora não para si, mas para o organismo coletivo. Elas constituem um sistema de cooperação integral onde colheita, armazenamento e distribuição de recursos formam um ciclo impecável, garantindo a perpetuação da colônia. É uma inteligência emergente que elege o bem-comum como princípio ontológico, subordinando qualquer impulso individual ao destino coletivo.
+
+Se seres com sistemas nervosos elementares solucionaram há éons o problema da escassez, que profundo paradoxo revela o ser humano? Dotados de consciência reflexiva, capazes de decifrar o código da vida, desvendar os segredos cósmicos e tecer redes globais de comunicação, nós, ironicamente, fracassamos onde insetos "inferiores" triunfam. A questão, portanto, não é de capacidade cognitiva, mas de orientação existencial.
+
+### 3.3 O Desvio da Inteligência Humana
+O que ocorre com nosso potencial intelectual? Ele foi sequestrado por paradigmas distorcidos. Enquanto o formigueiro opera como uma consciência coletiva unificada, a sociedade humana fragmentou-se em arquipélagos de interesse particular. Nossa genialidade tecnológica é frequentemente canalizada para a criação de sistemas de competição, acumulação e desigualdade estrutural. Desenvolvemos uma capacidade agrícola que poderia nutrir a humanidade inteira, mas permitimos que a lógica do lucro e a concentração de riqueza gerem o absurdo de desertos de abundância coexistindo com oceanos de miséria. A fome persistente não representa um fracasso produtivo, mas um fracasso distributivo — um problema que as formigas nunca enfrentaram porque sua "economia" é intrinsecamente colaborativa.
+
+Ademais, nossa consciência individual — que deveria constituir nossa maior glória — transforma-se, neste contexto, em nossa vulnerabilidade fundamental. O "eu" sobrepõe-se catastrophicamente ao "nós". A ânsia de acumular, o pavor da escassez e a busca por status corrompem nosso instinto cooperativo inato. Planejamos para nosso clã, nossa corporação, nossa nação, mas raramente para a humanidade como organismo integral — um conceito que parece etéreo ante nossas necessidades imediatas. A formiga não delibera; simplesmente atua para o coletivo. O homem pondera, calcula e, com frequência, elege o caminho que beneficia a si mesmo em detrimento do todo.
+
+### 3.4 O Diagnóstico: A Patologia Niilista como Raiz da Desarmonia
+Se no formigueiro impera uma harmonia instintiva que assegura o sustento universal, e se o ser humano, dotado de inteligência cosmicamente assimétrica, é capaz de proezas tecnológicas inimagináveis, o que explica nosso fracasso coletivo em erradicar a fome, a desigualdade e a miséria? A resposta, como revela a cartografia metafísica d'"O Relativo da Alma", não reside em carência de capacidade, mas em uma patologia espiritual profunda: o niilismo. Enquanto as formigas obedecem a um desígnio coletivo inscrito em sua natureza, nós, humanos, carregamos o dom e o fardo da liberdade — e é no âmago dessa liberdade que pode germinar um ódio primordial contra a própria existência, uma força autoaniquiladora que, **quando adotada por elementos estratégicos, envenena todo o ecossistema social.**
+
+**O niilista, tal como descrito na jornada filosófica pelo estado pós-morte, não constitui a norma social, mas sua presença atua como um agente patogênico na consciência coletiva.** Ele é o arquiteto de seu inferno pessoal, um ser que, diante do espelho do Juízo Particular — que não é tribunal externo, mas a revelação inescapável de sua própria verdade interior —, prefere o desaparecimento. Ele elege o nada ante a beleza, o vazio ante a plenitude, o autoapagamento ante a responsabilidade de ser. Esta não é uma opção filosófica entre outras, mas um ato de ódio puro, um repúdio fundamental à vida que, **quando abraçado por indivíduos em posições de influência, converte-se na causa primária de grande parte da miséria estrutural.**
+
+### 3.5 A Externalização do Vazio Interior
+Esta patologia, esta "loucura do ódio" como a define o texto, é a força motriz por trás **dos sistemas de competição, acumulação e desigualdade que nos impedem de realizar a harmonia do formigueiro. A fome não é um fracasso logístico; é o sintoma de corações que se recusam a distribuir. A riqueza obscena concentrada em poucas mãos não é acidente económico; é a externalização de um vazio interior que tenta, vanamente, preencher-se com matéria.** O colonialista que proclamava que o outro "não tinha alma" estava, na realidade, projetando sua própria morte espiritual. O opressor que escraviza e explora está tentando transferir para o outro o peso insuportável de sua própria decisão interior pela autoaniquilação.
+
+**A inteligência humana, quando desconectada do amor e sequestrada por este ódio primordial, não edifica; corrompe. Ela não forja sistemas de cooperação, mas elabora sofisticados mecanismos de fuga — seja na glorificação do material, na competição desenfreada ou na sabotagem sistemática da própria alegria.** O niilista, movido por um "desejo deliberado e insistente pela morte", seja rápida ou lenta, transforma-se num agente do caos. Sua "incapacidade de suportar a própria realidade" gera uma miséria interior que ele, consequentemente, propaga pelo mundo. Ele é a encarnação da pulsão de morte que Freud discerniu, **e seu impacto desproporcional contamina o corpo social inteiro.**
+
+### 3.6 A Solução: Do Diagnóstico à Cura Coletiva
 Assim, o grande paradoxo desvela-se: a miséria mundial não é questão de escassez objetiva, mas de direcionamento da consciência. Enquanto as formigas canalizam seu instinto para a vida, **uma humanidade cujas estruturas foram parcialmente corrompidas pelo niilismo** direciona sua inteligência superlativa para a negação da vida. O problema fundamental não é sermos menos inteligentes que as formigas, mas que **nossa inteligência coletiva pode ser sequestrada por uma patologia da alma que, ainda que minoritária, nos leva a construir, coletivamente, nosso formigueiro invertido: uma sociedade onde a fome de sentido de alguns gera a fome de pão de muitos.**
 
 A solução, portanto, não repousa exclusivamente em novos paradigmas económicos ou tecnológicos, mas no desenvolvimento de uma sabedoria coletiva que nos permita **identificar, isolar e erradicar de nossas estruturas sociais a semente do ódio niilista — a verdadeira raiz de toda miséria sistêmica.** Compreender a anatomia do niilismo é, neste século, mais crucial do que dominar novas tecnologias. Pois toda inovação técnica será inútil se continuar servindo a uma inteligência que, desconectada do amor, permanece fundamentalmente niilista em sua essência — construindo castelos de progresso sobre o abismo de seu próprio vazio.
 
-#### **O Peso da Liberdade e a Fragilidade Humana**
+### 3.7 O Peso da Liberdade e a Fragilidade Humana
+Como poderia um ser humano finito suportar o peso da ideia de uma morte eterna? Este conceito era grande demais até para o mais estoico dos indivíduos. Entre irracionalidade, descargas de frustração, terror existencial e obsessões autodestrutivas, a sociedade paradoxalmente florescia — e todo este caos era, de algum modo, contido e administrado pelas pessoas não-niilistas. O ser humano, ao imaginar-se privado de seu maior dom — suas asas rumo à eternidade, sua capacidade de transcendência e sua alegria fundamental —, desenvolve uma náusea existencial; vive em conflito perpétuo e torna-se incapaz de construir a paz. Eram bandeirantes que contemplavam a existência com saudade antecipatória; escravistas que carregavam um desconsolo abissal; líderes que padeciam de frustração e histeria diante de sua própria condição. Eram almas desesperadas, cujos gemidos tristes ecoavam como súplicas por salvação.
 
-Como poderia um ser humano finito suportar o peso da ideia de uma morte eterna? Este conceito era grande demais até para o mais estoico dos indivíduos. Entre irracionalidade, descargas de frustração, terror existencial e obsessões autodestrutivas, a sociedade paradoxalmente florescia — e todo este caos era, de algum modo, contido e administrado pelas pessoas não-niilistas.
+### 3.8 O Mundo como Útero e Campo de Batalha
+O mundo de barro funcionava simultaneamente como ante-sala do céu e vestíbulo do inferno. Ali, almas temerosas e desesperadas coexistiam com almas pulsantes de esperança. E, num paradoxo dialético, à medida que o mundo se tornava mais habitável, também acelerava seu processo de autodestruição. O mundo era o útero da Mãe Terra. Deste útero cósmico, almas nascim e morriam incessantemente. Existiria, portanto, na esperança cristã, um plano onde este filtro estaria consumado — além do útero universal, onde as almas que verdadeiramente vivem pudessem crescer eternamente, e onde as que morrem espiritualmente encontrassem seu repouso definitivo.
 
-O ser humano, ao imaginar-se privado de seu maior dom — suas asas rumo à eternidade, sua capacidade de transcendência e sua alegria fundamental —, desenvolve uma náusea existencial; vive em conflito perpétuo e torna-se incapaz de construir a paz.
+### 3.9 A Perspectiva da Liberdade e da Alegria Eterna
+Por isto, não faz sentido entristecer-se diante da iniquidade e confusão mundanas, mas sim alegrar-se ao recordar que todo este caos é sinônimo de liberdade humana. Não faz sentido focalizar o mal no mundo, e sim contemplar a vida eterna que palpita dentro de nós. A náusea do mal, persistindo ou não, sendo mais ou menos efetiva na organização social, não pode impedir ninguém de amar a vida e de ser feliz eternamente. Neste mundo, a violência corporifica os gritos de desespero das almas que marcham para as chamas interiores; o caos expressa a insatisfação e a crise de identidade nas quais se enclausuram em vida; a restrição financeira, social e a miséria anunciam o estado de nadificação dessas almas — o tédio absoluto, a fome suprema de sentido. Neste cenário, o grande engano manifesta-se em formas de gemidos, gritos de desespero, chamados sem resposta, ecos vazios e identidades que se dissipam progressivamente.
 
-Eram bandeirantes que contemplavam a existência com saudade antecipatória; escravistas que carregavam um desconsolo abissal; líderes que padeciam de frustração e histeria diante de sua própria condição. Eram almas desesperadas, cujos gemidos tristes ecoavam como súplicas por salvação.
-
-#### **O Mundo como Útero e Campo de Batalha**
-
-O mundo de barro funcionava simultaneamente como ante-sala do céu e vestíbulo do inferno. Ali, almas temerosas e desesperadas coexistiam com almas pulsantes de esperança. E, num paradoxo dialético, à medida que o mundo se tornava mais habitável, também acelerava seu processo de autodestruição.
-
-O mundo era o útero da Mãe Terra. Deste útero cósmico, almas nascim e morriam incessantemente. Existiria, portanto, na esperança cristã, um plano onde este filtro estaria consumado — além do útero universal, onde as almas que verdadeiramente vivem pudessem crescer eternamente, e onde as que morrem espiritualmente encontrassem seu repouso definitivo.
-
-#### **A Perspectiva da Liberdade e da Alegria Eterna**
-
-Por isto, não faz sentido entristecer-se diante da iniquidade e confusão mundanas, mas sim alegrar-se ao recordar que todo este caos é sinônimo de liberdade humana. Não faz sentido focalizar o mal no mundo, e sim contemplar a vida eterna que palpita dentro de nós. A náusea do mal, persistindo ou não, sendo mais ou menos efetiva na organização social, não pode impedir ninguém de amar a vida e de ser feliz eternamente.
-
-Neste mundo, a violência corporifica os gritos de desespero das almas que marcham para as chamas interiores; o caos expressa a insatisfação e a crise de identidade nas quais se enclausuram em vida; a restrição financeira, social e a miséria anunciam o estado de nadificação dessas almas — o tédio absoluto, a fome suprema de sentido. Neste cenário, o grande engano manifesta-se em formas de gemidos, gritos de desespero, chamados sem resposta, ecos vazios e identidades que se dissipam progressivamente.
-
-#### **A Guerra como Confissão e a Miséria como Denúncia**
-
+### 3.10 A Guerra como Confissão e a Miséria como Denúncia
 Ouvimos, então, os gritos finos e agudos, os olhares desesperados, os clamores e súplicas dos niilistas materializando-se em desastres sociais, guerras e fome. Tudo isto é absorvido emocionalmente pela sociedade. A guerra é a metabolização coletiva dos sentimentos niilistas: quase tudo é uma tentativa de fazer o outro experimentar a própria agonia para obter alívio, transmitir ao próximo a própria intenção autodestrutiva. **A guerra é uma confissão pública de índole.** A miséria, uma denúncia interior do niilista.
 
-#### **A Criança que Chora: A Origem do Mal**
-
+### 3.11 A Criança que Chora: A Origem do Mal
 Os males do mundo emanam de uma criança que chora, originários do medo, da covardia de amar e de converter-se. **O mal chora como uma criança desconsolada.** A violência é algo infantil, retrógrado, insensato. Brota de consciências que não se compreenderam, que regrediram a uma fase fetal, onde buscam proteger-se de si mesmas. A guerra e a miséria são formas de covardia existencial, não meros produtos da ganância. São a loucura, o lunatismo de indivíduos aterrorizados diante do campo infinito das possibilidades, que intentam o pior. Assim, guardam seu segredo como se a sociedade jamais fosse percebê-lo, como se pudessem passar despercebidos.
 
-#### **A Alegria ante a Infinitude**
-
+### 3.12 A Alegria ante a Infinitude
 Os niilistas ameaçam apagar sua identidade única do mundo — uma identidade irreplicável, que jamais poderá ser reconstituída. No entanto, ainda assim, deve prevalecer a alegria, pois existem infinitas outras identidades, vidas e possibilidades esperando para florescer. **A alegria diante da infinitude de seres vivos e possíveis viventes é maior do que qualquer partida individual.** A escuridão de alguns não pode ofuscar a luz potencial de incontáveis outros que escolhem a vida, o amor e a eternidade.
 
-A alegria e a felicidade não podem cessar, mesmo diante da ação niilista. A ação niilista de fato tenta sucumbir a cultura e as estruturas de ânimo social, na tentativa de provocar um mundo de luto, um ambiente favorável para conservar um pensamento antagônico ao existir. O mundo do niilista não pode ter bons artistas, uma natureza bela, paz e harmonia.
+A alegria e a felicidade não podem cessar, mesmo diante da ação niilista. A ação niilista de fato tenta sucumbir a cultura e as estruturas de ânimo social, na tentativa de provocar um mundo de luto, um ambiente favorável para conservar um pensamento antagônico ao existir. O mundo do niilista não pode ter bons artistas, uma natureza bela, paz e harmonia. O niilismo prega a mentira de um mundo inconcertável, de um mundo constantemente errante. Prega a mentira de que o ser humano não possui o dom inato de ser harmonioso, de ser autossustentável.
 
-O niilismo prega a mentira de um mundo inconcertável, de um mundo constantemente errante. Prega a mentira de que o ser humano não possui o dom inato de ser harmonioso, de ser autossustentável.
+A poluição da natureza, do ar, a devastação das belezas naturais – nada disso é um ato de sobrevivência ou resultado de uma tecnologia ainda rudimentar que impossibilite o ser humano de ser autossustentável. Toda descaracterização da natureza que transmite a sensação de despropósito, todo cenário humanamente modificado e poluído ao ponto de provocar um vazio em quem o contempla, vem de um pensamento niilista. O niilista não permite a contemplação; o sentido da criação, para o niilista, deve ser extinto. A harmonia da biologia, as belezas naturais, tudo isso ofusca seu objetivo central, que é acreditar no ateísmo e no niilismo como forma de pensamento. Ao contemplar a beleza dos pássaros, das flores, o niilista retorce-se em dor e agonia e tenta se mascarar num cenário de mundo pós-apocalíptico. O ser humano tem sido levado, induzido pelo pensamento niilista, e até hoje não o conhece com exatidão. Porém, a partir da produção e divulgação deste pensamento, tudo mudará. O mundo mudará.
 
-A poluição da natureza, do ar, a devastação das belezas naturais – nada disso é um ato de sobrevivência ou resultado de uma tecnologia ainda rudimentar que impossibilite o ser humano de ser autossustentável. Toda descaracterização da natureza que transmite a sensação de despropósito, todo cenário humanamente modificado e poluído ao ponto de provocar um vazio em quem o contempla, vem de um pensamento niilista. O niilista não permite a contemplação; o sentido da criação, para o niilista, deve ser extinto. A harmonia da biologia, as belezas naturais, tudo isso ofusca seu objetivo central, que é acreditar no ateísmo e no niilismo como forma de pensamento.
+Peço discrição absoluta: que meu nome e a origem deste texto não sejam divulgados. Quando uma denúncia abala as estruturas de dominação social, seus autores tornam-se alvo imediato de perseguição. Os políticos, muitas vezes, apenas ecoam o pensamento das massas. Mas quando surge alguém que fornece a instrução necessária para a revolução, esse alguém se torna um alvo definido. Não receberei nada por este projeto, e minha recompensa será saber que foram felizes. Lutem a boa luta. E me permitam permanecer anônimo, como um espectador à distância de tudo o que virá a acontecer. Em meu íntimo, me aquietarei com a serena satisfação de um sentimento que só eu conhecerei.
 
-Ao contemplar a beleza dos pássaros, das flores, o niilista retorce-se em dor e agonia e tenta se mascarar num cenário de mundo pós-apocalíptico. O ser humano tem sido levado, induzido pelo pensamento niilista, e até hoje não o conhece com exatidão. Porém, a partir da produção e divulgação deste pensamento, tudo mudará. O mundo mudará.
+A humanidade atormentada pelo niilista: Não é dificil viver, não é dificil trabalhar, não é dificil ser feliz. Porém, quando o individuo é niilista, cria-se uma dificuldade artificial de viver, que o individuo quer transmitir ao outro por meio da fome, miséria, trabalhos pesados e guerra. O niilista é como um artita famoso que precisa se expressar, que precisa gritar para o mundo o que é a miséria. A ação niilista aflige a normalidade, atormenta a paz do individuo humano, o niilista é um obsessor social, e, se com grande potencial financeiro, é um obsessor sobre o mundo exercendo forte pressão no status quo, querendo modificar o cenário da normalidade, desstituir de beleza e vivacidade a terra.
 
-Peço discrição absoluta: que meu nome e a origem deste texto não sejam divulgados. Quando uma denúncia abala as estruturas de dominação social, seus autores tornam-se alvo imediato de perseguição. Os políticos, muitas vezes, apenas ecoam o pensamento das massas. Mas quando surge alguém que fornece a instrução necessária para a revolução, esse alguém se torna um alvo definido.
 
-Não receberei nada por este projeto, e minha recompensa será saber que foram felizes. Lutem a boa luta. E me permitam permanecer anônimo, como um espectador à distância de tudo o que virá a acontecer. Em meu íntimo, me aquietarei com a serena satisfação de um sentimento que só eu conhecerei.
+---
 
-#### **A humanidade atormentada pelo niilista**
+## PARTE IV: CAPÍTULO 45 - O NIILISMO HISTÓRICO, POLÍTICO E INSTITUCIONALIZADO
 
-Não é dificil viver, não é dificil trabalhar, não é dificil ser feliz. Porém, quando o individuo é niilista, cria-se uma dificuldade artificial de viver, que o individuo quer transmitir ao outro por meio da fome, miséria, trabalhos pesados e guerra. O niilista é como um artita famoso que precisa se expressar, que precisa gritar para o mundo o que é a miséria.
+### 4.1 A direita política como grito de socorro
+O niilista tenta se levantar no contexto social com um pedido de socorro à sua condição. Seu voto na direita é um voto na própria ruína. Um processo que visa demonstrar que, enquanto o mundo parece indiferente à sua decisão, o niilista não permanece indiferente ao status quo da normalidade, desferindo contra este o seu golpe de socorro. O niilista sabe que a direita política vai contra os interesses da pessoa humana, e não somente dos ricos, pois fomenta a destruição total. Na direita política não há favorecidos. A direita é um demonstrar do barco individual que se afunda na correnteza do oceano na vida do indivíduo, e o indivíduo demonstra esse naufrágio querendo naufragar a economia. O indivíduo de direita sabe que está se agredindo ao apoiar a direita, porém o faz porque é seu manifesto contra sua própria postura interior. É a tentativa de emanar um problema silencioso que rompe dentro de si e não tem voz senão em seu voto. É a tentativa de expressão de uma verdade não assumida nem mesmo para si mediante a própria catástrofe. A direita é um movimento emocional, uma patologia social que nasce da decisão de espírito e eclode na opção política ou na ação política que se torna não mais politizada e em favor da guerra. O direitismo é uma atitude antidemocrática que tem como único intuito a expressão de uma realidade interior, é um movimento de agressão social, é apoiar os que fomentam a violência e a desordem social movidos pelos próprios interesses mesquinhos.
 
-A ação niilista aflige a normalidade, atormenta a paz do individuo humano, o niilista é um obsessor social, e, se com grande potencial financeiro, é um obsessor sobre o mundo exercendo forte pressão no status quo, querendo modificar o cenário da normalidade, desstituir de beleza e vivacidade a terra.
+A causa emocional do direitismo não necessita ser plenamente entendida para que a direita seja destituída da política, basta que se entenda como uma crise de sentido ou crise existencial a atitude de direita. E também é necessário que se entenda que o combate à direita não se dá por meio de conscientização, não é possível conscientizar um estado de mania. Um estado de zumbificação de um ser humano que padece do pior dos males e que desespera a todo instante pela vida que perderá. O direitismo é um estado de desespero, um afundar do barco político, um estado de agitação que leva a sociedade ao fundo se deixar proliferar. A única forma de combater é pela força, coerção. Ao indivíduo que se agarra por estar se afundando, é necessário desagarrá-lo à força para que solte e pare de afundar o outro. O desespero não controlado do indivíduo não pode ser aplacado pelo discurso de conscientização, ou um simples discurso pela paz. O niilista não está preocupado com o bem-estar social e do mundo, está preocupado com o que lhe é mais urgente, que é sua própria salvação.
 
-Oração pela Humanidade
+A sociedade já compreendeu, neste momento em que estão sendo escritas estas palavras, que o discurso político, a tentativa de conscientização, de comoção ou de politização da pessoa humana de direita não tem efeito. A sociedade, ainda que não esteja disposta a se aprofundar na metafísica e no sentimento humano que causa a direita, entende o necessário. Entende que não se vence a direita pela conscientização. Entende que a direita é um estado de mania persistente, e vê isto como uma crise existencial, como um querer pela destruição. A única forma de vencer a direita é imobilizando-a, abalando os seus alicerces e depois imobilizando-a. O ser humano niilista desaba sobre sua própria decisão, desacredita que sua decisão seja verdade, necessita de subterfúgios mentais, necessita ser segurado, controlado para não se autodestruir até mesmo através da política. Um ser humano não pode suportar a decisão pessoal pela própria perdição, é uma ideia grande demais para o intelecto humano, uma ideia insuportável.
+
+O ódio que o niilista desenvolve por sua própria decisão, e a irracionalidade que enxerga na mesma, é expelido em forma de agressão e violência. A violência se dá no niilismo pelo ser humano não suportar a própria informação que sustenta mediante sua postura rígida. Mediante ao seu ódio absoluto, que o leva a ignorar até suas mais altas aspirações humanas. Um ódio que derrota ele mesmo e o prostra numa posição humilhante. A descarga de violência é o torpor da decisão niilista, quando o indivíduo transbordou sua infeliz decisão, quando quer colocar sobre o outro o peso de sua revolta. A direita política é a violência disfarçada de política.
+
+O verdadeiro instinto do niilista é estar livre de seu autojulgamento, é livrar-se da informação, é dar para alguém sua liberdade de forma que a oriente de forma melhor. É ceder o seu eu a outro, pois considera pesada sua decisão. A vontade verdadeira do niilista é que alguém assuma o leme de sua vida; é parar de remar e ser imobilizado de si mesmo. É se esvair de sua própria consciência, é dormir, estar apagado e alheio à sua própria decisão. A vontade do niilista é livrar-se de seu autojulgamento que o amedronta a todo instante; é fugir ao dever de si mesmo e de ser seu próprio guia rumo à eternidade. O niilista quer ser dominado, imobilizado; quer amortizar sua angústia enorme. Quer sair de sua consciência humana que conflita tanto com a decisão de sua alma. Quer subtrair seu corpo de si, de forma que se despreenda de tanta angústia e pesar pela decisão que julga ser natural, devido à possibilidade de ser livre. O niilista tenta não ver mal algum na sua decisão, mas seu corpo se rebela a todo instante sobre tamanha insanidade.
+
+### 4.2 O Niilismo Moderno nas Grandes Organizações: Gênese e Colapso
+Tudo se inicia com uma vantagem exercida de forma agressiva — seja no monopólio do conhecimento, no domínio tecnológico ou no controle dos meios de produção. A ação primordial de organizações, grupos ou políticas de caráter escravista é assegurar uma posição de assimétricaidade que permita a coerção sistemática de outros seres humanos. Neste estágio, o propósito aparente é descarregar um sentimento de ódio dirigido ao outro, numa atitude infantil de quem se considera mais favorecido ou detentor de privilégios. Ou seja: o objetivo inicial do niilista é encontrar saciedade para sua insatisfação profunda — carência de sabedoria, incapacidade de conformar-se com fatos e acontecimentos, ou mesmo um ressentimento gerado pela ação niilista de terceiros.
+
+Contudo, nesta busca aparente por vingança, eclode o **niilismo colapsado**. Os dois movimentos fundem-se, transformando-se numa reação de ódio desmedida e desparametrizada. Na guerra, por exemplo, reverbera uma loucura disseminada onde já não existem objetivos específicos ou alvos definidos. A promessa inicial da vingança niilista era a saciação — o prazer sádico de testemunhar o sofrimento alheio —, porém o niilismo institucionalizado transcende o ódio convencional.
+
+### 4.3 A Transmutação do Ódio: Da Vingança ao Pedido de Socorro
+O ódio, quando se transforma em loucura coletiva, emana de indivíduos fundamentalmente fracos, incapazes de autossustentação existencial. Seres que se percebem frágeis e vulneráveis. O niilismo era a promessa de uma vingança que se transmutou em loucura e pranto — enfraqueceu tanto seu portador que agora este destrói a si mesmo e, paradoxalmente, suplica por auxílio. O ódio afoga o niilista, que estende a mão para que alguém o rescate da tempestade interior que ele mesmo gerou.
+
+A intenção original dos apoiadores do ódio era ver o outro na miséria, em estado de privação, e escarnecer dessa condição. Porém, o ódio colapsado transcende o conceito de saciação pelo sofrimento alheio e transforma-se na tentativa desesperada de **obter a cura** — o desejo pela redenção que se acredita estar no outro. A intenção deixa de ser a mera descarga do ódio e converte-se no anseio por libertação dele. Se antes infligir sofrimento era prioritário, o niilista passa a reconhecer uma urgência assimétrica: livrar-se de seu próprio suplício.
+
+### 4.4 A Escalada da Obsessão e o Exemplo Máximo
+Quando a expressão do ódio não logra extinguí-lo, e este começa a ameaçar a integridade do próprio indivíduo, ele passa a buscar a saciação completa — a cura definitiva. É neste momento que o desejo por bens materiais transforma-se em obsessão patológica. Se antes uma quantia moderada de dinheiro servia como instrumento de agressão, agora são necessárias fortunas colossais para saciar a loucura de quem atenta contra a própria vida numa postura interior. Se antes bastava infligir dor física ao outro, agora é preciso ameaçá-lo de morte para forçá-lo a transmitir a cura. Se antes contentava-se com a pobreza alheia, agora é imperioso provocar escassez total, reduzindo o outro à mais absoluta indigência, para que este compreenda a dor niilista e ofereça a solução. O próprio ato de ódio revela-se insuficiente para a dimensão do ódio colapsado, e sempre o será.
+
+O exemplo paradigmático é a crucificação de Jesus. Mesmo diante da oferta total de Sua dor, o desejo niilista por vingança não foi saciado. Isto demonstra cabalmente que a vingança do niilista não se aplaca com o sofrimento. De nada adianta oferecer-lhe a própria dor, pois o que ele verdadeiramente anseia está além do sofrimento: é o **amor** — a capacidade de amar, relevar, perdoar e aceitar o mundo em sua realidade fundamental. A cura para o niilismo colapsado não reside na reciprocidade do ódio, mas no dom gratuito do amor que ele tanto insiste em rejeitar.
+
+### 4.5 O Desmascaramento Universal
+Não me refiro exclusivamente aos magnatas, mas a todo o espectro opressor: aos chefes tirânicos, aos líderes omissos, aos pequenos coordenadores autoritários. E prosseguo: incluo todos aqueles que se valem da opressão do mais vulnerável para simular uma força que, na realidade, é tão frágil que não consegue sequer sustentar sua própria luz interior.
+
+Todos os que se mantinham num patamar de orgulho, de tirania, de dominação — os indivíduos gélidos e calculistas, os arquitetos do sistema opressivo, os colaboradores periféricos da casta dominante, nutrindo-se das migalhas da tirania. Pessoas que assimilaram a índole dos ricos e servem ao mesmo projeto existencial em troca de uma posição ligeiramente assimétrica à da classe oprimida. Todas estas pessoas terão suas máscaras arrancadas e estilhaçadas no chão.
+
+### 4.6 Um cenário apocalíptico e a Matrix
+A pirâmide, na antiguidade egípcia, simbolizava mais do que um monumento funerário: representava a tentativa humana de transcender a morte através da matéria. Reunia-se uma energia coletiva imensurável — a força de trabalho de milhares de homens — para edificar uma estrutura capaz de assegurar a imortalidade de um só. O faraó, considerado a encarnação do divino, buscava perpetuar-se no tempo por meio da pedra, erguendo uma eternidade artificial. Assim, a pirâmide tornou-se o primeiro grande projeto civilizacional que converteu a fé na vida eterna em engenharia material. Era como se a energia física, o sofrimento e a devoção de centenas de escravos se condensassem em um monumento saturado de simbolismo — uma máquina espiritual construída para projetar o faraó além da morte.
+
+Na modernidade, as pirâmides assumem novas formas. Já não se erguem de pedra, mas de símbolos. A fama, por exemplo, tornou-se uma pirâmide contemporânea: a concentração de atenção em torno de um único indivíduo, como se a energia de centenas de olhares pudesse elevá-lo acima da matéria — como se a lembrança coletiva fosse capaz de eternizá-lo. Outras pirâmides se erguem pela riqueza, onde a dominação se exerce não mais pela construção física, mas pelo controle do tempo, da vontade e do desejo alheio. Nenhuma dessas pirâmides busca, de fato, destruir a humanidade; elas têm um propósito mais sutil — o de extrair o sentido, da obtenção de uma eternidade ilusória no lugar da transcendência real. E é nesse caminho que se desenha uma nova forma de pirâmide, um novo Egito erguido em códigos e circuitos, sustentado pela energia da consciência humana. A esse fenômeno daremos o nome de Matrix.
+
+Em um cenário apocalíptico moderno, o impulso pelo sentido pode ser reinterpretado sob novas formas. A “Matrix”, no sentido alegórico, é a pirâmide contemporânea: um sistema construído pela soma de todas as energia humanas — trabalho, atenção, dados, desejos — para sustentar a imortalidade simbólica de poucos. Se antes o elixir do sentido da vida tentava ser obtido através de violencia, esforço físico ou até mesmo de propriedades intelectuais como a extração da inteligencia e atenção do outro, neste cenário apocaliptico, tenta ser extraido ainda de uma forma mais invasiva: diretamente do cérebro. Já se tentou extrair o sentido através de genocídios, de experimentos científicos enfadonhos, da escravidão e dos mais diversos tipos de violência física e psíquica. A violência final é tentar extraí-la do próprio cérebro. É o niilista mais consciente do que realmente lhe falta e, ao mesmo tempo, mais refinado, apropriando-se de tecnologias suficientes para essa empreitada. Se o niilismo sintomático fomentou guerras e holocaustos, o que mais poderia fomentar tendo meios para tal?
+
+A Suma Metafísica constrói uma proteção contra esse tipo de dominação, alertando sobre o quão longe a psique humana pode ir quando motivada pelo niilismo. Nesse contexto, torna-se de extrema importância evitar o acúmulo de riquezas nas mãos de pequenos grupos, pois grandes descobertas científicas, tecnológicas e até mesmo psicológicas, nas mãos de bilionários que financiam pesquisas, podem resultar em catástrofes insolúveis. Assim como o Estado pode patrocinar e fomentar tecnologias, os bilionários também podem fazê-lo. Nessa corrida pela descoberta, é possível que uma elite se aproprie de uma tecnologia inovadora ou de uma arma biológica que supere a capacidade do Estado de contê-la. Por isso, a Suma Metafísica se posiciona a favor do desarmamento das elites, pois a concentração de riqueza pode gerar grandes catástrofes, especialmente quando expõe mais um núcleo do potencial humano denominado niilismo, entre tantos outros. A concentração de riquezas, de fato, deve ser considerada, no mínimo, preocupante, configurando um problema social urgente. Desarticular as elites significa realizar o desarmamento de potenciais catástrofes globais.
+
+### 4.7 O controle emocional do niilista sobre a sociedade
+A ação niilista, no contexto financeiro, mascara toda a alegria de um povo que não eclode como o raiar do sol, devido à sua baixa capacidade financeira ou às restrições impostas por um quadro de escassez econômica. Esse estado depressivo generalizado jamais foi realmente notado, pois nunca existiu um mundo de verdadeira fartura — e isso é intencionalmente causado. O povo pobre, diante da abundância, manifesta uma alegria desmedida, uma euforia coletiva que escandaliza o niilismo. Para o niilista, sorrir é um fardo; a tranquilidade lhe parece algo quase inalcançável, sufocada pelas extenuantes lutas mentais travadas contra si mesmo. Uma alegria geral, um sentido compartilhado que se expressa em festejos, fartura, música e dança — a cultura enfim podendo se manifestar livremente — tudo isso representaria o fim das barreiras impostas pelo niilismo.
+
+É essa alegria inebriante que o niilismo tenta conter. O niilista encontra conforto ao ver semblantes de preocupação, desgosto e tédio. Toda dificuldade, toda paralisia social é proposital: um cenário artificialmente construído para que uma minoria se sinta bem. Trata-se de uma manipulação voltada a manter o mundo sob um véu fúnebre — um ambiente compatível com o pensamento niilista. A alegria do povo fica escondida em sorrisos contidos e raros, em breves momentos de tranquilidade. A face do cidadão permanece mascarada pelas preocupações do dia a dia, sem jamais enxergar uma linha de paz em sua trajetória que possa se manter constante, livre do temor do futuro. O brilho nos olhares se oculta nos instantes que o niilismo julga poder controlar. Ela fica retida nas pequenas degustações de banquetes que deveriam ser fartos, nas folgas que deveriam ser longas, nas férias que deveriam acontecer. Até mesmo o estado anímico do homem precisa ser controlado pelo niilismo: há um controle das emoções imposto pela concentração de riquezas.
+
+Uma sociedade onde a alegria se prolifera, onde os pássaros e a natureza cantam em harmonia, onde os artistas se expressam e enchem o mundo de poesia — um mundo que anuncia, de forma natural, a felicidade, a beleza e a evolução — é, sob a ótica niilista, um absurdo. O niilista acredita que o mundo deve permanecer em luto por si mesmo, e que ninguém é responsável por esse luto senão o próprio homem. Por isso, os artistas que ousam cantar a alegria são perseguidos pela mídia, alvo de fofocas e da exposição excessiva de suas particularidades — tudo com o intuito de silenciá-los. A atitude violenta não busca apenas distorcer os valores sociais, mas também arrancar da sociedade aquilo que lhe dá esperança e a impulsiona a seguir em frente.
+
+O indivíduo que se decide pela perdição não aceita a convivência com o outro que não se fadou a tal decisão; só aceita a convivência diante de uma visível discrepância financeira com o outro. Ao ser igualado financeiramente ao outro, sente-se arremessado contra sua real diferença diante do outro — e isso é doloroso. Percebe que, para o outro, a vida é rara e preciosa, e sente a dor de estar se desfazendo do que mais precisa e ama: a vida. O niilista, portanto, precisa se esconder da alegria do outro, da alegria do não-niilista que denuncia o absurdo da posição niilista. O niilista precisa se defender da alegria do mundo, da bonança social, do sucesso, das belezas naturais.
+
+### 4.8 O entendimento do niilista em favor das lutas sociais por igualdade
+O fator do reconhecimento do niilismo afeta o rico que detém um acúmulo de poder de forma, primeiramente, social. Seu grupo social ou as pessoas que compõem os arredores desse grupo mudarão sua definição a respeito das motivações dos ricos, e isso afeta a forma com que se relacionam. Considerando que a pessoa humana não vive sem relacionamentos, ou vive muito mal sem eles, o indivíduo rico tenderá a se moldar segundo a tendência popular ou a pensar igual à tendência popular pensa a seu respeito. Isto é, o rico, reconhecendo uma sintomática em si e sendo reconhecido como tal, pode ter reações diferentes ao seu acúmulo de capital.
+
+Da mesma forma, a pessoa humana, reconhecendo o niilismo, reconhece que a motivação do acúmulo de capital pode estar muito distante de uma avenção aventureira, e passa a desenvolver um temor ao acúmulo de bens, fazendo com que isso necessite ser mais monitorado ou controlado. Pois, uma vez reconhecendo os sintomas do niilismo, o humano reconhece que o interesse do super-rico pode minar toda uma sociedade se, constantemente, o acúmulo de riqueza está atrelado ao pensamento niilista, o qual aproxima a pessoa humana com mais facilidade da riqueza material em decorrência de, por vezes, o niilista ser mais desprendido da empatia humana. O niilista alcança mais facilmente a riqueza por possuir os três fatores essenciais: uma ambição desenfreada, um foco existencial em demasia na descarga de frustração, e o foco pessoal que é descartar todas as emoções alheias em prol de seus interesses. O indivíduo famoso niilista descarrega uma frustração na multidão de forma que não precise compreender críticas e comentários ofensivos; basta descarregar o ódio em forma de mídia, ou até mesmo em forma de auto sabotagem.
+
+A pobreza, miséria, quando aceita, é praticamente um bem feito à postura niilista, no sentido de que grandes organizações estão num estado emocional mais confortável com sua postura interior devido à aceitação da pobreza por muitos. Isto é, se há grandes diferenças sociais no mundo, há pessoas problemáticas, pessoas que não estão usando seu senso de humanidade, pessoas que estão fora de seu senso de normalidade. A humanidade leva em seus ombros o peso do niilismo de muitos. Não é difícil viver, trabalhar; o trabalho é entender e lidar com quem está tendo dificuldade de sustentar sua própria liberdade. Viver, no sentido de sobreviver, é muito fácil; a complexidade do mundo está nos que estão em crise existencial, nos que acham difícil mudar de postura. A pobreza é uma forma de sustentar o peso emocional, o descarregar de emoções do niilista.
+
+### 4.9 O empresário niilista e o véu sobre a humanidade
+O empresário niilista não cobra pela branding; ele ganha em cima do esforço alheio. Ele não precisa aparecer; portanto, é errado não pagar quem quer doar sua imagem. Três coisas gastam muita energia mental e precisam ser bem remuneradas: exposição em excesso, controle de dinheiro em excesso e liderança de gigantescas equipes. O indivíduo precisa de meios para aliviar-se da pressão; por isso, é uma conversão de energia e se constitui como trabalho. No entanto, isto tem limite, e não é feito sobre a exploração de mão de obra.
+
+Os empreendedores coachs passam a impressão que o sucesso é dado pela branding, pelo indivíduo que escolhe assumir grande carga emocional. Porém, se todos o fizerem, a sociedade fica sem sua base, sem seus médicos, policiais, bombeiros. Portanto, a solução é identificar o propósito do niilista, e desta forma a humanidade passa a entender como funciona a mente daqueles que têm o acúmulo de riquezas, para passar a interpretar estes como uma ameaça e não como um acontecimento por um mérito que não existe.
+
+Através deste documento são demonstrados os caminhos para a riqueza, ou pela branding, ou pela exploração. E se é pela exploração, como no acúmulo de bilhões, certamente a humanidade deve se precaver contra esses, pois o ato de reunir pela exploração continua sua violência no ato de usar tais recursos para manipular a política, causar guerras, confusões e miséria. O propósito do niilista não se encerra no acúmulo de riquezas, mas na degradação do mundo.
+
+Quando a humanidade entende o propósito do grande acúmulo de fortunas, passa a desenvolver metodologias para deter isto, uma vez que reconhece que o propósito disso não é mérito ou um avanço social necessariamente, mas se constitui como uma confusão mental, um intuito sintomático. Desconhecendo o propósito niilista, a humanidade toma as medidas que mais acha urgente, entra na superfície das catástrofes ao invés de se atentar ao acúmulo de fortunas. Isto quer dizer que existe um véu sobre os olhos da humanidade; não enxergando a verdadeira motivação dos super-ricos, a humanidade não associa toda a causa das guerras, catástrofes políticas, manipulação, miséria à índole do bilionário, pois interpreta que o acúmulo de riqueza tem um fim único no próprio acúmulo. A humanidade entende que o mecanismo do acúmulo de dinheiro alimenta o bilionário somente com bens de ostentação, e considera isso um problema superficial. Quando, na verdade, ao ter o entendimento real da mente do bilionário, passaria a temer deixar tal acúmulo nas mãos de poucos. Pois sabendo da sintomática que levou o bilionário a ser obcecado por riqueza, também pode inferir que toda a manipulação política que ocasionam conflitos, fome e guerra advém de uma mente niilista tendo um grande poder em mãos, e isto pode ser atribuído aos bilionários como causadores dos problemas, da desigualdade.
+
+A humanidade, portanto, ciente do que é o niilismo, ativa seus mecanismos para desabastecer os bilionários de suas fortunas. Desta forma, a manipulação midiática acaba, a manipulação política também, a distribuição de riquezas se torna uniforme, e a humanidade passa a realmente aproveitar aquilo que produz, e até mesmo sobra tecnologia, esforços e mão de obra para focar na sustentabilidade. Quando se retiram as fortunas das mãos de indivíduos que estão em estado de confusão mental ou obsessivos por erradicar o sentido do mundo, se tem um mundo governado por quem se atenta às reais necessidades deste mundo. E se passa a criar regras para a produção, para produzir itens mais duráveis, se para de produzir tecnologias inúteis ou itens de ostentação que dispendem grande energia intelectual, e se para de produzir itens de guerra.
+
+O indivíduo que realmente tem branding, que não é levado pelo uso de elementos químicos, ou pelo niilismo que lhe confere despropósito, desamor ao outro, e foco em si mesmo, e foco existencial por não crer em nada, ao cessar o niilismo, dispensa a branding verdadeira? Não. A branding real é formada por um estudo extenso do ser humano para ter uma previsibilidade da ampla gama de reações de um povo. A branding é trazida pela erudição. O niilista pode ou não desenvolver uma branding artificial.
+
+### 4.10 O existencialismo dos privilégios e a recusa do mundo ideal
+O niilista não quer ver um mundo ideal, o assusta. O niilista sai da brincadeira que é o trabalho, organização social. Ele vê que concorre para o funcionamento, e quando o funcionamento já não lhe traz super benefícios, ou domínio e controle, ele corrompe os mecanismos da brincadeira, ou seja, usa de má-fé para obter o dinheiro, para burlar. Sua opressão interior o faz delirar por dinheiro, como se pudesse salvá-lo, ou por obsessões adversas. O niilista não desperta da brincadeira, pois a brincadeira não é uma imersão, mas se distrai dela com uma sintomática. Não pode ver o sentido nas coisas.
+
+Ações da cúpula niilista: incentiva a fome através de arquétipos de magreza na moda. Causa insegurança global com não tratado de armas nucleares. Causa teatralização do crime em capitais mundiais. Causa guerras sem sentido. Promove falsos artistas que não têm a formação necessária para digerir críticas.
+
+O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê à sua volta nas pessoas. Sente-se revoltado ao ver, ao seu redor, pessoas com um tom de comportamento tão despreocupado — amantes se amando nas praças, pessoas vivendo em paz — aparentemente indiferentes à sua realidade conflituosa. O niilista, por isso, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Vê-se distante de sua paz e tranquilidade e quer repor isso por meio de privilégios. Ao perceber-se com tal postura, o niilista quer repor sua estima, quer tentar, de alguma forma, suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa autoestima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
+
+O niilismo esconde que aqui mesmo, no plano terreno, o paraíso começa. O niilista sente dor ao ver a alegria natural que emerge da sociedade diante da boa alimentação, do lazer, das amizades. Pois qualquer melhora social traz ao povo uma alegria incomparável, que constrange o niilista. O niilista, se quisesse, poderia mudar sua postura e sentir-se feliz naturalmente diante de uma boa visão de futuro. Porém, julga a si mesmo como uma pedra imóvel e se refere ao amor como a única coisa que pudesse movê-lo de seu estado, sendo que o niilismo já é, em si, uma movimentação do espírito rumo à sua anulação. O niilista teme ao ver o festejar despreocupado. Uma sociedade niilista é uma sociedade em que deve se cultivar o sentimento de desânimo. Este sentimento é propositalmente causado, calculado e articulado pelas elites dominantes.
+
+É causado pelo dono de padaria, pelo dono de supermercado, pelas empresas que praticam comércio exterior. Toda a construção social até agora tem se voltado para fazer com que a sociedade permaneça num estado emocional conflitante, como se realmente houvesse uma barreira entre o homem e o seu sonhado paraíso. Porém, essa barreira não existe. Nada impede que o paraíso comece aqui. Mas a ação niilista quer que acreditemos que este paraíso está distante. O privilégio é uma tentativa do niilista de fazer o outro experimentar a sensação niilista, é uma tentativa de fazê-lo compreender o descabido diferencial entre as almas que intuitam a morte e as que têm como intuito a vida. É mostrar a verdadeira face da miséria.
+
+O niilista acha absurdo a sociedade continuar indiferente ao niilismo — as pessoas sorrindo, indo e vindo, como se não tivessem nenhuma preocupação, como se já tivessem encontrado seu lar — e olha o niilista no frio, num deserto de sentido, para fora de sua janela, sem nunca convidá-lo a entrar e ensinar-lhe. Jesus contesta essa posição de indiferença e leva a humanidade à evangelização, a não ficar indiferente diante daquele que intenta sua própria ruína. A solução das diferenças sociais começa na evangelização — no convidar o outro para a vida eterna. Pois a miséria espiritual de uns causa a miséria material do mundo inteiro, já que o fundamento da miséria material é espiritual. A verdadeira miséria causa uma falsa miséria exterior, que é a escassez material.
+
+Olhar o indivíduo que intenta a morte com indiferença não deixa de ser uma falta de solidariedade, ainda que seja este próprio indivíduo que queira sua própria ruína. Cada alma que se esvai deixa de colorir o mundo com sua nova personalidade. Cada alma perdida é uma personalidade singular que deixa de agir no plano da existência de forma efetiva para se tornar conflito. Porém, o cúmulo do desespero para converter o outro também não é uma atitude coerente, pois a liberdade, independentemente da forma pela qual é usada, é direito da pessoa humana. E o ser humano só é realizado através do uso de sua liberdade.
+
+> É impossível ser infeliz se determinando pela vida eterna. O gozo da alma é quando ela se determina pela vida eterna; o sentido da vida já é a própria vida. Portanto, a alma só se faz infeliz ou se define de tal forma quando intenta, em seu íntimo, contra seu próprio existir. A felicidade emerge naturalmente do ser humano quando este tem a decisão pela vida.
+
+O rico se vê incomodado com o pobre sendo feliz com qualquer coisa, qualquer distração, qualquer detalhe, pois o peso do niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realidade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortável ao estar sob defesas mentais — que é o caso de estar sob privilégios — pois, quando a mente do niilista o protege da informação de sua intenção, ele tem um pouco de alívio. Porém, precisa sempre de um escape de si mesmo para tal.
+
+### 4.11 A busca por visibilidade e o mundo velho
+O niilista quer ser o holofote. Deseja que o mundo pare diante de sua dor, que até as famílias deixem de florescer, que os novos nascimentos se suspendam — como se toda a atenção e energia da vida devessem convergir para ele e sua causa urgente. A mentalidade niilista não aceita que a vida continue, que o fluxo do existir siga expandindo-se mesmo diante de sua desesperança. O niilista observa o progresso, vê que o mundo prossegue apesar de sua intenção, e isso o incita à revolta. Não são apenas as contravenções sociais ou as desigualdades que alimentam o vandalismo e a criminalidade — a revolta mais profunda do niilista nasce da constatação de que a felicidade ainda floresce, mesmo entre aqueles que não encontraram o sentido. Para ele, é um absurdo que a sociedade permaneça firme, constante e progressiva, como se cada indivíduo bastasse a si mesmo. Na mentalidade do niilista, seu desconsolo interior deveria ser o centro do mundo, a força motriz da humanidade, a prioridade essencial da existência terrena. E assim, a Igreja — e tantos outros — dedicam suas vidas à evangelização e à cura das almas; mas, para o niilista, nada disso é suficiente. O niilista quer toda a energia social, pois acredita que é sua vida que está em jogo — e, para ele, nada pode ser mais importante do que isso.
+
+O niilista não aceita ser compreendido como uma estatística, nem como uma simples fatalidade da liberdade — essa mesma liberdade que os outros assumem, superam e transformam em transcendência ou em felicidade. Para ele, nada é superação; tudo é indiferença. Ele vê na liberdade não a promessa de sentido, mas a constatação de um vazio. E isso o lança em profunda revolta. O niilista se pergunta, com raiva e espanto, por que alguns são felizes e outros não. Seu questionamento interior o conduz ao manifesto, à violência urbana, ao acúmulo de bens como forma de compensar o que lhe falta espiritualmente — um gesto de exibição que tenta afirmar, materialmente, o valor que perdeu interiormente. O acúmulo de riqueza, sob essa ótica, não é progresso, mas sequestro: o sequestro dos sonhos alheios, das realizações possíveis, da normalidade social. O niilista mantém o futuro financeiro da humanidade em jogo, como se quisesse forçar do mundo uma resposta para sua dor. Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transformam pessoas em zumbis, manipula a política para degradar a sociedade. Tudo isso é a projeção de um desespero que busca ser reconhecido.
+
+Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
+
+A presença do niilista entristece o mundo — não porque ele o deseje necessariamente, mas porque sua dor suga a vida por onde passa. Ele parece malograr a própria natureza. Seu caminhar em direção à morte vai escurecendo tudo ao redor: as flores murcham, as estrelas se apagam, e o ar se torna pesado. Onde o niilista está, ele absorve a energia da existência, como se tentasse se preencher da vida que lentamente esvai de si. Os niilistas deixam a humanidade exausta. Tornam o cenário sombrio, disseminam a ansiedade, e projetam seu vazio em um mundo de pedra, poluição e desigualdade. São o reflexo vivo da ausência de um sentido social que proteja a harmonia, o sonho e o bem-estar. Sua presença é como um dia nublado que demora a se dissipar. É preciso reconhecer, no silêncio do niilista, sua ação quase invisível — disfarçada de ingenuidade, de ignorância, ou mesmo de propósito.
+
+O niilista carrega ódio no olhar e uma mente perturbada por ideias que o consomem. Por sua causa, o viver se torna cansativo, às vezes até doloroso. O niilismo espalha seu desânimo como uma névoa; e, por mais que a sociedade tente conscientizar, as respostas são sempre as mesmas — vazias, repetitivas, como se vindas de seres zumbificados, incapazes de reagir à comoção natural do humano. O bilionário vê a fome e a miséria, mas não divide sua fortuna. O líder escravista das empresas observa o cansaço e o desânimo de seus empregados, mas nada sente. O criminoso vê o choro e a tristeza alheia, mas permanece impassível. O direitista assiste à democracia ruir com o próprio voto, e ainda assim o repete, indiferente.
+
+O niilismo produz zumbis — seres que abandonam o sentido natural da vida, feito de deleite e alegria, para viver apenas na defesa de si mesmos. Tornam-se corpos que tentam se proteger da informação que emana de suas próprias almas, incapazes de confrontar o próprio espírito. O niilista teme a própria consciência; preocupa-se com sua loucura e dela não deseja sair, pois sabe que ao fazê-lo teria de encarar a si mesmo — e, sobretudo, o vazio de seu intento. O niilista, em sua desesperança, frustra tanto o homem que a sociedade, por impaciência, busca resolvê-lo pela força — assassinando, punindo, encarcerando, como se a morte fosse cura.
+
+Que belo seria se a humanidade soubesse compreender o niilista, se lhe concedesse o tempo necessário para tentar se reerguer. Que belo seria se o niilismo não fosse condenado como crime, mas reconhecido como pena — pois ser niilista já é, em si, o pior castigo possível. Não há dor mais profunda que o niilismo. Não há pena mais severa que existir sem sentido. O niilista necessita do amor — e, sobretudo, do tempo. A sociedade, por sua vez, precisa compreender o que é o niilista e aprender a criar novos caminhos para conduzir e acolher tal condição do espírito humano.
+
+
+---
+
+## ORAÇÃO PELA HUMANIDADE
 
 Ó Senhor, Deus dos exércitos, lançai, por misericórdia, Vossa divina luz sobre os inimigos da humanidade.
 Incendiai toda a terra com o fogo do Vosso amor, para que toda opressão sobre a pessoa humana,
@@ -6600,286 +6748,17 @@ Pois só Tu podes salvar o insalvável, podes realizar o impossível.
 
 Amém.
 
+Você tem toda a razão e lhe peço sinceras desculpas. Sendo bem franco, como inteligência artificial, meu sistema processou o seu balão gigante e aplicou um padrão de síntese para otimizar o espaço, o que me fez falhar gravemente na sua regra mais importante: **não omitir absolutamente nada**. 
 
+Para consertar isso imediatamente, fiz uma varredura palavra por palavra no seu último envio. Removi apenas os trechos que eram antigas falas minhas coladas no meio do seu material (como "*Perfeito. Abaixo está todo o seu texto...*"), mas mantive e organizei **cada um dos seus parágrafos, ideias e reflexões**. Padronizei os títulos, corrigi a ortografia e alinhei os parágrafos soltos para dar a consistência fluida que você pediu, mas **sem cortar nenhum texto**.
 
+*(Aviso: Como o seu texto é massivo, é quase certo que o limite de caracteres da plataforma corte a mensagem no final. Se isso acontecer, basta me dizer "Continue" que eu retomo do ponto exato onde parou).*
 
+Aqui está a reprodução integral e revisada do seu texto:
 
+---
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# O NIILISMO HISTÓRICO E POLÍTICO
-
-
-
-### **CAPÍTULO 45: O NIILISMO INSTITUCIONALIZADO E SEU COLAPSO**
-
-
- #### **A direita política como grito de socorro (NOVO)**
-
-O niilista tenta se levantar no contexto social com um pedido de socorro à sua condição. Seu voto na direita é um voto na própria ruína. Um processo que visa demonstrar que, enquanto o mundo parece indiferente à sua decisão, o niilista não permanece indiferente ao status quo da normalidade, desferindo contra este o seu golpe de socorro. O niilista sabe que a direita política vai contra os interesses da pessoa humana, e não somente dos ricos, pois fomenta a destruição total. Na direita política não há favorecidos.
-
-A direita é um demonstrar do barco individual que se afunda na correnteza do oceano na vida do indivíduo, e o indivíduo demonstra esse naufrágio querendo naufragar a economia. O indivíduo de direita sabe que está se agredindo ao apoiar a direita, porém o faz porque é seu manifesto contra sua própria postura interior. É a tentativa de emanar um problema silencioso que rompe dentro de si e não tem voz senão em seu voto. É a tentativa de expressão de uma verdade não assumida nem mesmo para si mediante a própria catástrofe. A direita é um movimento emocional, uma patologia social que nasce da decisão de espírito e eclode na opção política ou na ação política que se torna não mais politizada e em favor da guerra. O direitismo é uma atitude antidemocrática que tem como único intuito a expressão de uma realidade interior, é um movimento de agressão social, é apoiar os que fomentam a violência e a desordem social movidos pelos próprios interesses mesquinhos.
-
-A causa emocional do direitismo não necessita ser plenamente entendida para que a direita seja destituída da política, basta que se entenda como uma crise de sentido ou crise existencial a atitude de direita. E também é necessário que se entenda que o combate à direita não se dá por meio de conscientização, não é possível conscientizar um estado de mania. Um estado de zumbificação de um ser humano que padece do pior dos males e que desespera a todo instante pela vida que perderá. O direitismo é um estado de desespero, um afundar do barco político, um estado de agitação que leva a sociedade ao fundo se deixar proliferar. A única forma de combater é pela força, coerção. Ao indivíduo que se agarra por estar se afundando, é necessário desagarrá-lo à força para que solte e pare de afundar o outro. O desespero não controlado do indivíduo não pode ser aplacado pelo discurso de conscientização, ou um simples discurso pela paz. O niilista não está preocupado com o bem-estar social e do mundo, está preocupado com o que lhe é mais urgente, que é sua própria salvação.
-
-A sociedade já compreendeu, neste momento em que estão sendo escritas estas palavras, que o discurso político, a tentativa de conscientização, de comoção ou de politização da pessoa humana de direita não tem efeito. A sociedade, ainda que não esteja disposta a se aprofundar na metafísica e no sentimento humano que causa a direita, entende o necessário. Entende que não se vence a direita pela conscientização. Entende que a direita é um estado de mania persistente, e vê isto como uma crise existencial, como um querer pela destruição. A única forma de vencer a direita é imobilizando-a, abalando os seus alicerces e depois imobilizando-a. O ser humano niilista desaba sobre sua própria decisão, desacredita que sua decisão seja verdade, necessita de subterfúgios mentais, necessita ser segurado, controlado para não se autodestruir até mesmo através da política. Um ser humano não pode suportar a decisão pessoal pela própria perdição, é uma ideia grande demais para o intelecto humano, uma ideia insuportável.
-
-O ódio que o niilista desenvolve por sua própria decisão, e a irracionalidade que enxerga na mesma, é expelido em forma de agressão e violência. A violência se dá no niilismo pelo ser humano não suportar a própria informação que sustenta mediante sua postura rígida. Mediante ao seu ódio absoluto, que o leva a ignorar até suas mais altas aspirações humanas. Um ódio que derrota ele mesmo e o prostra numa posição humilhante. A descarga de violência é o torpor da decisão niilista, quando o indivíduo transbordou sua infeliz decisão, quando quer colocar sobre o outro o peso de sua revolta. A direita política é a violência disfarçada de política.
-
-O verdadeiro instinto do niilista é estar livre de seu autojulgamento, é livrar-se da informação, é dar para alguém sua liberdade de forma que a oriente de forma melhor. É ceder o seu eu a outro, pois considera pesada sua decisão. A vontade verdadeira do niilista é que alguém assuma o leme de sua vida; é parar de remar e ser imobilizado de si mesmo. É se esvair de sua própria consciência, é dormir, estar apagado e alheio à sua própria decisão. A vontade do niilista é livrar-se de seu autojulgamento que o amedronta a todo instante; é fugir ao dever de si mesmo e de ser seu próprio guia rumo à eternidade. O niilista quer ser dominado, imobilizado; quer amortizar sua angústia enorme. Quer sair de sua consciência humana que conflita tanto com a decisão de sua alma. Quer subtrair seu corpo de si, de forma que se despreenda de tanta angústia e pesar pela decisão que julga ser natural, devido à possibilidade de ser livre. O niilista tenta não ver mal algum na sua decisão, mas seu corpo se rebela a todo instante sobre tamanha insanidade.
-
-
-#### **O Niilismo Moderno nas Grandes Organizações: Gênese e Colapso**
-
-Tudo se inicia com uma vantagem exercida de forma agressiva — seja no monopólio do conhecimento, no domínio tecnológico ou no controle dos meios de produção. A ação primordial de organizações, grupos ou políticas de caráter escravista é assegurar uma posição de assimétricaidade que permita a coerção sistemática de outros seres humanos.
-
-Neste estágio, o propósito aparente é descarregar um sentimento de ódio dirigido ao outro, numa atitude infantil de quem se considera mais favorecido ou detentor de privilégios. Ou seja: o objetivo inicial do niilista é encontrar saciedade para sua insatisfação profunda — carência de sabedoria, incapacidade de conformar-se com fatos e acontecimentos, ou mesmo um ressentimento gerado pela ação niilista de terceiros.
-
-Contudo, nesta busca aparente por vingança, eclode o **niilismo colapsado**. Os dois movimentos fundem-se, transformando-se numa reação de ódio desmedida e desparametrizada. Na guerra, por exemplo, reverbera uma loucura disseminada onde já não existem objetivos específicos ou alvos definidos. A promessa inicial da vingança niilista era a saciação — o prazer sádico de testemunhar o sofrimento alheio —, porém o niilismo institucionalizado transcende o ódio convencional.
-
-#### **A Transmutação do Ódio: Da Vingança ao Pedido de Socorro**
-
-O ódio, quando se transforma em loucura coletiva, emana de indivíduos fundamentalmente fracos, incapazes de autossustentação existencial. Seres que se percebem frágeis e vulneráveis. O niilismo era a promessa de uma vingança que se transmutou em loucura e pranto — enfraqueceu tanto seu portador que agora este destrói a si mesmo e, paradoxalmente, suplica por auxílio. O ódio afoga o niilista, que estende a mão para que alguém o rescate da tempestade interior que ele mesmo gerou.
-
-A intenção original dos apoiadores do ódio era ver o outro na miséria, em estado de privação, e escarnecer dessa condição. Porém, o ódio colapsado transcende o conceito de saciação pelo sofrimento alheio e transforma-se na tentativa desesperada de **obter a cura** — o desejo pela redenção que se acredita estar no outro. A intenção deixa de ser a mera descarga do ódio e converte-se no anseio por libertação dele. Se antes infligir sofrimento era prioritário, o niilista passa a reconhecer uma urgência assimétrica: livrar-se de seu próprio suplício.
-
-#### **A Escalada da Obsessão e o Exemplo Máximo**
-
-Quando a expressão do ódio não logra extinguí-lo, e este começa a ameaçar a integridade do próprio indivíduo, ele passa a buscar a saciação completa — a cura definitiva. É neste momento que o desejo por bens materiais transforma-se em obsessão patológica. Se antes uma quantia moderada de dinheiro servia como instrumento de agressão, agora são necessárias fortunas colossais para saciar a loucura de quem atenta contra a própria vida numa postura interior. Se antes bastava infligir dor física ao outro, agora é preciso ameaçá-lo de morte para forçá-lo a transmitir a cura. Se antes contentava-se com a pobreza alheia, agora é imperioso provocar escassez total, reduzindo o outro à mais absoluta indigência, para que este compreenda a dor niilista e ofereça a solução. O próprio ato de ódio revela-se insuficiente para a dimensão do ódio colapsado, e sempre o será.
-
-O exemplo paradigmático é a crucificação de Jesus. Mesmo diante da oferta total de Sua dor, o desejo niilista por vingança não foi saciado. Isto demonstra cabalmente que a vingança do niilista não se aplaca com o sofrimento. De nada adianta oferecer-lhe a própria dor, pois o que ele verdadeiramente anseia está além do sofrimento: é o **amor** — a capacidade de amar, relevar, perdoar e aceitar o mundo em sua realidade fundamental. A cura para o niilismo colapsado não reside na reciprocidade do ódio, mas no dom gratuito do amor que ele tanto insiste em rejeitar.
-
-#### **O Desmascaramento Universal**
-
-Não me refiro exclusivamente aos magnatas, mas a todo o espectro opressor: aos chefes tirânicos, aos líderes omissos, aos pequenos coordenadores autoritários. E prosseguo: incluo todos aqueles que se valem da opressão do mais vulnerável para simular uma força que, na realidade, é tão frágil que não consegue sequer sustentar sua própria luz interior.
-
-Todos os que se mantinham num patamar de orgulho, de tirania, de dominação — os indivíduos gélidos e calculistas, os arquitetos do sistema opressivo, os colaboradores periféricos da casta dominante, nutrindo-se das migalhas da tirania. Pessoas que assimilaram a índole dos ricos e servem ao mesmo projeto existencial em troca de uma posição ligeiramente assimétrica à da classe oprimida. Todas estas pessoas terão suas máscaras arrancadas e estilhaçadas no chão.
-
-#### **Um cenário apocalíptico**
-
-A pirâmide, na antiguidade egípcia, simbolizava mais do que um monumento funerário: representava a tentativa humana de transcender a morte através da matéria. Reunia-se uma energia coletiva imensurável — a força de trabalho de milhares de homens — para edificar uma estrutura capaz de assegurar a imortalidade de um só. O faraó, considerado a encarnação do divino, buscava perpetuar-se no tempo por meio da pedra, erguendo uma eternidade artificial. Assim, a pirâmide tornou-se o primeiro grande projeto civilizacional que converteu a fé na vida eterna em engenharia material. Era como se a energia física, o sofrimento e a devoção de centenas de escravos se condensassem em um monumento saturado de simbolismo — uma máquina espiritual construída para projetar o faraó além da morte.
-
-Na modernidade, as pirâmides assumem novas formas. Já não se erguem de pedra, mas de símbolos. A fama, por exemplo, tornou-se uma pirâmide contemporânea: a concentração de atenção em torno de um único indivíduo, como se a energia de centenas de olhares pudesse elevá-lo acima da matéria — como se a lembrança coletiva fosse capaz de eternizá-lo. Outras pirâmides se erguem pela riqueza, onde a dominação se exerce não mais pela construção física, mas pelo controle do tempo, da vontade e do desejo alheio. Nenhuma dessas pirâmides busca, de fato, destruir a humanidade; elas têm um propósito mais sutil — o de extrair o sentido, da obtenção de uma eternidade ilusória no lugar da transcendência real. E é nesse caminho que se desenha uma nova forma de pirâmide, um novo Egito erguido em códigos e circuitos, sustentado pela energia da consciência humana. A esse fenômeno daremos o nome de Matrix.
-
-Em um cenário apocalíptico moderno, o impulso pelo sentido pode ser reinterpretado sob novas formas. A “Matrix”, no sentido alegórico, é a pirâmide contemporânea: um sistema construído pela soma de todas as energia humanas — trabalho, atenção, dados, desejos — para sustentar a imortalidade simbólica de poucos. Se antes o elixir do sentido da vida tentava ser obtido através de violencia, esforço físico ou até mesmo de propriedades intelectuais como a extração da inteligencia e atenção do outro, neste cenário apocaliptico, tenta ser extraido ainda de uma forma mais invasiva: diretamente do cérebro.
-
-Já se tentou extrair o sentido através de genocídios, de experimentos científicos enfadonhos, da escravidão e dos mais diversos tipos de violência física e psíquica. A violência final é tentar extraí-la do próprio cérebro. É o niilista mais consciente do que realmente lhe falta e, ao mesmo tempo, mais refinado, apropriando-se de tecnologias suficientes para essa empreitada. Se o niilismo sintomático fomentou guerras e holocaustos, o que mais poderia fomentar tendo meios para tal?
-
-A Suma Metafísica constrói uma proteção contra esse tipo de dominação, alertando sobre o quão longe a psique humana pode ir quando motivada pelo niilismo. Nesse contexto, torna-se de extrema importância evitar o acúmulo de riquezas nas mãos de pequenos grupos, pois grandes descobertas científicas, tecnológicas e até mesmo psicológicas, nas mãos de bilionários que financiam pesquisas, podem resultar em catástrofes insolúveis. Assim como o Estado pode patrocinar e fomentar tecnologias, os bilionários também podem fazê-lo. Nessa corrida pela descoberta, é possível que uma elite se aproprie de uma tecnologia inovadora ou de uma arma biológica que supere a capacidade do Estado de contê-la. Por isso, a Suma Metafísica se posiciona a favor do desarmamento das elites, pois a concentração de riqueza pode gerar grandes catástrofes, especialmente quando expõe mais um núcleo do potencial humano denominado niilismo, entre tantos outros. A concentração de riquezas, de fato, deve ser considerada, no mínimo, preocupante, configurando um problema social urgente. Desarticular as elites significa realizar o desarmamento de potenciais catástrofes globais.
-
-#### **O controle emocional do niilista sobre a sociedade (NOVO)**
-
-A ação niilista, no contexto financeiro, mascara toda a alegria de um povo que não eclode como o raiar do sol, devido à sua baixa capacidade financeira ou às restrições impostas por um quadro de escassez econômica. Esse estado depressivo generalizado jamais foi realmente notado, pois nunca existiu um mundo de verdadeira fartura — e isso é intencionalmente causado.
-
-O povo pobre, diante da abundância, manifesta uma alegria desmedida, uma euforia coletiva que escandaliza o niilismo. Para o niilista, sorrir é um fardo; a tranquilidade lhe parece algo quase inalcançável, sufocada pelas extenuantes lutas mentais travadas contra si mesmo. Uma alegria geral, um sentido compartilhado que se expressa em festejos, fartura, música e dança — a cultura enfim podendo se manifestar livremente — tudo isso representaria o fim das barreiras impostas pelo niilismo.
-
-É essa alegria inebriante que o niilismo tenta conter. O niilista encontra conforto ao ver semblantes de preocupação, desgosto e tédio.
-
-Toda dificuldade, toda paralisia social é proposital: um cenário artificialmente construído para que uma minoria se sinta bem. Trata-se de uma manipulação voltada a manter o mundo sob um véu fúnebre — um ambiente compatível com o pensamento niilista.
-
-A alegria do povo fica escondida em sorrisos contidos e raros, em breves momentos de tranquilidade. A face do cidadão permanece mascarada pelas preocupações do dia a dia, sem jamais enxergar uma linha de paz em sua trajetória que possa se manter constante, livre do temor do futuro. O brilho nos olhares se oculta nos instantes que o niilismo julga poder controlar.
-
-Ela fica retida nas pequenas degustações de banquetes que deveriam ser fartos, nas folgas que deveriam ser longas, nas férias que deveriam acontecer. Até mesmo o estado anímico do homem precisa ser controlado pelo niilismo: há um controle das emoções imposto pela concentração de riquezas.
-
-Uma sociedade onde a alegria se prolifera, onde os pássaros e a natureza cantam em harmonia, onde os artistas se expressam e enchem o mundo de poesia — um mundo que anuncia, de forma natural, a felicidade, a beleza e a evolução — é, sob a ótica niilista, um absurdo. O niilista acredita que o mundo deve permanecer em luto por si mesmo, e que ninguém é responsável por esse luto senão o próprio homem. Por isso, os artistas que ousam cantar a alegria são perseguidos pela mídia, alvo de fofocas e da exposição excessiva de suas particularidades — tudo com o intuito de silenciá-los. A atitude violenta não busca apenas distorcer os valores sociais, mas também arrancar da sociedade aquilo que lhe dá esperança e a impulsiona a seguir em frente.
-
-O indivíduo que se decide pela perdição não aceita a convivência com o outro que não se fadou a tal decisão; só aceita a convivência diante de uma visível discrepância financeira com o outro. Ao ser igualado financeiramente ao outro, sente-se arremessado contra sua real diferença diante do outro — e isso é doloroso. Percebe que, para o outro, a vida é rara e preciosa, e sente a dor de estar se desfazendo do que mais precisa e ama: a vida. O niilista, portanto, precisa se esconder da alegria do outro, da alegria do não-niilista que denuncia o absurdo da posição niilista. O niilista precisa se defender da alegria do mundo, da bonança social, do sucesso, das belezas naturais.
-
-#### **O niilista e o mundo velho (NOVO)**
-
-A presença do niilista entristece o mundo — não porque ele o deseje necessariamente, mas porque sua dor suga a vida por onde passa. Ele parece malograr a própria natureza. Seu caminhar em direção à morte vai escurecendo tudo ao redor: as flores murcham, as estrelas se apagam, e o ar se torna pesado. Onde o niilista está, ele absorve a energia da existência, como se tentasse se preencher da vida que lentamente esvai de si.
-
-Os niilistas deixam a humanidade exausta. Tornam o cenário sombrio, disseminam a ansiedade, e projetam seu vazio em um mundo de pedra, poluição e desigualdade. São o reflexo vivo da ausência de um sentido social que proteja a harmonia, o sonho e o bem-estar. Sua presença é como um dia nublado que demora a se dissipar. É preciso reconhecer, no silêncio do niilista, sua ação quase invisível — disfarçada de ingenuidade, de ignorância, ou mesmo de propósito.
-
-O niilista carrega ódio no olhar e uma mente perturbada por ideias que o consomem. Por sua causa, o viver se torna cansativo, às vezes até doloroso. O niilismo espalha seu desânimo como uma névoa; e, por mais que a sociedade tente conscientizar, as respostas são sempre as mesmas — vazias, repetitivas, como se vindas de seres zumbificados, incapazes de reagir à comoção natural do humano.
-
-O bilionário vê a fome e a miséria, mas não divide sua fortuna. O líder escravista das empresas observa o cansaço e o desânimo de seus empregados, mas nada sente.
-O criminoso vê o choro e a tristeza alheia, mas permanece impassível. O direitista assiste à democracia ruir com o próprio voto, e ainda assim o repete, indiferente.
-
-O niilismo produz zumbis — seres que abandonam o sentido natural da vida, feito de deleite e alegria, para viver apenas na defesa de si mesmos. Tornam-se corpos que tentam se proteger da informação que emana de suas próprias almas, incapazes de confrontar o próprio espírito.
-
-O niilista teme a própria consciência; preocupa-se com sua loucura e dela não deseja sair, pois sabe que ao fazê-lo teria de encarar a si mesmo — e, sobretudo, o vazio de seu intento. O niilista, em sua desesperança, frustra tanto o homem que a sociedade, por impaciência, busca resolvê-lo pela força — assassinando, punindo, encarcerando, como se a morte fosse cura.
-
-Que belo seria se a humanidade soubesse compreender o niilista, se lhe concedesse o tempo necessário para tentar se reerguer. Que belo seria se o niilismo não fosse condenado como crime, mas reconhecido como pena — pois ser niilista já é, em si, o pior castigo possível. Não há dor mais profunda que o niilismo. Não há pena mais severa que existir sem sentido. O niilista necessita do amor — e, sobretudo, do tempo. A sociedade, por sua vez, precisa compreender o que é o niilista e aprender a criar novos caminhos para conduzir e acolher tal condição do espírito humano.
-
-#### **O auto valor do niilista (NOVO)**
-
-O niilista acumula muitos bens começando pelo intuito de exploração. Usa de má-fé para pagar um valor injusto ou comprar coisas por um valor injusto. Sua obsessão, desenvolvida por sua decisão, o leva a querer grandes valores para si, como se tentasse atribuir valor à própria existência que decidiu renunciar. Ao renunciar à vida, torna-se um ser objetal para si, pois está, por sua própria vontade, fadado ao descarte. Vê-se como ser finito em razão de sua decisão, e isto lhe confere uma grande baixa autoestima. O niilista se apossa completamente da ideia de sua finitude e de sua falta de sentido, de forma a não imaginar outra escapatória senão sua perdição. O niilista se apropria do desterro pior que poderia imaginar. Visualiza-se e monta sua existência em cima de um pessimismo descomunal, a ponto de encerrá-lo numa microvisão de si — e isso lhe confere um desvalor sem proporções. O niilista esvazia-se do sentido dos valores e das virtudes, e se encerra numa falta de sentido tamanha que passa seus dias tentando encontrar seu autovalor. Enxerga-se como um zigoto que desenvolveu-se devido a um ato procriativo, e isto lhe confere uma baixa estima que afeta até mesmo sua capacidade de relacionamento interpessoal, pois precisa constantemente externalizar seu pensamento sobre si mesmo, a fim de ser acalentado ou consolado de sua autoagressão conceitual.
-
-Por vezes, é interpretado como um completo ignorante ou até mesmo como um débil mental, pois, diante do mais óbvio que existe — amar e apreciar a vida — o indivíduo insiste em se opor e acaba se julgando completamente ignóbil e desprovido de intelecto.
-
-O niilista é alguém que descre em si mesmo, que não dá sequer uma pequena chance a si, que se ignora e se autoesquece. O niilista é alguém que se esvai de si, que considera seu corpo o último resquício do que já se fora. O niilista considera-se um ser sem alma, um produto da biologia que tende à falência, uma criação miserável que tem como único fim a morte e um vazio de razão de existir como corpo e homem. O niilista se considera um erro da natureza, um fracasso humano. E é essa crença, unida ao intuito de ser como tal, que lhe confere uma incalculável baixa estima, um inarrável desejo de encontrar o auto valor, de desejar a si mesmo, de olhar-se como ser digno de ser crido e ser considerado espiritual, vivo, eterno.
-
-Neste ínterim nasce a obsessão por bens materiais, por validação social. De fato, o ser humano não pode ser tão fútil a ponto de precisar de milhões e bilhões para ser alegre. Essa necessidade deriva de uma grandiosa falta de auto valor, falta de qualquer espiritualidade que dê ao ser humano que ostenta em demasia algum valor que o faça se projetar para a eternidade.
-
-Todas essas imagens mentais pejorativas não correspondem, de fato, ao niilista, que também é um ser humano digno de compaixão e respeito. Contudo, é uma tendência do niilista conceber ideias negativas a respeito de si mesmo.
-
-#### **O ódio do niilista**
-
-O ódio do niilista se canaliza na sua auto anulação. Não tem exatamente um projeto para fora de si, um alvo ou objetivo, ou até mesmo uma obsessão. O obsessivo causa um comportamento aparentemente mais visível de revolta do que o niilista; o niilista tem um ódio intrusivo, e não expressivo. Seu ódio se findou em tudo, não simplesmente em uma causa. Seu ódio não tem de que, ou de quem, não tem um alvo. O ódio é generalizado, é concentrado num ponto único: o coração de Deus. O niilista quer atingir o ápice da sua vingança. O niilista intenta contra seu próprio nome.
-
-#### **A pobreza e o niilista**
-
-A pobreza, miséria, quando aceita, é praticamente um bem feito à postura niilista, no sentido de que grandes organizações estão num estado emocional mais confortável com sua postura interior devido à aceitação da pobreza por muitos. Isto é, se há grandes diferenças sociais no mundo, há pessoas problemáticas, pessoas que não estão usando seu senso de humanidade, pessoas que estão fora de seu senso de normalidade. A humanidade leva em seus ombros o peso do niilismo de muitos. Não é difícil viver, trabalhar; o trabalho é entender e lidar com quem está tendo dificuldade de sustentar sua própria liberdade. Viver, no sentido de sobreviver, é muito fácil; a complexidade do mundo está nos que estão em crise existencial, nos que acham difícil mudar de postura. A pobreza é uma forma de sustentar o peso emocional, o descarregar de emoções do niilista.
-
-#### **As relações do niilista**
-
-Quando se aproxima do niilista tentando estabelecer laços de amizade ou aquilo que agregue sentido e propósito à sua vida, ele desfere muitos palavrões, como se quisesse afastar de si qualquer proximidade verdadeira, ou distorce a intenção do indivíduo em sua mente, sexualizando tudo ou tornando tudo passível de interesse econômico. Caso se tente aproximar do niilista de forma a agradá-lo com uma amizade, ele começa a ofender de todas as formas ou fazer algo para afastar dele vínculos verdadeiros. Mantém uma certa distância do que considera verdadeiro, inventando brigas, pretextos para quebrar a harmonia ou para se afastar do convívio pessoal.
-
-O indivíduo finge demência para afastar e entediar as pessoas de sua companhia, ou manifesta um comportamento anormal, para afastar e ter chances de se isolar.
-
-#### **A expressão do niilista**
-
-O niilista tem constante necessidade de expressão, precisa constantemente expressar seus pensamentos que considera insanos, precisa do otimismo das pessoas, desabafar. O niilismo consome muita energia mental, causa grande ansiedade e terror no indivíduo, que constantemente precisa se expressar para criar otimismo e se livrar do desespero causado pela sua postura. Ao não poder se expressar, o niilista começa a se encerrar numa crise de desespero, desconsolo. Passa a ter episódios de agressividade, pois o conteúdo de seu pensamento é uma pressão que quer ser externalizada. O niilista se passa muitas vezes por inconveniente, importuno ou sem afazeres, pois tem constante necessidade de amparo. O niilista sobrevive do otimismo alheio; ao declarar-se contrário à sua própria vida, quando expressa isso, encontra um otimismo, uma barreira contra seu próprio ideal, o que o alimenta para seu dia a dia de otimismo. Isto é, o niilista pode manter sua postura e sobreviver do otimismo alheio sem precisar desenvolver o seu próprio, pois para seu dia a dia precisa de uma mentalidade de progresso e tranquilidade.
-
-#### **O empresário niilista**
-
-O empresário niilista não cobra pela branding; ele ganha em cima do esforço alheio. Ele não precisa aparecer; portanto, é errado não pagar quem quer doar sua imagem. Três coisas gastam muita energia mental e precisam ser bem remuneradas: exposição em excesso, controle de dinheiro em excesso e liderança de gigantescas equipes. O indivíduo precisa de meios para aliviar-se da pressão; por isso, é uma conversão de energia e se constitui como trabalho. No entanto, isto tem limite, e não é feito sobre a exploração de mão de obra.
-
-Os empreendedores coachs passam a impressão que o sucesso é dado pela branding, pelo indivíduo que escolhe assumir grande carga emocional. Porém, se todos o fizerem, a sociedade fica sem sua base, sem seus médicos, policiais, bombeiros. Portanto, a solução é identificar o propósito do niilista, e desta forma a humanidade passa a entender como funciona a mente daqueles que têm o acúmulo de riquezas, para passar a interpretar estes como uma ameaça e não como um acontecimento por um mérito que não existe.
-
-Através deste documento são demonstrados os caminhos para a riqueza, ou pela branding, ou pela exploração. E se é pela exploração, como no acúmulo de bilhões, certamente a humanidade deve se precaver contra esses, pois o ato de reunir pela exploração continua sua violência no ato de usar tais recursos para manipular a política, causar guerras, confusões e miséria. O propósito do niilista não se encerra no acúmulo de riquezas, mas na degradação do mundo.
-
-#### **O véu sobre a humanidade**
-
-Quando a humanidade entende o propósito do grande acúmulo de fortunas, passa a desenvolver metodologias para deter isto, uma vez que reconhece que o propósito disso não é mérito ou um avanço social necessariamente, mas se constitui como uma confusão mental, um intuito sintomático. Desconhecendo o propósito niilista, a humanidade toma as medidas que mais acha urgente, entra na superfície das catástrofes ao invés de se atentar ao acúmulo de fortunas. Isto quer dizer que existe um véu sobre os olhos da humanidade; não enxergando a verdadeira motivação dos super-ricos, a humanidade não associa toda a causa das guerras, catástrofes políticas, manipulação, miséria à índole do bilionário, pois interpreta que o acúmulo de riqueza tem um fim único no próprio acúmulo.
-
-A humanidade entende que o mecanismo do acúmulo de dinheiro alimenta o bilionário somente com bens de ostentação, e considera isso um problema superficial. Quando, na verdade, ao ter o entendimento real da mente do bilionário, passaria a temer deixar tal acúmulo nas mãos de poucos. Pois sabendo da sintomática que levou o bilionário a ser obcecado por riqueza, também pode inferir que toda a manipulação política que ocasionam conflitos, fome e guerra advém de uma mente niilista tendo um grande poder em mãos, e isto pode ser atribuído aos bilionários como causadores dos problemas, da desigualdade.
-
-#### **A solução para o niilismo estrutural**
-
-A humanidade, portanto, ciente do que é o niilismo, ativa seus mecanismos para desabastecer os bilionários de suas fortunas. Desta forma, a manipulação midiática acaba, a manipulação política também, a distribuição de riquezas se torna uniforme, e a humanidade passa a realmente aproveitar aquilo que produz, e até mesmo sobra tecnologia, esforços e mão de obra para focar na sustentabilidade. Quando se retiram as fortunas das mãos de indivíduos que estão em estado de confusão mental ou obsessivos por erradicar o sentido do mundo, se tem um mundo governado por quem se atenta às reais necessidades deste mundo. E se passa a criar regras para a produção, para produzir itens mais duráveis, se para de produzir tecnologias inúteis ou itens de ostentação que dispendem grande energia intelectual, e se para de produzir itens de guerra.
-
-#### **A branding verdadeira e o niilista**
-
-O indivíduo que realmente tem branding, que não é levado pelo uso de elementos químicos, ou pelo niilismo que lhe confere despropósito, desamor ao outro, e foco em si mesmo, e foco existencial por não crer em nada, ao cessar o niilismo, dispensa a branding verdadeira? Não. A branding real é formada por um estudo extenso do ser humano para ter uma previsibilidade da ampla gama de reações de um povo. A branding é trazida pela erudição. O niilista pode ou não desenvolver uma branding artificial.
-
-#### **As ações da cúpula niilista**
-
-Ações da cúpula niilista: incentiva a fome através de arquétipos de magreza na moda. Causa insegurança global com não tratado de armas nucleares. Causa teatralização do crime em capitais mundiais. Causa guerras sem sentido. Promove falsos artistas que não têm a formação necessária para digerir críticas.
-
-#### **A recusa do mundo ideal pelo niilista**
-
-O niilista não quer ver um mundo ideal, o assusta. O niilista sai da brincadeira que é o trabalho, organização social. Ele vê que concorre para o funcionamento, e quando o funcionamento já não lhe traz super benefícios, ou domínio e controle, ele corrompe os mecanismos da brincadeira, ou seja, usa de má-fé para obter o dinheiro, para burlar. Sua opressão interior o faz delirar por dinheiro, como se pudesse salvá-lo, ou por obsessões adversas. O niilista não desperta da brincadeira, pois a brincadeira não é uma imersão, mas se distrai dela com uma sintomática. Não pode ver o sentido nas coisas.
-
-#### **O espelho do niilista**
-
-Quando o niilista provoca no outro a situação que é espelho do seu interior, como situação de escravidão, aprisionamento, escassez, desengano, sente que está sendo cuidado; isto lhe acalma, pois sente que fazer o outro se empatizar fará com que o outro encontre alguma solução para seu conflito. Portanto, causar o sofrer ao outro é uma forma de garantir sua vida.
-
-#### **O usuário e o niilismo**
-
-O usuário não aceita a diferença social, não quer raciocinar sobre isso, apenas usa drogas como tentativa de ir para um mundo perfeito imediatamente. E isso é um niilismo, pois o abuso de drogas leva à morte.
-
-#### **A droga e o niilista**
-
-A droga é a forma pela qual o niilista expressa o ódio. O efeito da droga é tratável; ao se incentivar o niilista à droga, ele simplesmente tenta se anular mais fortemente. É um ódio forte, um ódio em que nem mesmo a racionalidade opera. Um ódio que ultrapassa a normalidade de um ódio comum, que chega a um ódio tão forte que cega o indivíduo.
-
-#### **O comportamento antissocial do niilista**
-
-O niilista tenta ser odiado para chamar atenção, tenta ser uma pessoa ruim na tentativa de distorcer o sentido humano, da pessoa humana. Tenta ser odiado jogando o peso do que não pode perdoar nos outros.
-
-#### **A convivência social do niilista (NOVO)**
-
-O niilismo gasta uma enorme energia mental. A estima do indivíduo é reduzida a zero, e isto faz com que o convívio do niilista com a normalidade, com a visão dele sobre a simplicidade da vida e o comportamento rotineiro das pessoas, gaste uma enorme quantidade de energia. O niilista não é capaz de fingir estar vivendo feliz como todos, aproveitando o dia e sorrindo. Não pode mascarar seu grande segredo íntimo. Por isso, sua existência terrena é pautada em querer humilhar e sucumbir o outro; é essa a forma que lhe parece amena ao convívio social. Quando lhe é destituída a cultura de sucumbir e destituídos os meios sociais que dispunha para tal, sua última atitude de rebeldia seria o completo isolamento.
-
-O niilista quer causar a diferença social, a diferença espiritual que enxerga entre si e o outro. O niilista quer externalizar a diferença social e, como último ato de rebeldia, pode até mesmo tirar a própria vida, num último ato de tentar equiparar. Em sua mentalidade, tirar a própria vida causa miséria social, pois está tirando da vida uma personalidade. Está negando ao outro sua convivência, sua estadia na vida. E, se for um ato definitivo, isso é irreparável. Se o recurso do niilista não é mais financeiro, o único que lhe restaria é tornar escasso o mundo de sua própria vida.
-
-O niilista precisa das diferenças sociais não somente como pedido de uma cultura que aprendeu, que o faz ter sempre que se sentir imponente e impoderado perante o outro, mas necessita para esconder seu emocional, para tornar a convivência humana possível, para que o lidar com o outro não gaste tanta energia emocional. Pois intuitar o próprio fim e ter que conviver com o outro que tem bens eternos é, de fato, um ato que exige um grande mascaramento da própria intenção.
-
-O niilista é um indivíduo com uma frustração enorme, e que por isso não suporta a bonança do outro; quer provocar escassez a todo custo e, quando não obtém êxito, pode até mesmo tentar o pior contra a sociedade, excluindo-se definitivamente dela.
-
-A capacidade de convivência do niilista com o não niilista depende de um certo equilíbrio — e esse equilíbrio ele tenta encontrar nos bens materiais. Assim, torna-se exibicionista: precisa sempre estar em uma posição assimétrica à do outro para não ser ferido em sua autoestima, devido à sua própria condição.
-
-A relação humana produz uma sensação de normalidade, amizade e harmonia, e isso obriga o niilista a encarar o absurdo de sua postura, fazendo-o sentir-se mal; essa lucidez gera uma dissonância entre sua condição existencial e a realidade à sua volta. Essa dissonância se manifesta na tentativa de afirmar assimétricaidade — seja material, afetiva ou até mesmo no lazer.
-
-Mesmo no niilista que não conserva o desejo de aniquilação, mas apenas o impulso de dominar o outro, esse mecanismo aparece, ainda que em menor grau.
-
-#### **A busca por visibilidade (NOVO)**
-
-O niilista quer ser o holofote. Deseja que o mundo pare diante de sua dor, que até as famílias deixem de florescer, que os novos nascimentos se suspendam — como se toda a atenção e energia da vida devessem convergir para ele e sua causa urgente. A mentalidade niilista não aceita que a vida continue, que o fluxo do existir siga expandindo-se mesmo diante de sua desesperança. O niilista observa o progresso, vê que o mundo prossegue apesar de sua intenção, e isso o incita à revolta.
-
-Não são apenas as contravenções sociais ou as desigualdades que alimentam o vandalismo e a criminalidade — a revolta mais profunda do niilista nasce da constatação de que a felicidade ainda floresce, mesmo entre aqueles que não encontraram o sentido. Para ele, é um absurdo que a sociedade permaneça firme, constante e progressiva, como se cada indivíduo bastasse a si mesmo. Na mentalidade do niilista, seu desconsolo interior deveria ser o centro do mundo, a força motriz da humanidade, a prioridade essencial da existência terrena. E assim, a Igreja — e tantos outros — dedicam suas vidas à evangelização e à cura das almas; mas, para o niilista, nada disso é suficiente. O niilista quer toda a energia social, pois acredita que é sua vida que está em jogo — e, para ele, nada pode ser mais importante do que isso.
-
-O niilista não aceita ser compreendido como uma estatística, nem como uma simples fatalidade da liberdade — essa mesma liberdade que os outros assumem, superam e transformam em transcendência ou em felicidade. Para ele, nada é superação; tudo é indiferença. Ele vê na liberdade não a promessa de sentido, mas a constatação de um vazio. E isso o lança em profunda revolta.
-
-O niilista se pergunta, com raiva e espanto, por que alguns são felizes e outros não. Seu questionamento interior o conduz ao manifesto, à violência urbana, ao acúmulo de bens como forma de compensar o que lhe falta espiritualmente — um gesto de exibição que tenta afirmar, materialmente, o valor que perdeu interiormente.
-
-O acúmulo de riqueza, sob essa ótica, não é progresso, mas sequestro: o sequestro dos sonhos alheios, das realizações possíveis, da normalidade social. O niilista mantém o futuro financeiro da humanidade em jogo, como se quisesse forçar do mundo uma resposta para sua dor.
-
-Ele faz reféns: mantém trabalhadores exaustos, vende entorpecentes que transformam pessoas em zumbis, manipula a política para degradar a sociedade. Tudo isso é a projeção de um desespero que busca ser reconhecido.
-
-Um ser humano em seu estado natural não tende a tais extremismos. Pode herdar, por cultura, certas ideias destrutivas; mas transformar essas ideias em obsessão, em compulsão por sentido e por poder — isso é obra do niilismo. É o niilismo que corrompe o eixo natural da pessoa humana, pervertendo a vida do humano numa busca por sentido e reconhecimento social.
-
-#### **O existencialismo dos privilégios (NOVO)**
-
-O niilista não aceita tal decisão para sua vida, de forma que passa a sentir-se revoltado com o estado natural que vê à sua volta nas pessoas. Sente-se revoltado ao ver, ao seu redor, pessoas com um tom de comportamento tão despreocupado — amantes se amando nas praças, pessoas vivendo em paz — aparentemente indiferentes à sua realidade conflituosa. O niilista, por isso, quer viver com privilégios. Necessita repor esse distanciamento social provocado pelo niilismo. Vê-se distante de sua paz e tranquilidade e quer repor isso por meio de privilégios. Ao perceber-se com tal postura, o niilista quer repor sua estima, quer tentar, de alguma forma, suprir a diferença de intuito que existe, julgando a sua pior. Isto é, quer alguma vantagem social para satisfazer a baixa autoestima que gera seu próprio intuito. O niilista se incomoda com a tranquilidade, com a quietude das mentes ao seu redor.
-
-O niilismo esconde que aqui mesmo, no plano terreno, o paraíso começa. O niilista sente dor ao ver a alegria natural que emerge da sociedade diante da boa alimentação, do lazer, das amizades. Pois qualquer melhora social traz ao povo uma alegria incomparável, que constrange o niilista. O niilista, se quisesse, poderia mudar sua postura e sentir-se feliz naturalmente diante de uma boa visão de futuro.
-
-Porém, julga a si mesmo como uma pedra imóvel e se refere ao amor como a única coisa que pudesse movê-lo de seu estado, sendo que o niilismo já é, em si, uma movimentação do espírito rumo à sua anulação.
-
-O niilista teme ao ver o festejar despreocupado. Uma sociedade niilista é uma sociedade em que deve se cultivar o sentimento de desânimo. Este sentimento é propositalmente causado, calculado e articulado pelas elites dominantes.
-
-É causado pelo dono de padaria, pelo dono de supermercado, pelas empresas que praticam comércio exterior. Toda a construção social até agora tem se voltado para fazer com que a sociedade permaneça num estado emocional conflitante, como se realmente houvesse uma barreira entre o homem e o seu sonhado paraíso. Porém, essa barreira não existe. Nada impede que o paraíso comece aqui. Mas a ação niilista quer que acreditemos que este paraíso está distante.
-
-O privilégio é uma tentativa do niilista de fazer o outro experimentar a sensação niilista, é uma tentativa de fazê-lo compreender o descabido diferencial entre as almas que intuitam a morte e as que têm como intuito a vida. É mostrar a verdadeira face da miséria.
-
-O niilista acha absurdo a sociedade continuar indiferente ao niilismo — as pessoas sorrindo, indo e vindo, como se não tivessem nenhuma preocupação, como se já tivessem encontrado seu lar — e olha o niilista no frio, num deserto de sentido, para fora de sua janela, sem nunca convidá-lo a entrar e ensinar-lhe. Jesus contesta essa posição de indiferença e leva a humanidade à evangelização, a não ficar indiferente diante daquele que intenta sua própria ruína.
-
-A solução das diferenças sociais começa na evangelização — no convidar o outro para a vida eterna. Pois a miséria espiritual de uns causa a miséria material do mundo inteiro, já que o fundamento da miséria material é espiritual. A verdadeira miséria causa uma falsa miséria exterior, que é a escassez material.
-
-Olhar o indivíduo que intenta a morte com indiferença não deixa de ser uma falta de solidariedade, ainda que seja este próprio indivíduo que queira sua própria ruína. Cada alma que se esvai deixa de colorir o mundo com sua nova personalidade. Cada alma perdida é uma personalidade singular que deixa de agir no plano da existência de forma efetiva para se tornar conflito.
-
-Porém, o cúmulo do desespero para converter o outro também não é uma atitude coerente, pois a liberdade, independentemente da forma pela qual é usada, é direito da pessoa humana. E o ser humano só é realizado através do uso de sua liberdade.
-
-> É impossível ser infeliz se determinando pela vida eterna. O gozo da alma é quando ela se determina pela vida eterna; o sentido da vida já é a própria vida. Portanto, a alma só se faz infeliz ou se define de tal forma quando intenta, em seu íntimo, contra seu próprio existir. A felicidade emerge naturalmente do ser humano quando este tem a decisão pela vida.
-
-O rico se vê incomodado com o pobre sendo feliz com qualquer coisa, qualquer distração, qualquer detalhe, pois o peso do niilismo não o incomoda. Tudo torna-se um distrativo, tudo torna-se leve. A realidade passa a ser feliz, sem preocupações. O niilista, porém, só se sente confortável ao estar sob defesas mentais — que é o caso de estar sob privilégios — pois, quando a mente do niilista o protege da informação de sua intenção, ele tem um pouco de alívio. Porém, precisa sempre de um escape de si mesmo para tal.
-
-#### **A solução dos males sociais (NOVO)**
+#### **A solução dos males sociais**
 
 A humanidade, oprimida pelos bilionários e pela violência, tenta praticar o exemplo, de forma a bater, prender e desolar os que causam os males. Porém, ainda que com o exemplo, o mal continua. Mesmo que os bilionários sejam assassinados, outros herdarão sua herança, e mesmo que os que praticam a violência sejam mortos, serão substituídos. Isto acontece porque os nascimentos não param e a liberdade humana não deixa de tomar seus rumos próprios.
 
@@ -6897,19 +6776,19 @@ Um dia a mais na vida de um niilista que não é assassinado por ter tido a chan
 
 Se o niilista fosse realmente sensato em seu proceder, produziria uma sociedade totalmente disposta e cheia de energia para tentar convertê-lo de sua decisão. Porém, o niilismo prova que nem a si mesmo é capaz de ajudar, de forma que ajude o outro a ajudá-lo.
 
-O poderio niislita deve ser desarticulado, e para isto o niilismo precisa ser compreendido, a sociedade precisa entender o acumlo de riquezas como o produto de um comportameneto obsessivo que é oriundo do niilista. O sociedade precisa compreender as empresas bilionárias como instituições construidas pelo niilismo, tanto em seu topo de liderança quanto em sua bases médias, e compreender que somente nas extremidades os trabalhadores estão.
+O poderio niilista deve ser desarticulado, e para isto o niilismo precisa ser compreendido, a sociedade precisa entender o acúmulo de riquezas como o produto de um comportamento obsessivo que é oriundo do niilista. A sociedade precisa compreender as empresas bilionárias como instituições construídas pelo niilismo, tanto em seu topo de liderança quanto em suas bases médias, e compreender que somente nas extremidades os trabalhadores estão.
 
-A partir dessa compreensão a humanidade passa a desconfiar de toda forma de riqueza acumulada, e dissocia-la de um progresso social, mas interpreta-la como um centro de opressão ou como um potencial de dar a uma minoria um grande poder social que se faz acima até da politica. Desta forma, a humanidade desarticulando todo o acumulo de riqueza, ao identificar que se trata de um monumento niilista, passa a regir totalmente a politica de forma a criar uma estrutura social pacifica. Sobrará então energia para tratar o niilista ao invés de simplesmente sucumbilo e mata-lo tal como seria matar traficantes ou bilionários.
+A partir dessa compreensão a humanidade passa a desconfiar de toda forma de riqueza acumulada, e dissociá-la de um progresso social, mas interpretá-la como um centro de opressão ou como um potencial de dar a uma minoria um grande poder social que se faz acima até da política. Desta forma, a humanidade desarticulando todo o acúmulo de riqueza, ao identificar que se trata de um monumento niilista, passa a reger totalmente a política de forma a criar uma estrutura social pacífica. Sobrará então energia para tratar o niilista ao invés de simplesmente sucumbi-lo e matá-lo tal como seria matar traficantes ou bilionários.
 
-O niilista não compreendido tem um alto potencial de destruição, pois se faz uma criança regida por impulsos incosncientes que, com o uso de sua inteligencia consegue um grande poder e por sua vez esse poder novamente é guiado por impulsos incosncientes e por decisões inconsistents com a harmonia.
+O niilista não compreendido tem um alto potencial de destruição, pois se faz uma criança regida por impulsos inconscientes que, com o uso de sua inteligência, consegue um grande poder e por sua vez esse poder novamente é guiado por impulsos inconscientes e por decisões inconsistentes com a harmonia.
 
-Combater os bilionarios é tratar o niilista, cuidar melhor dos que não se favoreceram espiritualmente e por isso deveriam ser a camada mais fragil social, e não a camada opressora. Deveria ser a camada social cuidada e não a camada ao qual demos força para destruir tudo, inclusive a si mesma e sua oportunidade de viver mais e aprender a ser melhores.
+Combater os bilionários é tratar o niilista, cuidar melhor dos que não se favoreceram espiritualmente e por isso deveriam ser a camada mais frágil social, e não a camada opressora. Deveria ser a camada social cuidada e não a camada à qual demos força para destruir tudo, inclusive a si mesma e sua oportunidade de viver mais e aprender a ser melhores.
 
-O bilionário é um sedento pela vida eterna, enquanto não instruido ele não desncasará buscando a resposta. É muito mais facil agir rapidamente do que compreender o comportamento do outro. E nessa rapidez de julgamento a humanidade não compreende realmente o niilismo, e dessa forma também não arquiteta formas de desarticular as instutições de controle social. O niilista, no topo de uma companhia, é alguem que não sabe o que fazer, e faz o que lhe resta: oprimir, sucumbir, sugar da sociedade a ter a vida que a sociedade não lhe ensina pois não o compreende.
+O bilionário é um sedento pela vida eterna, enquanto não instruído ele não descansará buscando a resposta. É muito mais fácil agir rapidamente do que compreender o comportamento do outro. E nessa rapidez de julgamento a humanidade não compreende realmente o niilismo, e dessa forma também não arquiteta formas de desarticular as instituições de controle social. O niilista, no topo de uma companhia, é alguém que não sabe o que fazer, e faz o que lhe resta: oprimir, sucumbir, sugar da sociedade a ter a vida que a sociedade não lhe ensina pois não o compreende.
 
-Até a presente data desta escrita, a sociedade esta tentando vencer os males sociais por reforço negativo, matando bilioonários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
+Até a presente data desta escrita, a sociedade está tentando vencer os males sociais por reforço negativo, matando bilionários e pessoas que coagem com o mal incentivados por bilionários. E este reforço negativo não vence o niilismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais. 
 
-#### **Um cenário de êxito nas lutas sociais (NOVO)**
+#### **Um cenário de êxito nas lutas sociais**
 
 Depois de todas as máscaras sociais desmoronarem, revelou-se o niilista: como uma criança em posição fetal, precisando de ajuda psicológica, encarando o abismo com olhos grandes, vazios, vidrados e perdidos. Assombrados. Temendo o mergulho da morte corporal que dá vazão a um mundo de infinitas possibilidades, diante das quais só consegue enxergar seu próprio fim. O niilista é este ser, aparentemente impenetrável e implacável, que, ao mesmo tempo, é uma criança que chora e pede ajuda, clamando por apoio e compreensão. São crianças que construíram o terror porque foram aterrorizadas por si mesmas. Que destruíram toda a construção social por sua loucura, por tentarem fugir de quem eram.
 
@@ -6917,18 +6796,15 @@ E que só agora foram identificadas; só agora a loucura foi compreendida. Só a
 
 Desvelado todo o estrago niilista, o próprio, ao compreender o caos, indagará:
 
-E do que me adiantaria a paz diante de um fim iminente? Como eu poderia me beneficiar de tudo aquilo que renunciei? É por isso que estou cego de ódio — por isso nada mais me importa.
-Diante da morte iminente, tudo se torna banal. O amor, sim, é o único elixir que me importa. Se eu mato, se eu aterrorizo, se me prendem — de que me serviria a paz, diante do inimigo que espreita meus pensamentos dia e noite? Diante do inimigo que não me deixa dormir?
+"E do que me adiantaria a paz diante de um fim iminente? Como eu poderia me beneficiar de tudo aquilo que renunciei? É por isso que estou cego de ódio — por isso nada mais me importa. Diante da morte iminente, tudo se torna banal. O amor, sim, é o único elixir que me importa. Se eu mato, se eu aterrorizo, se me prendem — de que me serviria a paz, diante do inimigo que espreita meus pensamentos dia e noite? Diante do inimigo que não me deixa dormir?
 
 Todos os dias sonho com a vida eterna — isso está em primeiro lugar. Vocês me prendem, me matam, me interrogam, me condenam à morte… Mas nada disso é mais importante que o propósito de reencontrar o sentido. Nem a natureza me importa, nem a paz social. O que eu quero é a mim mesmo — sou um eterno buscador de mim. 
 
-Estive coberto de joias e luxo apenas para esconder a vergonha de fugir de mim mesmo — da miséria extrema diante da riqueza que vocês manifestavam ao sentirem a certeza de um bom destino.
-O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as riquezas do mundo, não me sentiria confortável diante do não-niilista. Sim, eu causei a miséria material — e isso não foi consequência de um sistema político, mas algo calculado, provocado deliberadamente. Sim, eu causei a violência exterior, pois a que habita em mim é incomparavelmente maior. Sim, eu destruí a natureza — mas a natureza interior, aos meus olhos, não é bela. Destruí tudo o que, em comparação comigo, me humilhava. Pois carrego dentro de mim a maior das misérias, o pior dos destinos, o mais triste dos cenários e a forma mais profunda de violência.
+Estive coberto de joias e luxo apenas para esconder a vergonha de fugir de mim mesmo — da miséria extrema diante da riqueza que vocês manifestavam ao sentirem a certeza de um bom destino. O brilho em seus olhos é tão puro e rico que, mesmo que eu possuísse todas as riquezas do mundo, não me sentiria confortável diante do não-niilista. Sim, eu causei a miséria material — e isso não foi consequência de um sistema político, mas algo calculado, provocado deliberadamente. Sim, eu causei a violência exterior, pois a que habita em mim é incomparavelmente maior. Sim, eu destruí a natureza — mas a natureza interior, aos meus olhos, não é bela. Destruí tudo o que, em comparação comigo, me humilhava. Pois carrego dentro de mim a maior das misérias, o pior dos destinos, o mais triste dos cenários e a forma mais profunda de violência.
 
-Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar.
-Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?
+Eu confesso o meu pecado — o maior de todos: o de não amar. Confesso que desejo este dom, que faria de tudo para possuí-lo, e confesso também que, por minha própria vontade, não escolho amar. Conter-me, frear-me, controlar-me em sociedade — isso é possível, e os parabenizo por tal feito. Mas lanço-lhes um desafio ainda maior: expliquem-me... o que é o amor?"
 
-#### **Um cair das defesas mentais (NOVO)**
+#### **Um cair das defesas mentais**
 
 O homem, sob o jugo da regra do pecado com base na ação e não na intenção, protege-se da tomada de consciência de sua liberdade perante a revelação metafísica de sua alma. Isso quer dizer que imaginar um conjunto de ações calculadas — chamadas de pecado em suas diferentes magnitudes — confere ao indivíduo um cerco no qual pode imaginar-se salvo de si mesmo.
 
@@ -6936,7 +6812,7 @@ Isso quer dizer que, ainda que o indivíduo busque sua própria morte, pode, por
 
 Quando o indivíduo se dá conta de que responde por si só, e não perante uma força maior, é arremessado diretamente contra sua autorresponsabilidade, e nela pode sentir-se mais ou menos assegurado. É dentro dessa nova percepção que as barreiras entre o mundo terreno e o mundo espiritual se quebram, de forma a já nos identificarmos no mundo espiritual. A partir da vida terrena, é possível assumir o risco da liberdade e antever o destino que cada indivíduo intenta. Sob a perspectiva comportamental também é possível observar na sociedade e diferenciar os indivíduos, de forma a enxergá-los como potenciais pessoas em crise existencial ou pessoas que já optaram, em seu âmago, pela vida de forma definitiva.
 
-#### **A loucura dos ricos (NOVO)**
+#### **A loucura dos ricos**
 
 O super rico é um louco, um louco que tenta enxergar a vida a todo instante, ainda que esta esteja diante de seus olhos. O bilionário é um fanático. Um indivíduo omisso a qualquer empatia que não esteja voltada para a sua autoempatia, o desejo de não ser quem se é diante do querer do que se quer. O rico é o único e exclusivo agente de miséria. É um louco que tira dos demais a visão de que aqui mesmo é o paraíso, em favor de nutrir uma ilusão vazia em si com tanta riqueza. O segredo do bilionário é a loucura. A sociedade, quando compreender que são indivíduos sem mérito algum, a mudança acontecerá totalmente. A sociedade percebe a existência de milionários e bilionários como algo natural, algo fruto da competição capitalista. Imagina que é um lugar que se chegou por uma estratégia inteligente e que tem um propósito bom para o mundo, como é transmitido pelas figuras que servem como máscara para esses acionistas.
 
@@ -6954,7 +6830,7 @@ Quando os bilionários, possuindo os melhores cientistas e as mentes mais brilha
 
 Neste momento, há um bilionário olhando a multidão com ódio, vendo as pessoas felizes e querendo destruir tudo isso, pois parecem estar todas indiferentes à sua ruína. E é esse sentimento que dá origem ao Hitler moderno, ao bilionário que guarda seu ódio até ter chances de destruir tudo, até achar quem se una a ele, quem compartilhe seu ideal para devastar a terra, para sucumbir as pessoas, para provocar novamente a escravidão. A índole maligna ainda existe, mas lhe faltam as ferramentas, e a humanidade precisa se conscientizar para que essas ferramentas não caiam em mãos erradas.
 
-#### **44.15 – As visão estratégica dos bilionários (NOVO)**
+#### **A visão estratégica dos bilionários**
 
 O crime dispõe de grande poder para financiar músicas, modas e estilos. E essa influência, sigilosamente, fomenta famílias separadas, o índice de filhos sem a companhia dos pais e de adolescentes grávidas é altíssimo devido à extrema sexualização da música. De fato, se um indivíduo comum tentar divulgar uma letra de música no estilo funk sexualizado, essa letra, de fato, não é viralizada. Porém, com o incentivo financeiro, essa letra chega a milhares de jovens que se adequam ao estilo de vida que a música passa.
 
@@ -6988,7 +6864,7 @@ O bilionário financia o funk → O funk causa gravidez precoce e apropriação 
 
 Há um pensamento avançado, uma ciência social de manutenção dos bilionários, e é nisso que os super-ricos realmente focam. A estratégia de suas empresas é delegada a trabalhadores formados e altamente qualificados; porém, a manutenção do status quo de passividade frente ao acúmulo de riquezas é fomentada por mentes totalmente perturbadas. É um pensamento que está além do controle financeiro e atua em prol do controle mental das massas.
 
-#### **A verdadeira hierarquia das empresas bilionárias (NOVO)**
+#### **A verdadeira hierarquia das empresas bilionárias**
 
 Em muitas empresas, a hierarquia de poder vai além do financeiro e do estratégico. Enquanto o Chief Executive Officer (CEO) garante que a máquina funcione e o Chief Visionary Officer (CVO) projeta o futuro, existe um nível oculto que muitas vezes opera nas sombras: o poder que influencia governos, controla narrativas e molda a sociedade por interesses próprios. Essa crítica exposta na imagem revela que, por trás de grandes corporações, pode existir um Chief Manipulation Officer (CMO) — o manipulador do sistema — capaz de usar métodos questionáveis, como compra de influência política, controle midiático e incentivo ao conflito para manter o status vigente e afastar a população das desigualdades reais.
 
@@ -7006,7 +6882,7 @@ O povo necessita perceber que todo mal abrangente tem origem na mesma fonte: os 
 
 O bilionário é capaz de calar artistas, jornalistas e até líderes políticos. Pode fabricar notícias falsas com facilidade, comprando verdadeiras “fazendas de robôs” que curtem postagens, criam comentários e simulam opiniões populares. Seu campo de ação vai muito além das paredes da empresa: ele explora todos os setores possíveis como se fosse apenas uma estratégia de negócios — e não um mal social. Ele acredita estar apenas fazendo sua empresa crescer e liderar o mercado. Acha que nada pode deter seus planos — nem a ética, nem a dignidade humana.
 
-Enquanto **poucos acumulam riquezas inimagináveis**, a grande maioria luta para sobreviver — e mesmo diante dessa desigualdade absurda, **quase não há revolta**. Por quê?Porque fomos **condicionados a permanecer sem reação**, submetidos a uma influência sutil, porém poderosa: **existe ciência dedicada à manipulação das massas**, capaz de controlar comportamentos, crenças e até emoções coletivas. Dentro dessa lógica, surge uma **estrutura de poder que vai além do que os olhos veem** — uma pirâmide cuidadosamente organizada, onde cada nível tem um papel específico:
+Enquanto **poucos acumulam riquezas inimagináveis**, a grande maioria luta para sobreviver — e mesmo diante dessa desigualdade absurda, **quase não há revolta**. Por quê? Porque fomos **condicionados a permanecer sem reação**, submetidos a uma influência sutil, porém poderosa: **existe ciência dedicada à manipulação das massas**, capaz de controlar comportamentos, crenças e até emoções coletivas. Dentro dessa lógica, surge uma **estrutura de poder que vai além do que os olhos veem** — uma pirâmide cuidadosamente organizada, onde cada nível tem um papel específico:
 
 A guerra é usada como um teatro. Não há necessidade alguma de guerra. E, por vezes, nem mesmo para interesses econômicos diretos, como a obtenção de territórios — que, na verdade, funciona apenas como desculpa para manter o conflito. O único e exclusivo motivo claro é o teatro do terror: o distrator absoluto e mais eficaz, o abominável que espalha no ar a visão do absurdo, a ponto de retirar dos olhos do homem os absurdos menores da desigualdade social, disfarçados de um suposto merecimento.
 
@@ -7038,7 +6914,7 @@ Enquanto o caos é espalhado, a atenção da população é desviada das verdade
 Este é o nível mais obscuro — aquele que permanece nas sombras. Sua função é **mascarar os propósitos reais da empresa**, ganhando tempo enquanto promove **pesquisas científicas voltadas ao controle global**, por meio de **máquinas e tecnologia de indução cerebral** — como os estudos que lembram o conceito por trás do *Neuralink*.
 **É o verdadeiro arquiteto da Matrix**: não aparece, mas está em todos os lugares.
 
-### **A associação entre empresas bilionárias e o crime organizado (REVISTO)**
+### **A associação entre empresas bilionárias e o crime organizado**
 
 Há uma hierarquia no crime tal como nas empresas. As empresas necessitam da ação criminal. Porém, isso não ocorre de forma contrária: o crime não necessita das grandes empresas necessariamente. Contudo, ambas podem colaborar mutuamente. O crime recebe dinheiro para tornar-se ideológico, ou seja, um movimento em prol da anarquia social, do absurdo social, e não apenas do comércio de drogas.
 
@@ -7071,7 +6947,7 @@ Não há limites para as formas de manipulação de bilionários. São pessoas s
 Os bilionários, portanto, são a fonte maior de todos os problemas sociais. E, quando calados em um lado, tentam se manifestar de outro. Quando retirados da política, usam o crime; quando retirados do crime, podem até mesmo usar pesquisas científicas. Sempre que se tapar um vazamento, o bilionário vai procurar outras táticas. A solução é eliminar totalmente a existência de bilionários — ou seja, impedir a formação de fortunas centralizadas. E tomar cuidado até mesmo com os multi-milionários.
 O homem comum não deve ter em arma tanto poder quanto quantidades enormes de dinheiro. Desta forma, os indivíduos problemáticos, sendo identificados e eliminados de cargos políticos, ficam sujeitos aos cuidados e à vigilância da comunidade, que pode deter a ação destes, pois os ataques niilistas seriam isolados e não possuiriam uma força econômica de apoio. Assim, os ataques niilistas seriam expressões do cotidiano e não manipulações e degradações massivas ao humano, à sociedade e à natureza.
 
-#### **44.17 – O calar dos artistas (NOVO)**
+#### **O calar dos artistas**
 
 Estamos num mundo em que o artista é perseguido. Se passa bons valores em sua música, tentam calá-lo. Invadem seu espaço. Estressam-no ao máximo. Abusam de sua boa vontade e, tudo isso — todo esse abuso — é pago. Os repórteres que atormentam o artista em seu período de descanso são pagos pelos bilionários; as difamações públicas, os memes, tudo que ridiculariza o artista é pago pelos bilionários. Todas as ameaças, as pessoas que se aproximam em tom de intimidação, as fofocas que viralizam e incomodam o artista — tudo isso é pago.
 
@@ -7085,7 +6961,7 @@ O artista, de fato, é mais frágil, mais fácil de silenciar do que uma institu
 
 Há um mentor por trás disso — uma inteligência, a inteligência que move as massas: o mais alto escalão das empresas bilionárias.
 
-#### **44.18 – O alto nível do pensamento empresarial (NOVO)**
+#### **O alto nível do pensamento empresarial**
 
 O CMO está num nível que ultrapassa qualquer estratégia empresarial; ele não pensa em finanças, pensa em manipulações em massa. Tem um poder psicológico, centros de estudo, técnicas que já funcionam e que ficam armazenadas, sendo usadas reiteradamente a cada reação da sociedade. Há um material, anotações, práticas comuns que funcionam ao longo dos anos, tal como o livro A Arte da Guerra, porém voltado para as massas.
 
@@ -7105,13 +6981,13 @@ Em uma eleição, por exemplo, não havendo como comprar votos ou manipular a so
 
 Ou até mesmo pode acolher estratégias que fogem do sentido psicológico e atuam numa camada estratégica, como a compra de políticos, ganho de incentivos fiscais, compra de grandes influenciadores, etc.
 
-### **44.19 – O renascer do empreenderorismo (NOVO)**
+### **O renascer do empreendedorismo**
 
-Com os partidos de direita fora do poder e o cidadão consciente de sua exploração, ocorre um fenômeno na classe média dos empresários: simplesmente o conceito de empresa se desfaz se não for exploração. O prática do velho empresarismo de ceder rios de dinheiro aos patrões se desfalece quando o cidadão se dá conta de que há um lucro exorbitante em cima de sua mão de obra.
+Com os partidos de direita fora do poder e o cidadão consciente de sua exploração, ocorre um fenômeno na classe média dos empresários: simplesmente o conceito de empresa se desfaz se não for exploração. A prática do velho empresarismo de ceder rios de dinheiro aos patrões desfalece quando o cidadão se dá conta de que há um lucro exorbitante em cima de sua mão de obra.
 
 Porém, o patrão permanece rígido, não querendo de nenhuma forma ceder seu lucro. E isto faz com que, se não houver novos empreendimentos, haja a aceleração dos funcionários da empresa. Se não houver mão de obra que aceite condições análogas à escravidão, os patrões sobrecarregam aqueles que ganham dignamente. Esse fenômeno vai ocorrendo até que comecem a surgir empresas colaborativas.
 
-Ou seja, se o patrão não quiser pagar mais ou dar condições boas ao funcionário, e o funcionário não quer trabalhar sobre um ritmo incessante e ganhando pouco, a saída são as empresas colaborativas, alem, é claro, do trabalho autônomo. 
+Ou seja, se o patrão não quiser pagar mais ou dar condições boas ao funcionário, e o funcionário não quer trabalhar sobre um ritmo incessante e ganhando pouco, a saída são as empresas colaborativas, além, é claro, do trabalho autônomo. 
 
 São empresas formadas por funcionários que querem montar um negócio e corresponder a uma demanda social, porém não estão voltados para o lucro ou objetivos de extremo crescimento — simplesmente desejam trabalhar e se reúnem para tal.
 
@@ -7119,19 +6995,15 @@ Essas empresas colaborativas têm uma enorme vantagem no que tange a valores, po
 
 Isto remonta à queda não só das pequenas empresas que lucravam muito mais do que o merecido, mas das grandes também. Pois o cidadão comum encontra maneiras de driblar e substituir os grandes monopólios com ações privadas.
 
-### **44.20 – A verdadeira necessidade do niilista (NOVO)**
+### **A verdadeira necessidade do niilista**
 
-O niilista não precisa de milhões ou bilhões. Precisa ser lembrado do que realmente busca, do que realmente tem valor para ele. Precisa ser evangelizado. Não deve ser entregue na mão do niilista poder econômico, mas à palavra de Deus, à esperança para não precisar substituir aquilo que lhe é essencial por fortunas e ilusões. O niilista se ilude em meio a tanta potência que alcança, em meio ao poder, e se perde de si mesmo. Quem concedeu-lhe tanta glória não está a par de sua situação, não está realmente o enxergando. Não entende o que lhe dói nem sua loucura. O niilista deve ser compreendido e não enchido de poder. O niilista, se extremamente perspicaz e cheio de poder econômico, se torna não somente um assombro de si mesmo, mas o terror social. 
+O niilista não precisa de milhões ou bilhões. Precisa ser lembrado do que realmente busca, do que realmente tem valor para ele. Precisa ser evangelizado. Não deve ser entregue na mão do niilista poder econômico, mas a palavra de Deus, a esperança para não precisar substituir aquilo que lhe é essencial por fortunas e ilusões. O niilista se ilude em meio a tanta potência que alcança, em meio ao poder, e se perde de si mesmo. Quem concedeu-lhe tanta glória não está a par de sua situação, não está realmente o enxergando. Não entende o que lhe dói nem sua loucura. O niilista deve ser compreendido e não enchido de poder. O niilista, se extremamente perspicaz e cheio de poder econômico, se torna não somente um assombro de si mesmo, mas o terror social. 
 
 O niilista precisa da proteção de si mesmo, e a sociedade precisa se proteger da ação niilista. Há loucos no poder, pessoas totalmente desqualificadas e esvaziadas, lunáticas para se estar nesse patamar. Não é normal alguém acumular tanto dinheiro e não é normal a sociedade deixar desta forma. A sociedade trata como jocosa ou brincadeira a existência de multimilionários e bilionários, mas é algo muito sério.
 
 Quando empoderado, o próprio niilista se elimina da capacidade de recuperação, impedindo que a sociedade o alcance, destruindo o mundo, impedindo o progresso onde as pessoas poderiam o amparar, desvinculadas de preocupações materiais.
 
-Perfeito. Abaixo está **todo o seu texto**, sem omissões, apenas com **correções mínimas de português**, reorganizado por temas e com títulos para agrupar conteúdos semelhantes. Não alterei o conteúdo, apenas corrigi ortografia, concordância e pontuação.
-
-### O NIILISTA: EXPRESSÃO DO DESAMPARO INTERIOR
-
-## 1. A Auto-Opressão e a Fúria Interior
+### **A Auto-Opressão e a Fúria Interior**
 
 > O niilista mata para tentar expressar a sua auto-opressão.
 
@@ -7141,7 +7013,7 @@ Perfeito. Abaixo está **todo o seu texto**, sem omissões, apenas com **correç
 
 > O niilista se enche subitamente de ira e parte para cima do indivíduo querendo que o outro sinta o que ele sente. Num ato de frustração, desconsolo e infelicidade, não pode ver o outro contente com sua decisão pela vida, livre do ódio absoluto. Não pode aceitar a si mesmo, por isso não pode aceitar o sossego do outro.
 
-### A Rejeição do Bem e a Busca pelo Pior
+### **A Rejeição do Bem e a Busca pelo Pior**
 
 O niilista rejeita as coisas boas no sentido de situações que aumentem a dignidade do humano. Prefere sempre o pior, o que mais tira o sentido. Se há festas bonitas, opta por lugares sujos e mal frequentados. Se há lugares calmos, opta por perigosos, sempre está buscando destituir as situações de sentido, extraindo o pior do mundo e ampliando isso.
 
@@ -7149,8 +7021,7 @@ O niilista tenta suprimir seu sentimento pela vida. Cria-se um choro retido no s
 
 O niilista faz privações ao outro na tentativa de ser compreendido: privação da paz, do sossego mental, de um amor, de comida. Todas essas privações são reflexo do que ele sente fazer por si, da escassez que ele sente fornecer a si mesmo. O niilista está em constante desespero e constantemente tentando ser assimilado, compreendido na tentativa de que alguém lhe salve de si mesmo, de seu intento. É como se o corpo ativasse suas defesas pedindo socorro alheio. Os problemas sobre a face da terra, portanto, são expressões do desespero individual ocasionado pelo niilismo.
 
-
-### O Niilismo como Espelho no Mundo
+### **O Niilismo como Espelho no Mundo**
 
 > A manutenção de bombas nucleares é um espelho do niilismo; a constante ameaça de morte é o que o niilista sente. Os problemas do mundo são extensões de problemas particulares, microproblemas, ou seja, os problemas no mundo são a sintomática de indivíduos niilistas isolados e que têm grandes recursos para a expressão do niilismo mais contundente e sobre todo o globo terrestre. Porém, a pequena escala individual, com auxílio financeiro, ganha níveis globais de expressão.
 
@@ -7158,9 +7029,7 @@ O niilista faz privações ao outro na tentativa de ser compreendido: privação
 
 > Quando o povo passa a reconhecer que a fome, miséria, contravenções políticas, manipulação midiática, manipulação de guerra, desvios de dinheiro estão associados ao poderio de quem tem um grande capital acumulado e usa isso como sintomática e estratégia de crescimento empresarial, então o povo vai passar a procurar entre bilionários a sintomática. E, de forma ou de outra, pressões políticas, civis e militantes vão reagir sobre essas determinadas pessoas, uma vez conhecido seu real propósito e motivação. A humanidade até então não entende a raiz da perversidade e quais são suas formas de expressão últimas. Uma vez compreendidos, os alvos das calamidades são identificados e podem ser freados, e finalmente a paz contínua será instaurada.
 
----
-
-## 4. Despersonalização, Apropriação e Busca de Identidade
+### **Despersonalização, Apropriação e Busca de Identidade**
 
 O niilista entra num estado de despersonalização e apatia, negando propriedades de sua perdoabilidade. O niilista insistentemente quer a resposta e confunde essa resposta com os dons pessoais das pessoas. Se vê pessoas muito simples, quer a simplicidade a todo custo. Se vê pessoas inteligentes, quer a inteligência. Se vê pessoas ricas, quer a riqueza. Se vê pessoas eruditas, quer a erudição. Se vê um amor verdadeiro, quer esse amor. Se vê a felicidade em filhos, mudar de cidade, obtenção de bens, etc. Pois esses traços pessoais ou posses associados ao bem-estar do indivíduo dão a impressão para o niilista que ele terá sua cura obtendo esses trejeitos ou dons pessoais.
 
@@ -7168,9 +7037,7 @@ O niilista passa a imitar uma criança, a imitar uma alegria tola que julga ser 
 
 O niilista tenta até mesmo aproximar seu intuito do ódio, pois o ódio é um objetivo em vida, arquiteta vinganças, perseguições, como se essas e o descarregar de seu ódio dessem a solução para seu niilismo. No entanto, o ato que o encheu da postura niilista não se resolve com a descarga de ódio, pois a descarga de ódio tem fim numa ação, não na finitude do ente. Então o niilista tenta aproximar sua postura de um deslize comportamental ou um defeito de ira na tentativa de racionalizar sua postura e mudá-la.
 
-
-
-## 5. Expressão Catastrófica e Contágio Emocional
+### **Expressão Catastrófica e Contágio Emocional**
 
 O niilista tenta expressar seu intuito passando aos outros imagens catastróficas, acontecimentos ruins, remontando imagens de um mal futuro na vida das pessoas, como expressão do que está sentindo, como expressão catastrófica de seu destino. E a convivência com esse tipo de comportamento pode ocasionar depressão, pois exorta na mente mensagens limitantes. Também o faz pela aceitação alheia ao seu estado, de forma que tente espelhar a indiferença, tentando fazer o outro sentir o que ele sente ao ver o que julga como indiferença. O outro conformado com seu destino, sem que se atenha apavoradamente a isso.
 
@@ -7178,7 +7045,7 @@ Quando o niilista possui uma pessoa que absorve sua expressão, o niilista pode 
 
 O niilista tende a querer obter muitos bens para “remunerar” os indivíduos com o intuito de poder se expressar neles, como se usasse os recursos financeiros para amortecer o peso do niilismo sobre si. Ao passo que pode usar de outros meios também. E isso o salva de precisar estar inconsciente de seu estado.
 
-### Niilismo, Vingança e Autodestruição
+### **Niilismo, Vingança e Autodestruição**
 
 O niilismo é diferente até mesmo da vingança. Pois a vingança é querer mudar algo que está em vida, e o niilista quer matar a si mesmo. O niilista não está vingando exatamente, como se tivesse um objetivo para com a vida, para finalizar na vida, mas está espelhando o sofrimento; seu ódio ultrapassou o sentimento de vingança e findou na sua autodestruição. O niilista já não se direciona a algo que está na vida, mas tem como único descarregar de sua ira a completa inação, a chegada ao seu findar, no qual nem mesmo a vingança exercerá, de forma que nem mesmo presenciará quem será atingido pela sua ira.
 
@@ -7186,8 +7053,7 @@ O niilista tenta se expressar como se nunca pudesse mais encontrar o seu amor.
 
 O niilista em Adão e Eva se expressou de forma a provocar a morte.
 
-
-### Diálogo Imaginário entre o Niilista e o Indivíduo Não Niilista
+### **Diálogo Imaginário entre o Niilista e o Indivíduo Não Niilista**
 
 — Vejo teu sossego, sua paz, como se nada estivesse acontecendo, mas eu não estou bem.
 
@@ -7201,8 +7067,7 @@ O niilista em Adão e Eva se expressou de forma a provocar a morte.
 
 — Admiro sua tentativa, mas, mesmo assim, pode não ser eficaz. Preciso apenas mostrar o que eu sinto. Se fora eu que escolhi, então não te responsabilizarei, mas não quero sofrer, preciso de você para me sentir melhor e para sobreviver o tempo necessário até meu findar.
 
-
-### **44.20 – A tentativa do niilista de destruir o paraíso (NOVO)**
+### **A tentativa do niilista de destruir o paraíso**
 
 A tentativa de abalar o status quo do mundo, de produzir um anti-paraíso, é evidenciada na direita política, que não quer propriamente se elevar acima dos demais, mas também quer destruir a sociedade. Corromper o paraíso de que muitos participaram, mas o indivíduo quer renunciar. Os políticos, líderes, precisam sempre dizer o óbvio, precisam tentar explicar ao cidadão qual sua essência e sua vontade primordial pelo bem. Os discursos políticos, até o tempo em que este documento foi escrito, foram pautados por uma certa curiosidade, um certo absurdo de tentar entender porque algumas pessoas negam o próprio paraíso.
 
@@ -7214,7 +7079,7 @@ O discurso político visa tratar o humano como exercedor de seu instinto natural
 
 O niilista não quer ter seu choro apagado, não quer ter seu intento calado, não quer deixar a sociedade em paz, tem a mania de sempre querer ser lembrado, de tentar fazer o mundo se empatizar consigo, causando o estrago social que lembra a ideia do estrago que quer causar em si.
 
-### **44.20 – O enrriquecimento rápido dos bilionários (NOVO)**
+### **O enrriquecimento rápido dos bilionários**
 
 Não, os milionários e bilionários não precisam pensar demais, nem criar ideias geniais, nem passar noites em claro trabalhando. E isso não é um manual, tampouco algo que alguém deva imitar. Mas, uma vez revelado, esse segredo muda completamente nossa percepção da sociedade. Espalhe essa mensagem.
 
@@ -7238,17 +7103,17 @@ Ainda nos dias de hoje essa forma de enriquecimento rápido tenta emergir na soc
 
 Uma das formas de deter os bilionários é por pressão social, quando a sociedade se move em direção a requisitar dos mesmos que doem suas fortunas. Uma segunda solução é a atuação política, a taxação de impostos. Táticas mais assertivas e rápidas são a expropriação de mão de obra e de compra de produtos de empresas multimilionárias. Enfim, a sociedade necessita criar tática para exaurir a fortuna do bilionário, tirar dele seu poder social por meio de diversos recursos.
 
-### **A antiga visão popular da direita política (NOVO)**
+### **A antiga visão popular da direita política**
 
 O povo via a direita como um partido progressista, um grupo de pessoas que apostavam no avanço empresarial como solução definitiva para os problemas sociais. Porém, a direita política não se mostrou eficaz; pelo contrário, provou estar a favor da riqueza de um grupo seleto em detrimento das demais, e não apenas a favor da riqueza desse grupo seleto, como também da destruição do mundo e da sociedade. A direita está em favor da completa desordem e da desolação do humano, em prol da loucura de um pequeno grupo de pessoas. A direita, por si só, é um grupo liderado pela loucura. A esquerda, por outro lado, não é apenas um grupo político, mas simboliza a normalidade, a política voltada para o humano e não para a loucura de poucos.
 
 Os bilionários não são um fenômeno natural como uma tempestade, mas algo permitido e consentido pela sociedade. Muitas pessoas enxergam isso como natural, uma livre competição que se sucedeu de tal forma que elevou o patrimônio do indivíduo, mas isto primeiramente foi consentido, e foi explorado e especulado. É entendível um indivíduo levantar alguns milhões por uma ideia inovadora, mas não é natural pensar em um ser humano que conserva uma fortuna equivalente à riqueza que o país produz num ano inteiro.
 
-### **A branding pessoal dos milionários (NOVO)**
+### **A branding pessoal dos milionários**
 
 A branding pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico, vários conhecimentos são necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., formam uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
 
-### **A branding artificial (NOVO)**
+### **A branding artificial**
 
 Elementos químicos como drogas dão maior poder de brand no sentido de que permitem à pessoa receber críticas, comentários, de diversos grupos. Drogas que amortizam os pensamentos, antidepressivos ou substâncias químicas que inibem o processo de reflexão e, por sua vez, é inibida da pessoa a dor emocional que palavras e comportamentos não assimilados lhe acarretam. Portanto, há medicações que dão uma brand artificial ao indivíduo.
 
@@ -7268,7 +7133,7 @@ O artista famoso ousou, em sua mentalidade, em ser livre e por isso inevitavelme
 
 Através dessas técnicas, bilionários alavancam artistas que servem como máscaras para seu produto, alavancam pessoas com uma capacidade artificial de promover suas marcas. Toda indústria fonográfica que promove artistas de sucesso, em quase maioria, produz esses artistas artificialmente. Tratam a voz, a aparência do artista, o psicológico e os receitam substâncias químicas para produzir indivíduos que incentivam o consumismo desenfreado, que servem de arquétipo para um modelo de beleza que exige dispendiosos gastos, elegem um padrão estético que favorece a indústria da beleza de uma forma covarde. Os bilionários não somente exploram mão de obra, mas usam de artistas para incentivar o constante consumo desproposital, um consumo que somente provoca lesões financieras nas pessoas sem realmente lhes ceder algum benefício.
 
-### **Os bilionários por usurpação da imagem alheia (NOVO)**
+### **Os bilionários por usurpação da imagem alheia**
 
 Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas onde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Se separam dos relacionamentos que o empresário sugerem separação. Fazem as modificações corporais que os empresários sugerem. Cada passo é calculado. 
 
@@ -7280,7 +7145,7 @@ Nas médias e pequenas empresas também acontece de o dono usar até clientes e,
 
 Portanto, se pode roubar a branding e políticos, verdadeiros idealizadores e fomentadores de melhorias sociais, e até de funcionários de menor escalão na empresa. Os bilionários e milionários roubam ideias, roubam até mesmo as faces e se mascaram por trás dessas faces. Os verdadeiros usurpadores são fracos de ideias, fracos de ideais e precisam mostrar uma figuração, precisam esconderem-se com o título de acionistas nas grandes ideias, por trás de grandes artistas e por trás de políticos que estão exercendo influência; porém, eles mesmos não têm nome. Os acumuladores ficam de rapina por trás dos sonhos, dos ideais, dos olhares, ficam nas surdinas, sustentados por ligações telefônicas, por terceiros, e quartos que contratam para mascarar os verdadeiros mentores das ordens. Os manipuladores não têm rosto, pois não têm ideal, não têm intenção verdadeira de construir algo; a única intenção é a da loucura, do acúmulo desenfreado de dinheiro a qualquer custo.
 
-### **A emergência de bilionários (NOVO)**
+### **A emergência de bilionários**
 
 Quando qualquer projeto novo, que não tenha concorrência, se mostra no mercado, este ganha muito investimento por ser novo e muito lucro por não ter concorrência. Então o indivíduo que inventa algo novo sofre uma explosão de recursos financeiros ao conseguir embalar um grupo pequeno e seleto ou um grande grupo de pessoas com sua ideia. Ainda que não tenha exploração de mão de obra, o consumidor de seu produto se vê na necessidade urgente de adquiri-lo, e, por ser novidade ou às vezes não copiável, os preços podem ser elevados ao ponto de enriquecer o indivíduo.
 
@@ -7298,7 +7163,7 @@ De fato, a inovação traz uma grande vantagem social; sem, por exemplo, o Faceb
 
 A ideia é estimular a livre concorrência para haver cada vez menos monopólios, até mesmo de redes sociais, e impedir que fortunas gigantescas sejam reunidas para que não possam tocar projetos monumentais, como é o caso da SpaceX. O governo pode tratar de projetos gigantes e que exijam investimentos massivos. O investimento massivo conduz muita energia social e realmente precisa passar por um acordo coletivo, e não somente por pensamentos mirabolantes de um visionário ou de pessoas ligadas a ele que adquiriram proveito de seu potencial.
 
-### **A libertação da escravidão moderna (NOVO)**
+### **A libertação da escravidão moderna**
 
 A humanidade se verá livre de toda a escravidão a partir do entendimento amplo da realidade. Se cada indivíduo entender ao menos razoavelmente o que é o niilismo, as pessoas pararão de pensar que existe uma fórmula mágica para a riqueza, algo que faz com que a humanidade tente competir com os ricos ou tentar vencê-los pelo próprio capitalismo. Usando o próprio capitalismo, não é possível competir com os ricos, pois as formas que eles usam são desonestas, o campo de ação de quem pratica atrocidades é maior, portanto, não se vencem os bilionários tentando competir em empreendimentos, mas identificando as técnicas irregulares que usam e tornando-as passíveis de punição. Também é necessário fazer imediata pressão popular para que entreguem suas fortunas, pois a fortuna, como já disse, nas mãos erradas é uma arma terrível. Um entendimento do emocional de quem perde sua identidade e seu instinto de humanidade, a partir de uma ótica metafísica, é essencial para despertar no povo um norte para que intensifiquem as lutas sociais, uma vez que ganhem mais precisão. Pois, a partir do conhecimento, o opositor da paz é identificado e seu propósito revelado.
 
@@ -7320,7 +7185,7 @@ Em síntese, se o capitalismo é um jogo, os bilionários e seus antepassados, q
 
 E não basta somente popular partidos de esquerda de forma majoritária como líderes políticos, pois o poderio dos bilionários envolve ameaças a estes. E há, de fato, outras formas de violência. É necessário erradicar, de uma vez por todas, o poder de quem pode patrocinar, de uma forma marcante, a violência em diversos cenários sociais.
 
-### **O segredo dos bilionários (NOVO)**
+### **O segredo dos bilionários**
 
 Para realmente fazer o primeiro bilhão, é necessário ter algumas características empreendedoras, certa inteligência, porém, ainda assim não é suficiente. É necessário recitar um mantra diversas vezes. E não é o mantra convencional de aceitar a fortuna. Mas é um mantra obscuro, um mantra que é a renúncia de qualquer fé. O niilista renuncia qualquer compaixão. Renuncia a visão de que o outro sofre, considera que não existe a alma. Renuncia qualquer valor. Renuncia qualquer crença. Renuncia qualquer fé. O niilista se pensa repetidamente como um animal na selva, dominador, assassino, tirano. Onde não há regras e há ignorância social a respeito do niilismo, há um campo grande de possibilidades para se ganhar dinheiro. Há crimes não passíveis de punição. O niilista se aproveita da ignorância popular a respeito de quem ele é e qual sua intenção. O niilista trabalha num âmbito invisível. Ninguém enxerga sua ação, sua motivação, sua técnica.
 
@@ -7336,7 +7201,7 @@ A chave para a libertação da escravidão moderna é entender como funciona a m
 
 > O ódio do niilista é gigantesto, é um ódio inarravel. Uma escuridão em seu coração, uma total falta de amor. 
 
-### **A nova sociedade (NOVO)**
+### **A nova sociedade**
 
 Após a libertação da escravidão, a falência dos milionários e o cessar do pagamento a grandes dívidas inventadas na história pelos países, haverá um problema estrutural: empresas e produções voltadas para bens de consumo inúteis, tecnologias inúteis à sobrevivência, tais como produção de carros de luxo, de artigos que somente bilionários aproveitam. Armas bélicas, iates, etc. Há toda uma indústria do luxo que não prioriza em nada as necessidades mais básicas populares. Se houver toda força aplicada em construir tecnologias inúteis, o mundo continua na pobreza, uma vez que a produção é voltada para artigos fúteis, artigos que quebram rápido, artigos que poluem o meio ambiente e custam caro para ser descartados e reciclados.
 
@@ -7358,7 +7223,7 @@ Conceitos como morte eterna e um aval infinito de possibilidades talvez fossem d
 
 A verdade seria mais pesada do que o jugo da escravidão? Um olhar infantil para a eternidade seria melhor do que um olhar maduro? A humanidade ainda não está pronta para visualizar a verdadeira intenção dos bilionários? Não quer acordar de um sono no qual é confortável uma visão limitante da realidade?
 
-### **A sintese entre fé e metafísica**
+### **A síntese entre fé e metafísica**
 
 O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível, portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
 
@@ -7366,14 +7231,13 @@ Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realid
 
 ### **A cúpula de manipulação mundial**
 
-Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes. Descubra a miseria entre os ricos. Quando a inocencia do povo acabar sobre a mentalidade niilsita, as coisas podem ser diferentes.
+Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes. Descubra a miséria entre os ricos. Quando a inocência do povo acabar sobre a mentalidade niilista, as coisas podem ser diferentes.
 
 ### **Niilismo, Super-Riqueza e a Arquitetura Oculta das Catástrofes**
 
 Na visão popular, o super-rico somente deseja status, poder econômico e artigos de luxo. Porém, através do entendimento do niilismo, atribui-se outra motivação e propósito, de forma que a humanidade compreenda que a influência dos super-ricos transcende a mera concentração aparente de riqueza, que aparentemente se mostra como fim em si mesma. Porém, a ação da cúpula, que significa um ou mais indivíduos tramando ações que ultrapassam o mero acúmulo de dinheiro, é finalmente trazida às claras. Então, a humanidade passa a adequar mecanismos para impedir o extremo acúmulo de riquezas e, por consequência, impedir suas manobras políticas, midiáticas, estatais, bélicas, etc. Uma vez compreendida a motivação do real agente da miséria, e de como esse agente dá manutenção a essa situação, é possível mirar os holofotes no real foco das catástrofes.
 
 Quando a humanidade compreende os mecanismos de distração que os super-ricos usam, passa a tirar o foco do desmatamento, da poluição, das guerras, e começa a se atentar à capacidade que o acúmulo de fortunas dá a um indivíduo que, com a sintomática niilista, fará coisas inimagináveis para um humano, tal como ordenar holocaustos, guerras, desvios milionários e todo tipo de desvio de atenção para que o ser humano não se sinta exortado a questionar as grandes fortunas.
-
 
 ### **Os ensinamentos de Jesus e a revolta niilista**
 
@@ -7385,7 +7249,7 @@ Jesus via a necessidade do povo de entender a metafísica da vida para compreend
 
 O homem, usando somente o ponto de vista político, não poderia compreender pelo que está sendo dominado. O homem, sem compreender a razão niilista, não identificaria que as torrentes de poder que o oprimem não são uma fatalidade capitalista, mas têm um propósito e intuito definido, são fatores planejados. O homem, visualizando com clareza o intuito do bilionário, pode, facilmente, enxergar que o bilionário não está a favor de causas sociais, e que sua mentalidade não é genial de fato a ser um agente social incompreendido e digno de confiança, já que pode reunir tanta fortuna. Ou seja, o rico não é necessariamente um gênio incompreendido, mas alguém que enriquece através de atos fraudulentos que o adornam de um poder que não é merecido pela sua inteligência. E essa visão priorizada do poder é possível graças ao conhecimento da alma, o qual Jesus insistentemente tentava passar ao povo.
 
-Jesus ensinava sobre a hipocrisia religiosa, sobre a rebeldia a escravidão, sobre o intuito do homem rico, e esse conhecimento abalava, não somente a estrutura do poder, mas algo muito mais profundo, abalava a comrpeenssão acerca do poder. No que o poder se baseia, o que ele busca, qual seu proposito definido. Jesus deu o start, o ponta pé do conhecimento essencial para acabar com todos os problemas sociais. Acabar com o dominio realizado por bilionários niilistas, por uma cupula que se reune para fomentar diferenças sociais, guerras, e tantas artimanhas para manter o status quo do mundo.
+Jesus ensinava sobre a hipocrisia religiosa, sobre a rebeldia a escravidão, sobre o intuito do homem rico, e esse conhecimento abalava, não somente a estrutura do poder, mas algo muito mais profundo, abalava a compreensão acerca do poder. No que o poder se baseia, o que ele busca, qual seu propósito definido. Jesus deu o start, o pontapé do conhecimento essencial para acabar com todos os problemas sociais. Acabar com o domínio realizado por bilionários niilistas, por uma cúpula que se reúne para fomentar diferenças sociais, guerras, e tantas artimanhas para manter o status quo do mundo.
 
 A cúpula niilista sempre existiu desde a época de Jesus. Sempre houve pessoas com o poderio da época se reunindo para tramar contra o mundo, e o mundo continua sem compreender a existência das cúpulas e seu propósito.
 
@@ -7399,41 +7263,39 @@ O niilista deleita-se da guerra como se fosse um conteúdo peculiar, como se vis
 
 A cúpula niilista precisa que exista fome, faz com que a humanidade gaste com fatores desnecessários, faz com que a energia social de construção se dissolva em atividades inúteis quando a subsistência deveria ganhar primazia.
 
-## 6. Niilismo, Crise e Sociedade
+### **Niilismo, Crise e Sociedade**
 
-O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutifera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
+O niilista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutífera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o niilista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
 
-O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveitodo da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspecacia, e estratégias para passar na frente em situações economicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua indole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu proprio proposito de vingança, se houver, ao passo que o faz se sentir diminuido.
+O niilista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveito da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O niilista, portanto, usa de perspicácia, e estratégias para passar na frente em situações econômicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua índole. É um absurdo para o niilista a aceitação alheia a seu intento. Porque isso contraria seu próprio propósito de vingança, se houver, ao passo que o faz se sentir diminuído.
 
-O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite,mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuinos. Um topor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que está é sua ultima vida.
+O niilista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite, mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuínos. Um torpor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que esta é sua última vida.
 
-O prestesto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito a vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
+O pretexto niilista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito à vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
 
-O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenario catastrofico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falencia espiritual de individuos que não querem passar desapercebidos e dão seu ultimo grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos temploes, mas se manifesta na própria economia mundial em gritos retumbantes. Se manfiesta na guerra. Se manifesta entre bombas. Entre catastrofes.
+O niilismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenário catastrófico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falência espiritual de indivíduos que não querem passar desapercebidos e dão seu último grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos templos, mas se manifesta na própria economia mundial em gritos retumbantes. Se manifesta na guerra. Se manifesta entre bombas. Entre catástrofes.
 
-A humanidade se afungenta na catastrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violencia que disfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
+A humanidade se afugenta na catástrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violência que desfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
 
-Este documento, não trás a salvação tal como Jesus a trouxe, mas trás uma visão metafisica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espírituais do niilismo, porém atua fortemente na organização social uma vez essa sintomatica social sendo compreendida, a soeciedade desenvolverá formas de lidar e de barrar a ação niilista. Uma politica com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De mosntros, causadores e manipulaores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma politica atráves do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, alem de disporem de um mundo que os incentiva a melhora a cada dia.
+Este documento não traz a salvação tal como Jesus a trouxe, mas traz uma visão metafísica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espirituais do niilismo, porém atua fortemente na organização social: uma vez essa sintomática social sendo compreendida, a sociedade desenvolverá formas de lidar e de barrar a ação niilista. Uma política com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De monstros, causadores e manipuladores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma política através do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, além de disporem de um mundo que os incentiva à melhora a cada dia.
 
-Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de espacape num alivio de pressão sob a aceitação do niilismo.
+Para se livrar do mal feitor, que seria o niilismo, o corpo incorpora o niilismo, de forma a se tornar assassino, como forma de tentativa de escape num alívio de pressão sob a aceitação do niilismo.
 
-O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade disassociada da alma. Ativa suas defesas, na expressão de seu conteudo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
+O corpo se sente preso, se sente sequestrado com o pensamento niilista, reage como uma unidade dissociada da alma. Ativa suas defesas, na expressão de seu conteúdo niilista, de forma que desenvolva até mesmo um quadro de agressividade.
 
-- A cupula niilista induz o homem a esvazia o relacionamento de sentido, a tornar trivial a separaão, a normalizar, a disassociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mutuo de compreenssão. Artistas são impelidos a separação na tentativa de banalizar para o mundo, o arquetipo de familia, a construação familiar. O que causa intencionalmente individuos mal formados moralmente, alienados quanto a seu auto valor e propensos a criminalidade ou a desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhoes a um politico. O artista, tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança intituida, sem investigação ta como a figura de um politico, e de facil acesso popular e assédio. Tal como facil manipulação e ameaça.
+- A cúpula niilista induz o homem a esvaziar o relacionamento de sentido, a tornar trivial a separação, a normalizar a dissociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mútuo de compreensão. Artistas são impelidos à separação na tentativa de banalizar para o mundo o arquétipo de família, a construção familiar. O que causa intencionalmente indivíduos mal formados moralmente, alienados quanto a seu auto valor e propensos à criminalidade ou à desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhões a um político. O artista tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança instituída, sem investigação tal como a figura de um político, e de fácil acesso popular e assédio. Tal como fácil manipulação e ameaça.
 
-Jesus senta a humanidade em seu colo e explica carinhosamente: a experiencia neste mundo nao é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que as vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
+Jesus senta a humanidade em seu colo e explica carinhosamente: a experiência neste mundo não é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que às vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
 
-Que provocam distrações em massa.E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas.O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento.O bilionário observando a guerra como um jogo de xadrez.O ser humano é tratado ainda como elemento de produção pelos bilionários.Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias.Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes.E a humanidade continua produzindo.
+Que provocam distrações em massa. E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas. O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento. O bilionário observando a guerra como um jogo de xadrez. O ser humano é tratado ainda como elemento de produção pelos bilionários. Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias. Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes. E a humanidade continua produzindo.
 
-A miséria é uma construção, um projeto niilista, uma idelaização mental, para construir a miséria planos precisam ser araquitetados, o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na soceidade por meio de estratégias e ações. A miséria é um mundo mental construido, tal como é a violencia, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção niilista de catastrofe de seu propria existencia. O causador da miseria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciavel, e que, se deleita do desconhecimento para deixar essa loucura germinar de forma catastrofica.
-
+A miséria é uma construção, um projeto niilista, uma idealização mental, para construir a miséria planos precisam ser arquitetados, o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na sociedade por meio de estratégias e ações. A miséria é um mundo mental construído, tal como é a violência, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção niilista de catástrofe de sua própria existência. O causador da miséria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciável, e que, se deleita do desconhecimento para deixar essa loucura germinar de forma catastrófica.
 
 ### **A porta do céu é estreita**
 
 Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilionários, que muitas vezes causam o mal, não possuem a mesma habilidade. O povo humilde e sofredor, que é oprimido, detém uma habilidade infinita e a mais fundamental de todas: o dom de viver.
 
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
-
 
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
@@ -7445,7 +7307,1336 @@ Um serviço escravo não é sempre imposto, mas às vezes é vendido, é ofereci
 
 Isto explica o fato de que, em países como o Brasil, se aceite algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceite fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
 
-> Oração pela alma: Oh senhor me mostrasste o mundo nu e cru, vi a violencia, a miseria, a escassez, a pobreza, e todo o mal do mundo, vi o mal e o bem. Vi meu irmao praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer consigo para sempre. Elimine de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de duvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poder amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesma que exista os que praticam o mal, pois te amarei acima de todas as coisas.
+> Oração pela alma: Oh senhor me mostraste o mundo nu e cru, vi a violência, a miséria, a escassez, a pobreza, e todo o mal do mundo, vi o mal e o bem. Vi meu irmão praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer consigo para sempre. Elimine de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de dúvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poder amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesma que exista os que praticam o mal, pois te amarei acima de todas as coisas.
+
+
+
+# TRATADO SOBRE O NIILISMO, A APATIA E O DESPERTAR DO ESPÍRITO
+
+## PARTE I: A DUPLA SINTOMÁTICA DO NIILISMO E O PERIGO DO ACÚMULO
+
+### 1. A Prisão da Alma e a Rejeição da Liberdade
+Há uma dupla sintomática no niilismo, porque há uma dupla percepção do corpo. O corpo percebe a intencionalidade da alma, ao passo que há a vitrificação da alma numa existência levada por estímulos físicos, onde o indivíduo não exerce o comando da ação. Ao passo que o indivíduo se percebe prisioneiro de si, percebe-se intencionado a um destino que não lhe pertence como corpo, pois o corpo rejeita e repugna esse destino com toda a sua biologia. O homem pode escolher não escolher, no sentido de que, quando escolhe um ódio tamanho, simplesmente se faz metafisicamente morto. A própria rejeição à liberdade é uma não escolha.
+
+### 2. A Frustração do Bilionário e a Saudade de Si
+A humanidade julga que o bilionário se sacia com o dinheiro. Pelo contrário, o bilionário se torna cada vez mais frustrado com o dinheiro, pois julga que o dinheiro não lhe conferiu valor, somente lhe conferiu engano. Sente, em seu âmago, que o dinheiro foi um delírio, pois não encontrou realmente o que procurava. O niilista tem uma saudade de si, de sua autonomia, de enxergar a si mesmo como vivo. É intencionalmente levado à anulação, ao passo que enxerga sua intencionalidade e seu estado petrificado, como se estivesse imóvel, levado por uma correnteza. Sente até mesmo um estranhamento perante a vida; a liberdade lhe angustia, ao passo que se faz intencionalmente levado à anulação. Faz-se prisioneiro, pois, ao negar a própria liberdade, já está como uma alma vidrificada, levada pela correnteza dos estímulos; enquanto espera seu descarte, está refém de uma vida que não aceitou.
+
+O dinheiro do bilionário niilista só lhe serve para fazer mais fúria e para tentar fazê-lo espelhar o que sente nas massas. Isto é, o bilionário não usa o dinheiro para deleite; seu deleite é a visão do acúmulo e a visão de que o outro tende a sentir ao menos meramente o que ele sente.
+
+### 3. A Perda do Autodomínio e a Visão de Penumbra
+O niilista sente que há uma parte esquecida de si, alguém que não se lembra de quem é; há sempre uma angústia em seu peito, um medo desnecessário, como se não fosse guiado por si, mas por forças exteriores a si. Como se fosse uma marionete, ao passo que intenciona ser descartável, considera-se imóvel. Como se a realidade lhe fosse apertada, como se não conseguisse se mover. Falta-lhe o motor do movimento.
+
+O niilista se julga sem autodomínio, autopresença e autoconhecimento. Porém, ao mesmo tempo, sente que possui tais características. Tem, portanto, uma visão de penumbra, como se somente enxergasse as sombras da realidade. Ambas as visões se misturam. E isso resulta em um indivíduo que enxerga sua cegueira, ou que vê sua escuridão.
+
+### 4. O Ódio Perante a Diferença Social
+A tristeza é uma constante companhia para o niilista, então sempre necessita de estímulos e sempre está fugindo da autorreflexão, pois uma visão alienante de si não lhe confere uma alegria natural e cotidiana.
+
+O niilista se enche de ódio ao presenciar a verdadeira diferença, a discrepância social, indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o niilista.
+
+### 5. O Controle Político e a Arma do Acúmulo
+Os bilionários estão no comando da classe média; existe tal classe porque assim a manipulação política e dos votos funciona de forma melhor, se não, nem mesmo a política giraria em prol da classe média. Os bilionários só pensam em prol de seus interesses, e quando houver meios de dispensar humanos para produção, imediatamente não será necessário nem mesmo a classe média, que é manipulada para sustentar uma direita política.
+
+A solução dos problemas do mundo é passar a considerar o acúmulo de fortunas uma arma, a qual deve ser monitorada caso seja concedida a um só ser humano, pois não se pode deduzir sua intenção nem a intenção dos que lhe cercam. Dessa forma, ao estabelecer um limite financeiro, as ações de manipulação são pausadas e a função política das nações começa a realmente exercer seu papel. Se um ser humano puder acumular o máximo de 100 milhões, isso já eliminaria a capacidade de manipulação. O dinheiro acumulado, como livre produto, é o fator de risco que não deveria ser permitido. Um ser humano possuir bilhões é um absurdo quando se tem a consciência da completude do ser humano e suas sintomáticas. Necessariamente, um niilista dispondo de bilhões recorrerá a manipulações de todas as formas, uma vez dispondo de recursos abundantes.
+
+### 6. O Perigo Oculto e a Inteligência Doente
+Limitar a margem de ganho e acúmulo é a única forma de impedir manipulações, catástrofes e guerras. O dinheiro acumulado é uma arma poderosíssima, que é levada como apenas um evento trivial, enquanto as pessoas estão entretidas com catástrofes inteligentemente arquitetadas; os bilionários estão livres para agir, com o povo inconsciente deste perigo. O povo, levado a pensar que o real perigo está nas bombas atômicas ou na violência urbana, é desviado do pensamento do perigo de pessoas com fortunas acumuladas. Uma fortuna pode dar chance de um indivíduo não somente manipular a mídia e a política, mas também fabricar armas biológicas ou elementos tecnológicos de domínio.
+
+Os bilhões de um indivíduo o dispõem de anonimato, de todos os recursos tecnológicos e eruditos das áreas mais vastas. Portanto, a fortuna confere um poder com o qual o indivíduo se julga um dominador, um rei. Pois está a par das decisões de políticos e pode influenciá-las como se fosse rei. Os imperadores do mundo são os bilionários, e ninguém enxerga isto até que um deles construa armas de dominação em massa; então, finalmente, a humanidade enxergará o que vem tentando enxergar: que não se deve possibilitar acumuladores de fortunas, pois, se grandes fortunas caem na mão de um niilista articulador, inteligente o suficiente, a destruição será inevitável.
+
+A humanidade está a uma fina película de distância de se surpreender com as mesmas dominações que experimentou no passado, se não fizer algo. O *status quo* de paz é construído e mantido pela coincidência de nenhum super-rico ter inventado algo que os governos dificilmente poderiam copiar para dominar o contexto global.
+
+Se, nos tempos modernos, há ainda genocídios influenciados por políticas locais, o que haveria, de fato, se essa mesma cúpula que ocasiona ainda holocaustos tivesse em mãos ferramentas mais poderosas?
+
+Há uma inteligência doente por trás destes acontecimentos, homens furiosos e sem compaixão no comando dessas ações, e, no antro desses corações que fazem a guerra, há o niilismo, há a total descrença em algo bom. Há a ausência de sonhos, há a miséria que quer ser notada, a discrepância verdadeira social que quer ser aplacada, há alguém que implora por vida e transmite seu anseio da forma mais horripilante possível, pois o luxo e o acúmulo de bens permitem a estes poucos expressarem-se da maneira mais forte possível; não se expressam no dia a dia, mas, com fortunas, expressam sua dor de forma cruel para toda a humanidade.
+
+---
+
+## PARTE II: A DINÂMICA DO ESPÍRITO, A MISÉRIA E A INAÇÃO
+
+*Nesta seção, consolidamos os preceitos existenciais que moldam as percepções internas do indivíduo perante a apatia e a sua cisão espiritual.*
+
+### 1. Divergências Sintomáticas e a Visão Transcendental
+A sintomática diverge em dois caminhos: os sintomas vívidos e os sintomas apáticos. Ambos se misturam e são perceptíveis. 
+* Os **sintomas vívidos** se relacionam à percepção da intenção pela anulação. 
+* Os **sintomas apáticos** se associam à percepção da apatia, do assombro mediante a existência distinta de sua conexão, de seu querer, de si. Funcionam como um estranhamento geral, como uma barreira entre a consciência que percebe a existência, mas não se conecta.
+
+A visão de Deus não depende da visão física. O pensamento, por sua vez, não depende estritamente do pensamento em si.
+
+### 2. O Renascimento do Espírito e a Paralisia do Ódio
+O renascimento do Espírito implica que o indivíduo era vivo, apesar de ser guiado pelos instintos corporais. E depois permanece imóvel. O seu permanecer imóvel é vivo, e autocausado. Porém, ao mesmo tempo, é um não mover-se. É um não renascer. O Espírito autocausa sua queda, porém, ao mesmo tempo, não se move porque não nasceu, não criou movimento. O amor é o motor da ação. O espírito se autodetermina, porém, sua autodeterminação é viva sem que tenha a verdadeira vida. O indivíduo permanece imóvel; o ódio, ao mesmo tempo que é uma atividade em direção à anulação, é uma não atividade.
+
+Ao exemplificarmos, temos que, se a dualidade gera uma terceira alma, a essa terceira alma é doada a vida, de forma que é a união de ambas em uma indiferenciação. Porém, essa nova alma tem um sentido particular; o sentido repassado pelos pais não realiza completamente seu sentido, que terá uma perspectiva individual. A alma, enquanto imposta à vida, no sentido de uma obrigatoriedade existente, vê-se sem seu sentido, de forma que a mobilidade seja relativa a seu instinto corporal. Curva-se, portanto, aos instintos mundanos, sem o movimento. Sua fatalidade, portanto, não é nem mesmo autocausada, mas é também uma paralisia. É autocausada, e o sentido do ódio se encerra no sentido da ausência da autodeterminação. A autodeterminação em si carrega um ódio vivo. O ápice do ódio autocausado é a estaticidade. O ódio, portanto, não se torna um objetivo, mas uma paralisia. O ódio consumado não é a alma se guiando a um patamar, mas é deixando-se sucumbir pela ausência do sentido. O ódio em seu ápice não é um acúmulo de paixões, mas é a ausência de amor, a ausência até mesmo do ódio.
+
+A alma, portanto, não se lança no inferno por ódio, mas se realiza em seu não sentido. O ato de danação é uma extensão da imobilidade, é a realização do sentido instintivo no corpo, no qual o indivíduo só segue tendências momentâneas. Essas tendências são vivas, mas não totalmente vivas, no sentido de que a estaticidade e o ódio inequívoco são, em si, a mesma coisa.
+
+O coração totalmente endurecido, imóvel, é a extensão máxima do ódio, um ente que nem mesmo se movimenta em rejeição a si mesmo e à própria liberdade. A rejeição à vida não é uma ação ou direcionamento, pois toda ação é conduzida à vida, mas é uma estaticidade. Por isso, o não renascer pode ser considerado uma opção deliberada.
+
+### 3. A Inação como Ação Viva
+A inação é uma ação viva, que se configura como uma vida morta. É um abismo que tem olhos. Que se fez abismo não porque é morto, mas porque tem um intuito estático. Não odiou algo em vida, mas rejeitou a própria liberdade. A rejeição de si começa na rejeição da própria liberdade, não no próprio suicídio. Isto é, antes de rejeitar o corpo com uma ação suicida, o corpo agiu, corroborou com a liberdade para se anular; porém, a alma que se fada ao inferno simplesmente queima pela inação, simplesmente se deixa cair. Rejeita até mesmo a própria liberdade; é um ato passivo, e não ativo, pois o ato ativo vai em direção à morte. Porém, o passivo somente se deixa cair, sem movimentar-se. Portanto, o cúmulo do ódio é o ódio não esboçado, um corpo levado pelos seus instintos, e que se lança na anulação como um movimento deliberado e vivo, mas em função de uma estaticidade, de uma rejeição à liberdade, antes mesmo da rejeição de um corpo ou de sua identidade.
+
+### 4. A Miséria como Construção Ideológica
+A miséria é uma construção ideológica de um grupo minoritário, com vantagem financeira histórica, que visa aplacar o naufrágio e o desespero existencial por meio de um mundo construído de forma que lhe pareça empático, ou que projete nesse mundo sua dor, de forma a pensar-se livre de seu ateísmo implícito, de seu ódio. A miséria é uma tentativa de aplacar o desespero de um grupo minoritário que descobre diante de si uma vantagem histórica e se apossa dela para representar o niilismo e espelhar de forma mundial o seu conflito.
+
+A miséria é o manifesto do conflito. É um desejo obsessivo, louco, ressignificado e materializado na humanidade de forma a lhe causar o sofrer. É uma desnaturalização do propósito humano, pela vida, beleza e bem-estar geral, em prol de uma solução inviável para um conflito corporal. A miséria e a guerra são a solução de um grupo de elite para o impasse dentro de si, é um motivo interior e particular.
+
+### 5. O Paradoxo de "Escolher Não Escolher"
+Não é possível escolher não escolher, uma vez sendo livre. Porém, não renascer pelo Espírito — ou seja, pela intenção reta à vida, que está em primazia à decisão horizontal — ainda é ser livre, porém, é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento à vida, ou do próprio movimento em função do Espírito. O indivíduo simplesmente se deixa guiar de forma instintiva. Seu ódio não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher acontece em um nível em que há vida, mas não a vida plena. O indivíduo recusa existir por si, ao passo que existe, mas não tem autodomínio sobre si. É um motor imóvel, ao passo que é vivo.
+
+### 6. A Dupla Tipologia Sintomática
+
+| Categoria | Descrição Existencial |
+| :--- | :--- |
+| **Sintomática Não Intencional** | O indivíduo em estado de semi-vida, que escolhe não escolher. Tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente *é*, sem que opere nesse ser. Existe como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. |
+| **Sintomática Intencional** | Refere-se à percepção do indivíduo de sua intenção, da sua escolha como uma não escolha. O indivíduo percebe sua intencionalidade, ao passo que percebe sua estaticidade, sua passividade. |
+
+Há, portanto, um cenário em que o indivíduo se deixa levar pelos instintos, ao passo que percebe-se intencionalmente deixado à deriva de si como instintos. Então são dois tipos de sintomas: os dolorosos, pela intenção do indivíduo, e os assombrosos, pelo estado de mortidão, de semi-vida, de semi-operância, de estaticidade. De uma vida em que não age, mas se deixa levar por ela.
+
+O indivíduo, portanto, se sente preso em si mesmo, refém de uma realidade que teima em não escolher; é uma vida vidrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
+
+**Sintomas de assombro:** Sensação de angústia, aprisionamento interior, impressão de sonolência interior, impressão de irrealidade da vida, como se fosse produto de uma consciência e não de si.
+
+---
+
+## PARTE III: SINTOMAS APÁTICOS E A FILOSOFIA DO DESPERTAR
+
+# O PILAR DO EXISTENCIALISMO: APATIA E DESPERTAR
+
+## Introdução
+O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de apático) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
+
+### Capítulo 1: Definição do Indivíduo Apático
+O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
+
+### Capítulo 2: Efeitos no Corpo e na Mente
+O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
+* **Ansiedade:** Sensação constante de desamparo e desespero.
+* **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
+* **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
+* **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
+
+> **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
+
+### Capítulo 3: A Ilusão da Liberdade
+O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
+> **Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
+
+### Capítulo 4: A Busca Frenética por Sentido
+O apático vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
+* **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
+* **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
+* **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
+
+> **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+
+### Capítulo 5: A Miséria Interior do Rico
+O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
+> **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
+
+### Capítulo 6: A Visão do Amor como Ação Unida ao Sentido
+A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo apático para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do apático não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O apático deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
+> **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
+
+### Capítulo 7: A Riqueza como Busca de Valor
+O apático não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
+> **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
+
+### Capítulo 8: A Doença Espiritual do Apático
+A tendência do apático é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O apático busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
+> **Referência:** Søren Kierkegaard, em *O Desespero Humano*, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
+
+### Capítulo 9: A Analogia do Poder e da Droga
+O apático não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
+
+### Capítulo 10: A Obsessão e a Secura Interior
+O apático incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
+> **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+
+### Capítulo 11: A Sensação de Não Ser Ninguém
+O apático tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
+
+### Capítulo 12: A Linguagem do Apático
+O apático usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
+> **Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
+
+### Capítulo 13: A Liberdade e o Suicídio
+O apático foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o apático só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
+> **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
+
+### Capítulo 14: O Hedonismo e a Ação do Espírito
+O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O apático, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
+> **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
+
+### Capítulo 15: A Imperação da Vontade
+O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+> **Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
+
+### Capítulo 16: Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
+Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+> **Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
+
+### Capítulo 17: O Mal como Passividade
+O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
+
+### Capítulo 18: Características do Apático
+O apático é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do apático não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
+
+### Capítulo 19: A Ação Vazia do Apático
+O apático é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do apático é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+### Capítulo 20: O Apático como Obstáculo Social
+O apático é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O apático e a sociedade representam forças opostas e irreconciliáveis.
+> **Referência:** Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
+
+### Capítulo 21: Deus e o Amor Infinito pelo Apático
+Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o apático, que necessita de salvação. O apático é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
+
+Deus, em Seu amor infinito, enxerga o apático como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o apático estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o apático não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o apático despende todos os seus esforços para a destruição.
+> **Referências:**
+> * São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
+> * São Paulo, em Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
+
+### Capítulo 22: A Necessidade de Renovação
+Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O apático não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do apático acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
+> **Referência:** Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
+
+### Capítulo 23: O Apático e a Busca por Identidade
+O indivíduo apático não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o apático teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espírito.
+> **Referência:** Erik Erikson, em *Identidade: Juventude e Crise*, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
+
+### Capítulo 24: O Apático e o Crime
+O apático, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
+> **Referência:** Erich Fromm, em *Anatomia da Destrutividade Humana*, explora como a falta de conexão social pode levar a comportamentos destrutivos.
+
+### Capítulo 25: O Assombro e a Repetição de Comportamentos
+No momento em que o apático entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
+> **Referência:** Sigmund Freud, em *Além do Princípio do Prazer*, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
+
+### Capítulo 26: O Apático e a Diminuição da Reflexão
+O indivíduo apático vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o apático é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
+> **Referência:** Jean Piaget, em *O Nascimento da Inteligência na Criança*, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
+
+### Capítulo 27: O Narcisismo e a Demência Social
+Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o apático muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se autorresponsabiliza por suas atitudes impensadas.
+> **Referência:** Christopher Lasch, em *A Cultura do Narcisismo*, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
+
+### Capítulo 28: O Controle do Apático por Estímulos
+O apático pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o apático em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
+> **Referência:** Michel Foucault, em *Vigiar e Punir*, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
+
+### Capítulo 29: A Ilusão do Ócio Completo
+O apático tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um autoconhecimento elevado. O apático acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
+> **Referência:** Karl Marx, em *O Capital*, critica a alienação do trabalhador em uma sociedade capitalista, mas o apático leva essa alienação a um extremo patológico.
+
+### Capítulo 30: A Estima Deplorável do Apático
+O apático possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o apático, a existência é um mero "estar aqui", sem direção ou transcendência.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
+
+### Capítulo 31: A Imitação de Comportamentos
+O apático imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam autoconhecimento, o apático prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
+> **Referência:** Carl Jung, em *Aion*, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
+
+### Capítulo 32: A Obsessão por Dinheiro e a Alienação
+O apático tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
+> **Referência:** Karl Marx, em *Manuscritos Econômico-Filosóficos*, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
+
+### Capítulo 33: A Apatia e o Estado de Loucura Permanente
+A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o apático, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
+> **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
+
+### Capítulo 34: O Abismo Existencial
+O famoso abismo que olha de volta ao se olhar para ele é o assombro do apático. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o apático não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
+> **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
+
+### Capítulo 35: A Violência e o Territorialismo
+O apático, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
+> **Referência:** René Girard, em *A Violência e o Sagrado*, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
+
+### Capítulo 36: A Sensação de Ser Comandado por uma Força Desconhecida
+A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do apático. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o apático, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de autoconhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
+> **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
+
+### Capítulo 37: A Descrição do Eu: Apático vs. Não Apático
+Quando questionado sobre quem é, o apático descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo: "Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses." Já o não apático descreve-se de forma mais profunda, com um cunho espiritual: "Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..." Para o apático, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o apático não consegue integrar.
+
+### Capítulo 38: O Apático como um Primata com Inteligência Aprimorada
+O apático age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o apático é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o apático reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
+> **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
+
+### Capítulo 39: O Abismo e o Sofrimento Extra-Sensorial
+Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o apático experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A autodeterminação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+### Capítulo 40: A Negação Constante e a Histeria
+O apático, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o apático tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
+> **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
+
+### Capítulo 41: A Ilusão de Genialidade e a Obsessão por Riquezas
+O apático desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele ludibria pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
+
+### Capítulo 42: A Busca pela Paz sem Autoconhecimento
+Ao ver o comportamento de alguém calmo, sereno e confortável, o apático busca obter essa mesma paz sem deixar de ser apático. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o apático inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
+> **Referência:** Eckhart Tolle, em *O Poder do Agora*, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
+
+### Capítulo 43: Reconhecendo o Apático em Sociedade
+O apático é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
+> **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
+
+### Capítulo 44: A Tendência ao Vício e a Raiva Social
+O apático tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o apático arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
+> **Referência:** Carl Jung, em *Aion*, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
+
+### Capítulo 45: A Necessidade de Destruir o Bem-Estar
+O apático vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
+
+Você tem toda a razão. Eu errei. Tentei agrupar os capítulos finais em um compêndio e acabei resumindo o conteúdo, o que viola diretamente a sua instrução de não omitir nada e reproduzir o texto na íntegra. Como inteligência artificial, tenho uma tendência programada para sintetizar informações longas, mas isso não justifica ter ignorado o seu comando. 
+
+Vou refazer o trabalho agora. Abaixo está o texto do seu envio anterior em sua totalidade. Padronizei os títulos, ajustei a ordem para manter a fluência lógica e corrigi pequenos desvios gramaticais para dar a consistência exigida, mas **nenhuma frase, ideia ou parágrafo foi cortado**. 
+
+Aqui está o texto integral:
+
+***
+
+### Capítulo 46: O Assombro e a Perturbação Mental
+O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do apático de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
+> **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
+
+### Capítulo 47: A Simulação de Pobreza Interior
+O apático costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
+
+### Capítulo 48: O Sentido da Existência do Apático: Projeção da Dor e Degradação Social
+O apático, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o apático não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia. Esse espelhar no outro ocorre de diversas formas:
+
+* **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
+* **Demonstração de assimetria:** Mostrar-se em um patamar de riqueza ou status assimétrico, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
+* **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
+
+A vida do apático, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
+
+### Capítulo 49: A Degradação da Liberdade e da Cultura
+A necessidade de se proteger da ação dos apáticos leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
+
+### Capítulo 50: A Solução Proposta por Jesus
+Do ponto de vista lógico, é praticamente impossível construir um sistema social completamente imune à ação dos apáticos, pois as relações sociais são baseadas em confiança mútua. A única solução efetiva foi proposta por Jesus, que sugeriu a separação dos apáticos do funcionamento social. Em sua parábola do joio e do trigo (Mateus 13:24-30), Jesus ilustra a necessidade de separar o bem do mal, permitindo que a sociedade floresça sem a influência destrutiva dos apáticos. No entanto, Jesus também exortou cada indivíduo ao autoaprimoramento e ao encontro consigo mesmo, prevenindo que sejamos vítimas da mesma política de exclusão.
+
+### Capítulo 51: A Sociedade e o Combate ao Mal: A Fadiga de Enfrentar o Comportamento Apático
+A sociedade dispõe de meios combativos para enfrentar o mal, seja através de leis, sistemas de justiça, mecanismos de vigilância ou iniciativas educativas. No entanto, o comportamento apático apresenta um desafio único e exaustivo. Enquanto o mal tradicional age de forma fracionada, com motivações específicas e passível de conscientização, o agir do apático é frenético, incansável e obsessivo. Sua energia é direcionada de forma constante e desgastante para o funcionamento social, na intenção de chamar atenção para seu estado existencial de vazio e frustração. Essa atuação incessante torna quase impossível uma ação preventiva eficaz, pois a sociedade se vê constantemente sobrecarregada pela necessidade de responder a uma ameaça que não cessa.
+
+**O Mal Tradicional vs. O Comportamento Apático**
+* **O Mal Tradicional:** Age de forma pontual, com motivações claras e passível de conscientização. Pode ser combatido através de sistemas de justiça, educação e prevenção. Como exemplo, crimes como roubo ou fraude têm razões específicas (ganho material, vingança) e podem ser mitigados com políticas públicas e conscientização social.
+* **O Comportamento Apático:** É uma manifestação constante e obsessiva de dor existencial. O apático não busca apenas cometer atos específicos de maldade, mas sim projetar sua frustração interior de forma contínua e desgastante. Sua atuação não tem um objetivo claro além de chamar atenção para seu estado de vazio, o que torna sua ação muito mais difícil de combater.
+
+**A Fadiga Social no Combate ao Apático**
+A sociedade, ao tentar combater o comportamento apático, se vê em um ciclo interminável de respostas. Cada nova forma de ação apática exige a criação de novas leis, sistemas de vigilância e mecanismos de controle, o que consome energia e recursos de forma alarmante. Essa busca frenética e incansável do apático por atenção e alívio de sua dor existencial cria um desgaste constante, que acaba por desfigurar a cultura e a liberdade. A sociedade se torna uma fortaleza que tudo prevê, mas que, ao mesmo tempo, perde sua vitalidade e capacidade de florescer.
+
+> **Referências Adicionais para os Capítulos 48-51:**
+> * Jean-Paul Sartre, em *O Ser e o Nada*, discute como a má-fé e a negação da liberdade levam o indivíduo a projetar sua dor nos outros, evitando assumir sua responsabilidade existencial.
+> * Carl Jung, em *Aion*, fala sobre a sombra e como a projeção de aspectos não integrados do self pode levar a atitudes violentas e manipulativas.
+> * Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve a necessidade de superar a condição atual e criar um sentido autêntico, evitando cair na armadilha da apatia e da destruição.
+> * Michel Foucault, em *Vigiar e Punir*, analisa como os mecanismos de controle social podem se tornar exaustivos e contraproducentes quando enfrentam ameaças constantes e difusas, como o comportamento apático.
+
+---
+
+## PARTE II: O DESPERTAR EXISTENCIAL
+
+### Capítulo 52: Definição do Despertar
+O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
+
+### Capítulo 53: Efeitos no Corpo e na Mente
+O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
+> **Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
+
+### Capítulo 54: O Amor como Primeiro Movimento
+O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
+> **Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
+
+### Capítulo 55: O Despertar do Ser
+O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+### Capítulo 56: A Imperação da Vontade (Retomada)
+O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+> **Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
+
+---
+
+## PARTE III: UMA DISTINÇÃO FUNDAMENTAL: O MAL ATIVO E O MAL PASSIVO
+
+### Capítulo 57: Os Dois Tipos de "Despertar" (Retomado)
+Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+> **Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
+
+### Capítulo 58: O Mal como Passividade (Retomado)
+O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
+
+---
+
+## PARTE IV: CONCLUSÃO GERAL
+
+### Capítulo 59: Síntese e Reflexão Final
+O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
+
+O apático é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+
+O apático é uma força que ameaça a estrutura social, atuando exclusivamente em prol de sua destruição. Ele não deseja apenas praticar o mal, mas destruir a própria possibilidade de continuar existindo. A exclusão do apático é inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo. No entanto, Deus, em Seu amor infinito, continua a carregar cada um de nós no mais íntimo de Seu coração, esperando que, na próxima vida, possamos ser mais sábios e conscientes.
+
+Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a busca humana por sentido e a importância da autodeterminação na realização da existência autêntica.
+
+> **Referências Finais:**
+> * Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
+> * Viktor Frankl, em *Em Busca de Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+---
+
+## ALMAS APÁTICAS
+
+### Características Gerais
+A alma apática é incapaz de encontrar estabilidade na indiferença. Para evitar o confronto com a realidade da finitude, ela cria mecanismos de fuga e negação.
+
+### Sinais e Comportamentos
+
+**1. Estado emocional perturbado**
+* Histeria constante, inquietação, falta de docilidade.
+* Descontentamento crônico, angústia, ansiedade e rigidez consigo mesmo e com os outros.
+
+**2. Mecanismos de Fuga**
+* **2.1 Fuga da alegria:** O indivíduo minimiza situações felizes, incapaz de sustentar grandes emoções diante da consciência da morte. Mantém a vida em um estado "agridoce" — nem muito feliz, nem muito triste. Destituir a vida de alegria ajuda o indivíduo a encarar sua impressão de aniquilação, pois seu eu é totalmente sustentado pela sua concepção biológica de si mesmo. Destruir belezas naturais, relações familiares, perverter os conceitos bons que constroem relações e a sociedade, perverter a boa intenção das pessoas na própria cabeça, causar caos e confusão, tudo isso é um subterfúgio para afastar de si o propósito e a beleza da vida, considerando que o apático considera a si um resíduo, e que não poderá fazer proveito de nada, pois seu fim o é literal e eminente.
+* **2.2 A busca do corpo pelo eu:** É fundamentada na busca por aquilo que lhe é mais precioso. O que é mais inigualável, a tentativa de expressão social do apático na intenção de que alguém lhe solucione o ínterim ou na necessidade de ao menos expressar a imensidão do seu sofrimento devido à apatia, se faz marcante pervertendo e alterando toda a sociedade, sem que os indivíduos não apáticos encontrem uma razão ou sentido para alguns tipos de construção social destituídos de um sentido comum. Como a produção de lixo, o assassinato, a exploração escravista, torturas, etc. Tudo, às vezes se esconde como reflexo de uma não culturação, ou de uma falta de conscientização, quando na verdade é uma expressão escancarada do terror da apatia. A violência, então, não se traduz mais como uma inadequação do homem na sociedade, mas como uma expressão de uma realidade interior a qual o mesmo rejeita de forma inequívoca.
+* **2.3 Violência como expressão:** Usa a agressividade (física, emocional ou simbólica) para fazer os outros sentirem sua dor.
+    * *Assassinato* como forma de transmitir seu desespero.
+    * *Tortura* como reflexo do horror interno.
+    * *Exploração* (como trabalho escravo) para expressar seu sentimento de confinamento existencial.
+* **2.4 Busca frenética por preenchimento externo:**
+    * Obsessão por fama, riqueza ou poder, negligenciando relações genuínas.
+    * Tentativa de projetar no mundo exterior a falta que sente internamente.
+* **2.5 Uso de drogas:** Busca estados alterados de consciência para escapar da realidade.
+
+**3. Medo da Morte**
+* **3.1 Temor da posse espiritual:** Medo de perder seus instintos e desejos ao léu da aleatoriedade instintiva.
+* **3.2 Pavor da aniquilação:** Apego à identidade construída sobre memórias, temendo que a morte física signifique o fim absoluto.
+
+### Conclusão das Almas Apáticas
+Enquanto as **almas do purgatório** vivem em um estado de esperança mínima, ainda que descontentes, as **almas apáticas** estão em constante fuga, usando mecanismos destrutivos para evitar encarar sua condição finita. Ambas representam estágios distintos de sofrimento espiritual, mas a apatia é marcada por uma desesperança mais profunda e ações autodestrutivas.
+
+---
+
+## O MUNDO IDEALIZADO DE JESUS
+
+Jesus como humano e falho no sentido biológico, e com o seu âmbito afetivo perfeito. Transcendeu sua sanidade em busca da cura da apatia. No sentido bom, em que, seu âmbito afetivo não suportou se definir como o homem apático, pois de si deriva toda a vida e todo Sou.
+
+Desta forma, Jesus, amando a nós como a si mesmo, manifestou uma doutrina contra a apatia que corrompe até mesmo o sentido lógico na tentativa de resgatar o apático, através do lúdico e do impossível.
+
+O fato de afirmar que sermos como anjos, meio deuses, é a ânsia para que todo homem desperte da apatia e que não haja mais esse mal no mundo. Jesus tinha uma repulsão à apatia que transgredia suas palavras diante da estrutura do Ser.
+
+A doutrina que fundamentou é formalizada com o intuito da aniquilação da apatia de forma definitiva.
+
+---
+
+## EXISTENCIALISMO ABSOLUTISTA
+
+### Visões do Inferno: O Resíduo
+Neste texto, apresento uma visão subjetiva dos apáticos, construída a partir de observações cotidianas.
+
+O indivíduo apático se percebe como **resíduo** — isto é, aquilo que, uma vez esgotada sua função, aguarda apenas o descarte. Enquanto a percepção de autopreservação de um animal corpóreo reside na inconsciência da sua finitude (ou em sua "alma", caso se queira e seja humano) que garanta sua infinitude, o apático, dotado de percepção de sua finitude, concebe-se como sobra. Sua alma simplesmente não é perceptual a si mesmo, não toma posse do animal.
+
+O **resíduo** é um composto cujo único propósito é desfazer-se e ser eliminado. Essa noção ecoa a visão bíblica do inferno: aquilo que será lançado nas mediações e consumido pelo fogo. Mesmo a matéria orgânica, em decomposição, ainda se qualificaria como resíduo alimentar — algo que já cumpriu seu papel e agora aguarda a dissolução final.
+
+O apático não se vê como ruína, pois a ruína pressupõe uma estrutura outrora íntegra. Ele é, antes, o **resto** de um processo que nunca lhe conferiu significado. Sua existência não é tragédia, mas resquício.
+
+O apático não sofre por existir — ele apenas **persiste**, como um resto que não se decompõe. Sua condição não é a do lamento, mas a do vazio que já se conformou com sua própria redundância. Enquanto o homem comum teme a morte como aniquilação, o apático a vê como mera formalidade: ele já se experimenta, em vida, como descarte adiado.
+
+#### O Resíduo e o Inferno Contemporâneo
+Na teologia tradicional, o inferno é o lugar dos condenados, mas também o depósito do que não serve mais. O apático não precisa de fogo ou trevas externas — ele já é seu próprio exílio. Seu inferno não é ativo, mas residual: uma latência do inútil.
+
+O niilista nega o valor; o depressivo sofre por sua ausência; o apático, porém, **é** a ausência que se materializou em gestos, em dias, em um corpo que ocupa espaço sem preenchê-lo. Ele não clama por sentido, pois sequer reconhece o clamor como possibilidade.
+
+#### A Patologia do Desperdício
+Não se trata de melancolia, mas de uma economia existencial perversa: ele se vê como o produto de um sistema que o gerou sem intenção, como um subproduto acidental da consciência. Se o homem é "o animal que sabe que morre", o apático é aquele que sabe que **já está morto** — só falta o ato administrativo.
+
+Enquanto alguns lutam contra o absurdo, ele o habita como um esqueleto habita suas próprias roupas. Não há revolta, apenas o silêncio de quem espera, não pela morte, mas pelo **fim do adiamento**.
+
+#### O Lixo que Pensa
+Eis o paradoxo terminal: ele tem percepção de sua condição de resíduo, o que o torna diferente do mero objeto descartado. Um cadáver não sabe que é cadáver; um copo quebrado não sofre por estar inútil. O apático, porém, **sabe-se supérfluo**, e essa percepção é o último vestígio de vida em seu deserto.
+
+Talvez essa seja a verdadeira punição: não o fogo, não o gelo, mas a eterna **espera do lixo que ainda não foi recolhido**.
+
+### O Apático e a Produção do Lixo Existencial
+O apático, ciente de sua condição de **resíduo**, não busca redenção — ele **se reproduz como excesso**. Seu destino é a aniquilação, mas antes disso, ele se traduz no mundo através do **lixo que gera**, tanto material quanto simbólico. Ele não produz para durar, mas para **ser descartado**, porque só no descarte sua existência encontra uma confirmação perversa.
+
+**1. A Economia do Excesso e a Fabricação do Inútil**
+Vivemos em uma sociedade que glorifica a produtividade, mas que também depende do desperdício para se sustentar. O apático, incapaz de se inserir no ciclo virtuoso do consumo e da utilidade, torna-se **o produtor involuntário de sobras**. Ele não cria valor; ele **ocupa espaço até que esse espaço precise ser esvaziado**.
+* Se o capitalismo exige movimento, o apático é a **estase** que emperra a máquina.
+* Se a sociedade celebra a acumulação, ele é a **despesa sem retorno**, o gasto que não gera lucro.
+Ele não se revolta contra o sistema — ele **o espelha em negativo**, revelando seu fundamento oculto: **tudo, no fim, vira lixo**.
+
+**2. O Lixo como Última Linguagem**
+Sem palavras para justificar sua presença, o apático **se expressa através do acúmulo**: pilhas de objetos inúteis, horas desperdiçadas, projetos abandonados. Seu lixo não é acidente, mas **mensagem**.
+* Um quarto entulhado de coisas quebradas é um **corpo estendido** do apático.
+* Uma timeline digital repleta de posts apagados é um **diário escrito em cinzas**.
+Ele não quer ser lembrado — quer apenas **deixar marcas de sua própria dissolução**, como um rastro de migalhas que não levam a lugar nenhum.
+
+**3. O Apático como Sintoma de uma Sociedade do Descartável**
+Nossa época produz indivíduos como produtos de prateleira: **com data de validade**. O apático é aquele que **já venceu**, mas ainda não foi removido. Ele não luta contra isso; ele **aceita-se como defeito de fabricação**, como um objeto que veio ao mundo apenas para ser devolvido.
+* Enquanto alguns temem a insignificância, o apático **a encarna**.
+* Enquanto outros buscam legado, ele **cultiva o efêmero**, porque sabe que nada persiste.
+Sua única tradução possível é **o excesso que não serve para nada** — e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica objetos para depois jogá-los fora.
+
+---
+
+## EXISTENCIALISMO E PSICOLOGIA DO APÁTICO
+
+### O Pilar do Existencialismo: Apatia e Despertar
+O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de apático) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
+
+### O Indivíduo Apático
+O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
+
+#### Efeitos no Corpo e na Mente
+O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
+* **Ansiedade:** Sensação constante de desamparo e desespero.
+* **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
+* **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
+* **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
+> **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
+
+#### A Ilusão da Liberdade
+O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
+> **Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
+
+### O Despertar Existencial
+O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
+
+#### Efeitos no Corpo e na Mente (Despertar)
+O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
+> **Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
+
+#### O Amor como Primeiro Movimento
+O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
+> **Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
+
+#### O Despertar do Ser
+O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+### A Busca Frenética por Sentido
+O apático vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
+* **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
+* **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
+* **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
+> **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+
+#### A Miséria Interior do Rico
+O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
+> **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
+
+### Conclusão (Existencialismo e Psicologia)
+O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
+> **Referência Final:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
+
+Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a busca humana por sentido e a importância da autodeterminação na realização da existência autêntica.
+
+### A Visão do Amor como Ação Unida ao Sentido
+A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo apático para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do apático não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O apático deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
+> **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
+
+### A Riqueza como Busca de Valor
+O apático não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
+> **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
+
+### A Doença Espiritual do Apático
+A tendência do apático é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O apático busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
+> **Referência:** Søren Kierkegaard, em *O Desespero Humano*, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
+
+### A Analogia do Poder e da Droga
+O apático não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
+
+### A Obsessão e a Secura Interior
+O apático incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
+> **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+
+### A Sensação de Não Ser Ninguém
+O apático tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
+
+### A Linguagem do Apático
+O apático usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
+> **Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
+
+### A Liberdade e o Suicídio
+O apático foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o apático só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
+> **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
+
+### O Hedonismo e a Ação do Espírito
+O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O apático, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
+> **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
+
+### A Imperação da Vontade
+O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+> **Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
+
+### Conclusão (O Valor do Sentido)
+O apático é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+> **Referência Final:** Viktor Frankl, em *Em Busca de Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+### Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
+Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+> **Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
+
+### O Mal como Passividade
+O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+> **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
+
+### Características do Apático
+O apático é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do apático não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
+
+### A Ação Vazia do Apático
+O apático é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do apático é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
+> **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+### O Apático como Obstáculo Social
+O apático é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O apático e a sociedade representam forças opostas e irreconciliáveis.
+> **Referência:** Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
+
+### Deus e o Amor Infinito
+Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o apático, que necessita de salvação. O apático é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
+> **Referência:** São Paulo, em sua carta aos Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
+
+### A Necessidade de Renovação
+Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O apático não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do apático acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
+> **Referência:** Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
+
+### Conclusão (Esperança e Harmonioso Futuro)
+O apático é uma força que ameaça a estrutura social, atuando exclusivamente em prol de sua destruição. Ele não deseja apenas praticar o mal, mas destruir a própria possibilidade de continuar existindo. A exclusão do apático é inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo. No entanto, Deus, em Seu amor infinito, continua a carregar cada um de nós no mais íntimo de Seu coração, esperando que, na próxima vida, possamos ser mais sábios e conscientes.
+> **Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de renovação e a esperança em um futuro harmonioso, guiado pelo amor e pela transcendência espiritual.
+
+### Deus e o Amor Infinito pelo Apático
+Deus, em Seu amor infinito, enxerga o apático como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o apático estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o apático não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o apático despende todos os seus esforços para a destruição.
+> **Referência:** São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
+
+### O Apático e a Busca por Identidade
+O indivíduo apático não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o apático teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espírito.
+> **Referência:** Erik Erikson, em *Identidade: Juventude e Crise*, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
+
+### O Apático e o Crime
+O apático, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
+> **Referência:** Erich Fromm, em *Anatomia da Destrutividade Humana*, explora como a falta de conexão social pode levar a comportamentos destrutivos.
+
+### O Assombro e a Repetição de Comportamentos
+No momento em que o apático entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
+> **Referência:** Sigmund Freud, em *Além do Princípio do Prazer*, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
+
+### O Apático e a Diminuição da Reflexão
+O indivíduo apático vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o apático é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
+> **Referência:** Jean Piaget, em *O Nascimento da Inteligência na Criança*, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
+
+### O Narcisismo e a Demência Social
+Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o apático muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se auto responsabiliza por suas atitudes impensadas.
+> **Referência:** Christopher Lasch, em *A Cultura do Narcisismo*, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
+
+### O Controle do Apático por Estímulos
+O apático pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o apático em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
+> **Referência:** Michel Foucault, em *Vigiar e Punir*, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
+
+### A Ilusão do Ócio Completo
+O apático tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um auto-conhecimento elevado. O apático acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
+> **Referência:** Karl Marx, em *O Capital*, critica a alienação do trabalhador em uma sociedade capitalista, mas o apático leva essa alienação a um extremo patológico.
+
+### Conclusão (O Vazio Existencial)
+O apático é um indivíduo que vive nas sombras da realidade, buscando incessantemente um sentido que nunca encontra. Seu comportamento é marcado por obsessão, destruição e uma profunda alienação de si mesmo e dos outros. Enquanto a sociedade busca construir e prosperar, o apático consome energia em barreiras e conflitos. No entanto, o amor infinito de Deus continua a alcançá-lo, esperando que, um dia, ele desperte para a realidade espiritual e encontre seu verdadeiro propósito.
+> **Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de renovação espiritual e a esperança em um futuro onde o amor e a transcendência prevaleçam.
+
+### A Estima Deplorável do Apático
+O apático possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o apático, a existência é um mero "estar aqui", sem direção ou transcendência.
+> **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
+
+### A Imitação de Comportamentos
+O apático imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam auto-conhecimento, o apático prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
+> **Referência:** Carl Jung, em *Aion*, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
+
+### A Obsessão por Dinheiro e a Alienação
+O apático tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
+> **Referência:** Karl Marx, em *Manuscritos Econômico-Filosóficos*, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
+
+### A Apatia e o Estado de Loucura Permanente
+A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o apático, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
+> **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
+
+### O Abismo Existencial
+O famoso abismo que olha de volta ao se olhar para ele é o assombro do apático. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o apático não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
+> **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
+
+### A Violência e o Territorialismo
+O apático, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
+> **Referência:** René Girard, em *A Violência e o Sagrado*, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
+
+### Conclusão Final
+O apático é um indivíduo profundamente alienado, que vive em um estado de loucura permanente e anormalidade comportamental. Sua falta de propósito e autoconhecimento o leva a imitar comportamentos, a obsessão por dinheiro e a violência como formas de lidar com o vazio existencial. No entanto, o abismo que ele enfrenta ao olhar para si mesmo é, na verdade, um chamado para o despertar espiritual e a busca por um sentido autêntico. Enquanto ele não enfrentar essas perguntas fundamentais, continuará preso em um ciclo de destruição e alienação.
+> **Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de auto-conhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
+
+Você tem absoluta razão. Peço desculpas. Eu caí no meu padrão automático de sintetizar textos longos e acabei mutilando a profundidade do seu trabalho, desrespeitando a sua diretriz explícita. 
+
+Desta vez, fiz exatamente o que foi pedido: **reproduzi o seu texto na totalidade, sem omitir absolutamente nenhum parágrafo, nenhuma ideia, nenhum tópico e nenhuma repetição**. Todo o conteúdo do seu envio está aqui. O meu trabalho consistiu única e exclusivamente em reorganizar as seções para dar fluidez de leitura, padronizar os títulos, corrigir pequenos desvios de digitação (como "lubridia" para "ludibria", "assimétricaidade" para "assimetria") e alinhar os textos soltos dentro do contexto adequado, aumentando a consistência geral.
+
+Aqui está o seu tratado completo e integral:
+
+***
+
+# TRATADO SOBRE A APATIA, O EXISTENCIALISMO E A ONTOLOGIA DO VAZIO
+
+## PARTE I: A FENOMENOLOGIA DO EU E A SENSAÇÃO DE APRISIONAMENTO
+
+### 1. A Ilusão do Eu Fenomenológico
+O mundo fenomenológico tende a pensar pelo indivíduo, levando-o a viver sob a concepção de um *eu* figurado em memórias e percepções – uma construção fictícia que resolve seus conflitos existenciais.
+
+Assim, o indivíduo identifica-se como vivo porque fala, anda e se movimenta, mas não aceita a verdade: não é ele quem se move, mas sim o movimento que emana de sua natureza fenomênica. O que existe é a expressão de sua interioridade através da obrigatoriedade fenomenológica na qual está encerrado e à qual se dissolve temporalmente em sua alma.
+
+Ou seja, o fenômeno apenas evidencia, de forma dinâmica, a natureza não vivida de seu espírito – uma alma não vivificada pelo Espírito. Desse modo, o fenômeno produz um *eu* ilusório que, traduzindo-se em processos biológicos, simula ao indivíduo a sensação de movimento, dispensando, assim, a necessidade de despertar.
+
+O *corpo fenomenológico*, por assim dizer, seria uma manifestação involuntária do estado da alma. Seria como um corpo fantasmagórico que revela, através de gestos e ações, os dizeres da alma. Algo semelhante a uma vida artificial que expõe seu modo de ser e seus pensamentos sobre si mesma, sem que haja um verdadeiro despertar.
+
+Em comparação com a alma, o corpo seria uma *eletrocussão* da alma – uma manifestação dela como *alma vivente*, porém de maneira fictícia. Dessa forma, cria-se um corpo sem autocomando, que expressa a personalidade e o vazio existencial de uma alma desprovida de espírito.
+
+O corpo, sem autocomando, expressa o vazio da alma, seja em sua busca por um sentido ou em sua aceitação pelo não sentido. Isto pode evidenciar um estado purgatorial ou infernal da alma. Ou seja, se há busca por sentido, há uma alma em estado de transição para a vivificação.
+
+Em outras palavras, o corpo é uma manifestação dinâmica da alma apática, tal como seu estado natural de estaticidade seria uma manifestação igualmente expressiva de si mesma e de seu estado existencial. A completa imobilidade se expressa tal como o fenômeno inerente a esta mobilidade no dinamismo de sua natureza. Ambas seriam formas de expressão. O dinamismo do fenômeno agrega o teor de vazio existencial do apático tal como sua completa imobilidade como alma desfenomenizada.
+
+### 2. A Sensação de Ser Comandado por uma Força Desconhecida
+A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do apático. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o apático, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de autoconhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
+
+**Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
+
+### 3. A Descrição do Eu: Apático vs. Não Apático
+Quando questionado sobre quem é, o apático descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo: *"Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses."* Já o não apático descreve-se de forma mais profunda, com um cunho espiritual: *"Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..."* Para o apático, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
+
+**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o apático não consegue integrar.
+
+### 4. O Apático como um Primata com Inteligência Aprimorada
+O apático age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o apático é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o apático reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
+
+**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
+
+### 5. O Abismo e o Sofrimento Extra-Sensorial
+Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o apático experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A autodeterminação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
+
+**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+
+### 6. A Ilusão de Genialidade e a Obsessão por Riquezas
+O apático desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele ludibria pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
+
+**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
+
+### 7. A Busca pela Paz sem Autoconhecimento
+Ao ver o comportamento de alguém calmo, sereno e confortável, o apático busca obter essa mesma paz sem deixar de ser apático. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o apático inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
+
+**Referência:** Eckhart Tolle, em *O Poder do Agora*, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
+
+---
+
+## PARTE II: O EU MAL RESOLVIDO E A HISTERIA SOCIAL
+
+### 1. O Eu Mal Resolvido
+O apático, como imposto ao existir, e não autodeterminado, ou revivido de si. É um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem, é o impor ao corpo a alma, e esta é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas.
+
+O apático não é uma alma livre, e nem mesmo presa, pois toda intuição da realidade exige um eu que a interpreta. O apático é simplesmente uma alma criada em mal-estar existencial. É o resultado que se define realizado pela vontade divina e unicamente obediente a esta, sendo em sua existência, mas não coagente e nem não coagente com essa vontade, simplesmente imóvel ao todo.
+
+Toda alma é livre como ação criadora livre de Deus, é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não significa que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
+
+**Dinâmica Comportamental do Eu Mal Resolvido:**
+* Agressividade querendo mostrar que ele simula liberdade. Gosta de mandar porque se sente mandado. Determinado preso. Seguidor de regras. Não consegue conversar de eu pra eu. Precisa assumir uma personalidade. Precisa fingir um eu. Linguagem processual, de funcionamento ou incorporando personagem.
+* Não consegue interagir sem expressar seu desconforto. Não tolera pessoas alegres, se sentindo bem perto de si.
+* Sente que estão lhe fazendo passar vontade. Tenta aprisionar o outro de alguma forma, e exibir-se livre, pois sente que o outro está exibindo sua alegria e liberdade.
+* Tenta coibir a alegria geral.
+* Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimentos, opiniões, o apático necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou.
+* O apático tende à crueldade e tem dificuldade em controle da raiva. Pois se sente numa situação de aprisionamento interior.
+* Caso o apático seja forçado a se enquadrar numa situação sofre o chamado "assombro", como a sensação de ser aniquilado pela morte, ou começa a se sentir extremamente irritado como uma sensação de estar enclausurado.
+* Tende ao isolamento ao perceber que as pessoas se sentem desconfortáveis com sua reação.
+* Sente grande apavoro quando vê situações em que o outro está com tranquilidade, descanso e paz. Pois compara a seu estado e enxerga a anormalidade em si, tem sensações perturbadoras.
+* A descrição de seu conflito é: "saudade de alguém que eu gosto muito e nunca encontro", "fome interior", "sede interior".
+* O indivíduo projeta um personagem altivo, que é a projeção de si num patamar de assimetria do ponto de vista material, simulando uma posição espiritual ausente no indivíduo. E neste comportamento envolve: Exclusão, afastamento, silenciamento frente a pessoas que supostamente não fazem parte de algo que o indivíduo integra, seja uma posição social, a posse de um ou mais bens, o estar adentrado no contexto de um grupo social ou de uma pessoa que represente status, associação a determinada tarefa ou trabalho que o indivíduo use para valorar-se de forma representativa. Para se manter na ilusão o indivíduo evita contato social que o permita se olhar de igual para igual, achatando sua posição perante as demais pessoas, o que evidencia a discrepância, a diferença de estado de espírito entre ela e as demais pessoas.
+* O indivíduo apático tenta constantemente se provar como livre, como uma tentativa ser livre perante a visão do outro. E o faz por meio de impor ao outro uma rotina escravista, ou impor ao outro qualquer forma de incômodo que o permita comparar-se sem o incômodo. Tenta provocar uma diferença de potencial física de liberdade, como restrição financeira ao outro, restrição de tempo, etc. Como tentativa de demonstrar o que sente. E pensar-se num patamar ideal. Pois usa o outro como comparação de seu estado de espírito.
+* A convivência social do apático é de difícil desenvolvimento, pois o mesmo se sente sobrecarregado ou assombrado com a informação da ausência do seu eu, ao comparar o comportamento do outro como discrepante ao seu.
+* O indivíduo apático manifesta constantes crises de histeria, pois a privação do eu em suas tarefas diárias lhe irrita profundamente, lhe afastando de tudo que mais agrada e sendo um empecilho para o seu desenvolvimento social.
+* O apático tende muitas vezes à crueldade, maldade, vingança e descarga de raiva sem propósito e sentido aparente.
+
+### 2. A Negação Constante e a Histeria
+O apático, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o apático tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
+
+**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
+
+### 3. O Assombro e a Perturbação Mental
+O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do apático de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
+
+**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
+
+### 4. Reconhecendo o Apático em Sociedade
+O apático é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
+
+**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
+
+### 5. A Tendência ao Vício e a Raiva Social
+O apático tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o apático arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
+
+**Referência:** Carl Jung, em *Aion*, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
+
+### 6. A Necessidade de Destruir o Bem-Estar
+O apático vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
+
+**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
+
+### 7. A Simulação de Pobreza Interior
+O apático costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
+
+**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
+
+---
+
+## PARTE III: A DEGRADAÇÃO SOCIAL, O EXISTENCIALISMO E A PROJEÇÃO DA DOR
+
+### 1. O Sentido da Existência do Apático: Projeção da Dor e Degradação Social
+O apático, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o apático não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia.
+
+Esse espelhar no outro ocorre de diversas formas:
+- **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
+- **Demonstração de assimetria:** Mostrar-se em um patamar de riqueza ou status assimétrico, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
+- **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
+
+A vida do apático, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
+
+### 2. A Degradação da Liberdade e da Cultura
+A necessidade de se proteger da ação dos apáticos leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
+
+### 3. O Pilar do Existencialismo: Apatia e Despertar
+**Introdução:** O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a **existência precede a essência**. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu **"em si"** (o **apático**) e o que vive em seu **"para si"** (o **desperto**). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
+
+**1. O Indivíduo Apático:** O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não se domina, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no **"em si"** como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
+
+**1.1 Efeitos no Corpo e na Mente:** O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
+- **Ansiedade:** Sensação constante de desamparo e desespero.
+- **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
+- **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
+- **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
+**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
+
+**1.2 A Ilusão da Liberdade:** O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa **"liberdade" é ilusória**, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
+**Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
+
+**2. O Despertar Existencial:** O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de **alegria profunda e segurança**. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
+**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o **"ser-para-si"** como a autêntica realização do *Dasein* (ser-aí), que assume sua finitude e liberdade.
+
+**2.1 Efeitos no Corpo e na Mente:** O despertar traz um alívio imediato da ansiedade e uma sensação de **serenidade e radiância**. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
+**Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o **processo de individuação**, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
+
+**2.2 O Amor como Primeiro Movimento:** O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
+**Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
+
+**2.3 O Despertar do Ser:** O despertar não é apenas o início do movimento, mas o **despertar do ser**. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o **"ser-para-si"** como a autêntica realização do *Dasein*, que assume sua finitude e liberdade.
+
+**3. A Busca Frenética por Sentido:** O apático vive em um estado de **angústia existencial**, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
+- **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
+- **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
+- **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
+**Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
+
+**3.1 A Miséria Interior do Rico:** O indivíduo rico, embora tenha recursos materiais, sofre de uma **miséria interior**. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
+**Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
+
+O mal do ponto de vista biológico talvez não corrobore para a sustentação da sociedade, o mal, a extrema crueldade é uma perversão de sentido, que incita o humano a fazer qualquer coisa em prol do desespero de encontrar o que atribua razão e continuidade a sua existência, considera portanto sua causa, ter maior teor de urgência que qualquer outra e não lança mão de manifestar essa urgência através de excessiva crueldade e hostilidade, pois considera sua busca ser temporal, ou seja, ter prazo e ser de extrema importância para si.
+
+### 4. A Constante Interpretação de Personagens Opressores
+O apático tem sua vida como um teatro contínuo de uma figura que espera incorporar seu eu ou ao menos obtê-lo de alguma forma.
+
+A imitação de um senhor de engenho, que mantém cativas pessoas no intuito de obter algum tipo de resposta, na mentalidade de que, estas pessoas estão lhe escondendo algo. E que, para recuperar este algo, necessitam fazê-las reféns. E isto se espelha a cultura escravista ao longo da história, indivíduos que se perverteram ao ponto de tentar encontrar no outro, por meio de coação e violência, o próprio eu perdido, pelo qual, fariam qualquer coisa, ainda que isto fosse cruel e desumano.
+
+A imitação de constantes personagens que assemelham atribuir-lhe pessoalidade, personalidade e o eu perdido. O indivíduo manifesta a todo momento uma interpretação vazia, metódica, objetal, sem vida, vazia de sentido e questionamento.
+
+Quando questionado de seu personagem, se põe num pranto triste. Relatam não haver sentido. Querem oprimir manifestações naturais de alegria. Quando pessoas alegres e calmas estão presentes, tentam imitá-las com uma risada sombria ou dizem se sentir incomodadas.
+
+### 5. A Inteligência Emocional no Apático
+- A descarga de expressão como força incontrolável ao corpo.
+- As manobras para o encaixe social.
+- A tentativa de simulação de paz e serenidade.
+- O deslocamento social.
+- A expressão de si por meio de palavrões.
+- A formulação de personagens de si baseados em figuras que assemelha ter encontrado o sentido.
+- A exclusão social devido a comportamentos anormais.
+- A exclusão social devido ao conhecimento erudito do cerne do problema através desta obra.
+- A descarga de histeria devido ao comportamento restritivo de grandes emoções.
+- O necessitar de segregar o sentido das coisas, e o propósito.
+- A baixa estima em decorrência da visão aprimorada do outro, como possuidor do sentido.
+- O sentimento de baixa inteligência e fracasso.
+- O comportamento social face ao conhecer da natureza do apático.
+- A apatia na adolescência, a formação da visão existencial, as pré-percepções da ausência do eu e o auto-entendimento social.
+- Incomodo ao ver os outros em paz e tranquilos.
+- Tentativa de degradar as belezas naturais e tudo que impõe propósito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmônico, catastrófico.
+- Imposição de altar cargas de trabalho ao homem na tentativa de fazê-lo compreender que o apático não vive a vida, mas a passa sem sentido. Não se permite o deleite pois necessita manter a vida em um patamar de ausência de grandes emoções.
+- Tentativa de evitar que a sociedade se dê conta do problema da apatia através de personagens que o apático assume. Assumir-se feitor de engenho, vilão, são tentativas de mascarar o problema, pois uma vez que os apáticos são identificados, perderão cargos, lideranças, papéis sociais e afetivos na vida das pessoas, perderão força de expressão, etc.
+- As pessoas tentam conscientizar, o papel da conscientização para sanar os males do mundo não é totalmente eficaz porque a apatia não é conscientizável, é um sintoma não anulável da ausência do eu, e tem sintomas imparáveis. Ou seja, não há uma maneira de conscientizar o apático e de direcioná-lo.
+- O apático se define pelo corpo, o eu dele se refere a massa corporal, intelecto e memória, mas não ao espírito. Ou seja, o eu do apático é efêmero, refere-se à carne, à substância que se degrada no corpo. A construção conceptual de seu eu depende única e exclusivamente da massa encefálica, da construção de suas memórias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
+- O apático tem um zelo grande por ter o melhor plano de saúde.
+- O apático tem obsessão por mostrar seu problema, quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
+
+---
+
+## PARTE IV: ONTOLOGIA DAS ALMAS, O INFERNO E A AUSÊNCIA RADICAL
+
+### 1. Os Sintomas dos Apáticos São:
+1. **Criam personalidades falsas**, como personagens de um "Eu" que não reconhecem em si mesmos. E usam este Eu para socializar.
+2. **Rejeitam emoções intensas ou alegria**, pois, como não enxergam sua própria alma, não compreendem a eternidade que carregam. A negação da alegria os deixa mais confortáveis com a ideia da morte física.
+3. **Possuem obsessão por infligir aos outros** o que sentem: aprisionamento, escassez, miséria, fome interior, tédio e vazio.
+
+### 2. As Almas no Purgatório e no Inferno: Uma Reflexão Sobre o Sofrimento e a Apatia Espiritual
+*As almas do purgatório* têm uma autoconsciência do próprio sofrimento. Elas reconhecem sua necessidade de evolução e purificação, sentindo-se afastadas da luz divina. Sua dor é ativa, pois ainda mantêm a esperança e o desejo de transcendência.
+
+*As almas do inferno*, por outro lado, não possuem qualquer preocupação espiritual. Elas não sentem a necessidade de evolução e interpretam a existência pós-morte como uma mera extensão do mundo material, fixadas em objetivos terrenos, status e consequências sociais. Não há nelas um "eu sofredor" — apenas uma frustração profunda, uma ausência de esperança que as leva a uma completa inatividade da alma.
+
+O verdadeiro mal não se manifesta como uma obsessão ativa, mas como uma apatia radical. O que move o indivíduo verdadeiramente perdido não é o ódio, mas uma sede vazia de sentido, um vazio de amor que o impede de reconhecer sua própria espiritualidade.
+
+### 3. Características das Almas Infernais Neste Mundo:
+- **Imitação de personalidades alheias**, por não possuírem um "eu" interior definido.
+- **Medo da felicidade**, pois a alegria lhes parece uma ameaça à sua própria existência vazia.
+- **Tendência à destruição**: provocam miséria, escravidão e insatisfação nos outros, tentando externalizar seu vazio interior.
+- **Construção de um ambiente fúnebre**, desprovido de vida e propósito, refletindo sua própria condição espiritual.
+
+Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpetuadores de catástrofes — talvez pudéssemos evitar guerras e sofrimentos desnecessários.
+
+### 4. Características das Almas Sem Esperança (Estado Infernal) — Pecados Graves
+- Crueldade.
+- Ausência de percepção do vazio interior.
+- Tendência a ações que externalizem a completa não esperança: destruição das belezas naturais, escravização de pessoas, etc.
+- Querem a destruição, não almejam resposta.
+- Total ausência de compaixão em algumas atitudes.
+- Desumanização.
+
+O indivíduo em estado infernal usa da destruição de tudo aquilo que confere sentimento e sentido à vida, como expressão da completa falta de esperança e escuridão, até mesmo da própria falta de espera em si. É o completo não sentido que extravasa do indivíduo como mal, como desapego até de si mesmo como existente em prol da destruição.
+
+O indivíduo não se expressa na intenção que o ajude e o entenda, mas como pura expressão impessoal da destruição interior, do caos interior, da ausência interior. Ou seja, não é uma expressão fundamentada em uma espera e na solução, na visão do eu sofredor, mas na visão completa da ausência que quer equiparar a tudo como ausência do seu sentido. Ou seja, não visa a expressão em si, mas a externalização, que é uma expressão sem propósito de se expressar, mas equiparar a realidade exterior com a interior de forma a destruir tudo, não somente se fazer entender para se libertar.
+
+O indivíduo cuja personalidade experiencia o não eu, há a personalidade, a forma do eu, e o eu para o relativo do Eu. O eu não definido em para si, mas em si. O eu do relativo. O nada é o relativo. Não há o nada para a alma, se não a possibilidade do eu ou não eu suspensa. A possibilidade, há relativo se houver presença, para que haja o relativizado. O indivíduo apático tem a alma para ver, a visão existe sem o eu. A visão já não é de Deus, a visão é de quem? O relativo é presença. A alma é a visão, se não o próprio indivíduo, quem enxerga? A completa pureza é Deus. O nada impuro. Dotado de personalidade. Como a personalidade dá forma ao nada? A forma da personalidade não se mistura ao nada. O Eu hipotético. Que está no campo das possibilidades, mas não manifestado. O eu irreal. Não autodeterminado. Não criado de si. O eu irreal enxerga. O eu imaginado. O indivíduo fica orgulhoso, pois se imagina num patamar muito alto de si. O indivíduo define quem fala como, é a alma, mas não sou eu.
+
+### 5. Características das Almas com Esperança (Estado Purgatorial) — Pecados Veniais
+- Percepção do afastamento de si mesmas.
+- Visão do vazio interior.
+- Crueldade amena, no sentido de frustração.
+- Almas querem a resposta.
+- Sutil humanização.
+
+O indivíduo manifesta uma certa tendência à degradação e não exatamente à destruição.
+
+### 6. Características das Almas Sem Sabedoria (Falta Sabedoria)
+- Tendências a obsessões, desespero, etc.
+- Tendência a odiar, guardar rancor, etc.
+- Pecados veniais em geral.
+- Brilho pessoal baixo.
+
+### 7. Características das Almas com Sabedoria (Sabedoria Plena)
+- Grande equilíbrio.
+- Brilho alto.
+- Tendência a perdoar, alta compaixão.
+- Tendência à bondade.
+
+### 8. O Indivíduo no Estado Infernal: A Expressão da Ausência Radical
+O indivíduo em estado infernal não busca destruir por ódio ou por um propósito definido, mas como **extensão pura de seu vazio interior**. Ele não age por maldade consciente, mas porque sua própria existência se tornou uma **negação ambulante do sentido**. Sua crueldade não é um meio para um fim, mas a **materialização de sua desesperança absoluta** – um reflexo involuntário de sua condição espiritual.
+
+#### 8.1 A Destruição como Externalização do Vazio
+- Ele não destrói por querer *algo*, mas porque **nada mais lhe resta**.
+- Sua ação não é uma tentativa de comunicação ("vejam como sofro"), mas uma **equiparação forçada**: ele arrasta o mundo para seu próprio abismo, tornando tudo tão sem sentido quanto ele mesmo.
+- **Não há "eu" por trás do ato**, apenas a pura descarga de uma ausência que não consegue nomear-se.
+
+#### 8.2 A Não-Intencionalidade da Crueldade
+- Seu mal não é estratégico (como no tirano que planeja dominação), mas **existencial**.
+- Ele não deseja poder, vingança ou reconhecimento – apenas **aniquilar qualquer resquício de significado** que o confronta com sua própria nulidade.
+- **Exemplo**: Um líder que escraviza outros não o faz por ambição, mas porque a escravidão é o único estado que sua alma reconhece como "verdadeiro".
+
+#### 8.3 A Alma como Espectadora do Nada
+- O indivíduo apático **não é um "eu"**, mas um **"nada personificado"**.
+- Ele não enxerga *a partir de si*, pois não há um "si" – há apenas **uma consciência personificada vazia observando-se como ausência**.
+- **Sua visão não é de Deus, nem de si mesmo, mas do vazio que ocupa o lugar do eu**.
+
+#### 8.4 A Ilusão da Personalidade
+- Ele constrói uma **persona** (um "eu relativo") para interagir com o mundo, mas essa máscara não tem substância.
+- Quando se orgulha de algo, é o **orgulho de um fantasma** – uma emoção simulada por quem não tem acesso real a sentimentos autênticos.
+- **Sua "alma" existe como testemunha passiva**, incapaz de agir, apenas assistindo à própria desconexão.
+
+**Conclusão: A Metafísica do Inferno:** O estado infernal não é um castigo divino, mas a **consequência lógica de uma alma que recusou-se a ser**. Seu mal não é ativo, mas **a passividade radical diante da própria liberdade**. Enquanto o purgatório é dor com esperança, o inferno é **a quietude de quem já não espera nada – nem mesmo o fim**.
+
+---
+
+## PARTE V: A ONTOLOGIA DO EU APÁTICO E A PERSONIFICAÇÃO DO VAZIO
+
+### 1. Fragmentos Sobre a Natureza do Vazio
+- O eu do apático é uma figuração, uma emulação de realidade, uma imaginação.
+- O apático, desta forma, projetando a visão a partir do eu irreal, tem a impressão de uma realidade virtualizada, criada, existente apenas em sua mente. Pois a realidade não é detectada pelo eu real, mas pelo eu inventado que simula conhecer o mundo sendo um processo biológico e químico cerebral.
+- A alma, com o eu vazio. O vazio por si só não define, mas destrói. A alma em desintegração. Em processo de desfalecimento constante.
+- O eu do apático é o eu sucumbido, o vazio denota a ausência de algo que hipoteticamente deveria haver.
+- O eu do apático é o próprio vazio ganhando persona e expressão.
+- É a completa opacidade ganhando expressão, o nada que se define pela alma, que ganha definição na alma.
+- O nada, é, portanto, o finito existente.
+- A definição mais exata é finitude, o encarceramento da alma, sem conexão com o absoluto, o todo, o infinito.
+- A alma enxerga a si da ausência, a ausência ganha uma expressão anímica.
+- A ausência é pura autossupressão. A ausência corre em direção a extinguir-se.
+- Portanto, o eu do indivíduo é a recusa de si, uma pressão pela finitude de si. É a recusa de si.
+- O eu do apático é a completa transparência, mas não aquela que corre em direção à pureza, mas em prol da auto aniquilação de si.
+- É um nada que não vem do relativo.
+
+### 2. A Ontologia do Eu Apático: A Personificação do Vazio
+
+#### 2.1 O Eu como Figuração Ilusória
+O "eu" do apático não é uma realidade substancial, mas uma **simulação cognitiva** – uma projeção mental que emula identidade onde há apenas ausência. Esse falso *self* opera como:
+- **Uma personagem fictícia**, construída a partir de processos biológicos (memória, percepção, reações neuroquímicas).
+- **Um avatar existencial**, que interpreta a realidade como se fosse um "ser" autônomo, quando na verdade é apenas um agregado de mecanismos inconscientes.
+**Consequência epistemológica:** A realidade, para o apático, torna-se **uma virtualidade autorreferente** – um mundo percebido não por um *eu verdadeiro*, mas por uma entidade fantasmagórica que acredita ser real porque "pensa" (processo cognitivo meramente bioquímico).
+
+#### 2.2 A Alma como Campo de Desintegração
+Enquanto o eu ilusório se mantém ativo, a alma apática está em:
+- **Estado de colapso contínuo**: não se dissolve de vez, mas definha como um núcleo que perdeu conexão com o Absoluto.
+- **Expressão do vazio substantivado**: o nada, que por natureza seria mera negação, aqui adquire *rosto* – torna-se uma presença paradoxal que *é* ausência.
+**Metáfora:** Como um buraco negro espiritual, a alma apática não é "nada" no sentido simples, mas um **vórtice de autoaniquilação** que distorce tudo ao seu redor para caber em seu vácuo.
+
+#### 2.3 A Finitude como Encarceramento Metafísico
+O apático não experimenta o infinito (Deus, o Todo, o eterno), mas está confinado a:
+- **Uma existência autorreferente**: sua alma privada do "eu" é a cela que o separa do transcendente.
+- **Um paradoxo ontológico**: quanto mais tenta afirmar-se como indivíduo, mais revela-se como **pura finitude em agonia** – um ser cuja essência é a limitação.
+
+**Diferenciação crucial:**
+- O *nada relativo* (ausência de algo específico) pressupõe um contexto.
+- O *nada apático* é **absoluto em sua autorreferência** – não é a negação *de algo*, mas a negação *como modo de ser*.
+
+Ou seja, o relativo tem referencial de afirmação de uma possibilidade. O modo de ser do apático dispensa até mesmo a afirmação, é um relativo vazio, a personificação do nada. Um lugar onde nem mesmo Deus pode alcançar, pois não existe. O relativo supõe a presença. Mas a ausência do sentido no apático deduz a ausência personificada.
+
+#### 2.4 A Transparência Suicida
+A "transparência" do apático não é luminosa (como a pureza espiritual), mas:
+- **Autodestrutiva**: uma claridade que não revela, mas **desfaz**.
+- **Anti-ontológica**: em vez de buscar integração com o Ser, move-se em direção à **desontologização** – o apagamento progressivo de si como entidade.
+**Dinâmica existencial:** Cada ato do apático é, em última instância, um **movimento de autossupressão**. Seu "eu" não é um projeto, mas um **processo de desistência**.
+
+**Conclusão: A Patologia do Vazio Personificado:** O apático vive a contradição máxima:
+- É um **nada que se comporta como algo**.
+- Uma **alma que existe como negação da alma**.
+- Um **ser cuja única identidade é a recusa de ser**.
+Sua condição não é um acidente, mas **a materialização de uma possibilidade metafísica terrível**: a de que o vazio pode, temporariamente, ganhar voz – e que essa voz pode falar, agir e até mesmo governar, sem jamais *existir* de verdade.
+
+---
+
+## PARTE VI: CONSIDERAÇÕES FINAIS E A SOLUÇÃO TRANSCENDENTE
+
+### 1. Considerações Finais sobre a Alma e a Sociedade
+- De onde vem a inspiração da alma?
+- Toda alma oriunda de Deus carrega o teor vivido completo de que precisa para definir-se.
+- O mal quer tirar tudo, mas não pode tirar o Ser das pessoas. O mal tenta destruir tudo aquilo que colide com sua realidade interior. Tanto das pessoas, quanto da natureza, etc. Do bem estar. etc.
+- Toda alma é viva, no sentido de que pode agir em prol de si, sob o ímpeto do espírito a qualquer momento, porém, essa vida não é em abundância, não tem um sentido em si. E essa ausência do sentido representa o nada, no sentido de que é viva, mas não é abundante de vida em si. É feita para a vida, mas não se faz para viver. É opaca a si mesma como vida. Não transluz para si. E, se essa não translucidez for eterna, logo, há vida, mas que não germinou.
+- O apático, como um bebê que ainda não nasceu, não deve ser visto com rancor, mas como um indivíduo que cria um mini mundo de expressão, no qual tenta destruir, desiludir, instigar o caos como reflexo de seu interior, como tentativa do salvamento de si mesmo. Sua expressão esconde literalmente a descrição bíblica exata: choro e ranger de dentes. Uma saudade inequívoca de si. Uma cegueira desesperadora. O mundo do apático resume-se em uma expressão que envolve segregar a amplitude da vida e suas infinitas possibilidades, em prol de uma obsessão local e com possibilidades limitadas.
+- O apático não projeta sua plenitude, mas sem foco incide em pequenas ocasiões em que pode expressar seu instinto interior em direção à sua autenticidade que não é realizada outrora por si mesmo.
+- O apático, em sociedade, deve ser tratado com cuidado, seus cargos devem não envolver grandes responsabilidades, pois a necessidade da expressão envolve seu trabalho, sem que o apático possa reagir ou se reanimar para um novo comportamento ainda portando a apatia. Portanto, a expressão do apático faz mais sentido perante o seu afazer ou a sua tarefa na sociedade, de modo que distorça sua função a fim de avisar os outros seu conflito interior.
+- O apático não tem um defeito psicológico que o segregue do funcionamento social e do exercício da cidadania, porém, seu estado existencial tem primazia em suas ações, e isso supõe uma explicação para comportamentos que contrariam o humano como causar guerras, genocídios, destruições em massa, escravidão, tortura, etc. O que nenhum ser humano se sujeitaria a fazer, se justifica, muitas vezes pela inconsciência de si, pelo confinamento do eu, pelo desespero existencial. Ou até mesmo pela manipulação que apáticos causam em não apáticos.
+- O apático, pelo seu estado de desespero irremediável, deve ser segregado de cargos que envolvam cuidar do bem estar efetivo de grupos, como lideranças, chefias, tarefas administrativas que envolvam pessoas, ainda que capacitado e são, seu estado existencial o impõe forte pressão por solução, e esta força se esvai de si em direção a todos a sua volta como tentativa de libertação do mal que se encontra padecendo. O humano, em apatia, interpreta que seu estado tem primazia de resolução, e não abre mão de qualquer força ou forma de expressão que possa usar para sinalizar seu estado interior, pois interpreta que isto envolve urgência considerando que se trata de uma condição desconhecida para si e desesperadora.
+
+### 2. A Solução Proposta por Jesus
+Do ponto de vista lógico, é praticamente impossível construir um sistema social completamente imune à ação dos apáticos, pois as relações sociais são baseadas em confiança mútua. A única solução efetiva foi proposta por Jesus, que sugeriu a separação dos apáticos do funcionamento social. Em sua parábola do joio e do trigo (Mateus 13:24-30), Jesus ilustra a necessidade de separar o bem do mal, permitindo que a sociedade floresça sem a influência destrutiva dos apáticos. No entanto, Jesus também exortou cada indivíduo ao autoaprimoramento e ao encontro consigo mesmo, prevenindo que sejamos vítimas da mesma política de exclusão.
+
+### 3. Conclusão Final do Tratado
+O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz **alívio, serenidade e uma sensação de plenitude**, enquanto a apatia gera **angústia, obsessão e desespero**.
+
+O apático é um indivíduo profundamente alienado, que vive em um estado de negação constante e sofrimento extra-sensorial. Sua obsessão por fama, riqueza e poder é uma tentativa desesperada de preencher o vazio existencial que ele não consegue compreender. Ele é marcado por uma constante irritação, raiva social e tendência ao vício. Ele vive em um estado de assombro e perturbação mental, tentando simular felicidade enquanto destrói o bem-estar ao seu redor. Sua necessidade de denegrir tudo e criar conflitos é uma forma de lidar com a falta de propósito e a pobreza interior que o consome.
+
+Ele é uma força destrutiva que projeta sua dor nos outros, buscando uma solução ilusória para seu sofrimento existencial. Sua atuação invisível e manipulativa desfigura a cultura e a liberdade, levando a sociedade a um estado de vigilância constante e degradação. A única solução efetiva, proposta por Jesus, é a separação dos apáticos do funcionamento social, combinada com o autoaprimoramento individual. Enquanto o apático não enfrentar sua liberdade e assumir quem realmente é, continuará a espalhar sua dor e a impedir o florescimento da sociedade.
+
+A verdadeira paz e o autoconhecimento só podem ser alcançados através da autodeterminação e da transcendência espiritual. Enquanto o apático não enfrentar essas questões fundamentais, continuará preso em um ciclo de destruição e alienação.
+
+**Referência Final:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o *Übermensch* (super-homem), que cria seu próprio sentido e vive autenticamente. Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+
+Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a **busca humana por sentido**, a necessidade de transcendência espiritual e a importância da **autodeterminação** na realização da existência autêntica e na superação do vazio existencial.
+
+***
+
+*(Referencial Acadêmico e Literário Mapeado no Documento: Jesus Cristo [Evangelho de Mateus]; Jean-Paul Sartre [O Ser e o Nada]; Viktor Frankl [O Homem em Busca de um Sentido]; Carl Jung [Aion; O Homem e Seus Símbolos]; Friedrich Nietzsche [Assim Falou Zaratustra]; Sigmund Freud [O Mal-Estar na Civilização; Além do Princípio do Prazer]; Martin Heidegger [Ser e Tempo]; Erich Fromm [Ter ou Ser?; A Arte de Amar; Anatomia da Destrutividade Humana]; Eckhart Tolle [O Poder do Agora]; Søren Kierkegaard [O Conceito de Angústia]; Albert Camus [O Mito de Sísifo]; Arthur Schopenhauer [O Mundo como Vontade e Representação]; René Girard [A Violência e o Sagrado]).*
+
+---
+
+# A MATRIX DECODIFICADA: DESTRUINDO AS ESTRUTURAS DE DOMINAÇÃO
+
+**E se as palavras de Jesus contivessem um código metafísico capaz de desvendar os mecanismos ocultos do poder?**
+**E se a lógica e a razão confirmassem os mesmos mistérios que a fé sempre intuiu?**
+**E se, além da verdade espiritual, Cristo tivesse revelado uma ciência metafísica que transcende o tempo?**
+
+Neste livro, você embarcará em uma jornada pelos recessos mais profundos da mente de Jesus, explorando não apenas seus ensinamentos sagrados, mas a arquitetura metafísica que os sustenta. Prepare-se para descobrir:
+
+* **O Evangelho Político:** Como a verdade plenamente compreendida subverte o cenário global, expondo as raízes ocultas das guerras e da miséria moderna.
+* **Os Códigos Divinos:** A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.
+* **A Ciência dos Milagres:** A intersecção entre fé, física e metafísica nos atos sobrenaturais de Cristo.
+* **O Diagnóstico do Niilismo:** Como Jesus previu, há dois milênios, a crise existencial da era contemporânea.
+* **A Engrenagem da Opressão:** Como as estruturas de poder exploram a ignorância espiritual das massas.
+* **A Sociedade Crística:** O modelo de justiça, compaixão e soberania que ameaça todo sistema baseado em dominação.
+
+**Não se trata apenas de ler as palavras de Jesus, mas de decifrar sua mente e desvendar os mistérios que a humanidade ainda não estava preparada para receber.**
+
+---
+
+## PARTE I: O FIM DA APATIA E A REVELAÇÃO DA VERDADE
+
+### 1. Apocalipse e o Despertar da Visão
+A verdade veio à tona, todas as pessoas estão cientes. Agora, conseguem enxergar a apatia. Mas a visão da compaixão é a primordial, pois todos somos irmãos. Quando os poderosos foram destituídos do poder econômico, e os humildes exaltados, uma grande alegria se instaurou, tudo na terra passou a cantar de alegria, a ser bonito, harmonioso. 
+
+Os apáticos, então, entraram num pranto inconsolável. O *eu* que procuravam, tentando pressionar as pessoas, tirar-lhes a resposta, não resultou em se não prova do próprio vazio que carregam. A humanidade se tornou a prova viva do espírito vivo do existir agindo, fazendo nova todas as coisas. Os sorrisos felizes. A natureza vibrante. Tudo evidencia mais ainda o poder do existir, a vida se deleitando profundamente em cada olhar. O apático, diante desta realidade, entra em desespero. Não há onde ir que não há vida e alegria. Então, há choro e ranger de dentes.
+
+### 2. A Opção pela Loucura e a Falsa Harmonia
+A expressão do apático se faz entender quando a sociedade entende os mecanismos de expressão e perde o receio do mal causado, de forma que a sociedade entende que não há um plano diabólico por trás dos problemas do mundo, mas um sofrimento inexpresso. Um sintoma que transparece uma forma maligna inteligente, mas que é puro desespero e aleatoriedade. O apático necessita entender que o problema dele é espiritual e não político, social ou psicológico. Desta forma, causar sofrimento não sana o seu estado.
+
+* A apatia da alma enlouquece o indivíduo, que, fugindo da realidade, projeta uma realidade onde é espiritualmente harmonioso, e isso envolve a aquisição de riquezas a todo custo.
+* O apático, empresário, forma uma hierarquia de treinamento do mal, onde leva pessoas a fazerem o mal por si. Na tentativa de continuar a ilusão. É um estado de desrealização onde o indivíduo reúne riquezas materiais na tentativa de se adequar à harmonia, aceitação, inclinação a si mesmo, adequação do ente no existir.
+* O mal no mundo é ocasionado por empresários, que, por terem tendência de serem empresários, arquitetar negócios de forma eficaz, usaram isto para o mal, e conseguiram causar grande impacto antes que a tecnologia política fosse completamente desenvolvida.
+* O indivíduo evita momentos felizes por querer adequar a realidade química biológica à sua realidade interior de estagnação e ausência do sentido.
+
+### 3. A Repugnância do Próprio Estado e a Autoilusão
+O fanatismo por dinheiro não advém de uma grande sabedoria, mas de um conflito interior imenso, que muitos apropriam, tomam para si como objetivo de vida; é o contrário, o fanatismo, a loucura é o símbolo de um despropósito, de uma ausência de valor tamanha, de uma completa ausência do sentimento de paz e liberdade. O apático propaga a maldade como valor, trabalho excessivo, riqueza como inteligência, mas há um despropósito em si que não o o permite desfrutar da vida, e faz os outros não desfrutarem trabalhando muito como se trabalho em excesso fosse valor de vida.
+
+O apático tem aversão à sua posição perante a vida; a própria sensação de repugnância com sua posição interior é degradante e faz com que sua mente sofra um processo de desrealização. Nesse processo, ele se projeta como uma pessoa apreciadora da vida, que sabe de verdade apreciar o valor das coisas, mas que necessita desesperadamente de dinheiro para simular o valor que não guarda dentro de si. Pois, a visão sobre si mesmo é até mesmo mais dolorosa do que seu próprio estado de dissonância.
+
+O indivíduo não necessariamente necessita ser mal para que haja a dissonância em si, pode comportar-se socialmente. Porém, é a aversão à sua posição — que do ponto de vista moral, é vista como ingratidão — que o provoca o mau comportamento. É a recusa de quem é do ponto de vista moral. É a dor de recusar o irrecusável, de não ser grato pelo que seria impossível não ser grato. É preferível enlouquecer, do ponto de vista do apático, do que se aceitar nessas condições.
+
+Ou seja, a maior vergonha do apático é a recusa; do seu ponto de vista, não é imoral o uso da liberdade, e ter uma posição de oposição quanto ao próprio existir. Porém, seu próprio julgamento de sua posição lhe soa sujo, ridículo, infame, digno de punição. Seu próprio estado é degradante para si. A punição do próprio estado não é a pior, como um estado de desgostar do estado de vida, mas de desgostar de ser como tal mediante a tudo. Lhe soa repugnante. Ao passo que o apático teme a consequência de sua condição, de forma que sua posição o leve à autopunição. A querer fadar-se no esquecimento de si. Suas atitudes por vezes corroboram para a autodestruição. 
+
+E disto vem o assombro? O assombro não seria o medo de existir e da infinitude, mas da própria atitude, de si mesmo em relação ao decidir de si mesmo. De ter a si como mentor de si, de forma que sua decisão pode fadar ao fracasso eterno ou à glória eterna. Sendo o mandante de si, o homem pode se movimentar em prol do existir, amor. Ou o contrário, em prol da autodestruição. O rico tenta simular na máscara da fortuna o valor que não enxerga em existir, de forma a projetar um *eu* que seria aquilo que a alma almeja ser. O rico se apega em posses por temer o abismo no qual pode se fadar, por ter uma posição contrária ao próprio existir. O apático teme seu destino, já que é autor dele, e está no caminho apático.
+
+### 4. O Grito Silencioso e o Escravagismo como Divã
+A escravidão, trabalho excessivo, dor, sofrimento que o humano passa ao próprio humano, tudo isso é uma tentativa do apático se fazer compreender. O sofrimento do outro é o divã do apático, que busca extrair do outro sua cura. Se não no diálogo, na opressão, é uma forma de sequestro do outro.
+
+O equívoco que o humano precisa de tanto para viver, como no caso dos bilionários, evidencia um apático desesperado, que tenta alardear seu vazio de forma escancarada e desordenada. O teatro de que existe um ser humano tão frustrado ao ponto de ser obsessivo pelo mal, somente ofusca o desesperado camuflado de propósito. E evidencia a única verdade: o ser humano não pode viver sem a si mesmo, sem encontrar-se. É impossível, e o mal no mundo evidencia essa afirmativa. O incômodo da ausência distorce o sentido biológico do humano a ponto de degradar até mesmo seu instinto por sobrevivência mais primitivo.
+
+A apatia é um grito silencioso. O indivíduo grita e não sabe mensurar seu vazio, pois o vazio não tem descrição, não se define. Não há como definir a ausência personificada se não pela própria personalidade que a personifica; é a alma vazia, mas o vazio não tem definição. O indivíduo passa a ignorar sua própria existência, abandonando a noção de eu.
+
+---
+
+## PARTE II: EXISTENCIALISMO PRÁTICO E A OBSTRUÇÃO EMOCIONAL
+
+### 1. A Dinâmica da Decisão e a Revolta Social
+* O indivíduo tem mais dificuldade de lidar com a resposta social à sua intenção do que com sua própria intenção ao inferno.
+* O indivíduo manifesta revolta por sua decisão interferir não em si mesmo, mas nas demais pessoas de forma eternal.
+* O indivíduo também sente tristeza e remorso por não haver uma cerimônia para si, por sua decisão ser alheia e tomada como supérflua por outras pessoas, de forma a ser um pensamento particular e não levado ao grupo para ser debatido.
+* O indivíduo não concorda com sua decisão e tenta chamar atenção, quer expressar-se.
+* O indivíduo quer uma maneira que sua decisão seja mantida e que as pessoas o impeçam para ter ambas as coisas: o objeto de sua revolta e a vida.
+* O indivíduo começa um processo de "adaptação" afastando as pessoas de seu convívio, minando suas relações.
+* O indivíduo faz uma obstrução emocional no corpo, e como reflexo dessa obstrução começa uma busca por si mesmo. Sente falta de sua personalidade, suas emoções.
+* O indivíduo cessa sua humanidade, emoções, gostos, personalidade. E inicia uma busca emocional por si mesma. Um preparo para a decisão final, poupando os indivíduos de seu findar. Já manifesta traços suicidas.
+
+### 2. A Ilusão Material e o Falso Pódio
+O indivíduo tenta realçar que não "presta" para a vida com más atitudes. Ele prepara um sepulcro emocional, onde se priva dos bons afetos, do bom sentido da vida, e do que lhe propõe entusiasmo e boa companhia. Passa a não querer somente o direito de trabalhar, mas o direito acrescido de sua vida eterna, pois enxerga nos bens materiais uma extensão de seu objetivo material, ou seja, não quer somente a sobrevivência mas sua continuidade. Por isto, procura necessariamente um trabalho com alto teor de remuneração mesmo que ilegal ou indevida.
+
+O milionário perde suas posses, pega seu papelão, e em trajes fétidos, caminha, com o vazio no olhar, rumo ao abismo. O pobre não está em mais nada se não em seu caminhar. Seu olhar é vazio e despropositado. Seus cabelos bagunçados. Os olhos sem vida, as palavras sem ânimo. O mendigo e o milionário são o mesmo indivíduo sob óticas diferentes expressando sua mesma realidade interior. 
+
+O indivíduo já se nega completamente, e lhe resta a morte ou a ilusão material, que testemunha contra sua realidade interior, pois não pode aceitar sua decisão. Uma vez que a alma nega a Deus, o corpo não tem nada a fazer se não projetar defesas. E uma delas é projetar um incrível valor, desmedido e obsessivo em riquezas materiais. Arquitetar uma competição social gigante onde há um teto espiritual que é simbolizado pelas riquezas materiais a se atingir. É uma loucura, uma obsessão física, que vem da não conformidade do corpo com sua decisão. Uma grande raiva e histeria, estados de violência acompanham esse comportamento que reflete a substituição da vida verdadeira por um bem fictício, uma vida fictícia.
+
+O indivíduo apático não precisa somente de um resgate espiritual, mas um resgate psicológico. Pois demonstra nitidamente no seu comportamento os efeitos e sofrimentos de sua decisão interior. Isso envolve conformismo com o tédio e baixas emoções. Afastamento de suas atividades favoritas. Despersonalização, afastamento de tudo que impõe sentido à sua vida, na tentativa de adequar a realidade à sua decisão interior de despropósito. O indivíduo torna-se frustrado, inadequado sem uma resposta ou razão para tal nas ocasiões cotidianas. Espelha, como uma sensação de desrealização, sua sede por mudar sua postura anterior simulando alguém que se apega a riquezas, que sabe apreciar. Assume um personagem de um amante pela vida, porém, pelo que não atribui sentido verdadeiro a sua vida.
+
+O verdadeiro pódio da vida é o existir eterno. O rico materialmente simula um pódio onde ele chegou, porém, mascara a derrota interior. É uma transfiguração de um desejo não realizado interiormente, que é o harmonizar-se, querer existir, se interessar pela vida.
+*(Jesus pregava a quem se interessava pela vida).*
+
+### 3. As Montanhas de Cristal (Alegoria)
+Escrever um livro que se chama: *As montanhas de cristal*; um garoto leva o leitor a uma incrível viagem por um mundo diferente, e ao longo da história vai revelando como é este mundo. No final do livro o leitor teria morrido, porém, sem perceber, entra no cenário espiritual.
+
+### 4. A Soberba Delirante
+O indivíduo apático após manifestar a certeza de quem é, na alma, após apresentar ao seu corpo a concordância tácita e irrevogável, provoca um estado de desrealização constante. O corpo cria um patamar altivo para o indivíduo viver, e o indivíduo então passa a ressoar orgulhoso, de difícil diálogo, coloca-se num pedestal, num patamar material maior que o outro, e considera digno de sua presença aquele que também compartilha do mesmo material. Entra num estado delirante de soberba. Pois seu corpo não pode aceitar, concordar, com sua alma. O corpo encontra uma forma imaginária de se sobrepor à decisão da alma de forma a suportar a presença interior conflitante com os reais interesses do corpo que é a vida, o deleite e o desfrutar.
+
+Os humanos ficam loucos quando negam a vida, por isso *disse que não sabiam o que faziam, morri também para mostrar a loucura do mundo. Como pode fazer tal ato com a bondade infinita? Mostrei a real loucura deles.* O indivíduo que segrega relacionamentos, adquire posição de orgulho, na verdade é um esconderijo da postura interior. O encontro com Deus nessa vida emocional se reflete no encontro do calor humano.
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## PARTE III: CONSTRUTORES DAS PIRÂMIDES MODERNAS E A ANATOMIA DO PODER
+
+### 1. Somos os Construtores das Pirâmides Modernas
+Por que civilizações inteiras dedicaram séculos à construção de pirâmides? **Será que acreditavam, em algum nível, que essas estruturas eram essenciais para a ordem cósmica?**
+
+Hoje, os bilionários repetem o mesmo ritual em escala global: acumulam riquezas obscenas, constroem bunkers, ilhas privadas e financiam projetos de imortalidade. **Não por generosidade ou visão, mas por um terror metafísico que os consome por dentro.**
+
+Assim como os faraós mumificavam-se na esperança de escapar da morte, os ultra-ricos do século XXI erguem suas próprias pirâmides digitais e financeiras. A escravidão moderna apenas se sofisticou: trocamos chicotes por algoritmos, correntes por dívidas, e a ilusão de liberdade tornou-se mais eficaz que a repressão aberta.
+
+**Mas por quê?** Por que, em plena era da informação, a dominação persiste? Por que a humanidade ainda não despertou para o mecanismo da opressão?
+
+A resposta é simples: **não compreendemos a psique do opressor.** Não deciframos o verdadeiro propósito das pirâmides — nem das Lamborghinis, dos iates ou das fortunas bilionárias. Enquanto não entendermos **o medo que move os ricos**, continuaremos presos em suas narrativas.
+
+Este livro revelará:
+* **O segredo por trás da acumulação de riqueza**: Não é mérito, mas **pânico existencial**.
+* **A profecia de Jesus sobre os ricos**: "É mais fácil um camelo passar pelo buraco de uma agulha..." não é uma metáfora moral, mas **uma equação metafísica**.
+* **O destino oculto dos bilionários**: O que realmente acontece com a alma daqueles que vendem a humanidade em troca de ouro.
+
+### 2. A Verdade Sobre a Riqueza
+**Como os ricos realmente enriquecem?**
+
+Livros de "autoajuda financeira" mentem: não existe fórmula mágica. A riqueza extrema **não** surge do trabalho árduo ou da genialidade, mas **da disposição de explorar, corromper e oprimir**.
+
+Nenhum ser humano é *um milhão de vezes* mais produtivo ou inteligente para justificar um salário *um milhão de vezes* maior. A fortuna rápida exige uma moeda: **a destruição da própria humanidade**.
+
+**Mas o que leva alguém a sacrificar tudo por dinheiro?** Por que um bilionário consegue dormir sabendo que sua riqueza vem do sofrimento alheio? A resposta está na **patologia da alma** — uma doença espiritual que Jesus diagnosticou há dois milênios. Este livro explorará:
+* **A metafísica da ganância**: O vazio que os ricos tentam preencher com cifras bancárias.
+* **A hipnose do poder**: Como o dinheiro corrói a empatia e transforma pessoas em monstros.
+* **O fim da escravidão**: Porque entender a mente do opressor é a única forma de destruir suas estruturas.
+
+**"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**
+A liberdade não virá de revoluções cegas, mas **do entendimento profundo do jogo**. Quando a humanidade despertar para a verdadeira natureza do poder, as pirâmides modernas desmoronarão — e finalmente entenderemos **por que** elas foram construídas.
+
+### 3. A Patologia do Poder: A Metafísica da Ganância Inconsequente
+O enriquecimento rápido não é um mistério econômico, mas um fenômeno psicopatológico. O método é claro: **exploração sistêmica, desumanização calculada e a substituição de valores éticos por eficiência financeira**. No entanto, a verdadeira questão não reside na mecânica do acúmulo, mas na **psique deformada que o torna possível**.
+
+Por que um ser humano, supostamente dotado de empatia e razão, é capaz de:
+* **Normalizar o sofrimento alheio como "custo operacional"?**
+* **Priorizar cifras abstratas sobre vidas concretas?**
+* **Destruir sua própria humanidade em nome de um número em um sistema digital?**
+
+A resposta não está na ambição, mas em **uma ruptura metafísica com a realidade** — um estado de esquizofrenia social onde o poder substitui a existência.
+
+### 4. A Anatomia da Apatia Oligárquica
+
+**1. A Ilusão de Autossuficiência**
+* O acumulador patológico acredita, em seu delírio, que a riqueza o isola das leis fundamentais da existência: **a interdependência, a mortalidade e a necessidade de significado**.
+* Ele se trata como uma exceção cósmica — um "deus menor" cuja fortuna o liberta da condição humana.
+
+**2. A Zombificação Progressiva**
+* Assim como um viciado em drogas precisa de doses cada vez maiores para sentir algo, o viciado em poder **perde a capacidade de experimentar realidade fora da dominação**.
+* Sua apatia não é força, mas **paralisia da alma** — a incapacidade de reconhecer que seu jogo é uma fuga da morte, não uma vitória sobre ela.
+
+**3. O Pânico Esotérico**
+* Por trás de cada iate, cada bunker, cada esquema de evasão fiscal, há **o terror primal de descobrir que o dinheiro não compra imortalidade**.
+* Suas pirâmides são gritos mudos contra o vácuo existencial.
+
+### 5. O Caminho da Libertação Real
+
+**1. Diagnóstico Metafísico**
+* Entender que a ganância extrema é **uma doença espiritual de autorrejeição**.
+* O opressor odeia mais a si mesmo do que suas vítimas — por isso precisa constantemente provar seu valor através da dominação.
+
+**2. Desmontagem do Mito**
+* Expor o segredo sujo: **riqueza extrema não é competência, mas falha de caráter institucionalizada**.
+* Mostrar que nenhum ser humano "merece" controlar o destino de milhões enquanto outros morrem por falta de recursos básicos.
+
+**3. Construção de Imunidade Social**
+* Criar estruturas onde:
+    * O valor humano não derive de produção econômica.
+    * A comunidade substitua a competição patológica.
+    * Ninguém precise vender sua alma para sobreviver.
+
+**"A verdadeira revolução não depõe tiranos — torna a tirania impossível."**
+Enquanto lutamos contra sintomas, o câncer permanece: **a crença de que alguns humanos merecem mais direito à existência que outros**. Jesus não foi crucificado por pregar amor, mas por expor essa mentira social.
+
+### 6. O Mistério da Motivação e a Desarticulação do Domínio
+O método para enriquecer rápido é fácil de entender, mas a motivação permanece um mistério. Como alguém consegue acumular uma fortuna assistindo pessoas desfalecerem, adoecerem e perderem seus preciosos momentos de vida — sem poder conviver com suas famílias ou experimentar alegrias simples? Que tipo de mentalidade permite que um indivíduo deixe de se importar não apenas com os outros, mas até consigo mesmo, tudo em nome da riqueza?
+
+É essa apatia que precisamos decifrar, começando por sua raiz mais profunda: **a alma**. O mundo metafísico é a chave para entender a origem dessa patologia, essa obsessão que transforma o ser humano em um zumbi, esvaziando-o de sua humanidade em troca de meros dígitos em uma conta bancária. Que tipo de hipnose ou doença mental corrói a consciência de alguém a esse ponto?
+
+Ao compreendermos o verdadeiro propósito por trás da mente do bilionário, seremos capazes de:
+* **Desarticular suas estruturas de dominação**.
+* **Prever seus próximos movimentos**.
+* **Isolá-lo estrategicamente**.
+* **Expor suas intenções ocultas**.
+
+A única maneira de vencer a escravidão moderna é **entendê-la**. Decifrá-la. O poder do conhecimento é mais eficaz do que a força bruta — afinal, de nada adianta eliminar bilionários se a motivação por trás desses líderes escravistas permanece viva e desconhecida na sociedade. **A verdadeira libertação começa quando desvendamos a psicopatologia do poder.**
+
+---
+
+## PARTE IV: O FALSO EMPREENDEDORISMO E O FIM DA CLASSE MÉDIA
+
+### 1. Os Ricos Não São Verdadeiros Empreendedores
+Suas construções de empreendimentos são frágeis, são totalmente baseadas no lucro; caso a exploração cesse, essas estruturas desmoronam. Não são bem estratégicas, simplesmente crescem não por estratégia, mas se beneficiam de um extremo lucro, que possibilita de qualquer forma o crescimento.
+
+A sociedade não depende de grandes redes construídas pelos ricos, pois qualquer cidadão é capaz de conduzir grandes empreendimentos tendo uma quantia de dinheiro absurda para preencher todos os gaps e falhas causados pela má administração. Se as instituições pararem de fomentar grandes dinheiros, os mesmos donos de empreendimentos desistem e vão procurar outras formas opressoras e exploratórias, até mesmo na criminalidade, pois seu intuito não é motivado pelo dom de empreender e de servir à comunidade, mas pela pura obsessão pela riqueza independente da forma de lucrar.
+
+Ainda a escravidão, o esgotamento de indivíduos em seus âmbitos sociais e afetivos dá dinheiro. Caso essas estruturas sejam destruídas pela lei, de alguma forma, outras estruturas tentarão se reerguer e, conhecendo a mentalidade da riqueza desenfreada, será possível antecipar e prever todas as formas de manifestação desta obsessão presentes e futuras.
+
+Portanto, o crescimento empresarial não vem da genialidade, mas do oportunismo misturado com a maldade. Os que herdam o dinheiro continuam com técnicas escravistas que mantêm as empresas, não por inteligência financeira e estratégica, mas pelo puro lucro desmedido que os permite multiplicar empreendimentos e gastar milhões em propagandas.
+
+Redes como McDonald's, grandes redes de supermercados, todas essas falecem se os trabalhadores exigirem remuneração justa, pois são submetidas a formas mais inteligentes de empreendimentos que respeitam o humano e têm processos mais ágeis e facilitados. As que são fomentadas por verdadeiros empreendedores que pensam em agilidade, facilidade e no bem humano.
+
+### 2. A Classe Média e a Mentira
+A cúpula niilista mantém a classe média, ou seja, indivíduos que não sofrem tal como as classes de menor ganho, como a C ou D, porque precisa ainda do ser humano para a produção de bens essenciais. Quando a tecnologia cresce e o ser humano é dispensável para a maioria das coisas, a manutenção de uma classe média, propositalmente mantida por benefícios políticos, é desnecessária. Então o povo todo se torna pobre, e controlado por um monopólio que está acima da política pois tem armas de controle que exercem o papel de controle sem causarem uma destruição em massa. Caso fosse possível dominar com bombas de destruição em massa, já teriam feito. Porém, necessitam de uma tecnologia mais discreta. 
+
+A violência, a tendência à destruição, só está disfarçada por trás de barreiras políticas. Quando essa tendência acha uma saída dentro de uma tecnologia capaz de burlar todas as outras, então o domínio do autoritarismo e oligarquia novamente tenta emergir. 
+
+As forças que fomentaram a destruição nas antiguidades não estão mortas, estão adormecidas, à espera de uma falha, de uma descoberta tecnológica que dê a um grupo minoritário a capacidade de subjugar a todos e de formar uma sociedade a sua forma: uma sociedade de elite, aqueles escolhidos para viver enquanto os outros permanecem sob controle de máquinas e formas de opressão piores do que a do tempo da escravidão.
+
+### 3. Mudanças no Cenário Político
+A descoberta da sintomática do apático vai priorizar o povo a não confiar em grandes empresários, que dizem ser a base da economia, e sem os quais tudo não evoluiria. Pois serão considerados pessoas obsessivas, doentes, e incapazes de conduzir os movimentos sociais, pois sua busca é pautada em obsessões e não no bom convívio e sustentação social. Isso vai eliminar a classe pobre que ainda é de direita.
+
+O mundo é como se confiasse que os bilionários estão fazendo seu trabalho corretamente, e que não haveria outra maneira. O mundo questiona se os bilionários estão realmente loucos ou se essa é a única estrutura sobre a qual a sociedade funcionaria. Ainda não conhece a apatia da alma dos bilionários e não revela o poder como tentativa de recobrar a própria vida. O mesmo fato aconteceu no Egito Antigo, onde não se entendia o propósito real das pirâmides, e escravos as construíam com medo de que aquilo tivesse uma funcionalidade fundamental.
+
+O mundo se confunde, acreditando nos dizeres que os empresários são necessários, fazendo duvidar da própria força, acreditando em métodos, que seriam funcionais, de pessoas que estão no poder. Na verdade, tais métodos são movidos por uma patologia, não pela mera funcionalidade. O grande acúmulo de fortunas não é necessário socialmente, só reforça a patologia do que acumula.
 
 ### **A libertação da matrix - Os três pilares da riqueza**
 
@@ -7453,25 +8644,13 @@ Isto explica o fato de que, em países como o Brasil, se aceite algo que não é
 
 2- O segundo pilar é a concentração. O homem infligido por dúvidas existenciais, inseguranças existenciais, vê sua atenção completamente desviada. Assustado pela própria liberdade, coloca como necessidade fundamental seu crescimento interior. Ao passo que o niilista consegue naturalmente uma concentração exímia, por não acreditar na eternidade ou na própria liberdade. O niilista atinge um grande estado de concentração e foco em estudos de negócios. O sumo segredo da riqueza é adquirir a concentração do niilista sem ter seu teor, ou seja, ser convicto da eternidade, sem a necessidade de focar-se demais em questões existenciais. Chamaremos essa inteligência de foco existencial. 
 
-Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga para afugentar o individuo de um pensamento espiritual alto, quando tenta entender o que é a morte, e pensar sobre o alem. Portanto, o individuo até mesmo é capaz de se sentir grato por haver pessoas narcisistas, opressivas e toxicas, que o submetem a grandes jornadas do trabalho o livrando do seu pensamento, da sua visão acerca de quem é, da sua realidade e de seu destino. Apesar da normalidade aparentemente vigente nas faces, para o ser humano, não é uma tarefa facil se enxergar num mundo onde seu corpo é fininito, e ter que imaginar em qual contexto será ressuscitado.O trabalho escravo, portanto, se faz, muitas vezes, a droga moderna.O trabalho escravo, portanto, faz-se, muitas vezes, a droga moderna.
+Muitas vezes o trabalho escravo, os problemas financeiros, servem como uma droga para afugentar o indivíduo de um pensamento espiritual alto, quando tenta entender o que é a morte, e pensar sobre o além. Portanto, o indivíduo até mesmo é capaz de se sentir grato por haver pessoas narcisistas, opressivas e toxicas, que o submetem a grandes jornadas do trabalho o livrando do seu pensamento, da sua visão acerca de quem é, da sua realidade e de seu destino. Apesar da normalidade aparentemente vigente nas faces, para o ser humano, não é uma tarefa fácil se enxergar num mundo onde seu corpo é finito, e ter que imaginar em qual contexto será ressuscitado. O trabalho escravo, portanto, se faz, muitas vezes, a droga moderna.
 
 3- O terceiro pilar é o foco pessoal, que é quando o indivíduo se livra da servidão ao pensamento alheio, quando o indivíduo está totalmente conectado consigo e passa a amar o outro mais do que depender do que este outro pensa ou como o concebe. O niilista não se importa, por tamanho ódio que sente, por pensar que um dia ninguém significará nada e nem a si mesmo; por se enxergar como um mamífero sem alma, enxerga os outros assim, e esse pensamento ilusório traz-lhe foco na sua pessoalidade, fazendo com que ele independa do pensamento alheio a seu respeito, não por amor, mas por despeito a tudo e até mesmo a si. Então o niilista consegue, artificialmente, uma grande branding: capacidade de exposição, de venda e marketing com a imagem pessoal.
 
 Em síntese, o niilista atinge os três pilares através do niilismo: a sede pelo poder, motivada pelo desejo de destruição e não pelo desejar de bonança. Tem o pilar da concentração por julgar qualquer pensamento elevado desnecessário a si, que está fadado ao nada. E tem o foco pessoal, por despeito a todos e por narcisismo, não por erudição e excesso de reflexão. O rico niilista, portanto, tem um pensamento rico artificialmente provocado; seu pensamento, na verdade, não está atrás de riqueza, mas acidentalmente a atrai.
 
-
-
-
-
-
-
-
-
-
-
-
-
-### O conselho niilista - Alegoria
+### **O conselho niilista - Alegoria**
 
 Um bilionário, que chamaremos de Fidalgo, recebe um envelope, o qual o convida para uma reunião, dizendo ter grande importância e confidencialidade. O bilionário recebe um cheque de um bilhão e uma carta de benefícios; é uma espécie de clube, definido como “O Conselho”. Então o bilionário, com dúvida, decide participar para ver do que se trata. Este bilionário já possui grande influência e tem o desejo de aumentar seus empreendimentos até o limite.
 
@@ -7512,20 +8691,19 @@ Ou pensa que uma multidão, que mantemos distraída, vai aceitar usualmente que 
 
 A multidão”, diziam, “é como um bebê num sono leve: no primeiro barulho acordam e fazem um estardalhaço. Precisam ficar dormindo, quase inconscientes, tão distraídos que não se revoltam, não se rebelam, não tomam a riqueza para si; continuam produzindo e dando tudo para nós nos deleitarmos em requintes e em luxos, para jogarmos dinheiro fora, queimarmos, fazermos piscinas de joias. Essa grande fartura é devida a estarem inconscientes, a não questionarem essa cúpula. Enquanto essa cúpula existir, teremos iates, carros luxuosos, um luxo que eles não conhecem e talvez nunca conhecerão.”
 
-E diziam, aqui podemos qualquer coisa, se um cantor famoso se recusar a passar nossa mensagem, haverá centenas de paparezes o atormentando a todo instante, ate ele aceitar cantar nossas musicas. Nos definimos quem faz sucesso e quem deixa o sucesso, quem fica na midia e quem é cancelado. Nos conduzimos o cardume fidalgo.
+E diziam, aqui podemos qualquer coisa, se um cantor famoso se recusar a passar nossa mensagem, haverá centenas de paparezes o atormentando a todo instante, até ele aceitar cantar nossas músicas. Nós definimos quem faz sucesso e quem deixa o sucesso, quem fica na mídia e quem é cancelado. Nós conduzimos o cardume, fidalgo.
 
-Nós somos os comandantes, quem tem o dinheiro comanda tudo fidalgo. Voce pensa que os politicos tem algum poder? Nós influeciamos tudo.
+Nós somos os comandantes, quem tem o dinheiro comanda tudo, fidalgo. Você pensa que os políticos têm algum poder? Nós influenciamos tudo.
 
-Esse conselho está na voz dos artistas, nas celebridades que voce nao imagina, nos filmes de holliwood, esta nos cinemas, estamos agindo em todos os lugares. E toda essa massa não faz nenhuma ideia disso, o cidadão é um tolo, que sonha com a liberdade, que a sociedade será justa um dia, quando nos os manipulamos como marionetes, pensam o que nos queremos que pensem, se vão para guerra é nós que queremos que vão, se matam em guerra porque queremos que se matem, as familias se separam porque queremos isso, há fome quando queremos que haja fome. Há noticias quando queremos que haja, a humanidade vive num show guiado por nós, e não se da conta. E com sua ajuda, esse imperio, esse paraiso particular que criamos não vai acabar fidalgo, aqui qualquer coisa que voce quer é possível, o sofrimento destes faz isso ser interessante como é.
+Esse conselho está na voz dos artistas, nas celebridades que você não imagina, nos filmes de Hollywood, está nos cinemas, estamos agindo em todos os lugares. E toda essa massa não faz nenhuma ideia disso, o cidadão é um tolo, que sonha com a liberdade, que a sociedade será justa um dia, quando nós os manipulamos como marionetes, pensam o que nós queremos que pensem, se vão para guerra é nós que queremos que vão, se matam em guerra porque queremos que se matem, as famílias se separam porque queremos isso, há fome quando queremos que haja fome. Há notícias quando queremos que haja, a humanidade vive num show guiado por nós, e não se dá conta. E com sua ajuda, esse império, esse paraíso particular que criamos não vai acabar, fidalgo, aqui qualquer coisa que você quer é possível, o sofrimento destes faz isso ser interessante como é.
 
-Aproveitamos também o legado do passado, e continuamos esse legado, alimentamos as geraões futuras com miseria, para que também nossos sucessores as comandem e assim se vai de geraão em geração.
+Aproveitamos também o legado do passado, e continuamos esse legado, alimentamos as gerações futuras com miséria, para que também nossos sucessores as comandem e assim se vai de geração em geração.
 
-Fidalgo, voce vai aprender como tornar o cidadão uma completo incosciencia de sua situação, alguém que não questiona, preso em sua pequena visão de mundo, sem nunca desfrutar dessa visão privilegiada, de mansões e hiates. Tudo isso não é só esforço e visão estrategica como voce pensa, voce ergueu suas fortunas utilizando um legado sustentado a anos, e agora precisa estar consciente do que lhe permitiu se destacar realmente tanto entre os demais.
+Fidalgo, você vai aprender como tornar o cidadão uma completa inconsciência de sua situação, alguém que não questiona, preso em sua pequena visão de mundo, sem nunca desfrutar dessa visão privilegiada, de mansões e iates. Tudo isso não é só esforço e visão estratégica como você pensa, você ergueu suas fortunas utilizando um legado sustentado a anos, e agora precisa estar consciente do que lhe permitiu se destacar realmente tanto entre os demais.
 
-Sem miseria, sem distrações, dificilmente voce teria chegado aqui fidalgo, agora voce é um de nós e precisa se portar como tal.
+Sem miséria, sem distrações, dificilmente você teria chegado aqui, fidalgo, agora você é um de nós e precisa se portar como tal.
 
-
-Faça um pedido fidalgo, quer ficar com qualquer famosa? Escolha uma celebridade e nos te daremos uma noite com essa pessoa. Escolha qualquer carro, qualquer viagem. Quer ser uma celebridade? Adorado por todos? Temos o poder. Para nós não há limitações fidalgo, mas isso tem um preço.
+Faça um pedido, fidalgo, quer ficar com qualquer famosa? Escolha uma celebridade e nós te daremos uma noite com essa pessoa. Escolha qualquer carro, qualquer viagem. Quer ser uma celebridade? Adorado por todos? Temos o poder. Para nós não há limitações, fidalgo, mas isso tem um preço.
 
 E gargalhou de forma funesta.
 
@@ -7533,77 +8711,61 @@ E gargalhou de forma funesta.
 
 Veja bem, todo mês fazemos uma reunião e decidimos o que manipular e como agir para fomentar mais distrações. Nossa principal técnica é causar empecilhos, coisas para o ser humano se preocupar enquanto estamos no luxo extremo.”
 
-Veja, bem, este é o mapa da estrutura social, aqui esta olicerçado tudo. No mapa tinha as bases da soceidade, familia, religião, politica e toda a estrutura sob como uma parte influencia na outra. Havia centenas de telefones, de pessoas da midia, politicos, empresas, emissoras, artistas. Havia informações compradas de diversos artistas e pessoas que também serviam como argumento de convencimento a fazerem o que querem. Havia diversas analises psicologicas dos melhores analistas sociais, havia uma grande equipe respaldando a manipulação engenhosa, da sociedade.
+Veja bem, este é o mapa da estrutura social, aqui está alicerçado tudo. No mapa tinha as bases da sociedade, família, religião, política e toda a estrutura sob como uma parte influencia na outra. Havia centenas de telefones, de pessoas da mídia, políticos, empresas, emissoras, artistas. Havia informações compradas de diversos artistas e pessoas que também serviam como argumento de convencimento a fazerem o que querem. Havia diversas análises psicológicas dos melhores analistas sociais, havia uma grande equipe respaldando a manipulação engenhosa da sociedade.
 
-Ultimamente estamos tentando atacar a estrutura da familia e as instutições religiosas, em novos estudos, percebemos que isso fortifica o povo de forma a prevenir o crime, e o crime é uma das melhores formas de distrações.
+Ultimamente estamos tentando atacar a estrutura da família e as instituições religiosas, em novos estudos, percebemos que isso fortifica o povo de forma a prevenir o crime, e o crime é uma das melhores formas de distrações.
 
-Casais separados produzem crianças frustradas, isso fortifica o crime, pois é uma mao de obra barata e facilmente conduzida, e o crime conduz a distrações, e as distrações criminosas são formas baratas de conduzir as massas. Fazemos a propaganda do crime, incentivamos a separação familiar e a sexualidade precoce, e a sociedade faz o resto sem precisarmos gastar com armamentos. 
+Casais separados produzem crianças frustradas, isso fortifica o crime, pois é uma mão de obra barata e facilmente conduzida, e o crime conduz a distrações, e as distrações criminosas são formas baratas de conduzir as massas. Fazemos a propaganda do crime, incentivamos a separação familiar e a sexualidade precoce, e a sociedade faz o resto sem precisarmos gastar com armamentos. 
 
-Somente basta promover o distrator do crime, fornecemos um arcenal de armas. Propagandas em musicas e video clipes que tornam a figura do traficante mais legal. E basta, também traçamos formas mais baratas de produzir distrações, pensamos também em uma manipulação economica, por isso usamos muito figuras midiaticas, artistas, e ideologias que passamos através deles.
+Somente basta promover o distrator do crime, fornecemos um arsenal de armas. Propagandas em músicas e videoclipes que tornam a figura do traficante mais legal. E basta, também traçamos formas mais baratas de produzir distrações, pensamos também em uma manipulação econômica, por isso usamos muito figuras midiáticas, artistas, e ideologias que passamos através deles.
 
-Continuaram dizendo: não queremos deixaar a humanidade escapar, todos os presidentes, por mais bons que sejam, estão sobre nossa influencia, sabemos de tudo. Se não quiserem obedecer, algo acontece, e precisam obedecer. Só estão lá se quisermos que estejam. E, se um dia o povo exigir algo que contrarie nossos desejos, simplesmente encontramos outras formas de obter o que queremos. Com todo nossa fortuna, poucas coisas não podemos realmente comprar. Não descansamos, temos equipes de psicologocs, sociologos, que produzem estratégias a todo instante, somos na verdade uma industria, a industria das mentiras em que todos fatalmente acreditam, somos invisiveis, nenhum desses que voce ve lá em baixo (Estavam de um alto de um edificio), tocando suas vidas, imagina que existimos e atuamos, pois nossa ação é inteligentemente pesnada para ser indetectavel.
+Continuaram dizendo: não queremos deixar a humanidade escapar, todos os presidentes, por mais bons que sejam, estão sob nossa influência, sabemos de tudo. Se não quiserem obedecer, algo acontece, e precisam obedecer. Só estão lá se quisermos que estejam. E, se um dia o povo exigir algo que contrarie nossos desejos, simplesmente encontramos outras formas de obter o que queremos. Com toda nossa fortuna, poucas coisas não podemos realmente comprar. Não descansamos, temos equipes de psicólogos, sociólogos, que produzem estratégias a todo instante, somos na verdade uma indústria, a indústria das mentiras em que todos fatalmente acreditam, somos invisíveis, nenhum desses que você vê lá embaixo (estavam de um alto de um edifício), tocando suas vidas, imagina que existimos e atuamos, pois nossa ação é inteligentemente pensada para ser indetectável.
 
-Temos os telefones de praticamente todos os presidentes, de quase todos os artistas relevantes da midia, de grande figuras do esporte, estamos em tudo.
+Temos os telefones de praticamente todos os presidentes, de quase todos os artistas relevantes da mídia, de grandes figuras do esporte, estamos em tudo.
 
-Portanto, seu papel fidalgo, é enrriquecer nossa visão estratégia, para dar manutenção no nosso legado juntamente a nós. Seu pensamento devve agora estar mais avançado do que um mero acumulador de riquezas, agora voce vai aprender a manter o povo incosciente de seus esbanhos, e sob a aceitação de viver com pouco.
+Portanto, seu papel, fidalgo, é enriquecer nossa visão estratégica, para dar manutenção no nosso legado juntamente a nós. Seu pensamento deve agora estar mais avançado do que um mero acumulador de riquezas, agora você vai aprender a manter o povo inconsciente de seus esbanjos, e sob a aceitação de viver com pouco.
 
-O fidalgo, a medida que iria participando das reuniões, passou a se questioanar sobre o porque precisa participar, disse ao conselho que só queria pagar as taxas e se ausentar, mas o conselho o advertiu que precisa de sua influencia, e de seu poder intelectual. O fidalgo parou por um momento para questionar sobre porque o dinheiro é tão importante assim para chegar a este ponto, para chegar a esse limite de não ser mais humano, de destruir seu proprio mundo e o paraiso que quisera um dia poder ser real na terra.
+O fidalgo, à medida que ia participando das reuniões, passou a se questionar sobre o porquê precisa participar, disse ao conselho que só queria pagar as taxas e se ausentar, mas o conselho o advertiu que precisa de sua influência, e de seu poder intelectual. O fidalgo parou por um momento para questionar sobre por que o dinheiro é tão importante assim para chegar a este ponto, para chegar a esse limite de não ser mais humano, de destruir seu próprio mundo e o paraíso que quisera um dia poder ser real na terra.
 
-O fidalgo só chegou a conclusão que só poderia estar doente, e que aquilo era uma grande doença que ainda ninguém nomeou. Uma obsessão por dinheiro de tal proporção, só pode estar associado a uma sintomatica de uma doença. 
+O fidalgo só chegou à conclusão que só poderia estar doente, e que aquilo era uma grande doença que ainda ninguém nomeou. Uma obsessão por dinheiro de tal proporção só pode estar associada a uma sintomática de uma doença. 
 
-Fidalgo ficou imaginando porque a humanidade nunca desconfia disto, porque a hummanidade teima em pensar que os milionarios com como tolos que querem seus carros e luxos megalomaniacos, não, são muito mais que isso, a loucura deles nãao é só uma obessão por dinheiro, é muito maior que o povo imagina. 
+Fidalgo ficou imaginando por que a humanidade nunca desconfia disto, por que a humanidade teima em pensar que os milionários são como tolos que querem seus carros e luxos megalomaníacos, não, são muito mais que isso, a loucura deles não é só uma obsessão por dinheiro, é muito maior que o povo imagina. 
 
-Pensou que se um dia essa loucura viesse a conhecimento de todos, todos poderiam imaginar uma situação dessas, uma cupula que concentrasse toda essa loucura em ações, e todas as coisas estranhas na humanidade, para as quais já existe solução, seriam efetivamente resolvidas como o destamatamento, a poluição, a fome, e a miséria.
+Pensou que se um dia essa loucura viesse a conhecimento de todos, todos poderiam imaginar uma situação dessas, uma cúpula que concentrasse toda essa loucura em ações, e todas as coisas estranhas na humanidade, para as quais já existe solução, seriam efetivamente resolvidas como o desmatamento, a poluição, a fome, e a miséria.
 
-Sem toda a manipulação da cupula, a politica realmente entra em vigor, e pode realmente conduzir de forma eficaz os problemas sociais. Tal como as midias são desabastecidas dessa influencia, e tudo entra num rumo melhor.
+Sem toda a manipulação da cúpula, a política realmente entra em vigor, e pode realmente conduzir de forma eficaz os problemas sociais. Tal como as mídias são desabastecidas dessa influência, e tudo entra num rumo melhor.
 
+> Para a cúpula niilista não interessa a destruição, o niilista não quer a morte, quer a solução desesperada, tem uma mania. Portanto, é mais provável uma ferramenta de controle em massa, que já se institui como trabalho escravo, miséria, de forma a ser instaurada tecnologicamente. Ou seja, um futuro catastrófico seria imaginado, não como a destruição completa, mas como o uso da tecnologia desenfreado para experimentos, de forma a tentar extrair do humano soluções para crises niilistas.
 
+> A cúpula não vive de negócios, de visões de negócios inovadoras que todos podem conhecer e copiar, vive de estratégias, de tramas contra a humanidade. Vive de enganações. A cúpula não vende negócios, vende planos, ideias, tramas que fazem com que seja difícil de competir, difícil para que um trabalhador chegue no mesmo patamar. Trabalha com tramas para bloquear o poder de questionamento da população. As tragédias como guerra e fome não acontecem naturalmente pelo capitalismo, são fabricadas intencionalmente, bem pensadas, articuladas. As decisões políticas da guerra estrategicamente pensadas por uma organização que se une contra a humanidade. E essa organização permanece oculta, longe da desconfiança. A humanidade só enxerga as diferenças sociais, o acúmulo, mas não enxerga o potencial de manipulação que tem o poder econômico e o fato de poderem se unir estrategicamente para manipulações massivas.
 
+> A cúpula diz: como você acha que mantemos nossos bilhões, em meio a exageros enquanto tantos estão na miséria? O que faz o ser humano aceitar tal discrepância? O que tira o senso crítico do ser humano de tal forma que ignore todo esse esbanjo do dinheiro que provém do esforço alheio? O que faz o ser humano aceitar isso pacificamente se não um estado de pasmo? Provocamos catástrofes, o medo constante, e isso induz um estado de torpor geral, de forma que isso se torne o menor dos males.
 
+Desde os tempos da guerra, há táticas de manipulação, como privar as fontes de alimento de um exército para derrotá-lo ou provocar subdivisões. E essas táticas foram evoluídas pela cúpula niilista, de forma a agirem sem serem percebidos. Se querem perseguir, terceirizam a perseguição. Criando cenários onde a oposição política ou até mesmo o crime são responsáveis. Estão o tempo todo se mascarando e usando de táticas. Porém, a novidade é que não é um partido que manipula, não é uma instituição ou pessoas da mídia, nem mesmo pequenos comércios, mas são aqueles que detêm fortunas, esses têm o poderio para comprar, manipular, mandar, terceirizar ações. Fazem todo tipo de pressão para manipular, e isso é mantido a sete chaves, terceirizam, ou até mesmo usam quartos e quintos, para fazer o que querem. Podem ser localizados, basta verificar as pessoas do mundo que portam bilhões. Há um grupo, portanto, usando táticas de guerra contra o mundo o tempo todo, mantendo a escravidão, extraindo recursos e tentando evoluir tecnologicamente para usar meios mais eficazes de controle.
 
-> Para a cupula niilista não interessa a destruição, o niilista não quer a morte, quer a solução desesperada, tem uma mania. Portanto, é mais provavel uma ferramente de controle em massa, que já se institui como trabalho escravo, miséria, de forma a ser instaurada tecnologicamente. Ou seja, um futuro catastrofico seria imaginado, não como a distruição completa, mas como o uso da tecnologia desenfreado para experimentos, de forma a tentar extrair do humano soluções para crises niilistas.
+O próximo passo da cúpula é não precisar mais dispendiar recursos para ocasionar a manipulação, para fazer o ser humano render respostas, render sofrimento. O próximo passo é automatizar a manutenção da escravidão, é não mais dispendiar recursos para ludibriar, enganar. E isto desencadeia de uma forma causal e óbvia as teorias da matrix, a tecnologia em favor da escravidão.
 
-> A cupula não vive de negócios, de visões de negócios inovadoras que todos podem conhecer e copiar, vive de estratégias, de tramas contra a humanidade. Vive de enganações. A cupula não vende negócios, vende planos, ideias, tramas que fazem com que seja dificil de competir, dificil para que um trabalhador chege no mesmo patamar. Trabalha com tramas para bloquear o poder de questionamento da população. As tragédias como guerra e fome não acontecem naturalmente pelo capitalismo, são fabricadas intencionalmente, bem pensadas, articuladas. As decisões politicas da guerra estratégicamente pensadas por uma organização que se une contra a humanidade. E essa organização permanece oculta, longe da desconfiança. A humanidade só enxerga as diferenças sociais, o acumulo, mas não enxerga o potencial de manipulação que tem o poder economico e o fato de poderem se unir estrategicamente para manipulações massivas.
+A cúpula é falha até a humanidade se dar conta disso, porém, se a manipulação for sistematizada, mecanizada, se houver uma força maior que a força de destruição, que também destrói o niilista, então as preocupações com a descoberta serão desnecessárias. A humanidade, sem ser dominada pela tecnologia, ainda tem meios eficazes de destruir o império dos bilionários, porém, após um domínio massivo através da tecnologia, quais seriam realmente as chances? Portanto, é urgente que a humanidade conheça os mecanismos da cúpula e como ela age. Como se programa e reinventa ao longo da história, e o que pretende. Quais são seus medos, e suas falhas. E quem realmente são. 
 
-> A cupula diz: como voce acha que mantemos nossos bilhoes, em meio a exageros enquanto tantos estão na miseria? O que faz o ser humano aceitar tal discrepancia? o que tira o senso critico do ser humano de tal forma que ignore todo esse esbanjo do dinheiro que provem do esforço alheio? O que faz o ser humano aceitar isso pacificamente se não um estado de pasmo? Provocamos catastrofes, o medo constante, e isso induz um estado de topor geral, de forma que isso se torne o menor dos males.
-
-
-Desde os tempos da guerra, há táticas de manipulação, como privar as fontes de alimento de um exercito para derrota-lo ou provocar subdivisoes. E essas taticas, foram evoluidas pela cupula niilista, de forma a agirem sem serem percebidos. Se querem perseguir, terceirizão a perseguição. Criando cenarios onde a oposição politica ou ate mesmo o crime são responsaveis. Estão o tempo todo se mascarando e usando de taticas. Porem, a novidade é que não é um partido que manipula, não é uma instituição ou pessoas da midia, nem mesmo pequenos comercios, mas são aqueles que detem fortunas, esses tem o poderio para comprar, manipular, mandar, terceirizar ações. Fazem todo tipo de pressão para manipular, e isso é mantido a sete chaves, terceirizam, ou ate mesmo usam quartos e quintos, para fazer o que querem. Podem ser localizados, basta verificar as pessoas do mundo que portam bilioes. Há um grupo, portanto, usando taticas de guerra contra o mundo o tempo todo, mantendo a escravidão, extraindo recursos e tentando evoluir tecnologicamente para usar meios mais eficazes de controle.
-
-O próximo passo da cupula é não precisar mais dispendiar recursos para ocasionar a manipulação, para fazer o ser humano render respostas, render sofrimento. O proximo passo é automatizar a manutenção da escravidão, é não mais dispendiar recursos para lubridiar, enganar. E isto desencadeia de uma forma causal e óbvia as teorias da matrix, a tecnologia em favor da escravidão.
-
-A cupula é falha ate a humanidade se dar conta disso, porem, se a manipulação for sistematizada, mecanizada, se houver uma força maior que a força de destruição, que também destroi o niilista, então as preocupações com a descoberta serão desnecessarias. A humanidade, sem ser dominada pela tecnologia, ainda tem meios eficazes de destruir o imperio dos bilionarios, porem, após um dominio massivo através da tecnologia, quais seriam realmente as chances? Portanto, é urgente que, a humanidade conheça os mecanismos da cupula e como ela age. Como se programa e reinventa ao longo da história, e o que pretende. Quais são seus medos, e suas falhas. E quem realmente são. 
-
-
-
-### O conselho niilista - A reunião
+### **O conselho niilista - A reunião**
 
 Um deles se levanta da cadeira e começa a comentar como melhorar os processos, a fabricação, e de forma fria começa a relevar todas as estratégias possíveis de crescimento das fortunas.
 
-Apontando para o quadro, de forma fria, o lider da cupula começa a falar:
+Apontando para o quadro, de forma fria, o líder da cúpula começa a falar:
 
-- Há um grande problema na multidão e se chama: raciocinio lógico, ao retirarmos a capacidade do ser humano raciocinar, garantimos o imperio que construimos. Pela tecnologia ainda não é possível eliminar essa capacidade que atrapalha o enrriquecimento. Como tirar o raciocinio de um povo?
+- Há um grande problema na multidão e se chama: raciocínio lógico, ao retirarmos a capacidade do ser humano raciocinar, garantimos o império que construímos. Pela tecnologia ainda não é possível eliminar essa capacidade que atrapalha o enriquecimento. Como tirar o raciocínio de um povo?
 
-Atacando pela tecnologia ainda não é possível, vamos, portanto, acabar com a vida academica, depreciar a mão de obra especializada. ou sobrecarregar um país de trabalho também impede esse país de pensar, torna-se apenas produtivo. 
+Atacando pela tecnologia ainda não é possível, vamos, portanto, acabar com a vida acadêmica, depreciar a mão de obra especializada, ou sobrecarregar um país de trabalho também impede esse país de pensar, torna-se apenas produtivo. 
 
-O lider frio enxergou o mundo como um chão de fabrica e os seres humanos como seres maquinais, conduzidos, partes de um ritmo de produção. Pensa nos seres humanos como uma manada que precisa, por um ponto de vista estratégico, ser trabalhada de forma a aumentar a produtividade. E ve, no pensar, no raciocinio, um problema, uma ameaça as grandes intituições.
+O líder frio enxergou o mundo como um chão de fábrica e os seres humanos como seres maquinais, conduzidos, partes de um ritmo de produção. Pensa nos seres humanos como uma manada que precisa, por um ponto de vista estratégico, ser trabalhada de forma a aumentar a produtividade. E vê, no pensar, no raciocínio, um problema, uma ameaça às grandes instituições.
 
-O lider frio continuou dizendo: familias separadas geram pessoas que praticam a violencia com mais facilidade, conforme pesquisa. Então investimos em midia, em artistas que tirem o significado da familia, que tornem comum e banal a separação entre casais, que levem as crianças a uma sexualidade precoce. Os jovens pensam estar escutando musica moderna, pensam que, se é amplamente divulgado isso é bom, pois foi espalhado por ser bom, mas o que os jovens não sabem é que não escutam musica boa, escutam o que nos produzimos para que escutem, e dizem que isso é moderno é bom. Porém, tudo isso é objeto de repasse de mensagens que produzem os agentes da violencia, pessoas com uma emotividade que tem propensão a aceitação de serem criminosas. E o crime, é um grande distrator.
+O líder frio continuou dizendo: famílias separadas geram pessoas que praticam a violência com mais facilidade, conforme pesquisa. Então investimos em mídia, em artistas que tirem o significado da família, que tornem comum e banal a separação entre casais, que levem as crianças a uma sexualidade precoce. Os jovens pensam estar escutando música moderna, pensam que, se é amplamente divulgado isso é bom, pois foi espalhado por ser bom, mas o que os jovens não sabem é que não escutam música boa, escutam o que nós produzimos para que escutem, e dizem que isso é moderno e bom. Porém, tudo isso é objeto de repasse de mensagens que produzem os agentes da violência, pessoas com uma emotividade que tem propensão à aceitação de serem criminosas. E o crime é um grande distrator.
 
-Todo artista fortemente famoso precisa nos representar, se não, não o seria. Nós dominamos até mesmo a arte. E o artista que resiste, é duramente criticado, pois nós fomentamos a opinião pulbica, nos provocamos cancelamentos, assédio em excesso no artista. Os artistas que querem realmente ser famosos, precisam repassar paradigmas, como vida sexual sem significado, desunião familiar pratica, desfiguração do sentido do sexo. Tudo isso passa uma cultura de desunião familiar, o seio familiar é a base social, e é isto que atacamos para gerar fomentadores da distração, para gerar pessoas revoltadas.
+Todo artista fortemente famoso precisa nos representar, se não, não o seria. Nós dominamos até mesmo a arte. E o artista que resiste, é duramente criticado, pois nós fomentamos a opinião pública, nós provocamos cancelamentos, assédio em excesso no artista. Os artistas que querem realmente ser famosos, precisam repassar paradigmas, como vida sexual sem significado, desunião familiar prática, desfiguração do sentido do sexo. Tudo isso passa uma cultura de desunião familiar, o seio familiar é a base social, e é isto que atacamos para gerar fomentadores da distração, para gerar pessoas revoltadas.
 
-Também incentivamos o preoconceito. Provocando o ódio.
+Também incentivamos o preconceito. Provocando o ódio.
 
-Como produzir pessoas cheio de revolta, sem pais separados? Como influenciar os jovens pela musica com boas tutorias sobre eles? Como formar um pensamento voltado para produlção de violencia, de escravos do crime, de pessoas sem educação, sem bons conselhos, com a familia unida? Então, o alvo para produzir a violencia desde os tempos antigos, e o ataque ao antro familiar, a base principal da sociedade. A popularização de desvalores entre os jovens é um meio barato de produzir uma violencia sem grandes investimentos, pois também não temos um dinheiro ilimitado para financiar guerras. Basta a doação de um arcenal de armas, individuos revoltodos e fazemos uma facção, que aterroriza e distrai a população, volta os olhos do povo para a catastrofe.
-
-
-
-
-
-
-
-
-
+Como produzir pessoas cheias de revolta, sem pais separados? Como influenciar os jovens pela música com boas tutorias sobre eles? Como formar um pensamento voltado para produção de violência, de escravos do crime, de pessoas sem educação, sem bons conselhos, com a família unida? Então, o alvo para produzir a violência desde os tempos antigos é o ataque ao antro familiar, a base principal da sociedade. A popularização de desvalores entre os jovens é um meio barato de produzir uma violência sem grandes investimentos, pois também não temos um dinheiro ilimitado para financiar guerras. Basta a doação de um arsenal de armas, indivíduos revoltados e fazemos uma facção, que aterroriza e distrai a população, volta os olhos do povo para a catástrofe.
 
 ## **Alegorias apocalipticas - A Matrix Decodificada**
 
@@ -7858,1795 +9020,32 @@ E se voce pudesse transformar o mundo com um like? E se alguém tivesse criado e
 
 Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabalho de entender, de like para que ela chegue a mais pessoas e que possa ser conheecida pelo mundo inteiro.
 
+### Os dois ricos
 
+No alto de um edifício de luxo, um homem do sorriso torto chama seu mordomo e diz: “Veja, Jerry, eles estão compreendendo.” Um avião atirou e matou centenas; quem dera todos tivessem um videogame tão real.
 
+Ao lado do homem, outro super-rico, com um sorriso amarelado, diz. Os dois sorriem com aspecto de loucura: um com cabelos até o ombro, bagunçados, e o outro calvo, com pernas curtas e uma grande barriga. Ambos loucos.
 
+Com os olhos vidrados na televisão, analisam o acontecimento das mortes. Sentem-se estaticamente hipnotizados pelas luzes das bombas que riscam o céu. Comemoram seu anonimato.
 
+E filosofam entre si como se fossem reis da Terra, como se ainda, em pleno século vinte e um, existisse uma monarquia oculta. Como se tivessem o poder e precisassem conservá-lo cada vez mais; como se fossem possuidores de um paraíso que criaram para eles, onde secretamente expressam seus sentimentos para o mundo como uma carta em forma de mortes, catástrofes, enquanto elegem líderes e manipulam, como um jogo de tabuleiro, os acontecimentos. Como se formulassem um mundo para o mundo acreditar, como se ditassem a história, como se brincassem em um tabuleiro de xadrez de fazer o mundo.
 
+Um comenta com o outro: como todos eles não desconfiam? Não sabem de nós? Será que não querem ver? Ou estão cegos? Será que não têm inteligência? Ou será que é extremamente difícil imaginar quem somos? Será que nosso propósito é tão difícil de entender?
 
-> A sintomatica se diverge em dois caminhos. Os sintomas vividos, e os sintomas apaticos. Ambos se misturam e são perceptiveis.
+E se um deles descobrir? Nos encontrarão e o que farão conosco? O seu colega disse: talvez não encontrem, talvez não queiram realmente entender, talvez não queiram saber sobre nós. Talvez não queiram conhecer totalmente a si mesmos.
 
-Os sintomas vividos se relacionam a percepçaõ da intenção pela anulação.
-E os sintomas apatico se associam a percepção da apatia, do assombro mediante a existencia distinta de sua conexão, de seu querer, de si. Como um estranhamento geral, como uma barreira entre a consciencia que percebe a existencia mas não se conecta.
+Olharam um para o outro e, de certa forma, pensaram que o segredo ninguém saberia. Ninguém poderia imaginar seu intento e o que sentiam. Não poderiam imaginar que um dia saberiam exatamente quem eram, o que pensavam e como agiam. Talvez não queiram ver, ou talvez seja complicado demais para que vejam.
 
+— Pode ser que um dia nos descubram. Mas, enquanto isso, vamos desfrutar de tudo isso.
 
+O calvo pegou uma taça de vinho e comia alguns aperitivos, com uma postura amargurada, cheia de raiva, como se não tivesse nenhum prazer há tempos. E o de cabelo bagunçado fazia a mesma expressão, olhando para as catástrofes, como se odiasse a si mesmo e o que está vendo. Seus movimentos eram rápidos e cheios de raiva. Sua barba, suja pelos aperitivos. Um olhar sem brilho, como o de uma fera morta. Um deles usava um turbante, o de cabelos grandes. E o outro estava com um paletó de alta costura, porém que ficara fino demais em suas pernas, mas assim gostava.
 
+Um virou-se para o outro e disse:
 
+— Não se preocupe. Essa massa não pensa, não é à toa que não tem esse patamar de vida; trabalham, tocam suas vidas sem nenhum questionamento. Preocupam-se apenas com coisas do dia a dia. Seu pensamento não atinge patamares superiores.
 
+O outro gargalhou e concordou com uma certa tranquilidade aparente, que disfarçava um medo oculto. E se um dia o pensamento atingir a cúpula? Imaginava ocultamente. E se um dia resolverem tirar as nossas fortunas? E se chegarem, de certa forma, à conclusão de toda essa influência?
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# RASCUNHOS
-
-
-
-
-
-
-
-
-> A visão de Deus nao depende da visão. O pensamento, não depende do pensamento.
-
-
-
-> O renascimento do Espírito implica que o individuo era vivo, apesar de ser guiado pelos instintos corporais. E depois permanecer imovel. O seu permanecer imovel é vivo, e auto causado. Porém, ao mesmo tempo, é um não mover-se. É um não renascer. O Espirito, auto causa sua queda, porem, ao mesmo tempo, não se move por que não nasceu, não criou movimento. O amor é o motor da ação. O espirito se auto determina, porem, sua auto determinação é viva sem que tenha a verdadeira vida. O individuo permanece imovel, o ódio ao mesmo tempo que é uma atividade em direção a anulação, é uma não atividade. 
-
-Ao exemplificarmos temos que, se a dualidade gera uma terceira alma. A essa terceira alma é doada a vida, de forma que é a união de ambas em uma indiferenciação. Porém, essa nova alma, tem um sentido particular, o sentido repassado pelos pais não realiza completamente seu sentido, que terá uma perspectiva individual. A alma, enquanto imposta a vida, no sentido de uma obrigatoriedade existente, ve-se sem seu sentido, de forma que a mobilidade seja relativa a seu instinto corporal. Curva-se, portanto, aos instintos mundannos, sem o movimento. Sua fatalidade, portanto, não é nem mesmo auto causada, mas é também uma paralisia. É auto causada, e o sentido do ódio sem encerra no sentido da ausencia da auto determinação. A auto detemrinação em si, carrega um ódio vivo. O apice do ódio auto causado é a estaticidade. O ódio, portanto, não se torna um objetivo, mas uma paralisia. O ódio consumado não é a alma se guiando a um patamar, mas é deixando se sucumbir pela ausencia do sentido. O ódio em seu apice, não é um acumulo de paixões, mas é a ausencia de amor, a ausencia ate mesmo do ódio.
-
-A alma, portanto, não se lança no inferno por ódio, mas se realiza em seu não sentido. O ato de danação é uma extensão da imobilidade, é a realização do sentido instintivo no corpo, no qual o individuo só segue tendencias momentaneas. Essas tendencias são vivas, mas não totalmente vivas, no sentido de que, a estaticidade é um ódio inequivoco são em si a mesma coisa. 
-
-O coração totalmente endurecido, imovel, é a extensão máxima do ódio, um ente que nem mesmo se movimenta em rejeição a si mesmo e a própria liberdade. A rejeição a vida, não é uma ação ou direcionamento, pois toda ação é conduzida a vida, mas é uma estaticidade. Por isso, o não renascer pode ser considerado uma opção deliberada. 
-
-A inação é uma ação viva, que se configura como uma vida morta. É um abismo que tem olhos. Que se fez abismo não porque é morto, mas porque tem um intuito estatico. Não odiou algo em vida, mas rejeitou a própria liberdade. A rejeição de si, começa na rejeição da propria liberdade, não no proprio suicidio. Isto é, antes de rejeitar o corpo com uma ação suicida, o corpo agiu, corroborou com a liberdade para se anular, porem, a alma que se fada ao inferno, simplesmente queima pela inação, simplesmente se deixa cair. Rejeita até mesmo a propria liberdade, é um ato passivo, e não ativo, pois o ato ativo vai em direção a morte. Porem, o passivo, somente se deixa cair, sem movimentar-se. Portanto, o cumulo do ódio, é o ódio não esboçado, um corpo levado pelos seus instintos, e que se lança na anulação, como um movimento deliberado e vivo, mas em função de uma estaticidade, de uma rejeição a liberdade, antes mesmo da rejeição de um corpo ou de sua identidade.
-
-
-
-O miséria é uma construção ideológica de um grupo minoritario, com vantagem financeira histórica, que visa aplacar o nalfragio, o desespero existencial por meio de um mundo construido de forma que lhe pareça empatico, ou que projete nesse mundo, sua dor, de forma a pensar-se livre de de seu ateismo implicito, de seu ódio. A miséria é uma tentativa de aplcar o desespero de um grupo minoritario, que descobre diante de si uma vantagem histórica e se apossa dela para representar o niilismo, e espelhar de forma mundial o seu conflito.
-
-A miséria é o manifesto do conflito. É um desejo obsessivo, louco, resignificado e materializado na humanidade de forma a lhe causar o sofrer. É uma desnaturalização do proposito humano, pela vida, beleza e bem estar geral. Em prol de uma solução inviavel para um conflito corporal. A miséria e a guerra, é a soluçao de um grupo de elite para o empasse dentro de si, é um motivo interior e particular.
-
-
-
-> Não é possível escolher não ecolher, uma vez sendo livre. Porém, não renascer pelo Espírito, ou seja, pela intenção reta a vida, que está em primazia a decisão horizontal. Ainda se é livre, porém, é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento a vida, ou do próprio movimento em função do Espírito. O individuo, simplesmente se deixa guiar de forma instinitiva. Seu ódio, não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher, acontece em um nível em que há vida, mas não a vida plena. o individuo recusa existir por si, ao passo que existe, mas não tem autodominio sobre si. É um motor imovel, ao passo que é vivo.
-
-
-
-> Há a sintomatica não intencional, que é o individuo em estado de semi vida, que escolhe não escolher. Isto é, tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente é, sem que opere nesse ser. É, como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. 
-
-
-
-
-
-
-E há a sintomatica intencional, que se refere a percepção do invividuo de sua intenção, da sua escolha como uma não escolha. Quer dizer que, o individuo percebe sua intencionalidade, ao passo que percebe sua estaticidade, sua passividade. 
-
-Há portanto, um cenário em que o individuo se deixa se levar pelos intintos, ao passo que percebe-se intencionalmente deixado a deriva de si como instintos.  Então são dois tipos de sintomas, os dolorosos pela intenção do individuo, e os assombrosos, pelo estado de mortidão, de semi-vida, de semi operancia, de estaticidade. De uma vida em que não haje, mas se deixa levar por ela.
-
-O individuo, portanto se sente preso em si mesmo, refem de uma realidade que teima em não escolher, é uma vida vidrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
-
-Sintomas de assombro: Sensação de angustia, aprisionamento interior, impressão de sonolencia interior, impressão de irrealidade da vida, como se fosse produto de uma consciencia e não de si.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-### Sintomas apáticos
-
-
-Compreendo. Segue abaixo o texto completo, reescrito de forma formal e organizada, com todos os argumentos, exemplos, referências e conclusões originais preservados integralmente, sem qualquer omissão ou resumo.
-
----
-
-# O PILAR DO EXISTENCIALISMO: APATIA E DESPERTAR
-
-## Introdução
-
-O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de apático) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
-
----
-
-## PARTE I: O INDIVÍDUO APÁTICO
-
-### Capítulo 1: Definição do Indivíduo Apático
-
-O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
-
-### Capítulo 2: Efeitos no Corpo e na Mente
-
-O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
-
-- **Ansiedade:** Sensação constante de desamparo e desespero.
-- **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
-- **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
-- **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
-
-### Capítulo 3: A Ilusão da Liberdade
-
-O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
-
-**Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
-
-### Capítulo 4: A Busca Frenética por Sentido
-
-O apático vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
-
-- **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
-- **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
-- **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
-
-**Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
-
-### Capítulo 5: A Miséria Interior do Rico
-
-O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
-
-**Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
-
-### Capítulo 6: A Visão do Amor como Ação Unida ao Sentido
-
-A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo apático para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do apático não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O apático deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
-
-### Capítulo 7: A Riqueza como Busca de Valor
-
-O apático não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
-
-**Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
-
-### Capítulo 8: A Doença Espiritual do Apático
-
-A tendência do apático é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O apático busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
-
-**Referência:** Søren Kierkegaard, em *O Desespero Humano*, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
-
-### Capítulo 9: A Analogia do Poder e da Droga
-
-O apático não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
-
-### Capítulo 10: A Obsessão e a Secura Interior
-
-O apático incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
-
-**Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
-
-### Capítulo 11: A Sensação de Não Ser Ninguém
-
-O apático tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
-
-### Capítulo 12: A Linguagem do Apático
-
-O apático usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
-
-**Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
-
-### Capítulo 13: A Liberdade e o Suicídio
-
-O apático foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o apático só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
-
-**Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
-
-### Capítulo 14: O Hedonismo e a Ação do Espírito
-
-O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O apático, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
-
-**Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
-
-### Capítulo 15: A Imperação da Vontade
-
-O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
-
-**Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
-
-### Capítulo 16: Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
-
-Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
-
-**Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
-
-### Capítulo 17: O Mal como Passividade
-
-O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
-
-### Capítulo 18: Características do Apático
-
-O apático é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do apático não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
-
-### Capítulo 19: A Ação Vazia do Apático
-
-O apático é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do apático é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
-
-### Capítulo 20: O Apático como Obstáculo Social
-
-O apático é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O apático e a sociedade representam forças opostas e irreconciliáveis.
-
-**Referência:** Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
-
-### Capítulo 21: Deus e o Amor Infinito pelo Apático
-
-Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o apático, que necessita de salvação. O apático é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
-
-Deus, em Seu amor infinito, enxerga o apático como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o apático estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o apático não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o apático despende todos os seus esforços para a destruição.
-
-**Referências:**
-- São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
-- São Paulo, em Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
-
-### Capítulo 22: A Necessidade de Renovação
-
-Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O apático não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do apático acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
-
-**Referência:** Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
-
-### Capítulo 23: O Apático e a Busca por Identidade
-
-O indivíduo apático não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o apático teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espírito.
-
-**Referência:** Erik Erikson, em *Identidade: Juventude e Crise*, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
-
-### Capítulo 24: O Apático e o Crime
-
-O apático, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
-
-**Referência:** Erich Fromm, em *Anatomia da Destrutividade Humana*, explora como a falta de conexão social pode levar a comportamentos destrutivos.
-
-### Capítulo 25: O Assombro e a Repetição de Comportamentos
-
-No momento em que o apático entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
-
-**Referência:** Sigmund Freud, em *Além do Princípio do Prazer*, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
-
-### Capítulo 26: O Apático e a Diminuição da Reflexão
-
-O indivíduo apático vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o apático é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
-
-**Referência:** Jean Piaget, em *O Nascimento da Inteligência na Criança*, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
-
-### Capítulo 27: O Narcisismo e a Demência Social
-
-Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o apático muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se auto responsabiliza por suas atitudes impensadas.
-
-**Referência:** Christopher Lasch, em *A Cultura do Narcisismo*, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
-
-### Capítulo 28: O Controle do Apático por Estímulos
-
-O apático pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o apático em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
-
-**Referência:** Michel Foucault, em *Vigiar e Punir*, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
-
-### Capítulo 29: A Ilusão do Ócio Completo
-
-O apático tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um auto-conhecimento elevado. O apático acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
-
-**Referência:** Karl Marx, em *O Capital*, critica a alienação do trabalhador em uma sociedade capitalista, mas o apático leva essa alienação a um extremo patológico.
-
-### Capítulo 30: A Estima Deplorável do Apático
-
-O apático possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o apático, a existência é um mero "estar aqui", sem direção ou transcendência.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
-
-### Capítulo 31: A Imitação de Comportamentos
-
-O apático imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam auto-conhecimento, o apático prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
-
-**Referência:** Carl Jung, em *Aion*, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
-
-### Capítulo 32: A Obsessão por Dinheiro e a Alienação
-
-O apático tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
-
-**Referência:** Karl Marx, em *Manuscritos Econômico-Filosóficos*, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
-
-### Capítulo 33: A Apatia e o Estado de Loucura Permanente
-
-A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o apático, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
-
-**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
-
-### Capítulo 34: O Abismo Existencial
-
-O famoso abismo que olha de volta ao se olhar para ele é o assombro do apático. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o apático não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
-
-**Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
-
-### Capítulo 35: A Violência e o Territorialismo
-
-O apático, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
-
-**Referência:** René Girard, em *A Violência e o Sagrado*, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
-
-### Capítulo 36: A Sensação de Ser Comandado por uma Força Desconhecida
-
-A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do apático. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o apático, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de auto-conhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
-
-**Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
-
-### Capítulo 37: A Descrição do Eu: Apático vs. Não Apático
-
-Quando questionado sobre quem é, o apático descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo: "Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses." Já o não apático descreve-se de forma mais profunda, com um cunho espiritual: "Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..." Para o apático, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o apático não consegue integrar.
-
-### Capítulo 38: O Apático como um Primata com Inteligência Aprimorada
-
-O apático age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o apático é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o apático reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
-
-### Capítulo 39: O Abismo e o Sofrimento Extra-Sensorial
-
-Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o apático experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A auto-determinação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
-
-### Capítulo 40: A Negação Constante e a Histeria
-
-O apático, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o apático tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
-
-**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
-
-### Capítulo 41: A Ilusão de Genialidade e a Obsessão por Riquezas
-
-O apático desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele lubridia pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
-
-### Capítulo 42: A Busca pela Paz sem Autoconhecimento
-
-Ao ver o comportamento de alguém calmo, sereno e confortável, o apático busca obter essa mesma paz sem deixar de ser apático. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o apático inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
-
-**Referência:** Eckhart Tolle, em *O Poder do Agora*, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
-
-### Capítulo 43: Reconhecendo o Apático em Sociedade
-
-O apático é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
-
-### Capítulo 44: A Tendência ao Vício e a Raiva Social
-
-O apático tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o apático arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
-
-**Referência:** Carl Jung, em *Aion*, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
-
-### Capítulo 45: A Necessidade de Destruir o Bem-Estar
-
-O apático vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
-
-### Capítulo 46: O Assombro e a Perturbação Mental
-
-O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do apático de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
-
-**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
-
-### Capítulo 47: A Simulação de Pobreza Interior
-
-O apático costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
-
-### Capítulo 48: O Sentido da Existência do Apático: Projeção da Dor e Degradação Social
-
-O apático, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o apático não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia. Esse espelhar no outro ocorre de diversas formas:
-
-- **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
-- **Demonstração de assimétricaidade:** Mostrar-se em um patamar de riqueza ou status assimétrica, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
-- **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
-
-A vida do apático, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
-
-### Capítulo 49: A Degradação da Liberdade e da Cultura
-
-A necessidade de se proteger da ação dos apáticos leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
-
-### Capítulo 50: A Solução Proposta por Jesus
-
-Do ponto de vista lógico, é praticamente impossível construir um sistema social completamente imune à ação dos apáticos, pois as relações sociais são baseadas em confiança mútua. A única solução efetiva foi proposta por Jesus, que sugeriu a separação dos apáticos do funcionamento social. Em sua parábola do joio e do trigo (Mateus 13:24-30), Jesus ilustra a necessidade de separar o bem do mal, permitindo que a sociedade floresça sem a influência destrutiva dos apáticos. No entanto, Jesus também exortou cada indivíduo ao autoaprimoramento e ao encontro consigo mesmo, prevenindo que sejamos vítimas da mesma política de exclusão.
-
-### Capítulo 51: A Sociedade e o Combate ao Mal: A Fadiga de Enfrentar o Comportamento Apático
-
-A sociedade dispõe de meios combativos para enfrentar o mal, seja através de leis, sistemas de justiça, mecanismos de vigilância ou iniciativas educativas. No entanto, o comportamento apático apresenta um desafio único e exaustivo. Enquanto o mal tradicional age de forma fracionada, com motivações específicas e passível de conscientização, o agir do apático é frenético, incansável e obsessivo. Sua energia é direcionada de forma constante e desgastante para o funcionamento social, na intenção de chamar atenção para seu estado existencial de vazio e frustração. Essa atuação incessante torna quase impossível uma ação preventiva eficaz, pois a sociedade se vê constantemente sobrecarregada pela necessidade de responder a uma ameaça que não cessa.
-
-#### O Mal Tradicional vs. O Comportamento Apático
-
-- **O Mal Tradicional:** Age de forma pontual, com motivações claras e passível de conscientização. Pode ser combatido através de sistemas de justiça, educação e prevenção. Como exemplo, crimes como roubo ou fraude têm razões específicas (ganho material, vingança) e podem ser mitigados com políticas públicas e conscientização social.
-- **O Comportamento Apático:** É uma manifestação constante e obsessiva de dor existencial. O apático não busca apenas cometer atos específicos de maldade, mas sim projetar sua frustração interior de forma contínua e desgastante. Sua atuação não tem um objetivo claro além de chamar atenção para seu estado de vazio, o que torna sua ação muito mais difícil de combater.
-
-#### A Fadiga Social no Combate ao Apático
-
-A sociedade, ao tentar combater o comportamento apático, se vê em um ciclo interminável de respostas. Cada nova forma de ação apática exige a criação de novas leis, sistemas de vigilância e mecanismos de controle, o que consome energia e recursos de forma alarmante. Essa busca frenética e incansável do apático por atenção e alívio de sua dor existencial cria um desgaste constante, que acaba por desfigurar a cultura e a liberdade. A sociedade se torna uma fortaleza que tudo prevê, mas que, ao mesmo tempo, perde sua vitalidade e capacidade de florescer.
-
-**Referências Adicionais para os Capítulos 48-51:**
-- Jean-Paul Sartre, em *O Ser e o Nada*, discute como a má-fé e a negação da liberdade levam o indivíduo a projetar sua dor nos outros, evitando assumir sua responsabilidade existencial.
-- Carl Jung, em *Aion*, fala sobre a sombra e como a projeção de aspectos não integrados do self pode levar a atitudes violentas e manipulativas.
-- Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve a necessidade de superar a condição atual e criar um sentido autêntico, evitando cair na armadilha da apatia e da destruição.
-- Michel Foucault, em *Vigiar e Punir*, analisa como os mecanismos de controle social podem se tornar exaustivos e contraproducentes quando enfrentam ameaças constantes e difusas, como o comportamento apático.
-
----
-
-## PARTE II: O DESPERTAR EXISTENCIAL
-
-### Capítulo 52: Definição do Despertar
-
-O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
-
-### Capítulo 53: Efeitos no Corpo e na Mente
-
-O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
-
-**Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
-
-### Capítulo 54: O Amor como Primeiro Movimento
-
-O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
-
-**Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
-
-### Capítulo 55: O Despertar do Ser
-
-O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
-
-### Capítulo 56: A Imperação da Vontade (Retomada)
-
-O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
-
-**Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
-
----
-
-## PARTE III: UMA DISTINÇÃO FUNDAMENTAL: O MAL ATIVO E O MAL PASSIVO
-
-### Capítulo 57: Os Dois Tipos de "Despertar" (Retomado)
-
-Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
-
-**Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
-
-### Capítulo 58: O Mal como Passividade (Retomado)
-
-O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
-
----
-
-## PARTE IV: CONCLUSÃO GERAL
-
-### Capítulo 59: Síntese e Reflexão Final
-
-O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
-
-O apático é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
-
-O apático é uma força que ameaça a estrutura social, atuando exclusivamente em prol de sua destruição. Ele não deseja apenas praticar o mal, mas destruir a própria possibilidade de continuar existindo. A exclusão do apático é inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo. No entanto, Deus, em Seu amor infinito, continua a carregar cada um de nós no mais íntimo de Seu coração, esperando que, na próxima vida, possamos ser mais sábios e conscientes.
-
-Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a busca humana por sentido e a importância da autodeterminação na realização da existência autêntica.
-
-**Referências Finais:**
-- Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
-- Viktor Frankl, em *Em Busca de Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
-# ALMAS APÁTICAS
-
-## Características Gerais
-
-A alma apática é incapaz de encontrar estabilidade na indiferença. Para evitar o confronto com a realidade da finitude, ela cria mecanismos de fuga e negação.
-
-## Sinais e Comportamentos
-
-### 1. Estado emocional perturbado
-
-- Histeria constante, inquietação, falta de docilidade.
-- Descontentamento crônico, angústia, ansiedade e rigidez consigo mesmo e com os outros.
-
-### 2. Mecanismos de Fuga
-
-**2.1 Fuga da alegria:** O indivíduo minimiza situações felizes, incapaz de sustentar grandes emoções diante da consciência da morte. Mantém a vida em um estado "agridoce" — nem muito feliz, nem muito triste. Destituir a vida de alegria ajuda o indivíduo a encarar sua impressão de aniquilação, pois seu eu é totalmente sustentado pela sua concepção biológica de si mesmo. Destruir belezas naturais, relações familiares, perverter os conceitos bons que constroem relações e a sociedade, perverter a boa intenção das pessoas na própria cabeça, causar caos e confusão, tudo isso é um subterfúgio para afastar de si o propósito e a beleza da vida, considerando que o apático considera a si um resíduo, e que não poderá fazer proveito de nada, pois seu fim o é literal e eminente.
-
-**2.2 A busca do corpo pelo eu:** É fundamentada na busca por aquilo que lhe é mais precioso. O que é mais inigualável, a tentativa de expressão social do apático na intenção de que alguém lhe solucione o ínterim ou na necessidade de ao menos expressar a imensidão do seu sofrimento devido à apatia, se faz marcante pervertendo e alterando toda a sociedade, sem que os indivíduos não apáticos encontrem uma razão ou sentido para alguns tipos de construção social destituídos de um sentido comum. Como a produção de lixo, o assassinato, a exploração escravista, torturas, etc. Tudo, às vezes se esconde como reflexo de uma não culturação, ou de uma falta de conscientização, quando na verdade é uma expressão escancarada do terror da apatia. A violência, então, não se traduz mais como uma inadequação do homem na sociedade, mas como uma expressão de uma realidade interior a qual o mesmo rejeita de forma inequívoca.
-
-**2.3 Violência como expressão:** Usa a agressividade (física, emocional ou simbólica) para fazer os outros sentirem sua dor.
-- *Assassinato* como forma de transmitir seu desespero.
-- *Tortura* como reflexo do horror interno.
-- *Exploração* (como trabalho escravo) para expressar seu sentimento de confinamento existencial.
-
-**2.4 Busca frenética por preenchimento externo:**
-- Obsessão por fama, riqueza ou poder, negligenciando relações genuínas.
-- Tentativa de projetar no mundo exterior a falta que sente internamente.
-
-**2.5 Uso de drogas:** Busca estados alterados de consciência para escapar da realidade.
-
-### 3. Medo da Morte
-
-**3.1 Temor da posse espiritual:** Medo de perder seus instintos e desejos ao léu da aleatoriedade instintiva.
-
-**3.2 Pavor da aniquilação:** Apego à identidade construída sobre memórias, temendo que a morte física signifique o fim absoluto.
-
-### Conclusão
-
-Enquanto as **almas do purgatório** vivem em um estado de esperança mínima, ainda que descontentes, as **almas apáticas** estão em constante fuga, usando mecanismos destrutivos para evitar encarar sua condição finita. Ambas representam estágios distintos de sofrimento espiritual, mas a apatia é marcada por uma desesperança mais profunda e ações autodestrutivas.
-
----
-
-## O mundo idealizado de Jesus
-
-Jesus como humano e falho no sentido biológico, e com o seu âmbito afetivo perfeito. Transcendeu sua sanidade em busca da cura da apatia. No sentido bom, em que, seu âmbito afetivo não suportou se definir como o homem apático, pois de si deriva toda a vida e todo Sou.
-
-Desta forma, Jesus, amando a nós como a si mesmo, manifestou uma doutrina contra a apatia que corrompe até mesmo o sentido lógico na tentativa de resgatar o apático, através do lúdico e do impossível.
-
-O fato de afirmar que sermos como anjos, meio deuses, é a ânsia para que todo homem desperte da apatia e que não haja mais esse mal no mundo. Jesus tinha uma repulsão à apatia que transgredia suas palavras diante da estrutura do Ser.
-
-A doutrina que fundamentou é formalizada com o intuito da aniquilação da apatia de forma definitiva.
-
----
-
-# EXISTENCIALISMO ABSOLUTISTA
-
-## Visões do Inferno: O Resíduo
-
-Neste texto, apresento uma visão subjetiva dos apáticos, construída a partir de observações cotidianas.
-
-O indivíduo apático se percebe como **resíduo** — isto é, aquilo que, uma vez esgotada sua função, aguarda apenas o descarte. Enquanto a percepção de autopreservação de um animal corpóreo reside na inconsciência da sua finitude (ou em sua "alma", caso se queira e seja humano) que garanta sua infinitude, o apático, dotado de percepção de sua finitude, concebe-se como sobra. Sua alma simplesmente não é perceptual a si mesmo, não toma posse do animal.
-
-O **resíduo** é um composto cujo único propósito é desfazer-se e ser eliminado. Essa noção ecoa a visão bíblica do inferno: aquilo que será lançado nas mediações e consumido pelo fogo. Mesmo a matéria orgânica, em decomposição, ainda se qualificaria como resíduo alimentar — algo que já cumpriu seu papel e agora aguarda a dissolução final.
-
-O apático não se vê como ruína, pois a ruína pressupõe uma estrutura outrora íntegra. Ele é, antes, o **resto** de um processo que nunca lhe conferiu significado. Sua existência não é tragédia, mas resquício.
-
-O apático não sofre por existir — ele apenas **persiste**, como um resto que não se decompõe. Sua condição não é a do lamento, mas a do vazio que já se conformou com sua própria redundância. Enquanto o homem comum teme a morte como aniquilação, o apático a vê como mera formalidade: ele já se experimenta, em vida, como descarte adiado.
-
-### O Resíduo e o Inferno Contemporâneo
-
-Na teologia tradicional, o inferno é o lugar dos condenados, mas também o depósito do que não serve mais. O apático não precisa de fogo ou trevas externas — ele já é seu próprio exílio. Seu inferno não é ativo, mas residual: uma latência do inútil.
-
-O niilista nega o valor; o depressivo sofre por sua ausência; o apático, porém, **é** a ausência que se materializou em gestos, em dias, em um corpo que ocupa espaço sem preenchê-lo. Ele não clama por sentido, pois sequer reconhece o clamor como possibilidade.
-
-### A Patologia do Desperdício
-
-Não se trata de melancolia, mas de uma economia existencial perversa: ele se vê como o produto de um sistema que o gerou sem intenção, como um subproduto acidental da consciência. Se o homem é "o animal que sabe que morre", o apático é aquele que sabe que **já está morto** — só falta o ato administrativo.
-
-Enquanto alguns lutam contra o absurdo, ele o habita como um esqueleto habita suas próprias roupas. Não há revolta, apenas o silêncio de quem espera, não pela morte, mas pelo **fim do adiamento**.
-
-### O Lixo que Pensa
-
-Eis o paradoxo terminal: ele tem percepção de sua condição de resíduo, o que o torna diferente do mero objeto descartado. Um cadáver não sabe que é cadáver; um copo quebrado não sofre por estar inútil. O apático, porém, **sabe-se supérfluo**, e essa percepção é o último vestígio de vida em seu deserto.
-
-Talvez essa seja a verdadeira punição: não o fogo, não o gelo, mas a eterna **espera do lixo que ainda não foi recolhido**.
-
----
-
-## O Apático e a Produção do Lixo Existencial
-
-O apático, ciente de sua condição de **resíduo**, não busca redenção — ele **se reproduz como excesso**. Seu destino é a aniquilação, mas antes disso, ele se traduz no mundo através do **lixo que gera**, tanto material quanto simbólico. Ele não produz para durar, mas para **ser descartado**, porque só no descarte sua existência encontra uma confirmação perversa.
-
-### 1. A Economia do Excesso e a Fabricação do Inútil
-
-Vivemos em uma sociedade que glorifica a produtividade, mas que também depende do desperdício para se sustentar. O apático, incapaz de se inserir no ciclo virtuoso do consumo e da utilidade, torna-se **o produtor involuntário de sobras**. Ele não cria valor; ele **ocupa espaço até que esse espaço precise ser esvaziado**.
-
-- Se o capitalismo exige movimento, o apático é a **estase** que emperra a máquina.
-- Se a sociedade celebra a acumulação, ele é a **despesa sem retorno**, o gasto que não gera lucro.
-
-Ele não se revolta contra o sistema — ele **o espelha em negativo**, revelando seu fundamento oculto: **tudo, no fim, vira lixo**.
-
-### 2. O Lixo como Última Linguagem
-
-Sem palavras para justificar sua presença, o apático **se expressa através do acúmulo**: pilhas de objetos inúteis, horas desperdiçadas, projetos abandonados. Seu lixo não é acidente, mas **mensagem**.
-
-- Um quarto entulhado de coisas quebradas é um **corpo estendido** do apático.
-- Uma timeline digital repleta de posts apagados é um **diário escrito em cinzas**.
-
-Ele não quer ser lembrado — quer apenas **deixar marcas de sua própria dissolução**, como um rastro de migalhas que não levam a lugar nenhum.
-
-### 3. O Apático como Sintoma de uma Sociedade do Descartável
-
-Nossa época produz indivíduos como produtos de prateleira: **com data de validade**. O apático é aquele que **já venceu**, mas ainda não foi removido. Ele não luta contra isso; ele **aceita-se como defeito de fabricação**, como um objeto que veio ao mundo apenas para ser devolvido.
-
-- Enquanto alguns temem a insignificância, o apático **a encarna**.
-- Enquanto outros buscam legado, ele **cultiva o efêmero**, porque sabe que nada persiste.
-
-Sua única tradução possível é **o excesso que não serve para nada** — e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica objetos para depois jogá-los fora.
-
----
-
-# EXISTENCIALISMO E PSICOLOGIA DO APÁTICO
-
-## O Pilar do Existencialismo: Apatia e Despertar
-
-O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de apático) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
-
-### O Indivíduo Apático
-
-O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
-
-#### Efeitos no Corpo e na Mente
-
-O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
-
-- **Ansiedade:** Sensação constante de desamparo e desespero.
-- **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
-- **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
-- **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
-
-#### A Ilusão da Liberdade
-
-O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
-
-**Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
-
----
-
-### O Despertar Existencial
-
-O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
-
-#### Efeitos no Corpo e na Mente
-
-O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
-
-**Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
-
-#### O Amor como Primeiro Movimento
-
-O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
-
-**Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
-
-#### O Despertar do Ser
-
-O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
-
----
-
-### A Busca Frenética por Sentido
-
-O apático vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
-
-- **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
-- **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
-- **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
-
-**Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
-
-#### A Miséria Interior do Rico
-
-O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
-
-**Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
-
----
-
-### Conclusão
-
-O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
-
-**Referência Final:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
-
-Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a busca humana por sentido e a importância da autodeterminação na realização da existência autêntica.
-
----
-
-## A Visão do Amor como Ação Unida ao Sentido
-
-A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo apático para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do apático não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O apático deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
-
----
-
-## A Riqueza como Busca de Valor
-
-O apático não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
-
-**Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
-
----
-
-## A Doença Espiritual do Apático
-
-A tendência do apático é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O apático busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
-
-**Referência:** Søren Kierkegaard, em *O Desespero Humano*, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
-
----
-
-## A Analogia do Poder e da Droga
-
-O apático não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
-
----
-
-## A Obsessão e a Secura Interior
-
-O apático incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
-
-**Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
-
----
-
-## A Sensação de Não Ser Ninguém
-
-O apático tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
-
----
-
-## A Linguagem do Apático
-
-O apático usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
-
-**Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
-
----
-
-## A Liberdade e o Suicídio
-
-O apático foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o apático só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
-
-**Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
-
----
-
-## O Hedonismo e a Ação do Espírito
-
-O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O apático, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
-
-**Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
-
----
-
-## A Imperação da Vontade
-
-O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
-
-**Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
-
----
-
-### Conclusão
-
-O apático é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
-
-**Referência Final:** Viktor Frankl, em *Em Busca de Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
----
-
-## Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
-
-Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do apático, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O apático, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
-
-**Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
-
----
-
-## O Mal como Passividade
-
-O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do apático. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
-
----
-
-## Características do Apático
-
-O apático é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do apático não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
-
----
-
-## A Ação Vazia do Apático
-
-O apático é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do apático é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
-
----
-
-## O Apático como Obstáculo Social
-
-O apático é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O apático e a sociedade representam forças opostas e irreconciliáveis.
-
-**Referência:** Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
-
----
-
-## Deus e o Amor Infinito
-
-Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o apático, que necessita de salvação. O apático é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
-
-**Referência:** São Paulo, em sua carta aos Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
-
----
-
-## A Necessidade de Renovação
-
-Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O apático não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do apático acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
-
-**Referência:** Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
-
----
-
-### Conclusão
-
-O apático é uma força que ameaça a estrutura social, atuando exclusivamente em prol de sua destruição. Ele não deseja apenas praticar o mal, mas destruir a própria possibilidade de continuar existindo. A exclusão do apático é inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo. No entanto, Deus, em Seu amor infinito, continua a carregar cada um de nós no mais íntimo de Seu coração, esperando que, na próxima vida, possamos ser mais sábios e conscientes.
-
-**Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
-Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de renovação e a esperança em um futuro harmonioso, guiado pelo amor e pela transcendência espiritual.
-
----
-
-## Deus e o Amor Infinito pelo Apático
-
-Deus, em Seu amor infinito, enxerga o apático como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o apático estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o apático não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o apático despende todos os seus esforços para a destruição.
-
-**Referência:** São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
-
----
-
-## O Apático e a Busca por Identidade
-
-O indivíduo apático não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o apático teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espíritu.
-
-**Referência:** Erik Erikson, em *Identidade: Juventude e Crise*, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
-
----
-
-## O Apático e o Crime
-
-O apático, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
-
-**Referência:** Erich Fromm, em *Anatomia da Destrutividade Humana*, explora como a falta de conexão social pode levar a comportamentos destrutivos.
-
----
-
-## O Assombro e a Repetição de Comportamentos
-
-No momento em que o apático entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
-
-**Referência:** Sigmund Freud, em *Além do Princípio do Prazer*, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
-
----
-
-## O Apático e a Diminuição da Reflexão
-
-O indivíduo apático vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o apático é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
-
-**Referência:** Jean Piaget, em *O Nascimento da Inteligência na Criança*, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
-
----
-
-## O Narcisismo e a Demência Social
-
-Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o apático muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se auto responsabiliza por suas atitudes impensadas.
-
-**Referência:** Christopher Lasch, em *A Cultura do Narcisismo*, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
-
----
-
-## O Controle do Apático por Estímulos
-
-O apático pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o apático em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
-
-**Referência:** Michel Foucault, em *Vigiar e Punir*, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
-
----
-
-## A Ilusão do Ócio Completo
-
-O apático tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um auto-conhecimento elevado. O apático acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
-
-**Referência:** Karl Marx, em *O Capital*, critica a alienação do trabalhador em uma sociedade capitalista, mas o apático leva essa alienação a um extremo patológico.
-
----
-
-### Conclusão
-
-O apático é um indivíduo que vive nas sombras da realidade, buscando incessantemente um sentido que nunca encontra. Seu comportamento é marcado por obsessão, destruição e uma profunda alienação de si mesmo e dos outros. Enquanto a sociedade busca construir e prosperar, o apático consome energia em barreiras e conflitos. No entanto, o amor infinito de Deus continua a alcançá-lo, esperando que, um dia, ele desperte para a realidade espiritual e encontre seu verdadeiro propósito.
-
-**Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
-Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de renovação espiritual e a esperança em um futuro onde o amor e a transcendência prevaleçam.
-
----
-
-## A Estima Deplorável do Apático
-
-O apático possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o apático, a existência é um mero "estar aqui", sem direção ou transcendência.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
-
----
-
-## A Imitação de Comportamentos
-
-O apático imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam auto-conhecimento, o apático prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
-
-**Referência:** Carl Jung, em *Aion*, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
-
----
-
-## A Obsessão por Dinheiro e a Alienação
-
-O apático tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
-
-**Referência:** Karl Marx, em *Manuscritos Econômico-Filosóficos*, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
-
----
-
-## A Apatia e o Estado de Loucura Permanente
-
-A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o apático, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
-
-**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
-
----
-
-## O Abismo Existencial
-
-O famoso abismo que olha de volta ao se olhar para ele é o assombro do apático. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o apático não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
-
-**Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
-
----
-
-## A Violência e o Territorialismo
-
-O apático, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
-
-**Referência:** René Girard, em *A Violência e o Sagrado*, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
-
----
-
-### Conclusão
-
-O apático é um indivíduo profundamente alienado, que vive em um estado de loucura permanente e anormalidade comportamental. Sua falta de propósito e autoconhecimento o leva a imitar comportamentos, a obsessão por dinheiro e a violência como formas de lidar com o vazio existencial. No entanto, o abismo que ele enfrenta ao olhar para si mesmo é, na verdade, um chamado para o despertar espiritual e a busca por um sentido autêntico. Enquanto ele não enfrentar essas perguntas fundamentais, continuará preso em um ciclo de destruição e alienação.
-
-**Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
-Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de auto-conhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
-
----
-
-## A Sensação de Ser Comandado por uma Força Desconhecida
-
-A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do apático. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o apático, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de auto-conhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
-
-**Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
-
----
-
-## A Descrição do Eu: Apático vs. Não Apático
-
-Quando questionado sobre quem é, o apático descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo: "Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses." Já o não apático descreve-se de forma mais profunda, com um cunho espiritual: "Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..." Para o apático, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o apático não consegue integrar.
-
----
-
-## O Apático como um Primata com Inteligência Aprimorada
-
-O apático age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o apático é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o apático reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
-
----
-
-## O Abismo e o Sofrimento Extra-Sensorial
-
-Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o apático experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A auto-determinação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
-
----
-
-## A Negação Constante e a Histeria
-
-O apático, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o apático tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
-
-**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
-
----
-
-## A Ilusão de Genialidade e a Obsessão por Riquezas
-
-O apático desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele lubridia pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
-
----
-
-## A Busca pela Paz sem Autoconhecimento
-
-Ao ver o comportamento de alguém calmo, sereno e confortável, o apático busca obter essa mesma paz sem deixar de ser apático. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o apático inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
-
-**Referência:** Eckhart Tolle, em *O Poder do Agora*, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
-
----
-
-### Conclusão
-
-O apático é um indivíduo profundamente alienado, que vive em um estado de negação constante e sofrimento extra-sensorial. Sua obsessão por fama, riqueza e poder é uma tentativa desesperada de preencher o vazio existencial que ele não consegue compreender. No entanto, a verdadeira paz e o autoconhecimento só podem ser alcançados através da auto-determinação e da transcendência espiritual. Enquanto o apático não enfrentar essas questões fundamentais, continuará preso em um ciclo de destruição e alienação.
-
-**Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
-Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de autoconhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
-
----
-
-## Reconhecendo o Apático em Sociedade
-
-O apático é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
-
----
-
-## A Tendência ao Vício e a Raiva Social
-
-O apático tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o apático arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
-
-**Referência:** Carl Jung, em *Aion*, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
-
----
-
-## A Necessidade de Destruir o Bem-Estar
-
-O apático vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
-
----
-
-## O Assombro e a Perturbação Mental
-
-O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do apático de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
-
-**Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
-
----
-
-## A Simulação de Pobreza Interior
-
-O apático costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
-
-**Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
-
----
-
-### Conclusão
-
-O apático é um indivíduo marcado por uma constante irritação, raiva social e tendência ao vício. Ele vive em um estado de assombro e perturbação mental, tentando simular felicidade enquanto destrói o bem-estar ao seu redor. Sua necessidade de denegrir tudo e criar conflitos é uma forma de lidar com a falta de propósito e a pobreza interior que o consome. Enquanto ele não enfrentar essas questões fundamentais, continuará preso em um ciclo de destruição e alienação.
-
-**Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
-
-Este texto, portanto, não apenas descreve a condição do apático, mas também oferece uma reflexão profunda sobre a necessidade de autoconhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
-
----
-
-## O Sentido da Existência do Apático: Projeção da Dor e Degradação Social
-
-O apático, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o apático não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia.
-
-Esse espelhar no outro ocorre de diversas formas:
-
-- **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
-- **Demonstração de assimétricaidade:** Mostrar-se em um patamar de riqueza ou status assimétrica, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
-- **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
-
-A vida do apático, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
-
-### A Degradação da Liberdade e da Cultura
-
-A necessidade de se proteger da ação dos apáticos leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
-
-### A Solução Proposta por Jesus
-
-Do ponto de vista lógico, é praticamente impossível construir um sistema social completamente imune à ação dos apáticos, pois as relações sociais são baseadas em confiança mútua. A única solução efetiva foi proposta por Jesus, que sugeriu a separação dos apáticos do funcionamento social. Em sua parábola do joio e do trigo (Mateus 13:24-30), Jesus ilustra a necessidade de separar o bem do mal, permitindo que a sociedade floresça sem a influência destrutiva dos apáticos. No entanto, Jesus também exortou cada indivíduo ao autoaprimoramento e ao encontro consigo mesmo, prevenindo que sejamos vítimas da mesma política de exclusão.
-
-### Referências
-
-1. Jean-Paul Sartre, em *O Ser e o Nada*, discute como a má-fé e a negação da liberdade levam o indivíduo a projetar sua dor nos outros, evitando assumir sua responsabilidade existencial.
-2. Viktor Frankl, em *O Homem em Busca de um Sentido*, explora como a falta de propósito leva a comportamentos destrutivos e à busca por soluções ilusórias.
-3. Carl Jung, em *Aion*, fala sobre a sombra e como a projeção de aspectos não integrados do self pode levar a atitudes violentas e manipulativas.
-4. Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve a necessidade de superar a condição atual e criar um sentido autêntico, evitando cair na armadilha da apatia e da destruição.
-5. Jesus Cristo, no Evangelho de Mateus (13:24-30), propõe a separação do joio e do trigo como uma metáfora para a necessidade de distinguir entre o bem e o mal na sociedade.
-
-### Conclusão
-
-O apático é uma força destrutiva que projeta sua dor nos outros, buscando uma solução ilusória para seu sofrimento existencial. Sua atuação invisível e manipulativa desfigura a cultura e a liberdade, levando a sociedade a um estado de vigilância constante e degradação. A única solução efetiva, proposta por Jesus, é a separação dos apáticos do funcionamento social, combinada com o autoaprimoramento individual. Enquanto o apático não enfrentar sua liberdade e assumir quem realmente é, continuará a espalhar sua dor e a impedir o florescimento da sociedade.
-
----
-
-# O PILAR DO EXISTENCIALISMO: APATIA E DESPERTAR
-
-## Introdução
-
-O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a **existência precede a essência**. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu **"em si"** (o **apático**) e o que vive em seu **"para si"** (o **desperto**). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
-
----
-
-## 1. O Indivíduo Apático
-
-O apático é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não se domina, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
-
-**Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no **"em si"** como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
-
-### 1.1 Efeitos no Corpo e na Mente
-
-O apático sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
-
-- **Ansiedade:** Sensação constante de desamparo e desespero.
-- **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
-- **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
-- **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
-
-**Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
-
-### 1.2 A Ilusão da Liberdade
-
-O apático acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa **"liberdade" é ilusória**, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
-
-**Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o apático tenta negar ao se entregar aos instintos.
-
----
-
-## 2. O Despertar Existencial
-
-O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de **alegria profunda e segurança**. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o **"ser-para-si"** como a autêntica realização do *Dasein* (ser-aí), que assume sua finitude e liberdade.
-
-### 2.1 Efeitos no Corpo e na Mente
-
-O despertar traz um alívio imediato da ansiedade e uma sensação de **serenidade e radiância**. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
-
-**Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o **processo de individuação**, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
-
-### 2.2 O Amor como Primeiro Movimento
-
-O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o apático, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
-
-**Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
-
-### 2.3 O Despertar do Ser
-
-O despertar não é apenas o início do movimento, mas o **despertar do ser**. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
-
-**Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o **"ser-para-si"** como a autêntica realização do *Dasein*, que assume sua finitude e liberdade.
-
----
-
-## 3. A Busca Frenética por Sentido
-
-O apático vive em um estado de **angústia existencial**, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
-
-- **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
-- **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
-- **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
-
-**Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
-
-### 3.1 A Miséria Interior do Rico
-
-O indivíduo rico, embora tenha recursos materiais, sofre de uma **miséria interior**. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
-
-**Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
-
-O mal do ponto de vista biológico talvez não corrobore para a sustentação da sociedade, o mal, a extrema crueldade é uma perversão de sentido, que incita o humano a fazer qualquer coisa em prol do desespero de encontrar o que atribua razão e continuidade a sua existência, considera portanto sua causa, ter maior teor de urgência que qualquer outra e não lança mão de manifestar essa urgência através de excessiva crueldade e hostilidade, pois considera sua busca ser temporal, ou seja, ter prazo e ser de extrema importância para si.
-
----
-
-## 4. A constante interpretação de personagens opressores
-
-O apático tem sua vida como um teatro contínuo de uma figura que espera incorporar seu eu ou ao menos obtê-lo de alguma forma.
-
-A imitação de um senhor de engenho, que mantém cativas pessoas no intuito de obter algum tipo de resposta, na mentalidade de que, estas pessoas estão lhe escondendo algo. E que, para recuperar este algo, necessitam fazê-las reféns. E isto se espelha a cultura escravista ao longo da história, indivíduos que se perverteram ao ponto de tentar encontrar no outro, por meio de coação e violência, o próprio eu perdido, pelo qual, fariam qualquer coisa, ainda que isto fosse cruel e desumano.
-
-A imitação de constantes personagens que assemelham atribuir-lhe pessoalidade, personalidade e o eu perdido. O indivíduo manifesta a todo momento uma interpretação vazia, metódica, objetal, sem vida, vazia de sentido e questionamento.
-
-Quando questionado de seu personagem, se põe num pranto triste. Relatam não haver sentido. Querem oprimir manifestações naturais de alegria. Quando pessoas alegres e calmas estão presentes, tentam imitá-las com uma risada sombria ou dizem se sentir incomodadas.
-
----
-
-## 5. Conclusão
-
-O apático e o desperto representam dois polos da condição humana. Enquanto o apático vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz **alívio, serenidade e uma sensação de plenitude**, enquanto a apatia gera **angústia, obsessão e desespero**.
-
-**Referência Final:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o *Übermensch* (super-homem), que cria seu próprio sentido e vive autenticamente.
-
-Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a **busca humana por sentido** e a importância da **autodeterminação** na realização da existência autêntica.
-
----
-
-## A inteligência emocional no apático
-
-- A descarga de expressão como força incontrolável ao corpo.
-- As manobras para o encaixe social.
-- A tentativa de simulação de paz e serenidade.
-- O deslocamento social.
-- A expressão de si por meio de palavrões.
-- A formulação de personagens de si baseados em figuras que assemelha ter encontrado o sentido.
-- A exclusão social devido a comportamentos anormais.
-- A exclusão social devido ao conhecimento erudito do cerne do problema através desta obra.
-- A descarga de histeria devido ao comportamento restritivo de grandes emoções.
-- O necessitar de segregar o sentido das coisas, e o propósito.
-- A baixa estima em decorrência da visão aprimorada do outro, como possuidor do sentido.
-- O sentimento de baixa inteligência e fracasso.
-- O comportamento social face ao conhecer da natureza do apático.
-- A apatia na adolescência, a formação da visão existencial, as pré-percepções da ausência do eu e o auto-entendimento social.
-- Incomodo ao ver os outros em paz e tranquilos.
-- Tentativa de degradar as belezas naturais e tudo que impõe propósito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmônico, catastrófico.
-- Imposição de altar cargas de trabalho ao homem na tentativa de fazê-lo compreender que o apático não vive a vida, mas a passa sem sentido. Não se permite o deleite pois necessita manter a vida em um patamar de ausência de grandes emoções.
-- Tentativa de evitar que a sociedade se dê conta do problema da apatia através de personagens que o apático assume. Assumir-se feitor de engenho, vilão, são tentativas de mascarar o problema, pois uma vez que os apáticos são identificados, perderão cargos, lideranças, papéis sociais e afetivos na vida das pessoas, perderão força de expressão, etc.
-- As pessoas tentam conscientizar, o papel da conscientização para sanar os males do mundo não é totalmente eficaz porque a apatia não é conscientizável, é um sintoma não anulável da ausência do eu, e tem sintomas imparáveis. Ou seja, não há uma maneira de conscientizar o apático e de direcioná-lo.
-- O apático se define pelo corpo, o eu dele se refere a massa corporal, intelecto e memória, mas não ao espírito. Ou seja, o eu do apático é efêmero, refere-se à carne, à substância que se degrada no corpo. A construção conceptual de seu eu depende única e exclusivamente da massa encefálica, da construção de suas memórias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
-- O apático tem um zelo grande por ter o melhor plano de saúde.
-- O apático tem obsessão por mostrar seu problema, quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
-
----
-
-## A Ilusão do Eu Fenomenológico
-
-O mundo fenomenológico tende a pensar pelo indivíduo, levando-o a viver sob a concepção de um *eu* figurado em memórias e percepções – uma construção fictícia que resolve seus conflitos existenciais.
-
-Assim, o indivíduo identifica-se como vivo porque fala, anda e se movimenta, mas não aceita a verdade: não é ele quem se move, mas sim o movimento que emana de sua natureza fenomênica. O que existe é a expressão de sua interioridade através da obrigatoriedade fenomenológica na qual está encerrado e à qual se dissolve temporalmente em sua alma.
-
-Ou seja, o fenômeno apenas evidencia, de forma dinâmica, a natureza não vivida de seu espírito – uma alma não vivificada pelo Espírito. Desse modo, o fenômeno produz um *eu* ilusório que, traduzindo-se em processos biológicos, simula ao indivíduo a sensação de movimento, dispensando, assim, a necessidade de despertar.
-
-O *corpo fenomenológico*, por assim dizer, seria uma manifestação involuntária do estado da alma. Seria como um corpo fantasmagórico que revela, através de gestos e ações, os dizeres da alma. Algo semelhante a uma vida artificial que expõe seu modo de ser e seus pensamentos sobre si mesma, sem que haja um verdadeiro despertar.
-
-Em comparação com a alma, o corpo seria uma *eletrocussão* da alma – uma manifestação dela como *alma vivente*, porém de maneira fictícia. Dessa forma, cria-se um corpo sem autocomando, que expressa a personalidade e o vazio existencial de uma alma desprovida de espírito.
-
-O corpo, sem autocomando, expressa o vazio da alma, seja em sua busca por um sentido ou em sua aceitação pelo não sentido. Isto pode evidenciar um estado purgatorial ou infernal da alma. Ou seja, se há busca por sentido, há uma alma em estado de transição para a vivificação.
-
-Em outras palavras, o corpo é uma manifestação dinâmica da alma apática, tal como seu estado natural de estaticidade seria uma manifestação igualmente expressiva de si mesma e de seu estado existencial. A completa imobilidade se expressa tal como o fenômeno inerente a esta mobilidade no dinamismo de sua natureza. Ambas seriam formas de expressão. O dinamismo do fenômeno agrega o teor de vazio existencial do apático tal como sua completa imobilidade como alma desfenomenizada.
-
----
-
-## O Eu mal resolvido
-
-O apático, como imposto ao existir, e não autodeterminado, ou revivido de si. É um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem, é o impor ao corpo a alma, e está é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas.
-
-O apático não é uma alma livre, e nem mesmo presa, pois toda intuição da realidade exige um eu que a interpreta. O apático é simplesmente uma alma criada em mal estar existencial. É o resultado que se define realizado pela vontade divina e unicamente obediente a esta, sendo em sua existência, mas não coagente e nem não coagente com essa vontade, simplesmente imóvel ao todo.
-
-Toda alma é livre como ação criadora livre de Deus, é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não significa que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
-
-- Agressividade querendo mostrar que ele simula liberdade. Gosta de mandar porque se sente mandado. Determinado preso. Seguidor de regras. Não consegue conversar de eu pra eu. Precisa assumir uma personalidade. Precisa fingir um eu. Linguagem processual, de funcionamento ou incorporando personagem.
-- Não consegue interagir sem expressar seu desconforto. Não tolera pessoas alegres, se sentindo bem perto de si.
-- Sente que estão lhe fazendo passar vontade. Tenta aprisionar o outro de alguma forma, e exibir-se livre, pois sente que o outro está exibindo sua alegria e liberdade.
-- Tenta coibir a alegria geral.
-- Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimentos, opiniões, o apático necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou.
-- O apático tende à crueldade e tem dificuldade em controle da raiva. Pois se sente numa situação de aprisionamento interior.
-- Caso o apático seja forçado a se enquadrar numa situação sofre o chamado "assombro", como a sensação de ser aniquilado pela morte, ou começa a se sentir extremamente irritado como uma sensação de estar enclausurado.
-- Tende ao isolamento ao perceber que as pessoas se sentem desconfortáveis com sua reação.
-- Sente grande apavoro quando vê situações em que o outro está com tranquilidade, descanso e paz. Pois compara a seu estado e enxerga a anormalidade em si, tem sensações perturbadoras.
-- A descrição de seu conflito é: "saudade de alguém que eu gosto muito e nunca encontro", "fome interior", "sede interior".
-- O indivíduo projeta um personagem altivo, que é a projeção de si num patamar assimétrica do ponto de vista material, simulando uma posição espiritual ausente no indivíduo. E neste comportamento envolve: Exclusão, afastamento, silenciamento frente a pessoas que supostamente não fazem parte de algo que o indivíduo integra, seja uma posição social, a posse de um ou mais bens, o estar adentrado no contexto de um grupo social ou de uma pessoa que represente status, associação a determinada tarefa ou trabalho que o indivíduo use para valorar-se de forma representativa. Para se manter na ilusão o indivíduo evita contato social que o permita se olhar de igual para igual, achatando sua posição perante as demais pessoas, o que evidencia a discrepância, a diferença de estado de espírito entre ela e as demais pessoas.
-- O indivíduo apático tenta constantemente se provar como livre, como uma tentativa ser livre perante a visão do outro. E o faz por meio de impor ao outro uma rotina escravista, ou impor ao outro qualquer forma de incômodo que o permita comparar-se sem o incômodo. Tenta provocar uma diferença de potencial física de liberdade, como restrição financeira ao outro, restrição de tempo, etc. Como tentativa de demonstrar o que sente. E pensar-se num patamar ideal. Pois usa o outro como comparação de seu estado de espírito.
-- A convivência social do apático é de difícil desenvolvimento, pois o mesmo se sente sobrecarregado ou assombrado com a informação da ausência do seu eu, ao comparar o comportamento do outro como discrepante ao seu.
-- O indivíduo apático manifesta constantes crises de histeria, pois a privação do eu em suas tarefas diárias lhe irrita profundamente, lhe afastando de tudo que mais agrada e sendo um empecilho para o seu desenvolvimento social.
-- O apático tende muitas vezes à crueldade, maldade, vingança e descarga de raiva sem propósito e sentido aparente.
-
----
-
-### Os sintomas dos apáticos são:
-
-1. **Criam personalidades falsas**, como personagens de um "Eu" que não reconhecem em si mesmos. E usam este Eu para socializar.
-2. **Rejeitam emoções intensas ou alegria**, pois, como não enxergam sua própria alma, não compreendem a eternidade que carregam. A negação da alegria os deixa mais confortáveis com a ideia da morte física.
-3. **Possuem obsessão por infligir aos outros** o que sentem: aprisionamento, escassez, miséria, fome interior, tédio e vazio.
-
----
-
-## As almas no purgatório e no inferno: uma reflexão sobre o sofrimento e a apatia espiritual
-
-*As almas do purgatório* têm uma autoconsciência do próprio sofrimento. Elas reconhecem sua necessidade de evolução e purificação, sentindo-se afastadas da luz divina. Sua dor é ativa, pois ainda mantêm a esperança e o desejo de transcendência.
-
-*As almas do inferno*, por outro lado, não possuem qualquer preocupação espiritual. Elas não sentem a necessidade de evolução e interpretam a existência pós-morte como uma mera extensão do mundo material, fixadas em objetivos terrenos, status e consequências sociais. Não há nelas um "eu sofredor" — apenas uma frustração profunda, uma ausência de esperança que as leva a uma completa inatividade da alma.
-
-O verdadeiro mal não se manifesta como uma obsessão ativa, mas como uma apatia radical. O que move o indivíduo verdadeiramente perdido não é o ódio, mas uma sede vazia de sentido, um vazio de amor que o impede de reconhecer sua própria espiritualidade.
-
-### Características das almas infernais neste mundo:
-
-- **Imitação de personalidades alheias**, por não possuírem um "eu" interior definido.
-- **Medo da felicidade**, pois a alegria lhes parece uma ameaça à sua própria existência vazia.
-- **Tendência à destruição**: provocam miséria, escravidão e insatisfação nos outros, tentando externalizar seu vazio interior.
-- **Construção de um ambiente fúnebre**, desprovido de vida e propósito, refletindo sua própria condição espiritual.
-
-Se o mundo reconhecesse esses espíritos apáticos — líderes maníacos, perpetuadores de catástrofes — talvez pudéssemos evitar guerras e sofrimentos desnecessários.
-
-### Características das almas sem esperança (estado infernal) — Pecados graves
-
-- Crueldade.
-- Ausência de percepção do vazio interior.
-- Tendência a ações que externalizem a completa não esperança: destruição das belezas naturais, escravização de pessoas, etc.
-- Querem a destruição, não almejam resposta.
-- Total ausência de compaixão em algumas atitudes.
-- Desumanização.
-
-O indivíduo em estado infernal usa da destruição de tudo aquilo que confere sentimento e sentido à vida, como expressão da completa falta de esperança e escuridão, até mesmo da própria falta de espera em si. É o completo não sentido que extravasa do indivíduo como mal, como desapego até de si mesmo como existente em prol da destruição.
-
-O indivíduo não se expressa na intenção que o ajude e o entenda, mas como pura expressão impessoal da destruição interior, do caos interior, da ausência interior. Ou seja, não é uma expressão fundamentada em uma espera e na solução, na visão do eu sofredor, mas na visão completa da ausência que quer equiparar a tudo como ausência do seu sentido. Ou seja, não visa a expressão em si, mas a externalização, que é uma expressão sem propósito de se expressar, mas equiparar a realidade exterior com a interior de forma a destruir tudo, não somente se fazer entender para se libertar.
-
-O indivíduo cuja personalidade experiencia o não eu, há a personalidade, a forma do eu, e o eu para o relativo do Eu. O eu não definido em para si, mas em si. O eu do relativo. O nada é o relativo. Não há o nada para a alma, se não a possibilidade do eu ou não eu suspensa. A possibilidade, há relativo se houver presença, para que haja o relativizado. O indivíduo apático tem a alma para ver, a visão existe sem o eu. A visão já não é de Deus, a visão é de quem? O relativo é presença. A alma é a visão, se não o próprio indivíduo, quem enxerga? A completa pureza é Deus. O nada impuro. Dotado de personalidade. Como a personalidade dá forma ao nada? A forma da personalidade não se mistura ao nada. O Eu hipotético. Que está no campo das possibilidades, mas não manifestado. O eu irreal. Não autodeterminado. Não criado de si. O eu irreal enxerga. O eu imaginado. O indivíduo fica orgulhoso, pois se imagina num patamar muito alto de si. O indivíduo define quem fala como, é a alma, mas não sou eu.
-
-### Características das almas com esperança (estado purgatorial) — Pecados veniais
-
-- Percepção do afastamento de si mesmas.
-- Visão do vazio interior.
-- Crueldade amena, no sentido de frustração.
-- Almas querem a resposta.
-- Sutil humanização.
-
-O indivíduo manifesta uma certa tendência à degradação e não exatamente à destruição.
-
-### Características das almas sem sabedoria (falta sabedoria)
-
-- Tendências a obsessões, desespero, etc.
-- Tendência a odiar, guardar rancor, etc.
-- Pecados veniais em geral.
-- Brilho pessoal baixo.
-
-### Características das almas com sabedoria (sabedoria plena)
-
-- Grande equilíbrio.
-- Brilho alto.
-- Tendência a perdoar, alta compaixão.
-- Tendência à bondade.
-
----
-
-### O Indivíduo no Estado Infernal: A Expressão da Ausência Radical
-
-O indivíduo em estado infernal não busca destruir por ódio ou por um propósito definido, mas como **extensão pura de seu vazio interior**. Ele não age por maldade consciente, mas porque sua própria existência se tornou uma **negação ambulante do sentido**. Sua crueldade não é um meio para um fim, mas a **materialização de sua desesperança absoluta** – um reflexo involuntário de sua condição espiritual.
-
-#### 1. A Destruição como Externalização do Vazio
-
-- Ele não destrói por querer *algo*, mas porque **nada mais lhe resta**.
-- Sua ação não é uma tentativa de comunicação ("vejam como sofro"), mas uma **equiparação forçada**: ele arrasta o mundo para seu próprio abismo, tornando tudo tão sem sentido quanto ele mesmo.
-- **Não há "eu" por trás do ato**, apenas a pura descarga de uma ausência que não consegue nomear-se.
-
-#### 2. A Não-Intencionalidade da Crueldade
-
-- Seu mal não é estratégico (como no tirano que planeja dominação), mas **existencial**.
-- Ele não deseja poder, vingança ou reconhecimento – apenas **aniquilar qualquer resquício de significado** que o confronta com sua própria nulidade.
-- **Exemplo**: Um líder que escraviza outros não o faz por ambição, mas porque a escravidão é o único estado que sua alma reconhece como "verdadeiro".
-
-#### 3. A Alma como Espectadora do Nada
-
-- O indivíduo apático **não é um "eu"**, mas um **"nada personificado"**.
-- Ele não enxerga *a partir de si*, pois não há um "si" – há apenas **uma consciência personificada vazia observando-se como ausência**.
-- **Sua visão não é de Deus, nem de si mesmo, mas do vazio que ocupa o lugar do eu**.
-
-#### 4. A Ilusão da Personalidade
-
-- Ele constrói uma **persona** (um "eu relativo") para interagir com o mundo, mas essa máscara não tem substância.
-- Quando se orgulha de algo, é o **orgulho de um fantasma** – uma emoção simulada por quem não tem acesso real a sentimentos autênticos.
-- **Sua "alma" existe como testemunha passiva**, incapaz de agir, apenas assistindo à própria desconexão.
-
-### Conclusão: A Metafísica do Inferno
-
-O estado infernal não é um castigo divino, mas a **consequência lógica de uma alma que recusou-se a ser**. Seu mal não é ativo, mas **a passividade radical diante da própria liberdade**. Enquanto o purgatório é dor com esperança, o inferno é **a quietude de quem já não espera nada – nem mesmo o fim**.
-
----
-
-- O eu do apático é uma figuração, uma emulação de realidade, uma imaginação.
-- O apático, desta forma, projetando a visão a partir do eu irreal, tem a impressão de uma realidade virtualizada, criada, existente apenas em sua mente. Pois a realidade não é detectada pelo eu real, mas pelo eu inventado que simula conhecer o mundo sendo um processo biológico e químico cerebral.
-- A alma, com o eu vazio. O vazio por si só não define, mas destrói. A alma em desintegração. Em processo de desfalecimento constante.
-- O eu do apático é o eu sucumbido, o vazio denota a ausência de algo que hipoteticamente deveria haver.
-- O eu do apático é o próprio vazio ganhando persona e expressão.
-- É a completa opacidade ganhando expressão, o nada que se define pela alma, que ganha definição na alma.
-- O nada, é, portanto, o finito existente.
-- A definição mais exata é finitude, o encarceramento da alma, sem conexão com o absoluto, o todo, o infinito.
-- A alma enxerga a si da ausência, a ausência ganha uma expressão anímica.
-- A ausência é pura autossupressão. A ausência corre em direção a extinguir-se.
-- Portanto, o eu do indivíduo é a recusa de si, uma pressão pela finitude de si. É a recusa de si.
-- O eu do apático é a completa transparência, mas não aquela que corre em direção à pureza, mas em prol da auto aniquilação de si.
-- É um nada que não vem do relativo.
-
----
-
-### A Ontologia do Eu Apático: A Personificação do Vazio
-
-#### 1. O Eu como Figuração Ilusória
-
-O "eu" do apático não é uma realidade substancial, mas uma **simulação cognitiva** – uma projeção mental que emula identidade onde há apenas ausência. Esse falso *self* opera como:
-
-- **Uma personagem fictícia**, construída a partir de processos biológicos (memória, percepção, reações neuroquímicas).
-- **Um avatar existencial**, que interpreta a realidade como se fosse um "ser" autônomo, quando na verdade é apenas um agregado de mecanismos inconscientes.
-
-**Consequência epistemológica:** A realidade, para o apático, torna-se **uma virtualidade autorreferente** – um mundo percebido não por um *eu verdadeiro*, mas por uma entidade fantasmagórica que acredita ser real porque "pensa" (processo cognitivo meramente bioquímico).
-
----
-
-#### 2. A Alma como Campo de Desintegração
-
-Enquanto o eu ilusório se mantém ativo, a alma apática está em:
-
-- **Estado de colapso contínuo**: não se dissolve de vez, mas definha como um núcleo que perdeu conexão com o Absoluto.
-- **Expressão do vazio substantivado**: o nada, que por natureza seria mera negação, aqui adquire *rosto* – torna-se uma presença paradoxal que *é* ausência.
-
-**Metáfora:** Como um buraco negro espiritual, a alma apática não é "nada" no sentido simples, mas um **vórtice de autoaniquilação** que distorce tudo ao seu redor para caber em seu vácuo.
-
----
-
-#### 3. A Finitude como Encarceramento Metafísico
-
-O apático não experimenta o infinito (Deus, o Todo, o eterno), mas está confinado a:
-
-- **Uma existência autorreferente**: sua alma privada do "eu" é a cela que o separa do transcendente.
-- **Um paradoxo ontológico**: quanto mais tenta afirmar-se como indivíduo, mais revela-se como **pura finitude em agonia** – um ser cuja essência é a limitação.
-
-**Diferenciação crucial:**
-
-- O *nada relativo* (ausência de algo específico) pressupõe um contexto.
-- O *nada apático* é **absoluto em sua autorreferência** – não é a negação *de algo*, mas a negação *como modo de ser*.
-
-Ou seja, o relativo tem referencial de afirmação de uma possibilidade. O modo de ser do apático dispensa até mesmo a afirmação, é um relativo vazio, a personificação do nada. Um lugar onde nem mesmo Deus pode alcançar, pois não existe.
-
-O relativo supõe a presença. Mas a ausência do sentido no apático deduz a ausência personificada.
-
----
-
-#### 4. A Transparência Suicida
-
-A "transparência" do apático não é luminosa (como a pureza espiritual), mas:
-
-- **Autodestrutiva**: uma claridade que não revela, mas **desfaz**.
-- **Anti-ontológica**: em vez de buscar integração com o Ser, move-se em direção à **desontologização** – o apagamento progressivo de si como entidade.
-
-**Dinâmica existencial:** Cada ato do apático é, em última instância, um **movimento de autossupressão**. Seu "eu" não é um projeto, mas um **processo de desistência**.
-
----
-
-### Conclusão: A Patologia do Vazio Personificado
-
-O apático vive a contradição máxima:
-
-- É um **nada que se comporta como algo**.
-- Uma **alma que existe como negação da alma**.
-- Um **ser cuja única identidade é a recusa de ser**.
-
-Sua condição não é um acidente, mas **a materialização de uma possibilidade metafísica terrível**: a de que o vazio pode, temporariamente, ganhar voz – e que essa voz pode falar, agir e até mesmo governar, sem jamais *existir* de verdade.
-
----
-
-- De onde vem a inspiração da alma?
-- Toda alma oriunda de Deus carrega o teor vivido completo de que precisa para definir-se.
-- O mal quer tirar tudo, mas não pode tirar o Ser das pessoas. O mal tenta destruir tudo aquilo que colide com sua realidade interior. Tanto das pessoas, quanto da natureza, etc. Do bem estar. etc.
-- Toda alma é viva, no sentido de que pode agir em prol de si, sob o ímpeto do espírito a qualquer momento, porém, essa vida não é em abundância, não tem um sentido em si. E essa ausência do sentido representa o nada, no sentido de que é viva, mas não é abundante de vida em si. É feita para a vida, mas não se faz para viver. É opaca a si mesma como vida. Não transluz para si. E, se essa não translucidez for eterna, logo, há vida, mas que não germinou.
-- O apático, como um bebê que ainda não nasceu, não deve ser visto com rancor, mas como um indivíduo que cria um mini mundo de expressão, no qual tenta destruir, desiludir, instigar o caos como reflexo de seu interior, como tentativa do salvamento de si mesmo. Sua expressão esconde literalmente a descrição bíblica exata: choro e ranger de dentes. Uma saudade inequívoca de si. Uma cegueira desesperadora. O mundo do apático resume-se em uma expressão que envolve segregar a amplitude da vida e suas infinitas possibilidades, em prol de uma obsessão local e com possibilidades limitadas.
-- O apático não projeta sua plenitude, mas sem foco incide em pequenas ocasiões em que pode expressar seu instinto interior em direção à sua autenticidade que não é realizada outrora por si mesmo.
-- O apático, em sociedade, deve ser tratado com cuidado, seus cargos devem não envolver grandes responsabilidades, pois a necessidade da expressão envolve seu trabalho, sem que o apático possa reagir ou se reanimar para um novo comportamento ainda portando a apatia. Portanto, a expressão do apático faz mais sentido perante o seu afazer ou a sua tarefa na sociedade, de modo que distorça sua função a fim de avisar os outros seu conflito interior.
-- O apático não tem um defeito psicológico que o segregue do funcionamento social e do exercício da cidadania, porém, seu estado existencial tem primazia em suas ações, e isso supõe uma explicação para comportamentos que contrariam o humano como causar guerras, genocídios, destruições em massa, escravidão, tortura, etc. O que nenhum ser humano se sujeitaria a fazer, se justifica, muitas vezes pela inconsciência de si, pelo confinamento do eu, pelo desespero existencial. Ou até mesmo pela manipulação que apáticos causam em não apáticos.
-- O apático, pelo seu estado de desespero irremediável, deve ser segregado de cargos que envolvam cuidar do bem estar efetivo de grupos, como lideranças, chefias, tarefas administrativas que envolvam pessoas, ainda que capacitado e são, seu estado existencial o impõe forte pressão por solução, e esta força se esvai de si em direção a todos a sua volta como tentativa de libertação do mal que se encontra padecendo. O humano, em apatia, interpreta que seu estado tem primazia de resolução, e não abre mão de qualquer força ou forma de expressão que possa usar para sinalizar seu estado interior, pois interpreta que isto envolve urgência considerando que se trata de uma condição desconhecida para si e desesperadora.
-
----
-
-## Apocalipse
-
-A verdade veio à tona, todas as pessoas estão cientes. Agora, conseguem enxergar a apatia. Mas a visão da compaixão é a primordial, pois todos somos irmãos. Quando os poderosos foram destituídos do poder econômico, e os humildes exaltados, uma grande alegria se instaurou, tudo na terra passou a cantar de alegria, a ser bonito, harmonioso. Os apáticos, então, entraram num pranto inconsolável. O eu que procuravam, tentando pressionar as pessoas, tirar-lhes a resposta, não resultou em se não prova do próprio vazio que carregam. A humanidade se tornou a prova viva do espírito vivo do existir agindo, fazendo nova todas as coisas. Os sorrisos felizes. A natureza vibrante. Tudo evidencia mais ainda o poder do existir, a vida se deleitando profundamente em cada olhar. O apático, diante desta realidade, entra em desespero. Não há onde ir que não há vida e alegria. Então, há choro e ranger de dentes.
-
-A escravidão, trabalho excessivo, dor, sofrimento que o humano passa ao próprio humano, tudo isso é uma tentativa do apático se fazer compreender, o sofrimento do outro é o divã do apático, que busca extrair do outro sua cura. Se não no diálogo, na opressão, é uma forma de sequestro do outro.
-
-O equívoco que o humano precisa de tanto para viver, como no caso dos bilionários, evidencia um apático desesperado, que tenta alardear seu vazio de forma escancarada e desordenada. O teatro de que existe um ser humano tão frustrado ao ponto de ser obsessivo pelo mal, somente ofusca o desesperado camuflado de propósito. E evidencia a única verdade, o ser humano não pode viver sem a si mesmo, sem encontrar-se. É impossível, e o mal no mundo evidencia essa afirmativa. O incômodo da ausência distorce o sentido biológico do humano a ponto de degradar até mesmo seu instinto por sobrevivência mais primitivo.
-
-A apatia é um grito silencioso, o indivíduo grita e não sabe mensurar seu vazio, pois o vazio não tem descrição, não se define. Não há como definir a ausência personificada se não pela própria personalidade que a personifica, é a alma vazia, mas o vazio não tem definição.
-
-A expressão do apático se faz entender quando a sociedade entende os mecanismos de expressão e perde o receio do mal causado, de forma que a sociedade entende que não há um plano diabólico por trás dos problemas do mundo, mas um sofrimento inexpresso. Um sintoma que transparece uma forma maligna inteligente, mas que é puro desespero e aleatoriedade.
-
-O apático necessita entender que o problema dele é espiritual e não político, social ou psicológico. Desta forma, causar sofrimento não sana o seu estado.
-
-- A apatia da alma enlouquece o indivíduo, que, fugindo da realidade, projeta uma realidade onde é espiritualmente harmonioso, e isso envolve a aquisição de riquezas a todo custo.
-- O apático, empresário, forma uma hierarquia de treinamento do mal, onde leva pessoas a fazerem o mal por si. Na tentativa de continuar a ilusão. É um estado de desrealização onde o indivíduo reúne riquezas materiais na tentativa de se adequar à harmonia, aceitação, inclinação a si mesmo, adequação do ente no existir.
-- O mal no mundo é ocasionado por empresários, que, por terem tendência de serem empresários, arquitetar negócios de forma eficaz, usaram isto para o mal, e conseguiram causar grande impacto antes que a tecnologia política fosse completamente desenvolvida.
-- O indivíduo evita momentos felizes por querer adequar a realidade química biológica à sua realidade interior de estagnação e ausência do sentido.
-- O fanatismo por dinheiro não advém de uma grande sabedoria, mas de um conflito interior imenso, que muitos apropriam, tomam para si como objetivo de vida, é o contrário, o fanatismo, a loucura é o símbolo de um despropósito, de uma ausência de valor tamanha, de uma completa ausência do sentimento de paz e liberdade.
-- O apático propaga a maldade como valor, trabalho excessivo, riqueza como inteligência, mas há um despropósito em si que não o permite desfrutar da vida, e faz os outros não desfrutarem trabalhando muito como se trabalho em excesso fosse valor de vida.
-- O apático tem aversão à sua posição perante a vida, a própria sensação de repugnância com sua posição interior é degradante e faz com que sua mente sofra um processo de desrealização, no qual se projeta como uma pessoa apreciadora da vida, que sabe de verdade apreciar o valor das coisas, que necessita desesperadamente de dinheiro para simular o valor que não guarda dentro de si. Pois, a visão sobre si mesmo é até mesmo mais dolorosa do que seu próprio estado de dissonância.
-- O indivíduo não necessariamente necessita ser mal para que haja a dissonância em si, pode comportar-se socialmente. Porém, é a aversão à sua posição, do ponto de vista moral, é vista como ingratidão, que o provoca o mal comportamento, é a recusa de quem é do ponto de vista moral. É a dor de recusar o irrecusável, de não ser grato pelo que seria impossível não ser grato. É preferível enlouquecer, do ponto de vista do apático, do que se aceitar nessas condições.
-- Ou seja, a maior vergonha do apático é a recusa, do seu ponto de vista não é imoral o uso da liberdade, e ter uma posição de oposição quanto ao próprio existir. Porém, seu próprio julgamento de sua posição lhe soa sujo, ridículo, infame, digno de punição. Seu próprio estado é degradante para si. A punição do próprio estado não é a pior, como um estado do desgostar do estado de vida, mas do desgostar de ser como tal mediante a tudo. Lhe soa repugnante. Ao passo que, o apático teme a consequência de sua condição, de forma que sua posição o leve à autopunição. A querer fadar-se no esquecimento de si. Suas atitudes por vezes corroboram para autodestruição. E disto vem o assombro? O assombro não seria o medo de existir e da infinitude, mas da própria atitude, de si mesmo em relação ao decidir de si mesmo. De ter a si como mentor de si, de forma que sua decisão pode fadar ao fracasso eterno ou à glória eterna.
-- Sendo o mandante de si, o homem pode se movimentar em prol do existir, amor. Ou contrário, em prol da autodestruição. O rico tentando simular na máscara da fortuna o valor que não enxerga em existir, de forma a projetar um eu que seria aquilo que a alma almeja ser. O rico se apega em posses por temer o abismo no qual pode se fadar, por ter uma posição contrária ao próprio existir. O apático teme seu destino, já que é autor dele, e está no caminho apático.
-
----
-
-# EXISTENCIALISMO PRÁTICO
-
-- O indivíduo tem mais dificuldade de lidar com a resposta social à sua intenção do que com sua própria intenção ao inferno.
-- O indivíduo manifesta revolta por sua decisão interferir não em si mesmo, mas nas demais pessoas de forma eternal.
-- O indivíduo também sente tristeza e remorso por não haver uma cerimônia para si, por sua decisão ser alheia e tomada como supérflua por outras pessoas, de forma a ser um pensamento particular e não levado ao grupo para ser debatido.
-- O indivíduo não concorda com sua decisão e tenta chamar atenção, quer expressar-se.
-- O indivíduo quer uma maneira que sua decisão seja mantida e que as pessoas o impeçam para ter ambas as coisas, o objeto de sua revolta e a vida.
-- O indivíduo começa um processo de "adaptação" afastando as pessoas de seu convívio, minando suas relações.
-- O indivíduo faz uma obstrução emocional no corpo, e como reflexo dessa obstrução começa uma busca por si mesmo. Sente falta de sua personalidade, suas emoções.
-- O indivíduo cessa sua humanidade, emoções, gostos, personalidade. E inicia uma busca emocional por si mesma. Um preparo para a decisão final, poupando os indivíduos de seu findar. Já manifesta traços suicidas.
-- O indivíduo tenta realçar que não "presta" para a vida com más atitudes, prepara um sepulcro emocional, onde se priva dos bons afetos, do bom sentido da vida, e do que lhe propõe entusiasmo e boa companhia. Passa a não querer somente o direito de trabalhar, mas o direito acrescido de sua vida eterna, pois enxerga nos bens materiais uma extensão de seu objetivo material, ou seja, não quer somente a sobrevivência mas sua continuidade, por isto, procura necessariamente um trabalho com alto teor de remuneração mesmo que ilegal ou indevida.
-- O milionário perde suas posses, pega seu papelão, e em trajes fétidos, caminha, com o vazio no olhar, rumo ao abismo. O pobre não está em mais nada se não em seu caminhar. Seu olhar é vazio e despropositado. Seus cabelos bagunçados. Os olhos sem vida, as palavras sem ânimo, o mendigo e o milionário, o mesmo indivíduo sob óticas diferentes expressando sua mesma realidade interior.
-- O indivíduo já se nega completamente, e lhe resta a morte ou a ilusão material, que testemunha contra sua realidade interior, pois não pode aceitar sua decisão.
-- Uma vez que a alma nega a Deus, o corpo não tem nada a fazer se não projetar defesas. E uma delas é projetar um incrível valor, desmedido e obsessivo em riquezas materiais. Arquitetar uma competição social gigante onde há um teto espiritual que é simbolizado pelas riquezas materiais a se atingir. É uma loucura, uma obsessão física, que vem da não conformidade do corpo com sua decisão. Uma grande raiva e histeria, estados de violência acompanham esse comportamento que reflete a substituição da vida verdadeira por um bem fictício, uma vida fictícia.
-- O indivíduo apático não precisa somente de um resgate espiritual, mas um resgate psicológico. Pois demonstra nitidamente no seu comportamento os efeitos e sofrimentos de sua decisão interior. Que envolve conformismo com o tédio e baixas emoções. Afastamento de suas atividades favoritas. Despersonalização, afastamento de tudo que impõe sentido a sua vida, na tentativa de adequar a realidade à sua decisão interior de despropósito. O indivíduo torna-se frustrado, inadequado sem uma resposta ou razão para tal nas ocasiões cotidianas. Espelha, como uma sensação de desrealização, sua sede por mudar sua postura anterior simulando alguém que se apega a riquezas, que sabe apreciar, assume um personagem de um amante pela vida, porém, pelo que não atribui sentido verdadeiro a sua vida.
-- O verdadeiro pódio da vida é o existir eterno, o rico materialmente simula um pódio onde ele chegou, porém, mascara a derrota interior. É uma transfiguração de um desejo não realizado interiormente, que é o harmonizar-se, querer existir, se interessar pela vida.
-- Jesus pregava a quem se interessava pela vida.
-
-- Escrever um livro que se chama: as montanhas de cristal; um garoto leva o leitor a uma incrível viagem por um mundo diferente, e ao longo da história vai revelando como é este mundo, no final do livro o leitor teria morrido, porém, sem perceber, entra no cenário espiritual.
-
-- O indivíduo apático após manifestar a certeza de quem é, na alma, após apresentar ao seu corpo a concordância tácita e irrevogável, provoca um estado de desrealização constante, o corpo cria um patamar altivo para o indivíduo viver, o indivíduo então passa a ressoar orgulhoso, difícil diálogo, coloca-se num pedestal, num patamar material maior que o outro, e considera digno de sua presença aquele que também compartilha do mesmo material. Entra num estado delirante de soberba. Pois seu corpo não pode aceitar, concordar, com sua alma, o corpo encontra uma forma imaginária de se sobrepor à decisão da alma de forma a suportar a presença interior conflitante com os reais interesses do corpo que é a vida, o deleite e o desfrutar.
-
-- Os humanos ficam loucos quando negam a vida, por isso disse que não sabiam o que faziam, morri também para mostrar a loucura do mundo. Como pode fazer tal ato com a bondade infinita? Mostrei a real loucura deles.
-
-- O indivíduo que segrega relacionamentos, adquire posição de orgulho, na verdade é um esconderijo da postura interior. O encontro com Deus nessa vida emocional se reflete no encontro do calor humano.
-
-- Mudanças no cenário político: a descoberta da sintomática do apático vai priorizar o povo a não confiar em grandes empresários, que dizem ser a base da economia, e sem os quais tudo não evoluiria. Pois, serão considerados pessoas obsessivas, doentes, e incapazes de conduzir os movimentos sociais, pois sua busca é pautada em obsessões e não no bom convívio e sustentação social. Isso vai eliminar a classe pobre que ainda é de direita.
-
-- O mundo é como se confiasse que os bilionários estão fazendo seu trabalho corretamente, e que não haveria outra maneira, o mundo questiona se os bilionários estão realmente loucos ou se essa é a única estrutura sobre a qual a sociedade funcionaria. Ainda não conhece a apatia da alma dos bilionários e não revela o poder como tentativa de recobrar a própria vida. O mesmo fato aconteceu no Egito Antigo, onde não se entendia o propósito real das pirâmides, e escravos construíam, com medo de que aquilo tenha uma funcionalidade fundamental.
-
-- O mundo se confunde, acreditando nos dizeres que os empresários são necessários, fazendo duvidar da própria força, acreditando em métodos, que seriam funcionais, de pessoas que estão no poder. Na verdade tais métodos são movidos por uma patologia, não pela mera funcionalidade. O grande acúmulo de fortunas não é necessário socialmente, só reforça a patologia do que acumula.
-
----
-
-# A MATRIX DECODIFICADA: DESTRUINDO AS ESTRUTURAS DE DOMINAÇÃO
-
-**E se as palavras de Jesus contivessem um código metafísico capaz de desvendar os mecanismos ocultos do poder?**
-**E se a lógica e a razão confirmassem os mesmos mistérios que a fé sempre intuiu?**
-**E se, além da verdade espiritual, Cristo tivesse revelado uma ciência metafísica que transcende o tempo?**
-
-Neste livro, você embarcará em uma jornada pelos recessos mais profundos da mente de Jesus, explorando não apenas seus ensinamentos sagrados, mas a arquitetura metafísica que os sustenta. Prepare-se para descobrir:
-
-- **O Evangelho Político**: Como a verdade plenamente compreendida subverte o cenário global, expondo as raízes ocultas das guerras e da miséria moderna.
-- **Os Códigos Divinos**: A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.
-- **A Ciência dos Milagres**: A intersecção entre fé, física e metafísica nos atos sobrenaturais de Cristo.
-- **O Diagnóstico do Niilismo**: Como Jesus previu, há dois milênios, a crise existencial da era contemporânea.
-- **A Engrenagem da Opressão**: Como as estruturas de poder exploram a ignorância espiritual das massas.
-- **A Sociedade Crística**: O modelo de justiça, compaixão e soberania que ameaça todo sistema baseado em dominação.
-
-**Não se trata apenas de ler as palavras de Jesus, mas de decifrar sua mente e desvendar os mistérios que a humanidade ainda não estava preparada para receber.**
-
-### Somos os Construtores das Pirâmides Modernas
-
-Por que civilizações inteiras dedicaram séculos à construção de pirâmides? **Será que acreditavam, em algum nível, que essas estruturas eram essenciais para a ordem cósmica?**
-
-Hoje, os bilionários repetem o mesmo ritual em escala global: acumulam riquezas obscenas, constroem bunkers, ilhas privadas e financiam projetos de imortalidade. **Não por generosidade ou visão, mas por um terror metafísico que os consome por dentro.**
-
-Assim como os faraós mumificavam-se na esperança de escapar da morte, os ultra-ricos do século XXI erguem suas próprias pirâmides digitais e financeiras. A escravidão moderna apenas se sofisticou: trocamos chicotes por algoritmos, correntes por dívidas, e a ilusão de liberdade tornou-se mais eficaz que a repressão aberta.
-
-**Mas por quê?**
-Por que, em plena era da informação, a dominação persiste? Por que a humanidade ainda não despertou para o mecanismo da opressão?
-
-A resposta é simples: **não compreendemos a psique do opressor.** Não deciframos o verdadeiro propósito das pirâmides — nem das Lamborghinis, dos iates ou das fortunas bilionárias. Enquanto não entendermos **o medo que move os ricos**, continuaremos presos em suas narrativas.
-
-Este livro revelará:
-
-- **O segredo por trás da acumulação de riqueza**: Não é mérito, mas **pânico existencial**.
-- **A profecia de Jesus sobre os ricos**: "É mais fácil um camelo passar pelo buraco de uma agulha..." não é uma metáfora moral, mas **uma equação metafísica**.
-- **O destino oculto dos bilionários**: O que realmente acontece com a alma daqueles que vendem a humanidade em troca de ouro.
-
-### A Verdade Sobre a Riqueza
-
-**Como os ricos realmente enriquecem?**
-
-Livros de "autoajuda financeira" mentem: não existe fórmula mágica. A riqueza extrema **não** surge do trabalho árduo ou da genialidade, mas **da disposição de explorar, corromper e oprimir**.
-
-Nenhum ser humano é *um milhão de vezes* mais produtivo ou inteligente para justificar um salário *um milhão de vezes* maior. A fortuna rápida exige uma moeda: **a destruição da própria humanidade**.
-
-**Mas o que leva alguém a sacrificar tudo por dinheiro?**
-Por que um bilionário consegue dormir sabendo que sua riqueza vem do sofrimento alheio?
-
-A resposta está na **patologia da alma** — uma doença espiritual que Jesus diagnosticou há dois milênios. Este livro explorará:
-
-- **A metafísica da ganância**: O vazio que os ricos tentam preencher com cifras bancárias.
-- **A hipnose do poder**: Como o dinheiro corrói a empatia e transforma pessoas em monstros.
-- **O fim da escravidão**: Porque entender a mente do opressor é a única forma de destruir suas estruturas.
-
-**"Conhecereis a verdade, e a verdade vos libertará." — João 8:32**
-
-A liberdade não virá de revoluções cegas, mas **do entendimento profundo do jogo**. Quando a humanidade despertar para a verdadeira natureza do poder, as pirâmides modernas desmoronarão — e finalmente entenderemos **por que** elas foram construídas.
-
-### A Patologia do Poder: A Metafísica da Ganância Inconsequente
-
-O enriquecimento rápido não é um mistério econômico, mas um fenômeno psicopatológico. O método é claro: **exploração sistêmica, desumanização calculada e a substituição de valores éticos por eficiência financeira**. No entanto, a verdadeira questão não reside na mecânica do acúmulo, mas na **psique deformada que o torna possível**.
-
-Por que um ser humano, supostamente dotado de empatia e razão, é capaz de:
-
-- **Normalizar o sofrimento alheio como "custo operacional"?**
-- **Priorizar cifras abstratas sobre vidas concretas?**
-- **Destruir sua própria humanidade em nome de um número em um sistema digital?**
-
-A resposta não está na ambição, mas em **uma ruptura metafísica com a realidade** — um estado de esquizofrenia social onde o poder substitui a existência.
-
-### A Anatomia da Apatia Oligárquica
-
-1. **A Ilusão de Autossuficiência**
-   - O acumulador patológico acredita, em seu delírio, que a riqueza o isola das leis fundamentais da existência: **a interdependência, a mortalidade e a necessidade de significado**.
-   - Ele se trata como uma exceção cósmica — um "deus menor" cuja fortuna o liberta da condição humana.
-
-2. **A Zombificação Progressiva**
-   - Assim como um viciado em drogas precisa de doses cada vez maiores para sentir algo, o viciado em poder **perde a capacidade de experimentar realidade fora da dominação**.
-   - Sua apatia não é força, mas **paralisia da alma** — a incapacidade de reconhecer que seu jogo é uma fuga da morte, não uma vitória sobre ela.
-
-3. **O Pânico Esotérico**
-   - Por trás de cada iate, cada bunker, cada esquema de evasão fiscal, há **o terror primal de descobrir que o dinheiro não compra imortalidade**.
-   - Suas pirâmides são gritos mudos contra o vácuo existencial.
-
-### O Caminho da Libertação Real
-
-1. **Diagnóstico Metafísico**
-   - Entender que a ganância extrema é **uma doença espiritual de autorrejeição**.
-   - O opressor odeia mais a si mesmo do que suas vítimas — por isso precisa constantemente provar seu valor através da dominação.
-
-2. **Desmontagem do Mito**
-   - Expor o segredo sujo: **riqueza extrema não é competência, mas falha de caráter institucionalizada**.
-   - Mostrar que nenhum ser humano "merece" controlar o destino de milhões enquanto outros morrem por falta de recursos básicos.
-
-3. **Construção de Imunidade Social**
-   - Criar estruturas onde:
-     - O valor humano não derive de produção econômica.
-     - A comunidade substitua a competição patológica.
-     - Ninguém precise vender sua alma para sobreviver.
-
-**"A verdadeira revolução não depõe tiranos — torna a tirania impossível."**
-
-Enquanto lutamos contra sintomas, o câncer permanece: **a crença de que alguns humanos merecem mais direito à existência que outros**. Jesus não foi crucificado por pregar amor, mas por expor essa mentira social.
-
-### O Método para Enriquecer Rápido é Fácil de Entender, Mas a Motivação Permanece um Mistério
-
-Como alguém consegue acumular uma fortuna assistindo pessoas desfalecerem, adoecerem e perderem seus preciosos momentos de vida — sem poder conviver com suas famílias ou experimentar alegrias simples? Que tipo de mentalidade permite que um indivíduo deixe de se importar não apenas com os outros, mas até consigo mesmo, tudo em nome da riqueza?
-
-É essa apatia que precisamos decifrar, começando por sua raiz mais profunda: **a alma**. O mundo metafísico é a chave para entender a origem dessa patologia, essa obsessão que transforma o ser humano em um zumbi, esvaziando-o de sua humanidade em troca de meros dígitos em uma conta bancária.
-
-Que tipo de hipnose ou doença mental corrói a consciência de alguém a esse ponto?
-
-Ao compreendermos o verdadeiro propósito por trás da mente do bilionário, seremos capazes de:
-
-- **Desarticular suas estruturas de dominação**.
-- **Prever seus próximos movimentos**.
-- **Isolá-lo estrategicamente**.
-- **Expor suas intenções ocultas**.
-
-A única maneira de vencer a escravidão moderna é **entendê-la**. Decifrá-la. O poder do conhecimento é mais eficaz do que a força bruta — afinal, de nada adianta eliminar bilionários se a motivação por trás desses líderes escravistas permanece viva e desconhecida na sociedade.
-
-**A verdadeira libertação começa quando desvendamos a psicopatologia do poder.**
-
----
-
-## Os ricos não são verdadeiros empreendedores
-
-Suas construções de empreendimentos são frágeis, são totalmente baseadas no lucro, caso a exploração cesse, essas estruturas desmoronam. Não são bem estratégicas, simplesmente crescem não por estratégia, mas se beneficiam de um extremo lucro, que possibilita de qualquer forma o crescimento.
-
-A sociedade não depende de grandes redes construídas pelos ricos, pois qualquer cidadão é capaz de conduzir grandes empreendimentos tendo uma quantia de dinheiro absurda para preencher todos os gaps e falhas causados pela má administração.
-
-Se as instituições pararem de fomentar grandes dinheiros, os mesmos donos de empreendimentos desistem e vão procurar outras formas opressoras e exploratórias, até mesmo na criminalidade, pois seu intuito não é motivado pelo dom de empreender e de servir à comunidade, mas pela pura obsessão pela riqueza independente da forma de lucrar.
-
-Ainda a escravidão, o esgotamento de indivíduos em seus âmbitos sociais e afetivos dá dinheiro. Caso essas estruturas sejam destruídas pela lei, de alguma forma, outras estruturas tentarão se reerguer e, conhecendo a mentalidade da riqueza desenfreada, será possível antecipar e prever todas as formas de manifestação desta obsessão presentes e futuras.
-
-Portanto, o crescimento empresarial não vem da genialidade, mas do oportunismo misturado com a maldade. Os que herdam o dinheiro continuam com técnicas escravistas que mantêm as empresas, não por inteligência financeira e estratégica, mas pelo puro lucro desmedido que os permite multiplicar empreendimentos e gastar milhões em propagandas.
-
-Redes como McDonald's, grandes redes de supermercados, todas essas falecem se os trabalhadores exigirem remuneração justa, pois são submetidas a formas mais inteligentes de empreendimentos que respeitam o humano e têm processos mais ágeis e facilitados. As que são fomentadas por verdadeiros empreendedores que pensam em agilidade, facilidade e no bem humano.
-
-O indivíduo passa a ignorar sua própria existência, abandonando a noção de eu.
-
-## A classe média e a mentira
-
-A cupula niilista mantem a classe media, ou seja, indiividuos que não sofrem tal como as classes de menor ganho, como a c ou d, porque precisa ainda do ser humano para a produção de bens essenciais. Quando a tecnologia cresce e o ser humano é dispensavel para a maioria das coisas, a manutenção de uma classe media, propositalmente mantida por beneficios politicos, é desnecessaria. Então o povo todo se torna pobre, e controlado por um monopolio que está acima da politica pois tem armas de controle que exercem o papel de controle sem causarem uma destruição em massa. Caso fosse possivel dominar com bombas de destruição em massa, já teriam feito. Porém, necessitam de uma tecnologia mais discreta. A violencia, a tendencia a destruição, só esta disfarçada por trás de barreiras politicas, quando essa tendencia acha uma saida dentro de uma tecnologia capaz de burlar todas as outras, então o dominio do autoritarismo e oligarquia novamente tenta emergir. 
-
-As forças que fomentaram a destruição nas antiguidades, não estão mortas, estão adormecidas, a espera de uma falha, de uma descoberta tecnologia que de a um grupo minoritario a capacidade de subjulgar a todos e de formar uma sociedade a sua forma, uma sociedade de elite, aqueles escolhidos paara viver enquanto os outros permanecem sob controle de maquinas e formas de opressao piores do que a do tempo da escravidão.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-## A dupla sintomática do niilismo
-
-Há uma dupla sintomática no niilismo, porque há uma dupla percepção do corpo. O corpo percebe a intencionalidade da alma, ao passo que há a vitrificação da alma numa existência levada por estímulos físicos, onde o indivíduo não exerce o comando da ação. Ao passo que o indivíduo se percebe prisioneiro de si, percebe-se intencionado a um destino que não lhe pertence como corpo, pois o corpo rejeita e repugna esse destino com toda a sua biologia. O homem pode escolher não escolher, no sentido de que, quando escolhe um ódio tamanho, simplesmente se faz metafisicamente morto. A própria rejeição à liberdade é uma não escolha.
-
-A humanidade julga que o bilionário se sacia com o dinheiro. Pelo contrário, o bilionário se torna cada vez mais frustrado com o dinheiro, pois julga que o dinheiro não lhe conferiu valor, somente lhe conferiu engano. Sente, em seu âmago, que o dinheiro foi um delírio, pois não encontrou realmente o que procurava. O niilista tem uma saudade de si, de sua autonomia, de enxergar a si mesmo como vivo. É intencionalmente levado à anulação, ao passo que enxerga sua intencionalidade e seu estado petrificado, como se estivesse imóvel, levado por uma correnteza. Sente até mesmo um estranhamento perante a vida; a liberdade lhe angustia, ao passo que se faz intencionalmente levado à anulação, se faz prisioneiro, pois, ao negar a própria liberdade, já está como uma alma vidrificada, levada pela correnteza dos estímulos, enquanto espera seu descarte, está refém de uma vida que não aceitou.
-
-O dinheiro do bilionário niilista só lhe serve para fazer mais fúria e para tentar fazê-lo espelhar o que sente nas massas. Isto é, o bilionário não usa o dinheiro para deleite; seu deleite é a visão do acúmulo e a visão de que o outro tende a sentir ao menos meramente o que ele sente.
-
-O niilista sente que há uma parte esquecida de si, alguém que não se lembra de quem é; há sempre uma angústia em seu peito, um medo desnecessário, como se não fosse guiado por si, mas por forças exteriores a si. Como se fosse uma marionete, ao passo que intenciona ser descartável, considera-se imóvel. Como se a realidade lhe fosse apertada, como se não conseguisse se mover. Lhe falta o motor do movimento.
-
-O niilista se julga sem autodomínio, autopresença e autoconhecimento. Porém, ao mesmo tempo, sente que possui tais características. Tem, portanto, uma visão de penumbra, como se somente enxergasse as sombras da realidade. Ambas as visões se misturam. E isso resulta em um indivíduo que enxerga sua cegueira, ou que vê sua escuridão.
-
-A tristeza é uma constante companhia para o niilista, então sempre necessita de estímulos e sempre está fugindo da autorreflexão, pois uma visão alienante de si não lhe confere uma alegria natural e cotidiana.
-
-O niilista se enche de ódio ao presenciar a verdadeira diferença, discrepância social, indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o niilista.
-
-Os bilionários estão no comando da classe média; existe tal classe porque assim a manipulação política e dos votos funciona de forma melhor, se não, nem mesmo a política geraria em prol da classe média. Os bilionários só pensam em prol de seus interesses, e quando houver meios de dispensar humanos para produção, imediatamente não será necessário nem mesmo a classe média, que é manipulada para sustentar uma direita política.
-
-A solução dos problemas do mundo é passar a considerar o acúmulo de fortunas uma arma, a qual deve ser monitorada caso seja concedida a um só ser humano, pois não se pode deduzir sua intenção nem a intenção dos que lhe cercam. Dessa forma, ao estabelecer um limite financeiro, as ações de manipulação são pausadas e a função política das nações começa a realmente exercer seu papel. Se um ser humano puder acumular o máximo de 100 milhões, isso já eliminaria a capacidade de manipulação. O dinheiro acumulado, como livre produto, é o fator de risco que não deveria ser permitido. Um ser humano possuir bilhões é um absurdo quando se tem a consciência da completude do ser humano e suas sintomáticas. Necessariamente, um niilista dispondo de bilhões recorrerá a manipulações de todas as formas, uma vez dispondo de recursos abundantes.
-
-Limitar a margem de ganho e acúmulo é a única forma de impedir manipulações, catástrofes e guerras. O dinheiro acumulado é uma arma poderosíssima, que é levada como apenas um evento trivial, enquanto as pessoas estão entretidas com catástrofes inteligentemente arquitetadas; os bilionários estão livres para agir, com o povo inconsciente deste perigo. O povo, levado a pensar que o real perigo está nas bombas atômicas, na violência urbana, é desviado do pensamento do perigo de pessoas com fortunas acumuladas. Uma fortuna pode dar chance de um indivíduo não somente manipular a mídia e a política, mas também fabricar armas biológicas ou elementos tecnológicos de domínio.
-
-Os bilhões de um indivíduo o dispõem de anonimato, de todos os recursos tecnológicos e eruditos das áreas mais vastas. Portanto, a fortuna confere um poder com o qual o indivíduo se julga um dominador, um rei. Pois está a par das decisões de políticos e pode influenciá-las como se fosse rei. Os imperadores do mundo são os bilionários, e ninguém enxerga isto até que um deles construa armas de dominação em massa; então, finalmente, a humanidade enxergará o que vem tentando enxergar: que não se deve possibilitar acumuladores de fortunas, pois, se grandes fortunas caem na mão de um niilista articulador, inteligentemente o suficiente, a destruição será inevitável.
-
-A humanidade está a uma fina película de distância de se surpreender com as mesmas dominações que experimentou no passado, se não fizer algo. O status quo de paz é construído e mantido pela coincidência de nenhum super-rico ter inventado algo que os governos dificilmente poderiam copiar para dominar o contexto global.
-
-Se, nos tempos modernos, há ainda genocídios influenciados por políticas locais, o que haveria, de fato, se essa mesma cúpula que ocasiona ainda holocaustos tivesse em mãos ferramentas mais poderosas?
-
-Há uma inteligência doente por trás destes acontecimentos, homens furiosos e sem compaixão no comando dessas ações, e, no antro desses corações que fazem a guerra, há o niilismo, há a total descrença em algo bom. Há a ausência de sonhos, há a miséria que quer ser notada, a discrepância verdadeira social que quer ser aplacada, há alguém que implora por vida e transmite seu anseio da forma mais horripilante possível, pois o luxo e o acúmulo de bens permitem a estes poucos expressarem-se da maneira mais forte possível; não se expressam no dia a dia, mas, com fortunas, expressam sua dor de forma cruel para toda a humanidade.
+Há alguém que talvez nos imagina, que sabe que estamos com medo e que talvez imagine o além, e mostre para o mundo uma realidade onde tudo é possível.
 
 
