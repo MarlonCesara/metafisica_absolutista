@@ -9430,3 +9430,21 @@ Jesus se importava com a escravidão e tentou lutar contra ela em diversas falas
 
 Portanto, Jesus abordou de forma tangente a filosofia e o questionamento às estruturas de controle, para se focar em algo maior. Pois, os que viviam, ainda sendo escravos, viviam. Porém, os que nem mesmo podiam viver como escravos estavam em situação urgente.
 
+
+---
+
+### Jesus e a monarquia
+
+Jesus provocou os monarcas da época, aqueles que se julgavam deuses, aqueles que manipulavam as religiões e a política da época. Havia uma monarquia, e ela não queria ser revelada. Por toda a história houveram reis falsos, escondidos por trás de fortunas, manipulando o cenário global em prol da manutenção de suas fortunas e do caos social.
+
+Primeiramente, açoitaram Jesus como se simbolizasse que a escravidão não acabaria; depois, colocaram uma coroa de espinhos e uma vara em sua mão, como se quisessem demonstrar que não haveria outro rei.
+
+Jesus, de forma tangente, provocou uma extrema ira por quase desmascarar totalmente os monarcas ocultos, por tocar profundamente no segredo que perpassa centenas de anos, por revelar o íntimo, ainda que com uma filosofia breve, sobre o que os ricos sentiam e como manipulavam tudo.
+
+Jesus provocou uma extrema ira dos afortunados pela sua filosofia, aquela que também era necessária para tocar os desanimados; era aquela que tocava, de forma tangente, os ricos e manipuladores.
+
+Ao esboçar um entendimento profundo do ser humano, Jesus ameaçou os poderosos, pois, compreendendo o que os poderosos sentiam e pensavam, era possível prever como agiam.
+
+
+
+
