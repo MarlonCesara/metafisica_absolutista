@@ -9321,6 +9321,41 @@ E se voce pudesse transformar o mundo com um like? E se alguém tivesse criado e
 
 Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabalho de entender, de like para que ela chegue a mais pessoas e que possa ser conheecida pelo mundo inteiro.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Partes novas
+
+
+
+
+
+
+
+
+
+
+
 ### Os dois ricos
 
 No alto de um edifício de luxo, um homem do sorriso torto chama seu mordomo e diz: “Veja, Jerry, eles estão compreendendo.” Um avião atirou e matou centenas; quem dera todos tivessem um videogame tão real.
@@ -9349,10 +9384,6 @@ O outro gargalhou e concordou com uma certa tranquilidade aparente, que disfarç
 
 Há alguém que talvez nos imagina, que sabe que estamos com medo e que talvez imagine o além, e mostre para o mundo uma realidade onde tudo é possível.
 
-
-
-
-
 ### O luto contra a positividade
 
 O niilista produz no mundo um estado de luto. Quer o choro pelo seu estado, quer atenção total, quer o cuidado total em desrespeito a seu estado. Ao ver a alegria surgir, o sentido das coisas, o mundo fiar maravilhoso, se indigna e se enraivece. 
@@ -9369,8 +9400,26 @@ A expressão do niilismo deve ser curta, individual e quase apagada de forma que
 
 Pelo desconhecimento do mundo, o niilista achava brechas para escancarar sua expressão, achava braços para se segurar de forma a provocar o declinio tamanha a força que se segura, como alguém que se desespera e leva outros ao afogamento os apertando. O niilista, até então, no desconhecimento total do homem, achava grande expressão, grande atividade sobre as atividades positivistas, tais como o progresso, a paz e a harmonia. O niilsita tinha grande potencia de poluir com negatividade, de berrar seu conflito de forma a provocar um ruindo que não se pode desperceber ou se destrair. Seu ruido é com bombas, com guerras, com violencia. Uma vez compreendido, sua vós se torna baixa, e seu conflito passa a estar mais em seu interior do que no exterior, passa a ser mais compreendido do que imposto, passa a ser remontado, analisado, ao invés de ser estapeado no mundo como algo que ninguém via ou compreendia. Diria até que o niilismo, com seu entendimento total, finalmente ganha a expressão que sempre desejou. Ao invés de se expressar pela violencia, encontra sua expressão pela filosofia. 
 
+---
 
+### O RICO SEGUNDO O EVANGELHO
 
+O rico, segundo o evangelho, não é o abonado. O rico que não entrará no reino dos céus é o obsessivo em riquezas. Aquele que acumula mais do que pode aproveitar, aquele que não obtém bens de forma que gerou um real valor para a sociedade, como no caso de um artista com grande branding, um empresário com branding, ou um investidor que acreditou num sonho e se tornou acionista.
 
+O indivíduo rico é aquele que, possuindo milhões em sua conta, quer se elevar na escala de bilhões. Ao questionarmos o propósito disso, não encontramos este propósito em algo que o indivíduo queira adquirir, pois este já dispõe da maioria das coisas que o dinheiro pode comprar tendo milhões acumulados. Porém, os milhões acumulados não dão o que o indivíduo, talvez, deseje, que é a capacidade de manipulação social.
+
+Portanto, o objetivo do rico não é meramente o deleite do que tem, mas atingir o patamar onde possa descarregar um ódio contra a sociedade, contra a natureza, contra a cultura ou contra a harmonia. Milhões não dão o poder a um indivíduo de financiar guerras, comprar políticos, financiar destruição das belezas naturais. Milhões dão o poder ao indivíduo de deleite, de comprar belas casas, fazer grandes viagens e desfrutar de uma gama enorme de recursos. Porém, milhões não dão o poder de manipulação global; o que confere este poder necessita ser milhares de milhões.
+
+Portanto, o objeto de destruição só é adquirido quando o indivíduo torna-se obsessivo, quando seu intento ultrapassa o deleite e tudo o que pode comprar, para tudo que pode destruir.
+
+Portanto, ao retirarmos o potencial do ser humano de gerar valor para a sociedade e receber milhões por esse valor, estaremos destruindo a sociedade, destruindo inovações, artistas, novas teorias, ideias que constroem o futuro. Porém, pela via inversa, ao autorizarmos que indivíduos acumulem mais dinheiro do que poderiam gastar com qualquer coisa que quisessem obter, estamos dando vazão à possibilidade de um indivíduo mal-intencionado conspirar contra a humanidade.
+
+Um bilhão de reais, ou bilhões, é uma arma que pode ser usada para gerar catástrofes; essa arma deveria ser monitorada ou ao menos impedida de ser portada. O dinheiro ainda não é considerado uma arma social, pois o ser humano ainda não entende o propósito do niilista e sua capacidade de se agrupar com outros que possuem o mesmo ideal. Um bilionário sozinho certamente não poderia fazer tantas manipulações, porém, de forma grupal, podem alterar de forma contínua o cenário global, na política, na cultura e em vários setores.
+
+O rico, para Jesus, não é o abonado, o merecedor de conforto por ter gerado um grande valor social, por ter vendido sonhos, ideias, esperanças, inovação. Mas é o obsessivo por acúmulos com o único objetivo de manipular a sociedade. De fazer do mundo um jogo de xadrez conforme seus delírios pessoais.
+
+Um indivíduo que objetiva o deleite objetiva milhões, pois, em sua visão, não há algo que poderia querer e usufruir que custasse bilhões. Em raríssimos casos poderia haver. Porém, o pensamento mais prático é concluir que tal indivíduo está obcecado em fazer o caos social. Pois os milhões já não o saciam; seu objetivo não é inocente, não é só o deleite, o desfrute, o conhecer de coisas boas, o aculturar-se, o munir-se de novas experiências e artefatos.
+
+Mas há um objetivo exterior quando se fala em acúmulo de bilhões; somente com bilhões é possível causar a violência social, a pobreza, a miséria. Os milhões não conferem ao indivíduo um grande poder manipulatório, de guerra. Portanto, impedir que um único indivíduo tenha bilhões não é impedir o progresso social, mas impedi-lo de ter uma arma devastadora. Impedir que alguém queira ser um monarca anônimo. Impedir que, no mundo, haja uma monarquia oculta.
 
 
