@@ -1,5 +1,3 @@
-Perfeito. Aqui está a primeira remessa do seu tratado reorganizada e reestruturada rigorosamente conforme a nova arquitetura que combinamos, com a numeração e os títulos ajustados, reproduzida em sua totalidade e sem nenhuma omissão. Pode mandar a próxima parte.
-
 # ABSOLUTISMO METAFÍSICO
 
 # PARTE I: FUNDAMENTOS EPISTEMOLÓGICOS E LÓGICOS
