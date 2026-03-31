@@ -9400,8 +9400,6 @@ A expressão do niilismo deve ser curta, individual e quase apagada de forma que
 
 Pelo desconhecimento do mundo, o niilista achava brechas para escancarar sua expressão, achava braços para se segurar de forma a provocar o declinio tamanha a força que se segura, como alguém que se desespera e leva outros ao afogamento os apertando. O niilista, até então, no desconhecimento total do homem, achava grande expressão, grande atividade sobre as atividades positivistas, tais como o progresso, a paz e a harmonia. O niilsita tinha grande potencia de poluir com negatividade, de berrar seu conflito de forma a provocar um ruindo que não se pode desperceber ou se destrair. Seu ruido é com bombas, com guerras, com violencia. Uma vez compreendido, sua vós se torna baixa, e seu conflito passa a estar mais em seu interior do que no exterior, passa a ser mais compreendido do que imposto, passa a ser remontado, analisado, ao invés de ser estapeado no mundo como algo que ninguém via ou compreendia. Diria até que o niilismo, com seu entendimento total, finalmente ganha a expressão que sempre desejou. Ao invés de se expressar pela violencia, encontra sua expressão pela filosofia. 
 
----
-
 ### O RICO SEGUNDO O EVANGELHO
 
 O rico, segundo o evangelho, não é o abonado. O rico que não entrará no reino dos céus é o obsessivo em riquezas. Aquele que acumula mais do que pode aproveitar, aquele que não obtém bens de forma que gerou um real valor para a sociedade, como no caso de um artista com grande branding, um empresário com branding, ou um investidor que acreditou num sonho e se tornou acionista.
@@ -9422,4 +9420,13 @@ Um indivíduo que objetiva o deleite objetiva milhões, pois, em sua visão, nã
 
 Mas há um objetivo exterior quando se fala em acúmulo de bilhões; somente com bilhões é possível causar a violência social, a pobreza, a miséria. Os milhões não conferem ao indivíduo um grande poder manipulatório, de guerra. Portanto, impedir que um único indivíduo tenha bilhões não é impedir o progresso social, mas impedi-lo de ter uma arma devastadora. Impedir que alguém queira ser um monarca anônimo. Impedir que, no mundo, haja uma monarquia oculta.
 
+### A Urgência Humana no Evangelho
+
+O mais urgente dos problemas, para Jesus, não era a filosofia ainda carente de ser evoluída, nem mesmo as tecnologias que ainda não estavam formalizadas para o proveito social. É possível, portanto, equiparar o avanço tecnológico à filosofia, de forma que ambas as coisas provoquem o bem-estar social.
+
+No entanto, Jesus estava focado no âmbito mais urgente, no niilista. Sua maior preocupação era o ser humano que perde seus sonhos, que não encontrava mais razões, que não tinha nem sequer uma centelha de amor por si mesmo. Jesus tocou na ferida mais profunda do mundo, de forma a curá-la, na necessidade mais essencial, que era viver, em detrimento de como viver.
+
+Jesus se importava com a escravidão e tentou lutar contra ela em diversas falas, na sua forma de denunciar os ricos e denunciar os fariseus. Porém, o principal foco era incentivar o ser humano para a vida eterna, para longe do isolamento da alma, para a vida.
+
+Portanto, Jesus abordou de forma tangente a filosofia e o questionamento às estruturas de controle, para se focar em algo maior. Pois, os que viviam, ainda sendo escravos, viviam. Porém, os que nem mesmo podiam viver como escravos estavam em situação urgente.
 
