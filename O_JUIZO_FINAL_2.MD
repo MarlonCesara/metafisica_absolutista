@@ -5079,6 +5079,18 @@ E assim, de mãos dadas — ou melhor, de essências plenamente unidas e sintoni
 
 ---
 
+### **PROPOSIÇÃO XXXVII: ANALISE DE ADÃO E EVA**
+
+A alegoria de Adão e Eva parece associar a transcendencia do eu de forma proibitiva, tal como a mesma exortação que os homens serão como os anjos. Tanto o velho testamento quanto o novo, abordam de forma proibitiva a união de almas. A extrapolação da forma, em direção a relativização do eu perante o outro eu. Ambas as situações tem duas linhas de raciocinio inversas, a primeira é que, quando se proibe algo expressamente, algo que é da tendencia e aspiração humana pode gerar uma maior atratividade sobre tal. 
+
+Isso constrasta com o fato de que, o corpo humano foi feito para a perca da forma inevitavel, e nao pela perca optativa como tinhão adão e eva, então, o humano, não somente herdou a morte fisica, mas se impos sobre o proposito do fruto proibido. Como se o homem fosse exortado ao homem relativo, em abandonar o homem da forma para ultrapassr os olicerces de seu potencial.
+
+O homem é levado a conhecer sua verdade total, tanto relacional com o outro, quanto relacional consigo mesmo. É levado a descobrir seu destino e a realiza-lo segundo sua tendencia. 
+
+A herança do pecado envolve a possibilidade do homem declinar, por se livrar do corpo que o protegia.
+
+
+
 ### **PROPOSIÇÃO XXXVII: GÊNESES E A EXPRESSÃO DO AMOR INFINITO**
 
 **1. A Redução Ontológica ao Indiferenciado**
