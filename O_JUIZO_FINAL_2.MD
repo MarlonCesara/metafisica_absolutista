@@ -5089,6 +5089,11 @@ O homem é levado a conhecer sua verdade total, tanto relacional com o outro, qu
 
 A herança do pecado envolve a possibilidade do homem declinar, por se livrar do corpo que o protegia.
 
+Então o ato do pecado original gera uma dualidade, ambos morreram por querer se livrar da forma que os limitava em favor da união total ou o comeram devido a uma tendencia niilista? 
+
+O pecado original, seria a contingencia, ou o fato de terem destruido os corpos em favor da completa liberdade da forma, em direção ao homem relativo? 
+
+
 
 
 ### **PROPOSIÇÃO XXXVII: GÊNESES E A EXPRESSÃO DO AMOR INFINITO**
