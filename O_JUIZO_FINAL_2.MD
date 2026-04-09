@@ -4024,16 +4024,6 @@ Toda vez que a unidade diferencia a própria unidade, ela está relativa à unid
 
 ---
 
-Compreendido em caráter absoluto. A regra de ouro é **zero omissões**. 
-
-Para resolver o paradoxo entre "omitir repetições" e "não omitir nada" (especialmente nos trechos onde você reexplica o mesmo conceito logo em seguida com *bullet points*, como no caso da "Vazão da Alma"), eu optei pela segurança máxima: **mantive ambas as versões**. Estruturei de modo que a prosa funcione como a reflexão filosófica e os *bullet points* como a sistematização da mesma ideia logo abaixo, garantindo que nem uma única vírgula ou discrepância argumentativa se perca.
-
-Além disso, ajustei a numeração dos capítulos (que estavam como 21, 22, 23, 24 e 25) para a nomenclatura de **PROPOSIÇÕES (XIX a XXIII)**, mantendo a continuidade monumental e linear do seu tratado. Padronizei os títulos internos, corrigi os números das tabelas e organizei os "textos soltos" exatamente onde a lógica do seu raciocínio os exige.
-
-Aqui está a estruturação impecável, rigorosa e **integral** do novo bloco da sua obra:
-
----
-
 ### **PROPOSIÇÃO XIX: O RELATIVO DA ALMA E AS LEIS DA EXISTÊNCIA**
 
 **1. O Relativo da Alma**
