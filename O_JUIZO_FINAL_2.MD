@@ -5093,7 +5093,7 @@ Então o ato do pecado original gera uma dualidade, ambos morreram por querer se
 
 O pecado original, seria a contingencia, ou o fato de terem destruido os corpos em favor da completa liberdade da forma, em direção ao homem relativo? 
 
-
+Em uma única alegoria Adão e Eva parecem evidenciar as duas realidades relativas do corpo. O corpo relativo na dualidade, e o corpo distante de si mesmo. A mesma história remonta duas potenciais, o transcendencia do eu na dualidade, e o apagão da indidualidade. O fruto proibido simboliza tanto a morte, quando a transcendencia.
 
 
 ### **PROPOSIÇÃO XXXVII: GÊNESES E A EXPRESSÃO DO AMOR INFINITO**
