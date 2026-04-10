@@ -7042,6 +7042,16 @@ O niilista faz privações ao outro na tentativa de ser compreendido: privação
 
 > O desvio de dinheiro não tem um fim no próprio dinheiro desviado, mas tem um fim na fomentação da miséria e desvio de recursos. Não é ocasionado pelo próprio agente que desvia, mas tem uma influência externa; o objetivo não é o ganho de recursos necessariamente, mas a tentativa de falir o Estado e ocasionar a miséria. Portanto, é possível que um bilionário manipule um desvio de dinheiro falsamente baseado no desvio de verba pública para uma vantagem pessoal de um político.
 
+
+### **O surto niilista**
+
+Quando as formas de subsistencia da manutenção fisica do niilista acerca de sua crença ateista são destruidas, o niilista sente uma sobrecarga sobre si imensa.Suas bases para se sentir valioso e grande são destruidas, e recai sobre si um enorme descontentamento e pressão. O niilismo é grande demais para um pequeno ser humano amante do existir, então o niilista, que não se acostumou com outras formas de expressar-se, formas sem o uso de mascaramento financeiro, não consciente de outros recursos, sofre uma extenuante sobrecarga mental.
+
+Sem recursos o niilista encontra expressões como o uso de substancias tóxicas, expressões atipica como mendigancia, ou uso de drogas baratas. O niilista, portanto, precisa converter suas formas de expressões, e, a perca de seu status, fortuna, ou meio de mascaramento causa grande pressão interior.
+
+
+
+
 > Quando o povo passa a reconhecer que a fome, miséria, contravenções políticas, manipulação midiática, manipulação de guerra, desvios de dinheiro estão associados ao poderio de quem tem um grande capital acumulado e usa isso como sintomática e estratégia de crescimento empresarial, então o povo vai passar a procurar entre bilionários a sintomática. E, de forma ou de outra, pressões políticas, civis e militantes vão reagir sobre essas determinadas pessoas, uma vez conhecido seu real propósito e motivação. A humanidade até então não entende a raiz da perversidade e quais são suas formas de expressão últimas. Uma vez compreendidos, os alvos das calamidades são identificados e podem ser freados, e finalmente a paz contínua será instaurada.
 
 ### **Despersonalização, Apropriação e Busca de Identidade**
@@ -7475,6 +7485,8 @@ O apático tem a sensação de não ser ninguém. Ele nunca parou para pensar pr
 ### Capítulo 12: A Linguagem do Apático
 O apático usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
 > **Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
+
+
 
 ### Capítulo 13: A Liberdade e o Suicídio
 O apático foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o apático só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
