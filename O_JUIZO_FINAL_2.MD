@@ -883,8 +883,6 @@ O indiferenciado é "o verdadeiro nada, aquele que nem se diz como nada". Isso s
 * É que ele está além da própria possibilidade de ser nomeado como algo ou como nada.
 * Qualquer tentativa de dizê-lo já o trai, porque a linguagem opera por distinções.
 
-222
-
 ## 7.4 A Estabilidade como Impossibilidade de Alteração
 
 **Condições para a alteração:**
@@ -931,7 +929,7 @@ Isso não significa que ele seja "forçado" a ser estável por algo externo. Sig
 Podemos pensar por analogia: um círculo não "escolhe" ser redondo; ele é redondo porque a ideia de um círculo quadrado é contraditória. Da mesma forma, o Absoluto não "escolhe" ser indiferenciado e estável; a possibilidade de ele ser diferenciado ou instável é um absurdo lógico.
 
 ## 7.7 O Indiferenciado como Suspensão da Possibilidade
-222
+
 **O Absoluto é a suspensão da própria possibilidade.**
 
 Normalmente, pensamos a possibilidade como aquilo que pode ou não se realizar. Mas o Absoluto está além dessa estrutura: ele não é algo que *pode* ser; ele *é* sem poder ou não poder. A possibilidade, como categoria, pertence ao determinado, porque só o que é determinado pode ser ou não ser de outro modo.
@@ -999,13 +997,13 @@ Com ela, temos um conceito de Absoluto que é:
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o **modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana**. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua **própria causalidade**?
 
 Esta Proposição investiga precisamente esta questão fundamental: **Como o Absoluto é causa de si mesmo?** A resposta revelará que a autocausalidade absoluta não é um mero princípio abstrato, mas exige atributos que conduzem necessariamente à compreensão do Absoluto como **Espírito Pessoal** – realidade autoconsciente, autodominante e autoconhecedor.
-22222
+
 ## 8.2 O Absoluto como Princípio Irredutível
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise, o Absoluto se revela como:
 * **O *Prius* Metafísico Incontornável:** A condição de possibilidade transcendental para toda cadeia causal e todo ente contingente.
 * **O Solo Ontológico Integral:** Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível (limite intrínseco da realidade).
 * **O Fim da Regressão Causal:** Onde toda busca por fundamentação encontra seu termo final necessário.
-
+222
 ## 8.3 A Autocausalidade do Absoluto: A Dupla Exigência
 A aplicação dos princípios causais ao próprio Absoluto revela uma exigência dupla e radical:
 
