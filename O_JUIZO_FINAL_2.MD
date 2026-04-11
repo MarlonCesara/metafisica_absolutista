@@ -871,25 +871,25 @@ Podemos pensar assim:
 * Ele não é a unidade dos opostos (pois isso ainda pressupõe os opostos como momentos), mas a suspensão da própria oposição.
 
 ## 7.3 Por que "Indiferenciado" e não "Nada"
-2222
-**Distinção fundamental:**
-Uma das correções mais importantes que fizemos foi distinguir o indiferenciado do "nada" comum.
 
-**O "nada" comum** é um conceito relacional: ele só tem sentido em oposição ao "algo". Dizer que algo é nada é dizer que ele não é algo determinado. Mas o Absoluto não está nessa relação de oposição — não há um "algo" fora dele para que ele seja o "nada" correspondente.
+**Distinção fundamental:**
+
+**O "nada"** é um conceito relacional: ele só tem sentido em oposição ao "algo". Dizer que algo é nada é dizer que ele não é algo determinado. Mas o Absoluto não está nessa relação de oposição — não há um "algo" fora dele para que ele seja o "nada" correspondente.
 
 **O indiferenciado** transcende essa oposição. Ele não é algo, nem nada; ele é a própria condição pela qual a distinção entre algo e nada pode aparecer.
 
-Você chegou a uma formulação forte: o Absoluto é "o verdadeiro nada, aquele que nem se diz como nada". Isso significa:
+O indiferenciado é "o verdadeiro nada, aquele que nem se diz como nada". Isso significa:
 * Não é que ele seja nada — seria contraditório.
 * É que ele está além da própria possibilidade de ser nomeado como algo ou como nada.
 * Qualquer tentativa de dizê-lo já o trai, porque a linguagem opera por distinções.
 
-Há a forma, o estado ou determinação ou indeterminação. E há a força que mantém a ordem, mantém a forma. Desta maneira, podemos pensar que, para A, há a causa, ou seja, a liga, a força que constrói A e sustenta A como A. A, desta forma, exige uma força para existir como A, e uma força inteligente para se manter como A. A causa, portanto, é a força motriz que sustenta a forma, a determinação ou indeterminação. Sem a causa, A não há absoluto, pois o absoluto, sendo positivo, sustenta-se como A, seja A indeterminado ou determinado. Isto é, sendo absoluto uma indiferenciação, a sustentação de tal estado é relativa a uma força. Até a completa 'estabilidade' não determinação, tem causa, pois é um estado positivo.
+222
 
 ## 7.4 A Estabilidade como Impossibilidade de Alteração
 
 **Condições para a alteração:**
-O passo seguinte foi abordar a questão da estabilidade. Se o Absoluto é indiferenciado, ele não pode ser caótico, mas também não pode ser ordenado. Como então ele é estável?
+
+Se o Absoluto é indiferenciado, ele não pode ser caótico, mas também não pode ser ordenado. Como então ele é estável?
 
 A resposta que desenvolvemos é que **a estabilidade do Absoluto não é uma propriedade positiva, mas a impossibilidade lógica e ontológica de qualquer alteração**.
 
@@ -911,7 +911,8 @@ Portanto, a estabilidade do Absoluto não é algo que ele *tem* ou *mantém*; é
 ## 7.5 O Erro de Atribuir Escolha à Estabilidade
 
 **Análise crítica da noção de escolha:**
-Em um momento do diálogo, você sugeriu que a estabilidade poderia ser entendida como uma "escolha" no nível absoluto. Examinamos essa ideia com cuidado e identificamos seus problemas:
+
+"A estabilidade entendida como uma "escolha" no nível absoluto." Examinamos essa ideia com cuidado e identificamos seus problemas:
 
 **Escolha pressupõe:**
 * **Múltiplas possibilidades:** Para escolher, é preciso que haja mais de uma opção real. No Absoluto, não há opções — ele é o que é por necessidade.
@@ -919,12 +920,9 @@ Em um momento do diálogo, você sugeriu que a estabilidade poderia ser entendid
 * **Critério:** Escolher envolve um critério (razão, desejo, etc.) que fundamenta a decisão. No Absoluto, não há critério externo.
 * **Temporalidade:** A escolha ocorre em um momento (lógico ou temporal). No Absoluto, não há antes e depois.
 
-Concluímos que "escolha" é uma categoria que pertence ao domínio do relativo e não pode ser aplicada ao Absoluto sem contradição.
+Concluímos que "escolha" é uma categoria que pertence ao domínio do determinado e não pode ser aplicada ao Absoluto sem contradição.
 
 ## 7.6 Estabilidade por Ausência de Alternativa
-
-**Formulação correta:**
-A formulação correta, então, é:
 
 **O Absoluto não escolhe ser estável; ele é estável porque não há alternativa à sua estabilidade.**
 
@@ -933,31 +931,20 @@ Isso não significa que ele seja "forçado" a ser estável por algo externo. Sig
 Podemos pensar por analogia: um círculo não "escolhe" ser redondo; ele é redondo porque a ideia de um círculo quadrado é contraditória. Da mesma forma, o Absoluto não "escolhe" ser indiferenciado e estável; a possibilidade de ele ser diferenciado ou instável é um absurdo lógico.
 
 ## 7.7 O Indiferenciado como Suspensão da Possibilidade
-
-**Aprofundamento radical:**
-Uma das formulações mais profundas que você alcançou foi a seguinte:
-
+222
 **O Absoluto é a suspensão da própria possibilidade.**
 
-Normalmente, pensamos a possibilidade como aquilo que pode ou não se realizar. Mas o Absoluto está além dessa estrutura: ele não é algo que *pode* ser; ele *é* sem poder ou não poder. A possibilidade, como categoria, pertence ao relativo, porque só o que é determinado pode ser ou não ser de outro modo.
+Normalmente, pensamos a possibilidade como aquilo que pode ou não se realizar. Mas o Absoluto está além dessa estrutura: ele não é algo que *pode* ser; ele *é* sem poder ou não poder. A possibilidade, como categoria, pertence ao determinado, porque só o que é determinado pode ser ou não ser de outro modo.
 
-O indiferenciado, por não ter determinações, também não tem possibilidades. Ele não é a totalidade das possibilidades (como em algumas metafísicas), mas a suspensão da própria categoria de possibilidade.
+O indiferenciado não é a totalidade das possibilidades (como em algumas metafísicas), mas a suspensão da própria categoria de possibilidade.
 
-Isso significa:
-* Não há no Absoluto uma "potência" que aguarda atualização.
-* Não há "potencialidades" latentes.
-* O Absoluto não é um reservatório de possibilidades a partir do qual o mundo emerge.
-
-Ele é, antes, a condição negativa pela qual possibilidades podem aparecer no relativo — mas ele mesmo não as contém.
-
-## 7.8 Distinção entre Estabilidade no Absoluto e no Relativo
+## 7.8 Distinção entre Estabilidade no Absoluto e no Determinado
 
 **Tabela comparativa:**
 
-| **No Absoluto** | **No Relativo** |
+| **No Absoluto** | **No Determinado** |
 | :--- | :--- |
 | Estabilidade por impossibilidade de alteração | Estabilidade por manutenção (forças, leis, inércia) |
-| Não há potencialidade | Há potencialidade |
 | Não há tempo | Há tempo |
 | Não há escolha | Há escolha (no âmbito do determinado) |
 | Estabilidade é a própria ausência de diferença | Estabilidade é um estado que pode ser perdido |
@@ -972,7 +959,7 @@ Um ponto que surgiu no diálogo foi: se o Absoluto é indiferenciado, como ele p
 A resposta que construímos é que o Absoluto não é inteligível no sentido de ser *apreendido* por categorias, mas ele é a **condição de possibilidade da inteligibilidade**.
 
 Pensemos:
-* O que chamamos de "inteligibilidade" no mundo relativo envolve relações, diferenças, estruturas.
+* O que chamamos de "inteligibilidade" no mundo determinado envolve relações, diferenças, estruturas.
 * O Absoluto não tem essas coisas.
 * No entanto, ele não é irracional ou caótico; ele é a abertura na qual a inteligibilidade pode aparecer.
 
@@ -985,8 +972,7 @@ Uma analogia: o espaço vazio não é ele mesmo uma figura geométrica, mas é c
 * O Absoluto não pode ser caracterizado como "ser" ou "não-ser" no sentido comum, pois essas categorias pressupõem oposição e determinação.
 * Ele é "indiferenciado" no sentido radical de ausência total de diferença — não como resultado de fusão, mas como condição anterior a toda diferença.
 * Sua estabilidade não é mantida por uma força ou escolha, mas é a impossibilidade lógica e ontológica de qualquer alteração.
-* Não há nele potencialidade, possibilidade, temporalidade ou escolha, pois todas essas categorias pertencem ao domínio do relativo.
-* Ele não é inteligível como uma estrutura, mas é a condição de possibilidade da inteligibilidade no mundo relativo.
+* Ele não é inteligível como uma estrutura, mas é a condição de possibilidade da inteligibilidade no mundo determinado.
 * O indiferenciado é a "suspensão da própria possibilidade" — não no sentido de uma negação, mas como aquilo que está além da própria categoria de possibilidade.
 
 ## 7.11 Por que Essa Proposição é Fundamental
@@ -994,7 +980,7 @@ Uma analogia: o espaço vazio não é ele mesmo uma figura geométrica, mas é c
 **Função no sistema:**
 A sétima proposição estabelece a natureza do Absoluto. Sem ela, correríamos o risco de:
 * Confundir o Absoluto com o "nada" negativo, o que levaria ao niilismo.
-* Atribuir-lhe determinações (como "ordem" ou "potência"), o que quebraria sua não-dualidade.
+* Atribuir-lhe determinações (como "ordem"), o que quebraria sua não-dualidade.
 * Introduzir tempo ou escolha no fundamento, o que geraria contradições.
 * Perder a distinção entre o fundamento e o derivado.
 
@@ -1002,8 +988,8 @@ Com ela, temos um conceito de Absoluto que é:
 * **Não-dual:** sem distinções internas.
 * **Necessário:** não contingente.
 * **Estável:** não sujeito a mudança.
-* **Transcendente:** além das categorias do mundo relativo.
-* **Condição de possibilidade:** não como causa, mas como abertura para o aparecimento do relativo.
+* **Transcendente:** além das categorias do mundo determinado.
+* **Condição de possibilidade:** não como causa, mas como abertura para o aparecimento do determinado.
 
 ---
 
@@ -1012,8 +998,8 @@ Com ela, temos um conceito de Absoluto que é:
 ## 8.1 Introdução: Da Estrutura à Atividade
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o **modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana**. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua **própria causalidade**?
 
-Esta Proposição investiga precisamente esta questão fundamental: **Como o Absoluto é causa de si mesmo?** A resposta revelará que a autocausalidade absoluta não é um mero princípio abstrato, mas exige atributos que conduzem necessariamente à compreensão do Absoluto como **Espírito Pessoal** – realidade autoconsciente, autodeterminante e automanifestante.
-
+Esta Proposição investiga precisamente esta questão fundamental: **Como o Absoluto é causa de si mesmo?** A resposta revelará que a autocausalidade absoluta não é um mero princípio abstrato, mas exige atributos que conduzem necessariamente à compreensão do Absoluto como **Espírito Pessoal** – realidade autoconsciente, autodominante e autoconhecedor.
+22222
 ## 8.2 O Absoluto como Princípio Irredutível
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise, o Absoluto se revela como:
 * **O *Prius* Metafísico Incontornável:** A condição de possibilidade transcendental para toda cadeia causal e todo ente contingente.
