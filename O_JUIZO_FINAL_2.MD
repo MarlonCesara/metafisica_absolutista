@@ -1003,18 +1003,37 @@ Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua p
 * **O *Prius* Metafísico Incontornável:** A condição de possibilidade transcendental para toda cadeia causal e todo ente contingente.
 * **O Solo Ontológico Integral:** Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível (limite intrínseco da realidade).
 * **O Fim da Regressão Causal:** Onde toda busca por fundamentação encontra seu termo final necessário.
-222
+
 ## 8.3 A Autocausalidade do Absoluto: A Dupla Exigência
 A aplicação dos princípios causais ao próprio Absoluto revela uma exigência dupla e radical:
 
 ### 8.3.1 A Exigência da Dupla Fundamentação
-Dado que o Absoluto existe, segue-se, por necessidade lógica, que ele é autodeterminante. Pois uma causa é exigida não apenas para a existência, mas igualmente para a identidade de todo ente. Ou seja, requer-se tanto um fundamento para o ser **(causa existencial)** quanto um fundamento para o ser assim **(causa identitária)**. Se A é A, há uma razão para que A exista, assim como há uma razão para que A exista precisamente como A e não como B. Ambas as modalidades de causalidade denotam o Absoluto como motivo de sua existência, tal como razão de si, como se dá. Isto é, o Absoluto não é somente causa primária de sua existência, mas é causa primária também de sua determinação.
+Dado que o Absoluto existe, segue-se, por necessidade lógica, que ele é autocausal. Pois uma causa é exigida não apenas para a existência, mas igualmente para a essência de todo ente. Ou seja, requer-se tanto um fundamento para o ser **(causa existencial)** quanto um fundamento para o ser assim **(causa essêncial)**. Se A é A, há uma razão para que A exista, assim como há uma razão para que A exista precisamente como A e não como B. Ambas as modalidades de causalidade denotam o Absoluto como motivo de sua existência, tal como razão de si, como se dá. Isto é, o Absoluto não é somente causa primária de sua existência, mas é causa primária também de sua determinação.
 
 Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundamentação são indissociáveis. Portanto, sendo o Absoluto existente e, por definição, a totalidade, não pode haver explicação para sua existência e sua identidade a não ser em si mesmo: ele é, necessariamente, autojustificado.
 
 Ao inferir que o Absoluto é causa de si mesmo, concluímos que não há uma segunda natureza exterior ou anterior segundo a qual ele deva ser, nem uma razão exterior ou anterior pela qual ele deva ser como é. Isto nos leva a concluir que ele mesmo é a razão para sua estadia e para a sua configuração.
 
 Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é Ser, é necessário que isso se justifique em si da mesma forma. Até mesmo num estado de indeterminação total, onde não há forma, esta indeterminação necessitaria de uma causa para ser como tal e não uma determinação.
+
+Porém, se a Causa Identitária é o que *determina* o que algo é, como o Absoluto — que é o próprio Indeterminado — pode ter uma "Causa Identitária"? 
+
+A resposta exige uma purificação do conceito de causa quando elevado ao Absoluto: a causa colapsa na **Necessidade**, e a essência colapsa na **Indeterminação**.
+
+### A Transmutação da Causa Identitária no Absoluto: Necessidade e Indeterminação
+
+**O Conflito Lógico:**
+No domínio dos seres contingentes (Proposição III), a **Causa Identitária** atua como um princípio de *determinação*: ela explica por que "A" possui atributos específicos e limitados que o distinguem de "B". No entanto, ao elevarmos o pensamento ao Absoluto, deparamo-nos com um impasse: o Absoluto, por definição (Proposição II), é o Indeterminado, o fundo sem limites e sem oposição. Logo, aplicar a categoria de "Causa Identitária" ao Absoluto, no seu sentido comum, seria forçar uma determinação sobre aquilo que antecede toda forma. 
+
+**A Resolução: Causa como Necessidade e Essência como Indeterminação**
+Para resolver essa tensão, a noção de *causa sui* (causa de si) identitária no Absoluto deve ser despida de qualquer função determinadora e reinterpretada sob duas chaves absolutas:
+
+1. **A Causa Identitária é a Pura Necessidade:** No Absoluto, a Causa Identitária não é um "ato" que escolhe ou molda uma essência. Ela é, puramente, a **Necessidade**. Dizer que o Absoluto é "causa de sua própria essência" significa dizer que a sua essência *não poderia não ser o que é*. A causalidade, aqui, perde seu caráter produtivo e torna-se um atestado de modalidade ontológica absoluta: o Absoluto é Necessário.
+2. **A Essência do Absoluto é a Própria Indeterminação:** Se a Causa Identitária do Absoluto não produz determinação, o que ela "funda"? Funda a impossibilidade de limitação. A "essência" do Absoluto não é uma configuração de atributos ("A" em oposição a "B"), mas o fato insuperável de ser o Fundo Indiferenciado. 
+3. **A Inexistência da Causa de Determinação no Absoluto:** O Absoluto não causa a si mesmo como "algo" (um ente determinado no tempo e no espaço). O processo de determinação pertence exclusivamente à Manifestação (o mundo dos efeitos). Portanto, o Absoluto é causa de sua própria essência (Necessidade), mas é rigorosamente **incausado em termos de determinação**, pois nele não habitam formas, distinções ou limites a serem causados.
+
+**Síntese Final:**
+Enquanto no ente contingente a Causa Identitária responde à pergunta *"Por que isto é desta forma definida?"*, no Absoluto ela cessa de ser uma pergunta relacional e afirma-se como um axioma de necessidade: *"O Indeterminado é necessariamente Indeterminado"*. A auto-causalidade do Absoluto não é o ato de dar forma a si mesmo, mas a invulnerabilidade absoluta de sua própria infinitude sem forma.
 
 ### 8.3.2 As Três Propriedades Essenciais da Autocausalidade Absoluta
 
@@ -1023,7 +1042,7 @@ Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si 
 * **Característica:** Não é contingente — sua essência implica necessariamente sua existência.
 * **Consequência:** Elimina qualquer regressão infinita; é o fundamento último. Se o Absoluto dependesse de algo externo, não seria absoluto.
 
-**II. Autodeterminação (Causa Identitária de Si)**
+**II. Necessidade (Causa essêncial de Si)**
 * **Definição:** O Absoluto define sua própria essência; é causa de ser precisamente o que é.
 * **Exigências Constitutivas:**
   1. Autoexistência: Estar presente em si mesmo completamente.
@@ -1034,11 +1053,13 @@ Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si 
 **III. Autocontinuidade (Causa Continuada de Si)**
 * **Definição:** O Absoluto sustenta a si mesmo perpetuamente; sua existência não é um ato único, mas um processo contínuo de autossustentação.
 * **Característica:** Persistência ativa, não mera permanência passiva.
-* **Consequência:** Garante que o Absoluto não se dissolva ou degrade. Mostra que a existência, permanência e identidade são autocausadas, autodeterminadas e autocontinuadas.
+* **Consequência:** Garante que o Absoluto não se dissolva ou degrade. Mostra que a existência, permanência e essência são autocausadas e autocontinuadas.
 
 ## 8.4 A Natureza Pessoal da Autocausalidade
-A análise das três propriedades autocausais conduz a uma conclusão inevitável: **a autocausalidade pura exige personalidade**. Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria. As exigências de autoconhecimento, autodomínio e autopresença em grau máximo constituem precisamente o que reconhecemos como **personalidade** ou "Espírito".
+A análise das três propriedades autocausais conduz a uma conclusão inevitável: **a autocausalidade pura exige personalidade**. Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para configurá-la — é ele que detém o poder de escolher a si própria. As exigências de autoconhecimento, autodomínio e autopresença em grau máximo constituem precisamente o que reconhecemos como **personalidade** ou "Espírito".
 
+Ainda que não haja possibilidade de escolha para o Absoluto necessário, o Absoluto é absoluto por si mesmo. Sua necessidade não exclui o fundamento vivo, pois a causa é inerente ao próprio Absoluto. Isso significa que a realidade causadora já integra aquilo que o Absoluto é.
+2222
 ### 8.4.1 O Argumento da Personalidade Necessária
 Para que uma realidade se autodetermine, ela necessariamente precisa:
 1. **Conhecer-se integralmente** – para que possa escolher conscientemente sua própria natureza.
