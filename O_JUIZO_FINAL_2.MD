@@ -1042,7 +1042,7 @@ Enquanto no ente contingente a Causa Identitária responde à pergunta *"Por que
 * **Característica:** Não é contingente — sua essência implica necessariamente sua existência.
 * **Consequência:** Elimina qualquer regressão infinita; é o fundamento último. Se o Absoluto dependesse de algo externo, não seria absoluto.
 
-**II. Necessidade (Causa essêncial de Si)**
+**II. Auto indeterminado (Causa essêncial de Si)**
 * **Definição:** O Absoluto define sua própria essência; é causa de ser precisamente o que é.
 * **Exigências Constitutivas:**
   1. Autoexistência: Estar presente em si mesmo completamente.
@@ -1059,11 +1059,11 @@ Enquanto no ente contingente a Causa Identitária responde à pergunta *"Por que
 A análise das três propriedades autocausais conduz a uma conclusão inevitável: **a autocausalidade pura exige personalidade**. Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para configurá-la — é ele que detém o poder de escolher a si própria. As exigências de autoconhecimento, autodomínio e autopresença em grau máximo constituem precisamente o que reconhecemos como **personalidade** ou "Espírito".
 
 Ainda que não haja possibilidade de escolha para o Absoluto necessário, o Absoluto é absoluto por si mesmo. Sua necessidade não exclui o fundamento vivo, pois a causa é inerente ao próprio Absoluto. Isso significa que a realidade causadora já integra aquilo que o Absoluto é.
-2222
+
 ### 8.4.1 O Argumento da Personalidade Necessária
-Para que uma realidade se autodetermine, ela necessariamente precisa:
+Para que uma realidade seja auto causada, ela necessariamente precisa:
 1. **Conhecer-se integralmente** – para que possa escolher conscientemente sua própria natureza.
-2. **Dominar-se completamente** – para executar com pleno poder o ato de autodeterminação.
+2. **Dominar-se completamente** – para executar com pleno poder o ato causal
 3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua determinação não seria integral, mas parcial e incompleta.
 
 Esta tríplice exigência corresponde aos atributos clássicos da divindade compreendidos em sua relação com a autocausalidade:
@@ -1080,14 +1080,20 @@ Esta tríade é a definição mesma de uma pessoalidade plena. Um princípio imp
 | **Energia cósmica** | Cega, sem consciência ou propósito | É autoconsciente e autodirigido |
 | **Lei matemática** | Abstrata, não existe por si mesma | É realidade concreta e autoexistente |
 | **Substância indiferenciada** | Passiva, sem interioridade | É atividade pura e interioridade absoluta |
-| **Campo quântico** | Determinístico ou aleatório | É livre e autodeterminante |
+| **Campo quântico** | Determinístico ou aleatório | É livre e autocausal |
 
 ## 8.5 A Autocausalidade Bifásica: Temporal e Atemporal
-A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**.
+A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**.
 
-* **Autocausalidade Atemporal: A Causa Definitiva:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. Princípios Envolvidos: Causa Identitária (Atemporal) e Causa Existencial (Atemporal). Expressão: *"Eu Sou o que Sou" (Êxodo 3:14)* — autoidentidade pura além do tempo.
-* **Autocausalidade Temporal: O Ciclo Autossustentado:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada. Princípios Envolvidos: Causa Identitária Continuada (Temporal) e Causa Existencial Continuada (Temporal). Expressão: *"O Pai trabalha até agora, e Eu trabalho também" (João 5:17)* — atividade contínua no tempo.
-* **A Unidade Bifásica: Eternidade e Tempo Integrados:** Solução do Paradoxo: O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**. Metáfora Ilustrativa: Consumação do passado, presente e futuro num instante único, criando uma natureza atemporal a partir do temporal.
+* **Autocausalidade Atemporal: A Causa Definitiva:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. Princípios Envolvidos: Causa essêncial (Atemporal) e Causa Existencial (Atemporal). Expressão: *"Eu Sou o que Sou" (Êxodo 3:14)* — autoidentidade pura além do tempo.
+
+* **Autocausalidade Temporal: O Ciclo Autossustentado:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada. Princípios Envolvidos: Causalidade Continuada (Temporal) e Causa Existencial Continuada (Temporal). 
+
+Expressão: *"O Pai trabalha até agora, e Eu trabalho também" (João 5:17)* — atividade contínua no tempo.
+
+* **A Unidade Bifásica: Eternidade e Tempo Integrados:** Solução do Paradoxo: O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**. 
+
+Metáfora Ilustrativa: Consumação do passado, presente e futuro num instante único, criando uma natureza atemporal a partir do temporal.
 
 ## 8.6 O Espírito Absoluto como Presença Autofundante
 O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico estático, mas uma **atividade autofundante** que contém em si os princípios de:
@@ -1127,7 +1133,7 @@ A análise demonstra de forma inequívoca que a autocausalidade pura exige perso
 **A Tradição do Espírito na Filosofia Ocidental:** A concepção do Absoluto como Espírito Pessoal encontra suas raízes mais profundas na síntese filosófico-teológica do **Cristianismo primitivo**, particularmente nos escritos de **São João Evangelista** ("Deus é Espírito" - João 4:24) e na teologia trinitária desenvolvida pelos **Padres da Igreja**. Esta tradição superou as concepções gregas de um Deus impessoal (o Primeiro Motor de Aristóteles, o Demiurgo de Platão) ao afirmar a pessoalidade divina. **Santo Agostinho**, em *A Trindade*, desenvolveu a compreensão de Deus como Espírito cuja essência é relação consigo mesmo. Esta intuição antecipa a autoconsciência e autorelacionalidade que a presente proposição identifica como necessárias para a autocausalidade.
 
 **A Filosofia Moderna: Do Causa Sui à Autoconsciência Absoluta:** **Baruch Spinoza**, na *Ética*, desenvolveu rigorosamente o conceito de *causa sui* (causa de si): "Por causa de si entendo aquilo cuja essência envolve a existência" (Ética I, Definição 1). No entanto, Spinoza rejeitou a pessoalidade divina, concebendo Deus como substância impessoal. A presente proposição aceita o *causa sui* espinosista, mas **demonstra que este conceito, levado às suas últimas consequências, exige pessoalidade**. **Georg Wilhelm Friedrich Hegel**, na *Fenomenologia do Espírito*, concebeu o Absoluto precisamente como **Espírito (Geist)**. Para Hegel, "o Absoluto é Espírito — esta é a mais alta definição do Absoluto" (*Enciclopédia das Ciências Filosóficas*, §384). A presente proposição concorda com esta identificação, mas oferece uma **demonstração lógica** (não apenas dialética) de por que deve ser assim.
-
+222
 **A Filosofia Contemporânea: Pessoalidade e Liberdade:** **Max Scheler**, em *A Ideia do Homem e do Eterno*, argumentou que a pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade. **Karl Rahner**, na sua antropologia teológica, desenvolveu o conceito de "ouvinte da Palavra" (*Hörer des Wortes*), argumentando que a estrutura transcendental do homem aponta para um Absoluto que é pessoal, pois só um Tu absoluto pode responder ao anseio humano por infinito.
 
 **Filósofos que Confirmam a Exigência de Autoconsciência na Autocausalidade:**
