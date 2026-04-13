@@ -7029,7 +7029,19 @@ Quando as formas de subsistencia da manutenção fisica do niilista acerca de su
 Sem recursos o niilista encontra expressões como o uso de substancias tóxicas, expressões atipica como mendigancia, ou uso de drogas baratas. O niilista, portanto, precisa converter suas formas de expressões, e, a perca de seu status, fortuna, ou meio de mascaramento causa grande pressão interior.
 
 
+### **A perca do auto valor niilista**
 
+Quando o indivíduo niilista percebe-se sem acreditar na própria liberdade, simula para si que as pessoas que acreditam em liberdade são mágicas, interpretando Jesus como um herói para quem não enxerga sentido na própria existência.
+
+Essa visão niilista destitui o indivíduo de todo seu auto valor, tornando-o um descarte adiado, mas já considerado morto pelo próprio indivíduo. Portanto, a busca pelo mérito, pelo auto valor e pelos bens materiais se torna uma obsessão, de forma que o indivíduo possa conferir algum valor, mérito e celebração ao seu curto período de existência, como assim interpreta que será breve.
+
+Portanto, o indivíduo, ainda que não tenha um nível de cultura suficiente para tirar proveito de uma grande quantia de dinheiro, e ainda que o objeto de desejo que trará o dinheiro não seja de seu interesse, busca incessantemente a perda do auto valor que o dinheiro pode conceder a ele.
+
+Portanto, o indivíduo luta e busca pelo dinheiro com a mesma garra e intensidade que faria para proteger sua vida, não importando-se nem mesmo com a própria sobrevivência. A obsessão, sendo cessada na dificuldade do indivíduo de encontrar alívio para sua perda do auto valor, leva o indivíduo a usar mecanismos como o abuso de drogas, visões artificiais que lhe conferem alívio semelhante ao que a posse material lhe proporcionaria.
+
+### **O desassossego niilista**
+
+O niilista tenta ironizar a liberdade, referindo-se a um corpo livre como um corpo mágico. Ironiza figuras religiosas, interpretando-as como eventos históricos. Ao visualizar a paz do outro, tenta tirá-la, pois associa a paz do outro a uma contravenção ao seu desespero. Vê a discrepância do outro com seu próprio estado emocional.
 
 > Quando o povo passa a reconhecer que a fome, miséria, contravenções políticas, manipulação midiática, manipulação de guerra, desvios de dinheiro estão associados ao poderio de quem tem um grande capital acumulado e usa isso como sintomática e estratégia de crescimento empresarial, então o povo vai passar a procurar entre bilionários a sintomática. E, de forma ou de outra, pressões políticas, civis e militantes vão reagir sobre essas determinadas pessoas, uma vez conhecido seu real propósito e motivação. A humanidade até então não entende a raiz da perversidade e quais são suas formas de expressão últimas. Uma vez compreendidos, os alvos das calamidades são identificados e podem ser freados, e finalmente a paz contínua será instaurada.
 
