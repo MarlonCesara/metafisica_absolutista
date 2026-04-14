@@ -1302,7 +1302,7 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 **Intuição fundamental e seus riscos:** Uma das intuições mais persistentes em sua reflexão é que o Absoluto não pode ser uma realidade meramente mecânica, cega ou indiferente. Ele deve ter, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo é extremamente problemático. Na tradição filosófica e teológica, "espírito" geralmente evoca um sujeito consciente; alguém que pensa, quer e age; uma pessoa (no sentido forte) com vontade e deliberação; um agente causal que intervém no mundo.
 
 **Problemas da atribuição psicológica:** Se atribuirmos essas características ao Absoluto, imediatamente introduzimos **dualidade** (sujeito e objeto, vontade e ação, pensamento e pensado), **temporalidade** (deliberação e decisão implicam antes e depois), **contingência** (escolher entre alternativas implica que as alternativas eram realmente possíveis) e **determinação** (um espírito pessoal tem características definidas). O desafio, então, é: *como pensar o Absoluto como "espírito" sem cair nessas determinações?*
-222
+
 ## 10.2 A Correção da Noção de "Escolha"
 **Análise crítica:** A auto-ordenação do Absoluto implicaria conhecimento, autodomínio e auto-presença, e isso levaria a uma forma de pessoalidade e, portanto, a uma escolha entre opções. Examinamos essa ideia cuidadosamente e identificamos o problema: a "escolha" introduz no Absoluto algo que não pode estar lá.
 
@@ -1317,7 +1317,7 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 **Autodomínio (Não-Divisão Interna):**
 * **No sentido comum:** autodomínio é o controle que exercemos sobre nossas paixões, impulsos ou partes conflitantes de nós mesmos.
 * **No Absoluto:** não há partes, não há conflito, não há nada a ser controlado. O "autodomínio" aqui significa a ausência de qualquer divisão interna que pudesse gerar tensão ou contradição. O Absoluto não domina a si mesmo porque não há em si nada que precise ser dominado. Ele é simplesmente uno, e essa unidade não é conquistada, mas é a própria natureza de seu ser.
-222
+
 **Auto-Presença (Identidade Absoluta):**
 * **No sentido comum:** auto-presença é a experiência que temos de nós mesmos como sujeitos conscientes.
 * **No Absoluto:** não há "experiência" nem "sujeito". A auto-presença aqui significa que o Absoluto não é algo que *existe* separadamente de seu existir; ele é a coincidência imediata entre ser e ser-para-si. Diferente do sujeito humano, que sempre tem uma distância entre si mesmo e sua experiência de si, no Absoluto essa distância é nula.
@@ -1346,19 +1346,7 @@ Mesmo com essa redefinição radical, justificamos o termo "espírito" por carre
 A formulação mais segura é: **o Absoluto é mais do que uma pessoa (transcende as determinações da pessoalidade finita), mas não é menos do que uma pessoa (possui interioridade e presença que a impessoalidade não captura).**
 
 ## 10.7 Espírito e Escolha (Aprofundamento)
-A questão da escolha reaparece aqui de forma crucial. Se o Absoluto é espírito, ele escolheu criar o mundo ou ser o que é? Nossa posição é que **o Absoluto não escolhe porque não há escolha a ser feita**. Isso mostra que ele está além da estrutura de escolha do mundo relativo. O Absoluto não é uma vontade que decide; ele é a própria necessidade que torna possível a vontade e a escolha no domínio relativo.
-
-## 10.8 Distinção entre Espírito no Absoluto e no Relativo
-**Tabela comparativa:**
-
-| **Espírito no Absoluto** | **Espírito no Relativo** |
-| :--- | :--- |
-| Auto-presença absoluta | Consciência subjetiva |
-| Sem sujeito-objeto | Sujeito em relação a objetos |
-| Sem escolha | Escolhe entre alternativas |
-| Sem tempo | Temporal |
-| Não é pessoa psicológica | Pessoa no sentido comum |
-| Condição da inteligibilidade | Inteligência que apreende estruturas |
+A questão da escolha reaparece aqui de forma crucial. Se o Absoluto é espírito, ele escolheu criar o mundo ou ser o que é? Nossa posição é que **o Absoluto não escolhe porque não há escolha a ser feita**. Isso mostra que ele está além da estrutura de escolha do mundo determinado. O Absoluto não é uma vontade que decide; ele é a própria necessidade que torna possível a vontade e a escolha no domínio do indiferenciado.
 
 ## 10.9 Síntese da Décima Proposição
 **Proposição X: O Absoluto é espírito no sentido de auto-presença absoluta, sem psicologia ou escolha.**
@@ -1373,11 +1361,7 @@ A noção de "espírito" como auto-presença absoluta responde à questão de o 
 
 ## 11.1 Introdução: A Necessidade de um Espírito Puro
 Agora que entendemos a autocausalidade, as ações da liberdade, a temporalidade do Espírito, vamos explorar o conteúdo do Espírito, ou seja, sua pureza fundamental. E para isso, vamos começar limpando as janelas que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto, explorar o nada, para que tenhamos os traços bem delineados do Ser. Precisamos dissociar outras vias da via fundamental, para só depois entendermos o conceito de Espírito indiferenciado e sua dissociação de outros entes, ainda que determinados para o absoluto. Perguntas como: "se Deus é tudo, como algo pode ainda existir?" serão respondidas somente depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto, a substância pura do Espírito, que está para além do nada e age sob o nada.
-
-Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo, precisamos, uma vez entendido o conceito de indiferenciado, retornar à investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no absoluto, considerando-o não autocausal, ou seja, sem Espírito, agora vamos analisar o teor indiferenciado do absoluto segundo sua natureza espiritual, ou seja, vamos atribuir o mesmo grau de pureza ao Espírito. E, logo em seguida, relacionar o relativo com o Espírito.
-
-Foi necessário separar o absoluto pessoal de seu campo de ação para entendermos, de forma separada, o campo no qual o absoluto exerce sua ação criadora, para fins de melhor entendimento. Pois, uma vez entendido o conceito de indiferenciado, torna-se mais facilitado o entendimento de um Espírito indiferenciado.
-
+222
 ## 11.2 A Pergunta Primordial: Como o Espírito Pode Ser Autocausal?
 Para iniciarmos a investigação, neste momento, acerca do Espírito absoluto, vem-nos a pergunta primordial: como o Espírito pode ser autocausal? Ao imaginarmos um Espírito determinado, chegaríamos ao mesmo problema de uma realidade determinada para o absoluto, assim como investigamos anteriormente. O Absoluto não poderia portar o nada ou o fenômeno inicialmente sem poluir sua pureza.
 
