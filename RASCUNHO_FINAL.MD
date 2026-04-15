@@ -3583,3 +3583,10 @@ Há a forma, o estado ou determinação ou indeterminação. E há a força que 
 Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo, precisamos, uma vez entendido o conceito de indiferenciado, retornar à investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no absoluto, considerando-o não autocausal, ou seja, sem Espírito, agora vamos analisar o teor indiferenciado do absoluto segundo sua natureza espiritual, ou seja, vamos atribuir o mesmo grau de pureza ao Espírito. E, logo em seguida, relacionar o relativo com o Espírito.
 
 Foi necessário separar o absoluto pessoal de seu campo de ação para entendermos, de forma separada, o campo no qual o absoluto exerce sua ação criadora, para fins de melhor entendimento. Pois, uma vez entendido o conceito de indiferenciado, torna-se mais facilitado o entendimento de um Espírito indiferenciado.
+
+
+
+
+
+
+A sintomática niilista não pode ser retirada, a não ser que cesse o niilismo, de alguma forma tem seu escape, porém, pode ser alterada. 
