@@ -3517,3 +3517,69 @@ O tempo do Espírito é não linear. Pois a linearidade ocorre sem que ocorra a 
 
 
 Agora, que entendemos A auto-causalidade, as ações da liberdade, A temporalidade do Espírito, vamos explorar o conteudo do Espírito, ou seja, sua pureza fundamental. E para isso, vamos começar limpando as janelas que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto explorar o nada, para que tenhamos os traços bem delineados do Ser. Precisamos disassociar outras vias da via fundaental, para só depois entendermos o conceito de Espírito indiferenciado e sua disassociação de outros entes, ainda que determinados para absoltuto. Perugntas como: se Deus é tudo, como algo pode ainda existir? Serão respondidas somente depois de adentrarmos no conhecimento acerca do conteudo primordial do absoluto, a substancia pura do Espirito, que está para alem do nada e age sob o nada.
+
+
+
+
+
+
+
+
+
+
+Alguns ficam, outros se vão…
+Para um lugar onde não posso mais revê-los…
+Mas seus nomes permanecerão para sempre em meu coração.
+E aqueles que escolheram ficar encherão meus olhos com o vazio que os que partiram deixaram.
+
+A vida é bela porque é livre — é selvagem, é autêntica.
+O homem é dono do sim e do não, e assim eu o fiz.
+
+A vida não é uma prisão, é uma escolha.
+Há aqueles que são livres dentro do meu amor.
+E, infelizmente, há os que encontram seu destino em um caminho oposto ao meu — mas ainda assim, encontraram um caminho.
+Se um dia escolheram, foi porque existiram, tiveram a dádiva, a chance de permanecer… mas decidiram partir.
+
+A morte é uma passagem, onde cada um descobre o que realmente é, longe das limitações do corpo.
+Uns são paixão, outros são vida… e outros, morte.
+E assim são as coisas.
+
+
+
+
+
+
+
+
+
+
+
+
+
+## 4.2 A Ordem como Categoria Superior
+
+A causalidade necessária. A lógica assimétrica, representada sob os domínios do absoluto, não necessariamente apresenta uma negatividade, no sentido de que, o ilógico, é positivo de fato. Porém, ainda sob o ilógico, a causalidade persiste, de forma a ser necessário tanto uma explicação para o ilógico, tanto para o lógico. Isto é, é necessário compreender até mesmo a desordem lógica. A ordem, opera, portanto, até na desordem dos princípios definidos por Aristóteles, de forma que se façam assimétricos.
+
+Desta forma, a indeterminação, sendo indeterminada, é uma determinação, não no sentido que não é mais relativa, mas no sentido de que exige uma explicação por ser positiva.
+
+Há a forma, o estado ou determinação ou indeterminação. E há a força que mantém a ordem, mantém a forma. Desta maneira, podemos pensar que, para A, há a causa, ou seja, a liga, a força que constrói A e sustenta A como A. A, desta forma, exige uma força para existir como A, e uma força inteligente para se manter como A. A causa, portanto, é a força motriz que sustenta a forma, a determinação ou indeterminação. Sem a causa, A não há absoluto, pois o absoluto, sendo positivo, sustenta-se como A, seja A indeterminado ou determinado. Isto é, sendo absoluto uma indiferenciação, a sustentação de tal estado é relativa a uma força. Até a completa 'estabilidade' não determinação, tem causa, pois é um estado positivo.
+
+
+
+## 10.8 Distinção entre Espírito no Absoluto e no Relativo
+**Tabela comparativa:**
+
+| **Espírito no Absoluto** | **Espírito no Indiferenciado** |
+| :--- | :--- |
+| Auto-presença absoluta | Consciência subjetiva |
+| Sem sujeito-objeto | Sujeito em relação a objetos |
+| Sem escolha | Escolhe entre alternativas |
+| Sem tempo | Temporal |
+| Não é pessoa psicológica | Pessoa no sentido comum |
+| Condição da inteligibilidade | Inteligência que apreende estruturas |
+
+
+
+Da mesma forma que o relativo justifica o absoluto através de um nada positivo, ou seja, de um relativo, precisamos, uma vez entendido o conceito de indiferenciado, retornar à investigação do Espírito. Pois, se antes aplicamos o conceito de indiferenciado no absoluto, considerando-o não autocausal, ou seja, sem Espírito, agora vamos analisar o teor indiferenciado do absoluto segundo sua natureza espiritual, ou seja, vamos atribuir o mesmo grau de pureza ao Espírito. E, logo em seguida, relacionar o relativo com o Espírito.
+
+Foi necessário separar o absoluto pessoal de seu campo de ação para entendermos, de forma separada, o campo no qual o absoluto exerce sua ação criadora, para fins de melhor entendimento. Pois, uma vez entendido o conceito de indiferenciado, torna-se mais facilitado o entendimento de um Espírito indiferenciado.
