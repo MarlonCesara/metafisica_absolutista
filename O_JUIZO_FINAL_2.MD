@@ -1361,11 +1361,11 @@ A noção de "espírito" como auto-presença absoluta responde à questão de o 
 
 ## 11.1 Introdução: A Necessidade de um Espírito Puro
 Agora que entendemos a autocausalidade, as ações da liberdade, a temporalidade do Espírito, vamos explorar o conteúdo do Espírito, ou seja, sua pureza fundamental. E para isso, vamos começar limpando as janelas que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto, explorar o nada, para que tenhamos os traços bem delineados do Ser. Precisamos dissociar outras vias da via fundamental, para só depois entendermos o conceito de Espírito indiferenciado e sua dissociação de outros entes, ainda que determinados para o absoluto. Perguntas como: "se Deus é tudo, como algo pode ainda existir?" serão respondidas somente depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto, a substância pura do Espírito, que está para além do nada e age sob o nada.
-222
+
 ## 11.2 A Pergunta Primordial: Como o Espírito Pode Ser Autocausal?
 Para iniciarmos a investigação, neste momento, acerca do Espírito absoluto, vem-nos a pergunta primordial: como o Espírito pode ser autocausal? Ao imaginarmos um Espírito determinado, chegaríamos ao mesmo problema de uma realidade determinada para o absoluto, assim como investigamos anteriormente. O Absoluto não poderia portar o nada ou o fenômeno inicialmente sem poluir sua pureza.
 
-Portanto, como deveria ser o Espírito? De que forma geraríamos um Espírito "Relativo"? Ou seja, um Espírito indiferenciado, em palavras mais apropriadas para justificá-lo juntamente com a justificação do relativo?
+Portanto, como deveria ser o Espírito? De que forma geraríamos um Espírito "indiferenciado" para justificá-lo?
 
 ## 11.3 A Aplicação da Indiferenciação ao Espírito
 Uma vez tendo entendido o que é determinação para o absoluto e o que é o indiferenciamento, pode-se facilmente aplicar a mesma visão sobre o Espírito. Não se pode diferenciá-lo fazendo com que o mesmo tenha sua ação sobre um domínio diferente daquilo que já é para o absoluto.
@@ -1375,7 +1375,7 @@ Por exemplo, se o Espírito se desse num primeiro momento determinado, isto quer
 Uma vez rendido ao que é, o Espírito tem sua ação ainda que em um estado indetectável, ainda que em um estado puríssimo. Sua ação não passa pela decisão de agir, mas é instaurada no que é. O Espírito flui na existência, é conforme o existir. O Espírito não passa por sua decisão para Existir, simplesmente é conforme uma necessidade ontológica.
 
 ## 11.4 Exemplo do Círculo Negro
-Imagine que o absoluto é um círculo negro. O círculo representa o relativo. O Espírito não precisa criar, ou decidir criar esse círculo; ele já se dá instaurado como existente e criador, já se sucedeu dessa forma, um círculo. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver o círculo ou o não círculo. Simplesmente o espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como o relativo: incausado e indetectável no sentido de que sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
+Imagine que o absoluto é um círculo negro. O Espírito não precisa criar, ou decidir criar esse círculo; ele já se dá instaurado como existente e criador, já se sucedeu dessa forma, um círculo. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver o círculo ou o não círculo. Simplesmente o espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como o relativo: incausado e indetectável no sentido de que sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
 
 ## 11.5 A Velocidade Infinita da Ação Divina
 O Espírito tem uma ação tão rápida que o determinador da ação se afasta da ação infinitamente. É uma velocidade tão infinita que o determinador é indetectável, e só se pode constatar sua ação. Ou seja, o determinador não precisou estar lá para que a ação existisse; sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é dispensável, é altíssimo, existe mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir; sua ação é totalmente invisível.
@@ -1383,33 +1383,28 @@ O Espírito tem uma ação tão rápida que o determinador da ação se afasta d
 O Espírito entendeu sem precisar entender, observou sem precisar observar, agiu sem precisar ter agido. Está puramente instaurado no que é. Como se fosse a vida do que é, e não o determinador do que é. Possui todas as propriedades do determinador, porém sem precisar ter sido efetivamente o determinador.
 
 ## 11.6 O Espírito como Vida do Nada
-O Espírito é a vida do nada, é o solo no qual as coisas são realizadas, é a vida das vidas. É o *animus* do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação. É um determinador doado ao todo, de forma a se expandir até tornar sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que.
+O Espírito é um determinador doado ao todo, de forma a se expandir até tornar sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que.
 
 > *"O Espírito é a vida do nada, o solo no qual as coisas são realizadas, a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação."*
 
-## 11.7 A Emergência do Espírito Autocausal
-O Espírito autocausal, como emerge do relativo? Na verdade, não emerge do relativo; o absoluto naturalmente existe, seja tendo como contraparte o relativo. O Absoluto é o que é. Porém, o Espírito é puríssimo, não há determinação para o Espírito, que é segundo o absoluto. Deixa-se repousar no absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
+## 11.7 A Ação Indetectável do Espírito
+O Espírito age de forma indetectável. Sua ação dá o que é, se doa como vontade do que é.
 
-O relativo naturalmente existe, e é relativo por sua autodeterminação e autofundamentação. Isto é, naturalmente há o nada, e há a vida, o Espírito que paira sobre o nada, e fomenta esse nada como sua contraparte de liberdade.
+**Exemplo:** A cachoeira cai inevitavelmente, ou seja, o absoluto existe inevitavelmente, e só pode ser por vontade do Espírito. E essa vontade emerge pura, pois age de forma a deixar ser o que já é.
 
-## 11.8 A Ação Indetectável do Espírito
-O Espírito age de forma indetectável. Sua ação dá o que é, no sentido não de mandar que o relativo seja tal como relativo, mas de se doar como vontade do que é. De ser a plenitude daquilo que necessariamente é.
-
-**Exemplo:** A cachoeira cai inevitavelmente, ou seja, o relativo existe inevitavelmente, e só pode ser por vontade do Espírito, pois se autodetermina relativo. E essa vontade emerge pura, pois age de forma a deixar ser o que já é.
-
-O absoluto naturalmente existe, e impõe o existir à completude, pois existe tal como é. O ato absoluto é o ato de ser necessário, tendo como contraparte o relativo, ou seja, a si mesmo. O relativo evidencia o absoluto, pois o relativo nada é. E na ausência do nada, há absoluto.
+O absoluto naturalmente existe, e impõe o existir à completude, pois existe tal como é. O ato absoluto é o ato de ser necessário, tendo como contraparte o nada, ou seja, a si mesmo. O nada evidencia o absoluto, pois o nada é nada. E na ausência do nada, há absoluto.
 
 ## 11.9 A Indiferenciação do Espírito
-O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, suspende o Espírito criado sob um aspecto único; é tudo.
+O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, suspende o Espírito criado sob um aspecto único.
 
-Ao suspendermos o Espírito determinado como nada, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
+Ao suspendermos o Espírito determinado, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
 
 Um espírito determinado sob um fator extrínseco, cuja liberdade poderia ser contrária ao que é, e não direcionado necessariamente ao existir. Portanto, não estaria rendido, de forma a ser indetectável, de forma que sua vontade seja tão pura que em nada possui dissonância no que é. De forma que não precise nem mesmo existir para que tenha sua ação instaurada; aproxima-se em pureza ao ato de inexistir, porém conserva seus efeitos, portanto existe, de forma pura.
 
 ## 11.10 A Superação da Determinação Extrínseca
-Ao se determinar o fator autocausal (Espírito) como nada, temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si.
+Ao se determinar o fator autocausal (Espírito), temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si.
 
-O Espírito, portanto, é o indiferenciado do Espírito; não é determinado no sentido de que seja nada, mas paira puro sobre o que é. E sua ação é pura. Fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. É indetectável, porém tem sua ação sobre aquilo que é.
+O Espírito, portanto, é o indiferenciado do Espírito. E sua ação é pura. Fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. É indetectável, porém tem sua ação sobre aquilo que é.
 
 ## 11.11 As Duas Faces do Absoluto
 O fator autocausal é na medida em que é por si mesmo. Portanto, temos a ação autocausal, que é dividida em três esferas distintas, e o campo de ação do autocausal, que é o próprio absoluto. São duas faces de uma mesma realidade: o absoluto é autocausal no sentido de ser espiritualmente ativo em si mesmo, ao passo que dispõe de si nessa autocausalidade, que é a liberdade no âmbito autocausal.
@@ -1417,15 +1412,15 @@ O fator autocausal é na medida em que é por si mesmo. Portanto, temos a ação
 Para justificar um Espírito autocausal, não se pode recorrer a um Espírito que nada é, pois o nada, apesar de primeiramente parecer não possuir atributos, não possui pessoalidade para realizar a autocausalidade. Temos, portanto, que há um Espírito puríssimo, aquele que dispensa qualquer determinação de si, no sentido de que o Espírito não é uma unidade mandante no absoluto, ou seja, não se identifica como um "Sou", mas se identifica como o "Ser", aquilo que paira sobre o absoluto em seu próprio ato de Ser. O Espírito que age sem precisar ordenar está adequado ao que é, e condizente com o que é.
 
 ## 11.12 O Espírito sob o Fluxo da Existência
-O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como determinador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada).
+O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como fundamentador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada).
 
 A autocausalidade, portanto, incidindo sobre o nada, ou qualquer determinação para o absoluto possível — ou até mesmo incidindo sobre um absoluto indiferenciado, como será evidenciado a seguir —, está para o existir de forma a se determinar em prol do que existe. Se existe o absoluto, o Espírito é consistente com o que existe; e, se o que existe é necessário e não contingente, o Espírito segue essa lógica de necessidade.
 
 ## 11.13 A Justificação do Espírito pelo Absoluto
-Estando justificada a existência do absoluto, está justificada a existência do Espírito absoluto, pois, para tudo que existe, há uma causa de sua existência e sua determinação que, no caso do absoluto, só pode estar em si mesma.
+Estando justificada a existência do absoluto, está justificada a existência do Espírito absoluto, pois, para tudo que existe, há uma causa de sua existência e sua fundamentação que, no caso do absoluto, só pode estar em si mesma.
 
-Sendo assim, o Espírito do absoluto é x, no sentido de que é indiferente a um condutor de si e rendido ao existir. É conforme o que o absoluto é. Sua vontade existe sob o ímpeto do que é, e não sob um ímpeto único. O nada é uma contraparte daquilo que é. É um desvio do que é em prol de uma realidade não plena.
-
+Sendo assim, o Espírito do absoluto é x, no sentido de que é indiferente a um condutor de si e rendido ao existir. É conforme o que o absoluto é. Sua vontade existe sob o ímpeto do que é, e não sob um ímpeto único. 
+444
 ## 11.14 Conclusão: O Espírito Indiferenciado
 Concluímos, portanto, a visão do que é autocausal: o Espírito indiferenciado, que repousa puríssimo sob a plenitude do que é. Em outras palavras, a ação do Espírito Absoluto é tão pura que age de forma indetectável; sua ação se dá sem que seja necessária sua existência determinada. Sua ação não depende de um determinador; sua ação é a própria determinação que se dá como se é.
 
@@ -9185,4 +9180,7 @@ Ao esboçar um entendimento profundo do ser humano, Jesus ameaçou os poderosos,
 
 
 
+## 11.7 A Emergência do Espírito Autocausal
+O Espírito autocausal, como emerge do nada? Na verdade, não emerge do nada; o absoluto naturalmente existe, seja tendo como contraparte o nada. O Absoluto é o que é. Porém, o Espírito é puríssimo, não há determinação para o Espírito, que é segundo o absoluto. Deixa-se repousar no absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
 
+O relativo naturalmente existe, e é relativo por sua autodeterminação e autofundamentação. Isto é, naturalmente há o nada, e há a vida, o Espírito que paira sobre o nada, e fomenta esse nada como sua contraparte de liberdade.
