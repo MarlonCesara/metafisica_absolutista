@@ -1420,7 +1420,7 @@ A autocausalidade, portanto, incidindo sobre o nada, ou qualquer determinação 
 Estando justificada a existência do absoluto, está justificada a existência do Espírito absoluto, pois, para tudo que existe, há uma causa de sua existência e sua fundamentação que, no caso do absoluto, só pode estar em si mesma.
 
 Sendo assim, o Espírito do absoluto é x, no sentido de que é indiferente a um condutor de si e rendido ao existir. É conforme o que o absoluto é. Sua vontade existe sob o ímpeto do que é, e não sob um ímpeto único. 
-444
+
 ## 11.14 Conclusão: O Espírito Indiferenciado
 Concluímos, portanto, a visão do que é autocausal: o Espírito indiferenciado, que repousa puríssimo sob a plenitude do que é. Em outras palavras, a ação do Espírito Absoluto é tão pura que age de forma indetectável; sua ação se dá sem que seja necessária sua existência determinada. Sua ação não depende de um determinador; sua ação é a própria determinação que se dá como se é.
 
@@ -1428,37 +1428,30 @@ Se existe o todo, sua determinação é a realização do todo, imediata e incau
 
 **Exemplo:** O rio flui; alguém precisa tê-lo mandado fluir. Porém, não é preciso que alguém mande, pois o fluir carrega consigo uma vontade. O fluir é a própria vontade.
 
-Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto conforme se é. Sendo o Espírito contraparte viva do que se dá em seu campo de liberdade. Seja qual for o absoluto, o Espírito existe para o absoluto, ainda que sem definição do que está para o absoluto.
+Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto conforme se é. Sendo o Espírito contraparte viva do que se dá em seu campo de liberdade. Espírito existe para o absoluto, ainda que sem definição do que está para o absoluto.
 
 ## 11.15 O Espírito como Ato Puro
 O Espírito, portanto, paira sobre o absoluto e é o absoluto. Sua ação é ato puro de existir. Não incide sobre uma contraparte substancial, como um elemento que move outro elemento, mas é em si a própria elementação. É elemento de si mesmo. É um existir, e não o existente.
 
 É um Espírito sem determinação. Simplesmente é, e sua vontade carrega consigo seu ato de Ser, pois não é contingente. Isto é, é unicamente direcionado ao existir. E sua personalidade e tendência é o existir unidirecional.
 
-## 11.16 O Nada como Ação
-O nada não é só algo que porta as possibilidades do nada, mas porta a ação do ente. O ente não só cria do nada, mas age do nada. Sua ação sobre si mesmo advém do nada.
 
 ## 11.17 A Distinção entre Espírito Indiferenciado e Espírito Determinado
-Para entender melhor o conceito de Espírito indiferenciado, e sua diferença com o relativo ou com o que é criado no relativo, imaginemos que o Espírito determine um outro Espírito do relativo. Este outro Espírito seria Ele mesmo e estaria suscetível ao campo da possibilidade e da impossibilidade. Este novo Deus seria determinado como uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espírito de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
+Para entender melhor o conceito de Espírito indiferenciado, e sua diferença com o diferenciado, imaginemos que o Espírito determine um outro Espírito do nada. Este outro Espírito seria Ele mesmo e estaria suscetível ao campo da possibilidade e da impossibilidade. Este novo Ser seria determinado como uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espírito de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
 
-Se Deus tentasse criar um ente que se indiferencia essencialmente, porém que existe como A, o existir designado pela lógica de Aristóteles naturalmente possui diferenciação. A existe como A. O ato de existir de Aristóteles não é puríssimo, pois produz necessariamente um ente de essência determinada. O ato de existir como A já se diferencia de B, ou seja, o simples existir ou não existir de Aristóteles já reduz o absoluto a uma essência única, isto é, já o determina. E o que é determinado não pode ser autocausal, pois exige um determinador.
+Se o Espírito criar um ente que se diferencia essencialmente, porém que existe como A, o existir designado pela lógica de Aristóteles naturalmente possui diferenciação. A existe como A. O ato de existir de Aristóteles não é puríssimo, pois produz necessariamente um ente de essência determinada. O ato de existir como A já se diferencia de B, ou seja, o simples existir ou não existir de Aristóteles já reduz o absoluto a uma essência única, isto é, já o determina. E o que é determinado não pode ser autocausal, pois exige um determinador.
 
 ## 11.18 O Existir Puríssimo
 O Ser é puríssimo ao ponto de não necessitar se concretizar como A. Apesar de ser positivo, dispensa existir sob a lógica aristotélica, no sentido de que não está preso ao existir de Aristóteles, que é uma dualidade entre existir e não existir. O existir puríssimo tem sua ação, ainda que seja indetectável. Se age, existe, sem que seja formalizado como A. Atua na realidade, e é positivo porque atua, e não porque é formalizado como A.
 
-## 11.19 Síntese Final
-Portanto, temos a síntese do relativo, que é o nada indiferenciado, e do Espírito em sua indiferenciação. Ambos são uma vida positiva puríssima, tanto o Espírito como seu campo de ação criativa, que é o relativo.
-
-## 11.20 O Espírito Indiferenciado e Sua Ação Indiferenciada (Versão Complementar)
+## 11.20 O Espírito Indiferenciado e Sua Ação Indiferenciada 
 Como, portanto, o espírito sendo puro tem propriedades como atemporalidade e temporalidade? Como o espírito possui substância para que se configurem aspectos em si como o atemporal e o temporal, se é puro?
 
-Diferenciemos então, portanto, a substância do Espírito, no sentido de que o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivência levada à última instância, na qual nem mesmo precisa de si, não dispensa os aspectos temporais; dispensa, no entanto, a necessidade de si num sentido assimétrico. O Si do Ser está para além da necessidade dele mesmo, mas não além da necessidade da presença, da vida. O Ser é vivo, ainda que seja indiferenciado, ou seja, uma vida relativa, uma vida assimétrica à definição ontológica convencional.
+Diferenciemos então, portanto, a substância do Espírito, no sentido de que o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivência levada à última instância, na qual nem mesmo precisa de si, não dispensa os aspectos temporais; dispensa, no entanto, a necessidade de si num sentido assimétrico. O Si do Ser está para além da necessidade dele mesmo, mas não além da necessidade da presença, da vida. O Ser é vivo, ainda que seja indiferenciado, ou seja, uma vida assimétrica à definição ontológica convencional.
 
 ---
-
+444
 # PROPOSIÇÃO V: A LÓGICA ASSIMÉTRICA E A ESTRUTURA DO ABSOLUTO INDIFERENCIADO
-
-*(Nota metodológica: Esta proposição unifica dialeticamente todas as análises prévias sobre a insuficiência da lógica clássica, integrando as proposições preliminares IX-A, IV-A e suas implicações estruturais na Causalidade do Absoluto).*
 
 ### 5.1. A Insuficiência da Lógica Simétrica para o Fundamento
 A Lógica Simétrica, formalizada na Proposição I com seus quatro princípios (Identidade, Não-Contradição, Terceiro Excluído e Não-Disformidade), constitui a estrutura formal perfeita para o pensamento acerca do **causado, do determinado e do fenomênico**. Ela é a epistemologia do finito, a malha conceitual que captura as relações entre entes já constituídos no fluxo do tempo.
@@ -9184,3 +9177,9 @@ Ao esboçar um entendimento profundo do ser humano, Jesus ameaçou os poderosos,
 O Espírito autocausal, como emerge do nada? Na verdade, não emerge do nada; o absoluto naturalmente existe, seja tendo como contraparte o nada. O Absoluto é o que é. Porém, o Espírito é puríssimo, não há determinação para o Espírito, que é segundo o absoluto. Deixa-se repousar no absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
 
 O relativo naturalmente existe, e é relativo por sua autodeterminação e autofundamentação. Isto é, naturalmente há o nada, e há a vida, o Espírito que paira sobre o nada, e fomenta esse nada como sua contraparte de liberdade.
+
+## 11.16 O Nada como Ação
+O nada não é só algo que porta as possibilidades do nada, mas porta a ação do ente. O ente não só cria do nada, mas age do nada. Sua ação sobre si mesmo advém do nada.
+
+## 11.19 Síntese Final
+Portanto, temos a síntese do relativo, que é o nada indiferenciado, e do Espírito em sua indiferenciação. Ambos são uma vida positiva puríssima, tanto o Espírito como seu campo de ação criativa, que é o relativo.
