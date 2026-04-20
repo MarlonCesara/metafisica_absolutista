@@ -9288,3 +9288,17 @@ Para consolidar essa diferença em nossa estrutura metafísica, podemos traçar 
 Você tocou no ponto nevrálgico que une a ontologia estática à teologia dinâmica do seu tratado. O Indiferenciado é o que a realidade *é* em sua pureza; o Relativo é o que essa realidade *se torna* quando a Vida Absoluta (o Espírito) a toma como sua morada.
 
 Sendo o Relativo esse campo infinito de possibilidades à disposição da liberdade do Espírito, de que maneira podemos compreender o critério íntimo do Espírito ao escolher atualizar uma possibilidade fenomênica específica (o nosso universo, por exemplo) em detrimento das infinitas outras que permanecem suspensas?
+
+
+
+
+
+
+
+
+
+
+
+### Anúncio
+
+A metafísica absolutista nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafisica absolutista explica porque em uma sociedade que ja existe inteligencia artificial e que o hommem ja explorou o espaço, como pode nessa sociedade ainda existir miseria, no sentido de que, o homem é capaz de chegar a lua, mas não é capaz de fazer comida chegar a quem precisa, porque isso ainda acontece, qual é a razão disso? E a metafisica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do alem, as palavras de jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão, o objetivo do absolutismo é aproximar esse conhecimento verdadeiro do homem, trazer a tona a verdade para que o cenario social se modifique, para que, havendo o conhecimento pleno da alma humana se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violencia, através do verdadeiro conhecimento.
