@@ -650,6 +650,35 @@ Sem essa proposição, todo o sistema desmorona. Se a causa fosse distinta do se
 
 Portanto, essa primeira proposição é a pedra angular. Ela estabelece que o Absoluto é, em si mesmo, uma unidade tão radical que nem mesmo a distinção entre ser e fundamento (ser e causa) se aplica.
 
+### Fundamentação Filosófica da Proposição IV
+
+**A Tradição Aristotélico-Tomista e o Ato Puro**
+A intuição de que no Absoluto não há distinção entre ser e causa encontra sua primeira grande sistematização em **Aristóteles** (384-322 a.C.), através de seu conceito de "Motor Imóvel" (*Metafísica*, Livro XII). Para Aristóteles, o primeiro princípio deve ser *Actus Purus* (Ato Puro), sem qualquer traço de potência. Se houvesse potência, haveria necessidade de uma causa anterior para atualizá-la. Ao eliminar a potência, Aristóteles elimina a transição (o vir-a-ser) e, consequentemente, a dualidade causal interna: o ser do Motor Imóvel é pura atualidade, sem divisão entre aquilo que causa e aquilo que é causado.
+
+Essa linha atinge seu ápice em **São Tomás de Aquino** (1225-1274). Na *Suma Teológica* (I, q. 3, a. 4), Aquino estabelece que, em Deus, essência e existência são idênticas (*Ipsum Esse Subsistens* — O próprio ser subsistente). Nos seres contingentes, a essência (o que a coisa é) é distinta da existência (o fato de que a coisa é), exigindo uma causa eficiente que as una. No Absoluto, por não haver essa distinção, a pergunta pela "causa" torna-se vazia: Ele não *tem* existência originada de uma causa; Ele *é* a própria Existência. 
+
+**Spinoza e a Redefinição da *Causa Sui***
+A Proposição encontra sua mais perfeita ressonância geométrica e racional em **Baruch Spinoza** (1632-1677). Na abertura de sua *Ética* (Parte I, Definição 1), Spinoza redefine o conceito de auto-causalidade: "Por causa de si (*causa sui*) entendo aquilo cuja essência envolve a existência, ou seja, aquilo cuja natureza não pode ser concebida senão como existente." 
+
+Spinoza esvazia a expressão *causa sui* de qualquer sentido transitivo ou relacional. A Substância (Deus ou a Natureza) não é um agente que "gera" a si mesmo no tempo ou na lógica; afirmar que ela é *causa sui* é simplesmente afirmar que a sua existência é logicamente necessária e incriada. A causalidade, aqui, torna-se literalmente indistinta da necessidade ontológica absoluta.
+
+**O Neoplatonismo e a Unidade Radical do Uno**
+A impossibilidade de introduzir dualidade causal no Absoluto foi defendida de forma intransigente por **Plotino** (204-270 d.C.). Em suas *Enéadas*, o Uno é tão absolutamente simples que não admite sequer a distinção entre "pensador" e "pensado", ou entre "agente" e "ação". Se o Uno fosse causa de si mesmo num sentido relacional, ele seria cindido em dois. Para Plotino, a causalidade pertence à esfera da emanação (do Uno para o Inteligível e a Alma), mas, em si mesmo, o Uno apenas *é*. A identidade radical proíbe a relação, reafirmando que o fundamento se fundamenta por sua mera presença indistinta.
+
+**Mestre Eckhart e a Superação da Causalidade em Deus**
+Na mística especulativa de **Mestre Eckhart** (1260-1328), encontramos a distinção fundamental entre "Deus" (que atua como criador e causa em relação ao mundo) e a "Divindade" (*Gottheit*, o fundo abissal e inefável). Na Divindade, toda operação causal cessa. O fundamento absoluto é um deserto onde não há distinção entre causador e causado, sujeito e objeto. Eckhart ensina que a verdadeira compreensão do Absoluto exige abandonar a categoria de "causa" (mesmo a primeira causa), pois ela ainda amarra o Absoluto à relatividade da criação.
+
+**Hegel e a Autoposição do Conceito**
+Embora **G.W.F. Hegel** (1770-1831) opere através da dialética, sua *Ciência da Lógica* contribui para o entendimento do Absoluto como aquilo que não depende de premissas externas. O Absoluto hegeliano é o "resultado que se pressupõe a si mesmo". Mesmo que Hegel descreva um movimento da Ideia, o cume de seu sistema demonstra que o Fundamento não é sustentado por uma alavanca exterior ou por uma relação de dependência causal comum, mas coincide plenamente com a totalidade do próprio processo. A necessidade absoluta absorve a causalidade.
+
+**Síntese da Fundamentação**
+A Proposição IV não destrói a causalidade, mas a purifica de seus antropomorfismos quando aplicada ao Absoluto, reunindo séculos de rigor metafísico:
+1. **De Aristóteles e Tomás de Aquino**, herda-se a eliminação da potência e a identidade estrita entre essência e existência (*Ato Puro*), extinguindo a fratura causal interna.
+2. **De Spinoza**, herda-se a conversão da *causa sui* de um "ato de gerar-se" para um "nome da necessidade absoluta".
+3. **De Plotino e Eckhart**, herda-se a defesa intransigente da simplicidade do Fundamento, que não admite a dualidade relacional exigida pela lógica de causa e efeito.
+
+Esta fundamentação filosófica sustenta que a "Causa" do Absoluto é a sua própria impossibilidade de não ser. Exigir do Absoluto uma causa (mesmo que interna) é rebaixá-lo à categoria dos entes determinados. No cume do Absolutismo Metafísico, a razão reconhece que o Ser fundante não age para existir; a sua identidade absoluta basta.
+
 ---
 
 # PROPOSIÇÃO VI: O ABSOLUTO COMO HORIZONTE METAFÍSICO
@@ -668,7 +697,7 @@ A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e d
 
 O Absoluto se sintetiza, mediante o pensamento filosófico, com base em duas linhas de pensamento: o lógico e o ilógico. Portanto, por meio dessas vias, é possível inferir o Absoluto como a totalidade, aquilo que há ou não há. Refere-se ao que está, ao estado — ou não estado — primordial.
 
-> Ao pensarmos em um não universo, o que haveria, de fato, do ponto de vista lógico? Seria o nada? O fenômeno? A projeção do que haveria ou não haveria, se o universo não existisse, é o Absoluto. Essa é uma forma mais facilitada de pensar no Absoluto.
+> Ao pensarmos em um não universo, o que haveria, de fato, do ponto de vista lógico? Seria o nada? O fenômeno? A projeção do que haveria ou não haveria, se o universo não existisse, é o Absoluto. 
 
 ## 6.3 As Três Categorias Radicais do Absoluto
 
@@ -842,6 +871,16 @@ A Proposição sintetiza estas tradições em um sistema coerente:
 5.  **De Jaspers e Levinas** herdamos a dimensão existencial e ética do encontro com o mistério.
 
 O sistema resultante não é eclético, mas **sistemático**: demonstra como estas diferentes abordagens correspondem a diferentes aspectos da mesma estrutura ontológica — o Absoluto como horizonte metafísico total que contém tanto o cognoscível quanto o incognoscível em relação dinâmica e complementar.
+
+---
+1111
+# PROPOSIÇÃO VII: A LÓGICA ASSIMÉTRICA E A ESTRUTURA DO INCAUSADO
+
+O incausado tem, por necessidade, a indiferenciação por sua via negativa, ou seja, pela via da inexistencia. E, por sua via positiva, a pureza total. No sentido de que, tanto a inexistencia, quanto a pureza, justificariam uma realidade incausada, pois ambas serve como solo para uma existencia que dispensa causa.
+
+Ao considerarmos o conceito de indiferenciado, tomamos como referencia uma realidade de total suspensão, na qual, nem mesmo o nada é considerado. Porém, o indiferenciado seria uma realidade impotente por si mesma, não espíritual, a qual, carece de um referencial ou de algo que a relativize. Isto é, seria um campo infertil, estático.
+
+Ao considerarmos o indiferenciado pelo ponto de vista de uma vontade determinante, não temos mais o indiferenciado, mas temos o relativo, o indiferenciado tal como é segundo o império de uma vontade sobre si.
 
 ---
 
