@@ -6749,6 +6749,15 @@ Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente h
 
 O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com o relativo, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento niilista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento niilista.
 
+
+### 2.10 A tentação pela vida.
+
+A tentação pela vida, que é a tentação reversa, não é a tentação da alma pelo desaparecimento do eu, mas é a tentação que isto faz surgir no corpo por vida, as obsessões, a inveja por tudo, ou pelo que aparenta enxer de vida os individuos. É a tentação da vida, que surte no corpo, após seu conhecimento da decisão pela não vida. Portanto, a tentação pela riqueza, assassinato, etc, nada mais é do que uma tentação reversa, uma obsessão que dá ilusão ao corpo que conseguirá um resquicio de vida eterna, de propósito. É uma esperança do corpo ao receber a noticia de sua própria miséria, da própria alma que não o consola e não o ampara para um bom caminho. Portanto, o corpo, ainda que decida seguir um rumo de vida certo e ate mesmo em adquirir aprendizado, ao ver a vida que nega reluzir nas riquezas, tem relances de insanidade, e por vezes persegue objetivos vazios, deixa-se levar pelas ilusões que o seu corpo cria como defesas de sua decisão que não sustenta em si, ou que não pode conceber em si. 
+
+### 2.10 A inveja generalizada
+
+Nada é mais importante para o homem do que sua própria vida, portanto, o niilista sente inveja, não de posses mas do propósito que os individus misturam a suas posses, aquisições, ou conquistas de forma que essa aparente conquista, pareça, para o niilista, o objeto de paz, ou que agregue a paz que procura em si.
+
 ### 2.10 A renúncia às coisas boas e a obsessão aleatória
 Se o niilista desconsidera sua vida finita e vazia de sentido, a tendência é não somente viver um luto, recusando as coisas boas, como também a recusa das dificuldades, missões, propósitos e tarefas que sejam difíceis, complexas, mas que sejam de sua responsabilidade. Isto é, o niilista não vê sentido no que se refere a “carregar suas cruzes”; ele simplesmente considera que, se não há continuidade para sua vida, o enfrentamento das dificuldades é despropositado; portanto, o próprio ato de enfrentar os obstáculos e cumprir suas responsabilidades afetivas e sociais lhe impõe um sentido que quer negar.
 
