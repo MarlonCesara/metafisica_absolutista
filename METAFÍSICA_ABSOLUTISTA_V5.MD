@@ -6758,6 +6758,23 @@ A tentação pela vida, que é a tentação reversa, não é a tentação da alm
 
 Nada é mais importante para o homem do que sua própria vida, portanto, o niilista sente inveja, não de posses mas do propósito que os individus misturam a suas posses, aquisições, ou conquistas de forma que essa aparente conquista, pareça, para o niilista, o objeto de paz, ou que agregue a paz que procura em si.
 
+
+### 2.10 O anseio por riquezas e a mente estrategista
+
+O niilista, em busca do seu alto valor, usa de uma frenezi, de uma obsessão que o faz tentar conseguir posses e bens materiais por caminhos faceis, que muitas vezes culminam em praticas que vão contra o outro, contra a saude do outro, sanidade e bem estar. Ao ser sonegado de seu auto valor, se encerra numa raiva a qual o cega até mesmo para a empatia natural ao outro.
+
+O niilista é capaz, neste surto de raiva, em ferir, magoar, se afastar ou vingar-se de forma a querer fazer o outro sentir o que ele sente na pele, ao encarar a ausencia de auto valor em si. A ausencia de auto amparo confere ao niilista não somente sentimetnos de angustia, mas uma grande falta de tranquilidade, bem estar interior. Em decorrencia da ausencia da tranquilidade mental, da harmonia entre o corpo e a alma, de forma que o instinto do corpo seja harmonico com os anseios da alma, no interim do desconforto anterior por um claro antagonismo dos desejos fisicos em contrasenso a vontade da alma, e em decorrrencia da nausea, do mal estar desse conflito, o niilista busca a solução no reluzir do ouro, no acumulo de bens, no confronto com a sociedade possuidor de uma posição social que julga superior. É o seu alivio, seu balsamo, o que lhe faz pensar-se de uma forma grande ainda que no ponto de vista material. 
+
+Para o niilista, a unica forma de auto valor é o material, portanto, o acumulo de bens, status ou posição de poder confere uma sensação de significado a sua existencia, que o faz fugir da constante luta interior em prol do significado verdadeiro. O niilista encontra uma certa tranquilidade em garantir um aparente salvação material, no sentido que pode atribuir o máximo de valor que sua visão materialista julga poder atribuido.  
+
+Essa visão materialista e a tentativa de saciar com o campo material as propriedades que sonega na alma, o faz fazer extrema questão de qualquer acumulo de bens, status, posição social por menor que seja. 
+
+Desta forma, surge arquétipos do niilista como o esrtategista, aquele que manipula com jogos emocionais, financeiros, etc. Ou o inquisidor, aquele que escravisa, que abusa de um poder lhe dado. 
+
+A mente puramente materialista do niilista, que tenta estreitar sua visão ao mundo material, projeta no mundo material uma conquista espiritual não ainda alcançada. Ou seja, o niilista projeta seu querer pela vida ausente, numa busca frenética pelo valor material, e ao valor daquilo que confere aos intintos.
+
+
+
 ### 2.10 A renúncia às coisas boas e a obsessão aleatória
 Se o niilista desconsidera sua vida finita e vazia de sentido, a tendência é não somente viver um luto, recusando as coisas boas, como também a recusa das dificuldades, missões, propósitos e tarefas que sejam difíceis, complexas, mas que sejam de sua responsabilidade. Isto é, o niilista não vê sentido no que se refere a “carregar suas cruzes”; ele simplesmente considera que, se não há continuidade para sua vida, o enfrentamento das dificuldades é despropositado; portanto, o próprio ato de enfrentar os obstáculos e cumprir suas responsabilidades afetivas e sociais lhe impõe um sentido que quer negar.
 
