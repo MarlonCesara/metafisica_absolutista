@@ -6164,6 +6164,19 @@ O niilista empenha-se com todas as suas forças em ocultar sua decisão, mascara
 
 ---
 
+### **PROPOSIÇÃO XLVIII: O DESESPERO EXISTENCIAL NA AUSENCIA DE EVANGELIZAÇÃO DO NIILISTA**
+
+
+Quando não é evidenciado os mecanismos de conversao para o niilista, este se encerra num desespero mediante a situação enclausurante de uma mentalidade sem mudança, e em muitas das vezes seu maior meio de expressão é por ações atrozes. Por ações desesperadoras, ou por tolas e obsessivas buscas materiais. Por vezes, o esclarecimento de mecanismos de conversão como os instaurados por Jesus, ajustamo o comportamento do niilista, aliviam sua sensação de enclausuramento, ou de aprisionamento numa mentalidade cortante.
+
+A não evangelização, portanto, soa como um ato contrário a vida do niilista, de forma que soe como uma conformidade e uma aceitação de seu estado de espírito auto anulatório. A não evangelização soa como uma tentativa de coagir ou reforçar a mania niilista ao invés de propor uma solução verdadeira para o individuo.
+
+Desta forma, a não envangelização, reforça o comportamento niiilista a agressividade, ao desespero, e a tentar provocar o outro a empatia de não se conformizar com seu estado de alienação de si mesmo ou com sua intenção de auto anulação. E o niilista tenta provocar essa forma de empatia no outro a fazer o mesmo que acha que o outro está fazendo a ele, incentivando seu estado de mal estar ou sua tendencia a morte.
+
+
+
+
+
 ### **PROPOSIÇÃO XLVIII: MECANISMOS PSICOLÓGICOS, FUGA E A ILUSÃO DO PODER**
 
 **1. A Redução ao Comportamento Animal e o Autoengano**
