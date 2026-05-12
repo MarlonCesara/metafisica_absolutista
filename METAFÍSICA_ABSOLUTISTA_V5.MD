@@ -7639,6 +7639,19 @@ Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilion�
 
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento niilista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
 
+### **A visão do niilista sobre a indiferencia alheia a seu estado de relutancia**
+
+O niilista enxerga a indiferença alheia a seu estado espíritual como um incentivo ao mesmo, como uma concordancia de que seu destino é o correto e que sua decisão condiz com a vontade de todos. Isto aumenta sua revolta, e o faz ate mesmo tomar uma retaliação, provoca uma intensa raiva. Ao perceber que, todos consideram sua decisão de sua vontade e estão conformizados em ter sua vida, segregando o conflito niilista, ou o considerando algo sem importancia.
+
+O niilista precisa, e carece de incetivo a saida de seu estado, de forma que, se sente menos agressivo e predisposto ao caos social quando é amparado por algum dogma que lhe forneça a esperança de saida de sua mentalidade, seja por meios naturais ou sobrenaturais. 
+
+Na ausencia de uma medida sobrenatural, o niilista intensifica sua busca frenetica por bens materiais ou meios de satisfazer sua vida de sentido. Portanto, sem evangelização, se tem o agravamento dos mecanismos de fuga niilistas a tomada da consiencia niilista.
+
+
+
+
+
+
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
 Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o niilista.
