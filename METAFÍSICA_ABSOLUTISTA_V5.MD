@@ -9404,7 +9404,25 @@ Essa mensagem é extremamente complexa, porém, se voce não qusier ter o trabal
 
 
 
+### Os dupla sintomática do niilista
 
+O obsessor é diferente do apatia.
+
+A apatia não tem um objetivo, não tem um desejo obsessivo pelo qual se pratica a anulação. Portanto, o individuo opera na anulação sendo obessivio de forma que é um ódio passional, um amor imcompreendido.
+
+A sintomatica do apatico, portanto é mais contundente, mais mordaz, mais evidente, sendo evidenciada em aatos insanos como o crime, o sequestro, atos de completa ausencia de empatia, que não evidenciam a desfiguração da capacidade de empatia humana, mas um alivio, um escape mental de uma pressão insuportavel, uma loucura.
+
+Já a sintomatica do obsessor é marcada por perseguições, objetivos assiudos e que podem prejudicar o individuo e os demais a sua volta, mas não com o mesmo impeto e loucura do apatico, o qual não mede mais esforços para demonstrar seu estado, não calculando mais ass ações de suas consequencias.
+
+Podemos citar o exemplo de pessoas encarceradas que roubam, sem medir as consequencias. Já o obsessivo, podemos citar pessoas que perseguem freneticamente um objetivo, ao ponto prejudicar colegas de trabalho com o mal falar, ou se exaurir de trabalhar com o uso de medicamentos nocivos para alcançar tal objetivo. Ou até mesmo a se auto sabotar com uso de substancias por um amor perdido.
+
+As atitudes do obsessor, aparentam mais ter medição das consequenciais, enquanto as do apatico aparentam ser medidas totalmente loucas e sem a reflexão. Pois, o corpo já não pode refletir sob um estado que no qual há a completa ausencia da esperança.
+
+E a esperança que faz com que o obsessor mantenha certo nível de auto controle, ao ponto de não cometer crimes ou atrocidades. Pois o material de sua auto anulação obsessiva, na qual ele esta no controle de forma ativa, ainda não lhe é um material que necessita ser segregado do consciente de forma momentanea ou lhe parece algo que ainda possa ser trabalhado e de certa forma digerido sem que o corpo distorça seu conteudo em ações, ou sem que seu corpo tenha que reprimir o conteudo.
+
+Portanto, a apatia é enloquecedora, pois não passa o individuo nenhum escape, nenhum sentimento de adquirir aprendizado para se livrar de tal situaçao, a apatia  dificilmente pode ser concebida ou aceita pelo consciente, sendo imediatamante transformada em repressão ou provocando reações anormais no comportamento, impensada e totalmente descabidas.
+
+Ou seja, o individuo apatico não manifesta um objetivo pelo qual sofreria para obter, mas manifesta a completa não objetivação, que é de certa forma um impeto ainda que passivo. É uma escolha ao passo que é um não escolher. O apatico se ve como uma pedra imovel, já o obsessivo se ve como alguém que tem um redirecionamento freavel pois está no controle de si de forma aativa e não passiva.
 
 
 
@@ -9560,12 +9578,6 @@ Para consolidar essa diferença em nossa estrutura metafísica, podemos traçar 
 Você tocou no ponto nevrálgico que une a ontologia estática à teologia dinâmica do seu tratado. O Indiferenciado é o que a realidade *é* em sua pureza; o Relativo é o que essa realidade *se torna* quando a Vida Absoluta (o Espírito) a toma como sua morada.
 
 Sendo o Relativo esse campo infinito de possibilidades à disposição da liberdade do Espírito, de que maneira podemos compreender o critério íntimo do Espírito ao escolher atualizar uma possibilidade fenomênica específica (o nosso universo, por exemplo) em detrimento das infinitas outras que permanecem suspensas?
-
-
-
-
-
-
 
 
 
