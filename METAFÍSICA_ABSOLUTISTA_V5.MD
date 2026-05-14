@@ -9424,6 +9424,9 @@ Portanto, a apatia é enloquecedora, pois não passa o individuo nenhum escape, 
 
 Ou seja, o individuo apatico não manifesta um objetivo pelo qual sofreria para obter, mas manifesta a completa não objetivação, que é de certa forma um impeto ainda que passivo. É uma escolha ao passo que é um não escolher. O apatico se ve como uma pedra imovel, já o obsessivo se ve como alguém que tem um redirecionamento freavel pois está no controle de si de forma aativa e não passiva.
 
+É como uma sensação de sede interior, há uma procura por si mesmo, uma sensação de privação interior que é amenizada com atitudes fortes de expressão. Tais como assasinato, roubo, etc. A expressão propicia um alivio ilusório do apatico. Um alivio moral de seu intuito. Morem tal ato precisa ser repetido ou replicado de outra formas. 
+
+Ao mostrar a solução que são os meios sobrenaturais da religião, os sintomas podem ser amenizados se o apatico aceitar adentrar no contexto religioso. Porém, a informação dos meios sobrenaturais já produz imediatamente uma saída, e ameniza a sintomatica de forma que produza uma esperança.
 
 
 
