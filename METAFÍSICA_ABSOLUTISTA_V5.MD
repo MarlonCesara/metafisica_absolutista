@@ -7365,6 +7365,8 @@ O corpo desaba sobre o pensamento niilista, o qual incorpora figuras de poder, a
 Portanto, o que gera a sede, que seria o que se chama de tentação pelas religiões, seria o querer de apoio, segurança, certeza, alegria, esperança, todos os sentimentos que dão paz ao corpo. A sede do humano pela vida, transcende tais sentimentos e afeta o intinto de auto preservação. Portanto, é um querer produndo, desmedido, até mesmo obsessivo pela auto salvação, pois o corpo interpreta o desejo de anulação da alma como risco eminente. 
 
 
+
+
 ### **A perca do auto valor niilista**
 
 Quando o indivíduo niilista percebe-se sem acreditar na própria liberdade, simula para si que as pessoas que acreditam em liberdade são mágicas, interpretando Jesus como um herói para quem não enxerga sentido na própria existência.
