@@ -7360,6 +7360,10 @@ Quando as formas de subsistencia da manutenção fisica do niilista acerca de su
 
 Sem recursos o niilista encontra expressões como o uso de substancias tóxicas, expressões atipica como mendigancia, ou uso de drogas baratas. O niilista, portanto, precisa converter suas formas de expressões, e, a perca de seu status, fortuna, ou meio de mascaramento causa grande pressão interior.
 
+O corpo desaba sobre o pensamento niilista, o qual incorpora figuras de poder, assume uma postura tola de perspcacia, figuras criminosas, uma figura jocosa que comemora o crime, conquistas materiais com uma risada vazia e despropositada. A tentação é a loucura. Enloquece, incorporar figuras maléficas, é devido a sede pela mudança interior. a sede é um querer do livramento da angustia, um querer da positividade que o individuo nao desenvolve em si, da segurança perdida pela falta de auto consolo, auto apoio.
+
+Portanto, o que gera a sede, que seria o que se chama de tentação pelas religiões, seria o querer de apoio, segurança, certeza, alegria, esperança, todos os sentimentos que dão paz ao corpo. A sede do humano pela vida, transcende tais sentimentos e afeta o intinto de auto preservação. Portanto, é um querer produndo, desmedido, até mesmo obsessivo pela auto salvação, pois o corpo interpreta o desejo de anulação da alma como risco eminente. 
+
 
 ### **A perca do auto valor niilista**
 
