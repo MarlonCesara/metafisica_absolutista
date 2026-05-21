@@ -6771,6 +6771,9 @@ A tentação pela vida, que é a tentação reversa, não é a tentação da alm
 
 Nada é mais importante para o homem do que sua própria vida, portanto, o niilista sente inveja, não de posses mas do propósito que os individus misturam a suas posses, aquisições, ou conquistas de forma que essa aparente conquista, pareça, para o niilista, o objeto de paz, ou que agregue a paz que procura em si.
 
+### 2.10 As ações niilistas disfarçadas
+
+O niilista oculta suas ações de expressão ou em direção a auto anulação, fazendo um mascaramento. Uma ultrapassagem perigosa é desfarçada de pressa. Um medicmento irregular dado a alguém é chamado de necessidade, portanto, a intenção pela destruição fica subjacente a bons pretextos. E muitas vezes passa desapercebida, desconfiada, porem, não totalmente entendivel por quem não enxerga o intuito niilista.
 
 ### 2.10 O anseio por riquezas e a mente estrategista
 
