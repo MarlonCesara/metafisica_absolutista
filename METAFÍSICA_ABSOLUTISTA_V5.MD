@@ -6773,7 +6773,7 @@ Nada é mais importante para o homem do que sua própria vida, portanto, o niili
 
 ### 2.10 As ações niilistas disfarçadas
 
-O niilista oculta suas ações de expressão ou em direção a auto anulação, fazendo um mascaramento. Uma ultrapassagem perigosa é desfarçada de pressa. Um medicmento irregular dado a alguém é chamado de necessidade, portanto, a intenção pela destruição fica subjacente a bons pretextos. E muitas vezes passa desapercebida, desconfiada, porem, não totalmente entendivel por quem não enxerga o intuito niilista.
+O niilista oculta suas ações de expressão ou em direção a auto anulação, fazendo um mascaramento. Uma ultrapassagem perigosa é desfarçada de pressa. Um medicmento irregular dado a alguém é chamado de necessidade, portanto, a intenção pela destruição fica subjacente a bons pretextos. E muitas vezes passa desapercebida, desconfiada, porem, não totalmente entendivel por quem não enxerga o intuito niilista. Opressão no trabalho é desfarçada de necessidade da empresa. Ofensas, são disfarçadas como uma magua expressa. Oportunação é desfarçada por pretextos tolos e razos. O niilista torna subjacente seus intuitos através de ações de dupla interpretação. Ao se investigar a real necessidade de tais ações se descobre que o niilista, entre duas opções, escolhe a que corrobora com seu intuito.
 
 ### 2.10 O anseio por riquezas e a mente estrategista
 
