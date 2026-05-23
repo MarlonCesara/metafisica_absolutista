@@ -7369,6 +7369,57 @@ Portanto, o que gera a sede, que seria o que se chama de tentação pelas religi
 
 
 
+### **O mascaramento niilista**
+
+O niilista, conforme seu intuito, tenta mascarar sua atenção, pois julga o apoio do próximo algo que lhe afasta de seu objetivo e ausencia de sentido interior. Portanto, é comum que o niilista afaste amizades, ou afaste de tarefas que o proporcionam sentido.
+
+O niilista, não podendo suportar a carga de seu próprio pensamento, se ve envolvido em obsessões, vira um verdadeiro tramador de estratégias de ganho de dinheiro. A pressão interior não expressa ou manifesta se converte muito mais facilmente em obsessões.
+
+Então há o niilista que de certa forma tenta denunciar seu suicidio para obter o convencimento alheio de sair de sua posição imovel interior, e há o niilista silencioso, que evidencia de forma mais forte os sintomas niilistas, pela consciencia não lidar sozinha com seu conteudo.
+
+Portanto, a ausencia de expressão, torna o corpo mais propoenso a expressão do niilisto como obsessoes, criminalidade, etc. 
+
+
+### **Poesia do niilista**
+
+Decidi partir, e ninguém viu. 
+Sou rigido comigo.
+
+De cada alegria tenho inveja.
+Tenho obsessões naquilo que parece dar felicidade ao outro.
+Tudo o que queria era a felicidade, que é sentir que viverei.
+
+Nessa minha sabotagem silenciosa, tenho vicios e disfarço de entretenimento.
+Tendo sede, essa sede de vida tento desfarçar, e ela reaparece em forma de tantas sedes.
+
+Vejo, as vezes, como visões delirantes, bens materiais relusirem como ouro, como momentos de gloria.
+Tento ser normal, mas essas ilusoes me dominam e gosto de acreditar nelas.
+
+Não quero que ninguém saiba meu intuito, pois tentarão me convencer do contrário.
+Se descobrirem, tentarei desfarçar de todas as formas. Pois minha decisão não tolera tentativas de convencimento.
+Tudo isso me mostra sentido e aumenta meu pesar.
+
+Mas confesso que se houver uma esperança, eu me sentiria bem.
+
+Me irrito ao me atrapalharem dos meus objetivos, quero acreditar em minhas ilusóes materiais.
+Quero pensar que minha sede tem solução material, pois isso torna mais facil lidar com ela.
+
+Anseio de todo meu ser pela vida eterna, e tento reprimir esse desejo todos os dias, mas é impossível conte-lo.
+Meu corpo grita socorro de minha alma, me torno rigido, intolerante, impaciente, porque há algo me incomodando todo o tempo.
+
+Me torno raivoso, insatisfeito, sempre descontentei, sem paz, porque minha alma é rigida com meu corpo, está a todo tempo me forçando
+a fazer algo que não quero coporralmente, sou prisioneiro de mim mesmo, sou segurado pela minha propria alma e esse é um carcere.
+
+Estou em carcere, aprisionado para os meus reais desejos, não gosto do conteudo dentro de mim, mas o sou. 
+Envio essa carta, não como pedido de socorro, mas como um alerta.
+
+Estou partindo e por isso não estou bem, fique longe de mim, caso se aproxime sinta a minha sede ou ouça minha expressão.
+Me controle se puder, e me impeça de partir se puder, me deixe só as vezes, me veja destruir tudo que tenho, mas ore por mim.
+
+Expresso minha inveja de quem está bem, em forma de palavras maldosas, comentários ruins, mas me perdoe, não posso conter a frustração
+da minha posição interior, entenda que é uma posição muito dura.
+
+
 
 ### **A perca do auto valor niilista**
 
