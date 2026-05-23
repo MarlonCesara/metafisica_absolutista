@@ -7419,6 +7419,16 @@ Me controle se puder, e me impeça de partir se puder, me deixe só as vezes, me
 Expresso minha inveja de quem está bem, em forma de palavras maldosas, comentários ruins, mas me perdoe, não posso conter a frustração
 da minha posição interior, entenda que é uma posição muito dura.
 
+Passei minha vida toda sem que ninguém visse me por dentro, sem que ninguém desconfiasse da minha intenção.
+Fico sozinho com meus pensamentos loucos, todos veem como são minhas ações, me julgam insano, louco, mas não conhecem o que penso.
+
+Até hoje ninguém me compreendeu, ninguém me convidou para a vida, algum amigo, familiar. Sei que Deus me convidou, mas ate agora nenhum humano foi tão humano
+a ponto de me compreender realmente.
+
+A humanidade as vezes falha em enxergar, as pessoas enxergam a superficie, mas ninguém me enxergou ate hoje.
+Niguém disse que minha sede é de Deus, e que sem Deus não viverei. Ninguém me disse que sou como sou porque anseio a vida eterna.
+
+
 
 
 ### **A perca do auto valor niilista**
