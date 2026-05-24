@@ -7474,6 +7474,8 @@ Não tente mudar minha mente criminosa, tente mudar o opressor dentro de mim. O 
 
 Há os que desejam naturalmente a riqueza pela própria personalidade, e a os sedentos que a alcançam pelo crime, pela exploração, por formas criminosas ainda, as vezes, nem consideradas crimes.
 
+É pela opressão, pelo crime, expressão o que sinto, provocando sofrimento, angustia, cansaço, e sensaçoes ruins que expresso o que sinto, e por um breve momento posso sentir um alívio temporário da sede, posso me sentir brevemente uma criança.
+
 
 
 
