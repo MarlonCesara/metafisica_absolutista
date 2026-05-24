@@ -7502,6 +7502,8 @@ Fico entrevado, escondidos nas beiradas da vida, nos becos dos bares blasfemante
 Sou a imcompreenssão social, sou o desacerto. Sou quem esccuta os sinos tocarem e teme o final. Sou quem olha os sorrisos com uma inveja sordida.
 Sou quem se lance e não voa como uma pena, não sonha, não vê nada alem de uma sede e uma revolta injustificada.
 
+Fico adepto de ódios que não sou meus, como tentativa de temporarizar, de focar emocionalemente o niilismo, de transforma-lo em magoa. Mas o niilismo é um ódio nao nomeado, não é um alvo, é uma total ausencia de vida, um estado de inercia total interior. Tento dizer que sou vingativo, revoltaado, que tenho uma causa social, mas isso é só mais um macarmento.
+
 
 ### **A perca do auto valor niilista**
 
