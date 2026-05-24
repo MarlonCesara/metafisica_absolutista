@@ -7476,6 +7476,12 @@ Há os que desejam naturalmente a riqueza pela própria personalidade, e a os se
 
 É pela opressão, pelo crime, expressão o que sinto, provocando sofrimento, angustia, cansaço, e sensaçoes ruins que expresso o que sinto, e por um breve momento posso sentir um alívio temporário da sede, posso me sentir brevemente uma criança.
 
+Eu ouço os sinos tocarem, as portas do céu se fechando conforme o tempo passa, tenho medo de meu destino horripilante, tento ser forte, tento me opor com orgulho, tento caçoar, zombar, mas sou fraco, me desmorono, quero qualquer consolo. 
+
+Minha alma tenta ser forte, mais forte que meu corpo, o qual desmorona, desfalece, objetiva bens materiais como um tolo, não se torna mais apto a viver em sociedade, pede socorro pelas suas tangentes, pois é refem de uma alma perversa.
+
+Sou forte, mas sou fraco. Sou impassível, implacavel, mas desfaleço mediante a qualquer consolo que reluz aos meus olhos como vestigio de salvação.
+
 
 
 
