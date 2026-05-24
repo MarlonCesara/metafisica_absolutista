@@ -7484,6 +7484,14 @@ Sou forte, mas sou fraco. Sou impassível, implacavel, mas desfaleço mediante a
 
 Quer aplacar minha sede realmente? Quer que tornar apto a viver em sociedade? Pois então, me de o que me deixa inconsciente ou o que me mude. As vezes substancias quimicas me fazem esquecer, ajudam a amortizaro o que sinto, me insensibilizam, e isso me torna mais apto, mais agradável para a sociedade.
 
+Sem o auxílio quimico, minha sede salta para outros locais, tento bancar o esperto, me dizer perspicaz, mas não sou uma figura patética que pratica o crime pensando que é inteligente, e nem um megalomaniaco, dificilmente o seria, minha sede é de Deus, de vida eterna. Sei que os meios os quais uso para conquistar dinheiro um dia serão descobertos, sei que esse castelo de ilusões irá cair, mas é o que eu preciso para suportar essa sede. Sobriamente, sem quimeras, ilusoes materiais que saltam aos meus olhos, a vida me é insuportável, e só me restaria o suicidio para me libertar dessa dor, dessa discrepancia absurda e gritante entre os desejos de meu corpo e minha alma.
+
+É absurdo para mim minha própria alma, seu desejo, é cruel, opressor, desanimador, desamparador, e meu corpo, as vezes, agindo sozinho, nada pode fazer, não pode conte-la, ainda que distorça a realidade, ainda que tente com substancias quimicas.
+
+Sou o pior inimigo de mim mesmo, sou meu próprio algoz, sou quem me assombra dia e noite. Sou o pior companheiro de solidão, na minha mente, está a maior perturbação. E é isso o que provoca o caos social.
+
+Não carreguem o peso de quem desistiu de tudo, mas também, façam algo, um gesto, uma palavra de esperança. Saiba que o niilismo existe, mas saiba que a liberdade é feliz, e cada um tem seu caminho. E, se fui livre um dia, fui feliz e fui eu mesmo.
+
 
 ### **A perca do auto valor niilista**
 
