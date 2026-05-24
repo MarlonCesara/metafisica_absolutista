@@ -7492,6 +7492,16 @@ Sou o pior inimigo de mim mesmo, sou meu próprio algoz, sou quem me assombra di
 
 Não carreguem o peso de quem desistiu de tudo, mas também, façam algo, um gesto, uma palavra de esperança. Saiba que o niilismo existe, mas saiba que a liberdade é feliz, e cada um tem seu caminho. E, se fui livre um dia, fui feliz e fui eu mesmo.
 
+Sou um morimbundo em meio a infinita riqueza, um infortunio em meio a tanta graça. Uma feiura em meio a infinita beleza.
+Sou o deslocamento, um murmurio entre sorrisos de felicidade, um grito de espanto em meio a calmaria do paraíso.
+Sou a sombra que adormeceu sua imagem, a visão distorcida no deserto enxergando um oasis em meio a uma sede sem fim.
+
+Sou meio assim, meio num canto as isoladas, meio oculto, meio calado, pois o que é exposto é bonito, e o que é escondido é feioso.
+Fico entrevado, escondidos nas beiradas da vida, nos becos dos bares blasfemantes, em locais que evidenciam minha vergonha como a prisão.
+
+Sou a imcompreenssão social, sou o desacerto. Sou quem esccuta os sinos tocarem e teme o final. Sou quem olha os sorrisos com uma inveja sordida.
+Sou quem se lance e não voa como uma pena, não sonha, não vê nada alem de uma sede e uma revolta injustificada.
+
 
 ### **A perca do auto valor niilista**
 
