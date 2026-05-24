@@ -7464,6 +7464,16 @@ a ponto de me compreender realmente.
 A humanidade as vezes falha em enxergar, as pessoas enxergam a superficie, mas ninguém me enxergou ate hoje.
 Niguém disse que minha sede é de Deus, e que sem Deus não viverei. Ninguém me disse que sou como sou porque anseio a vida eterna.
 
+Mas mesmo que me dissessem, serei o que sou.
+Desculpe se as vezes fico sedento pelo crime, pelo assassinato, pela manipulação.
+Se sou bilionário manipu-lo, se sou pobre mato. Faço o que está ao meu alance para me salvar, pois a sede de salvação é a maior sede de todas. É maior que a fome, a sede de agua e o alivio da dor. A sede de vida distorce minha mente, me faz acreditar em ilusoes, me faz querer imaginar ser uma criança, ter algum valor mediante a mim mesmo para parar de me trarar um objeto de descarte, uma poeira cosmica. 
+
+A sede mais insuportavel é de Deus, e por isso, sou criminosos, por isso sou internado no que chamam de prisão, sou inapto para conviver em sociedade, tamanha sede que sinto, e tamanha sede que distorce meus sentidos. Tamamnho o opressor que existe dentro de mim, meu inimigo interior que contraria todo meu corpo, que contraria seus instintos mais primitivos e o faz se afugentar em ilusões.
+
+Não tente mudar minha mente criminosa, tente mudar o opressor dentro de mim. O crime é meu alivio apenas, estou louco, inapto para a sociedade, da liberdade, não fui o premiado, pois não fiz bom uso. Uns ganham tudo, e outros perdem tudo e ficam objetivando migalhas de valor, de vida eterna, que são o reluzir das posses, status e bens materiais.
+
+Há os que desejam naturalmente a riqueza pela própria personalidade, e a os sedentos que a alcançam pelo crime, pela exploração, por formas criminosas ainda, as vezes, nem consideradas crimes.
+
 
 
 
