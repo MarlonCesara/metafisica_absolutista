@@ -7482,7 +7482,7 @@ Minha alma tenta ser forte, mais forte que meu corpo, o qual desmorona, desfalec
 
 Sou forte, mas sou fraco. Sou impassível, implacavel, mas desfaleço mediante a qualquer consolo que reluz aos meus olhos como vestigio de salvação.
 
-
+Quer aplacar minha sede realmente? Quer que tornar apto a viver em sociedade? Pois então, me de o que me deixa inconsciente ou o que me mude. As vezes substancias quimicas me fazem esquecer, ajudam a amortizaro o que sinto, me insensibilizam, e isso me torna mais apto, mais agradável para a sociedade.
 
 
 ### **A perca do auto valor niilista**
