@@ -7511,6 +7511,8 @@ Somente conseguiria desfrutar, viver uma vida normal, sem essa dor. É como perd
 
 Tudo que peço é que aceitem meu vicio, deixem-me conviver para que eu aprenda, aceitem quem eu sou, procuro a melhor maneira de adaptar meus sintomas. Procuro a melhor forma de estar perto de outros seres humanos. Procuro alguma forma de me salvar.
 
+Sou um desconcerto, ou vivo com base em desfarces, ou enlouqueço e pratico coisas insanas. Tento achar meu equilibrio, tento me equilibrar na sociedade. As pessoas não entendem, mas é impossível conviver com esses pensamentos, com essa decisão, a vida passa ser uma tentativa de desfarce, de adaptação. O niilismo é insuportável, é humanamente inviavel, insustentável pelo humano. Sou um constante desabar, desabo na loucura, no vicio, no crime, em obsessões. O peso que recai sobre mim não é comportado pela minha mente, que se retrai em desconsolo em meio a tantas fugas.
+
 
 ### **A perca do auto valor niilista**
 
