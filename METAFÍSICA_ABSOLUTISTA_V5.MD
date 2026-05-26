@@ -7513,6 +7513,14 @@ Tudo que peço é que aceitem meu vicio, deixem-me conviver para que eu aprenda,
 
 Sou um desconcerto, ou vivo com base em desfarces, ou enlouqueço e pratico coisas insanas. Tento achar meu equilibrio, tento me equilibrar na sociedade. As pessoas não entendem, mas é impossível conviver com esses pensamentos, com essa decisão, a vida passa ser uma tentativa de desfarce, de adaptação. O niilismo é insuportável, é humanamente inviavel, insustentável pelo humano. Sou um constante desabar, desabo na loucura, no vicio, no crime, em obsessões. O peso que recai sobre mim não é comportado pela minha mente, que se retrai em desconsolo em meio a tantas fugas.
 
+Se um dia isso parasse, iria sentir o primeiro relance de vida em mim, a realidade pareceria não virtual aos meus olhos, sentiria um consolo enorme, meu corpo se livraria do desespero de uma alma que lhe soa caótica, que nao pode controlar. Seria o choro intenso, como nascer novamenete, como voltar a ser criança. Seria um abraço no meu corpo oriundo da alma, do sobrenatural. Seria o despertar do sono, um pairar após a tempestade. Seria sublime, a primeira paz, o primeiro assossego da alma que me permitiria viver como todos vive. Sem vicios, sem subterfugios, sem loucura, sem confusão.
+
+Minha mente retornaria a sua sanidade, como um rompimento de uma represa dentro de mim, como o desabafar de um choro contido. Como um amigo interior, como uma harmonia sem fim entre meu corpo e minha alma. O bem estar seria indescritivel, o divino bem estar de uma vida simples e normal. Algo comum para muitos, mas extraordinário e invejavel para o niilista.
+
+O simples contemplar de uma paisagem em paz, vale mais do que o possuir do mundo inteiro sendo niilista. A paz valiosa está em qualquer movimento simples, em qualquer momento simplório.
+
+Sentir-se livre, parar de sentir-me como um paralitico dentro de mim mesmo, com uma vida virtual, como se observasse de uma vitrina o mundo, como se nao realmente estivesse operando, sendo guiado por um mar tempestuoso. Encontrar a mim mesmo, decidir-me por mim é como encontrar a enseada depois de um afogamento. É como abrir os olhos e sentir o solo firme do mundo real depois de estar preso num sonho do qual não poderia despertar. 
+
 
 ### **A perca do auto valor niilista**
 
