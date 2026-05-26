@@ -7504,6 +7504,13 @@ Sou quem se lance e não voa como uma pena, não sonha, não vê nada alem de um
 
 Fico adepto de ódios que não sou meus, como tentativa de temporarizar, de focar emocionalemente o niilismo, de transforma-lo em magoa. Mas o niilismo é um ódio nao nomeado, não é um alvo, é uma total ausencia de vida, um estado de inercia total interior. Tento dizer que sou vingativo, revoltaado, que tenho uma causa social, mas isso é só mais um macarmento.
 
+Sinto a dor de me perder aos poucos, todos os dias, um pouquinho de mim se vai, meu tempo se esgota. E essa é a pior dor que existe.
+Ainda que eu tenha muita inteligencia, e saiba disfarca-la em busca de uma vida normal, ainda que conseguisse vencer todos os sintomas, seria dependente de uma medicação continua, que me deixasse inconsciente e me permitisse ao menos ter um vida normal, como se nada estivesse aconteecendo de mim. Que me permitisse aproveitar a vida, de forma fria e implacavel, sabendo que deste proveito, lançarei mão eternamente.
+
+Somente conseguiria desfrutar, viver uma vida normal, sem essa dor. É como perder todos os sonhos, e viver na escuridão. Quero viver o dia todo entorpecido, ou viver o dia todo negando o que há de bom, ou até mesmo sendo guiado por ilusões.
+
+Tudo que peço é que aceitem meu vicio, deixem-me conviver para que eu aprenda, aceitem quem eu sou, procuro a melhor maneira de adaptar meus sintomas. Procuro a melhor forma de estar perto de outros seres humanos. Procuro alguma forma de me salvar.
+
 
 ### **A perca do auto valor niilista**
 
