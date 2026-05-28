@@ -7531,6 +7531,9 @@ Preciso de companhias, de alguém presente quando nem mesmo eu estou presente pa
 
 Para mim o outro é meu alimento para não enloquecer, preciso disfarçar a sede, mas também preciso fugir da loucura, fugir da vontade que tenho de acabar com esse sofrimento, de acabar com minha vida e eliminar de uma vez por todas esse paradoxo em mim.
 
+Nada pode deter meus sintomas, e, se deterem minha tentativa de lidar com esse estranho paradoxo, isso que me quebra em pedaços por dentro, isto que fragmenta meu ser em pedaços, não sei se continuaria vivo. Talvez aumentaria o vicio ou os personagens criminosos que incorporam, até mesmo a ilusão por dinheiro para tentar lidar comigo mesmo sozinho. E se nem isso desse certo, talvez morreria de alguma forma.
+
+Portanto, não é só a sede que me incomoda e distorce minha visão. Meu corpo também precisa lidar com o niilismo, não somente com os sintomas mas com a propría condição. Não é somente a sede, mas é as respostas emocionais de ser assim. A visão sobre mim me deprime, me tira a esperança, me diz coisas horríveis. 
 
 
 
