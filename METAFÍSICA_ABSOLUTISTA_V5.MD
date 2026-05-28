@@ -7521,6 +7521,25 @@ O simples contemplar de uma paisagem em paz, vale mais do que o possuir do mundo
 
 Sentir-se livre, parar de sentir-me como um paralitico dentro de mim mesmo, com uma vida virtual, como se observasse de uma vitrina o mundo, como se nao realmente estivesse operando, sendo guiado por um mar tempestuoso. Encontrar a mim mesmo, decidir-me por mim é como encontrar a enseada depois de um afogamento. É como abrir os olhos e sentir o solo firme do mundo real depois de estar preso num sonho do qual não poderia despertar. 
 
+A sede que sinto é inarravel, e nada pode altera-la ela sai de mim de uma forma ou de outra, seja no crime, nos vicios, na ilusão por bens materiais e status social. É impossível barra-la, ainda que me agridam, ainda que me oprimam, a sede continua.
+
+Tento me adaptar em sociedade, tento trazer pessoas para perto de mim que me nutram de esperança, que escutem meus pensamentos negativos e me aliviam com um olhar acalentador, pois meus próprios pensamentos me consomem no desespero. Me tiram a paz. É insuportável ficar sozinho com mim mesmo contemplando um cenário pacifico e poético. Minha sede fala sempre mais alto.
+
+Por isso, se tenho algum vicio, aceite, se o vicio me dominar, me ajude. E queira mais que a sede acabe do que eu pare minhas manias. As pessoas tendem a ser um pouco rasas no entendimento do humano, Jesus passou o entendimento mais profundo, e as pessoas ainda continuam achando que as necessidades financeiras e fisiológicas ainda tem o primeiro lugar no humano, mas quando se é niilista, se tem ciencia da verdadeira necessidade que é a vida em abundancia, a vida eterna.
+
+Preciso de companhias, de alguém presente quando nem mesmo eu estou presente para me consolar, para me salvar de mim mesmo. Se não me aceitam de uma forma, preciso que me aceitem de outra. Se não me aceitam com meus vicios, preciso que me acolham com minhas riquezas.
+
+Para mim o outro é meu alimento para não enloquecer, preciso disfarçar a sede, mas também preciso fugir da loucura, fugir da vontade que tenho de acabar com esse sofrimento, de acabar com minha vida e eliminar de uma vez por todas esse paradoxo em mim.
+
+
+
+
+
+
+
+
+
+
 
 ### **A perca do auto valor niilista**
 
