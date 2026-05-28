@@ -7535,12 +7535,11 @@ Nada pode deter meus sintomas, e, se deterem minha tentativa de lidar com esse e
 
 Portanto, não é só a sede que me incomoda e distorce minha visão. Meu corpo também precisa lidar com o niilismo, não somente com os sintomas mas com a propría condição. Não é somente a sede, mas é as respostas emocionais de ser assim. A visão sobre mim me deprime, me tira a esperança, me diz coisas horríveis. 
 
+Portanto, por vezes, escolho os sintomas que tenham melhor aceitação social. Que me permitam conviver com a sede, mas que também me permitam criar bons pensamentos com pessoas ao meu redor. Então a pergunta é: como a sociedade me aceitará? Alguém entorpecido? Ou alguém criminoso? Alguém iludido por bens materiais? De que forma a sociedade me molda? Qual a forma que me da maior atenção? Sou, por vezes, o que a sociedade quer que eu seja para que eu tenha convivio.
 
+Sou o que minhas condições sociais me propoem, minhas ações, em muitos momentos, são determinadas por quem me acolhe, por quem me enche de alguma positivade ou por qualquer esperança.
 
-
-
-
-
+Seja uma ideologia, um objetivo, uma proximidade, seja lá quem me der, preciso de pessoas. Preciso conviver com algo pesado demais, preciso expressar esse algo. Então, convivo, ajo, penso conforme quem me enche de animo de viver.
 
 
 
