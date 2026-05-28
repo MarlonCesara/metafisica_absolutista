@@ -7541,6 +7541,8 @@ Sou o que minhas condições sociais me propoem, minhas ações, em muitos momen
 
 Seja uma ideologia, um objetivo, uma proximidade, seja lá quem me der, preciso de pessoas. Preciso conviver com algo pesado demais, preciso expressar esse algo. Então, convivo, ajo, penso conforme quem me enche de animo de viver.
 
+Aprecio as luzes dos bens materiais, com um vislumbre, uma saciação quase que plena, porém fico irado quando tiram isso de mim, ao ponto de enloquecer, como um chacal obsesso chaqualho minha cabeça e abro minha boca com os olhos arregalados e um grito enloquecido ao me tirarem o reluzir dos bens materiais, onde deposito todo meu valor, o valor do pó que me considero ser, o pó breve e evanescente no qual deposito tudo que sou e todo meu conceito de auto valor.
+
 
 
 ### **A perca do auto valor niilista**
