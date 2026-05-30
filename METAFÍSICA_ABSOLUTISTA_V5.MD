@@ -7543,6 +7543,15 @@ Seja uma ideologia, um objetivo, uma proximidade, seja lá quem me der, preciso 
 
 Aprecio as luzes dos bens materiais, com um vislumbre, uma saciação quase que plena, porém fico irado quando tiram isso de mim, ao ponto de enloquecer, como um chacal obsesso chaqualho minha cabeça e abro minha boca com os olhos arregalados e um grito enloquecido ao me tirarem o reluzir dos bens materiais, onde deposito todo meu valor, o valor do pó que me considero ser, o pó breve e evanescente no qual deposito tudo que sou e todo meu conceito de auto valor.
 
+Por vezes, para mudar minha sintomatica é preciso de muita insistencia, pois não desisto facil quando acho um sintoma confortável, porém sigo a sintomática em direção aquilo que trás circulos, aquilo que me trás amparo social. Seja pela riqueza, ou pelos vícios. Aceitando eles minha riqueza e sendo obrigados a estar perto de mim, ou aceitando minha honestidade acompanhada de meus vicios. Seja lá como for, os sintomas se encaixam quando eu melhor me encaixo na sociedade. Eles se localizam quando eu me localizo em meio as pessoas, e vivo, ainda com a sintomatica, nutrido pela esperança ao meu redor.
+
+É possível que me desviem da sintomtica para altera-la, se sou obsecado por bens materiais, podem me fazer mais viciado, porem, isto se torna insuportavel se me rejeitarem, não posso ir em direção do sintoma que me faz ser rejeitado.
+
+Preciso das ilusões para me distrairem, mas preciso das pessoas para persistir acreditando nessas ilusões. É como um vicio, preciso do conteudo do vicio para saciar a sede de vida, mas preciso me alimentar para me manter vivo. Sendo eu, um bilionário manipulador, ou um morimbundo alcoolatra, minha expressão seja lá qual for, é cada olhar que faz enxergar em mim a esperança, algo que ainda pode viver, é cada pessoa que tenta enxergar minha humanidade que me faz persistir mesmo em todo meu auto engano.
+
+Esse terror, só se torna suportável, por que não estou sozinho, caso contrário, enlouqueceria.
+
+
 
 
 ### **A perca do auto valor niilista**
