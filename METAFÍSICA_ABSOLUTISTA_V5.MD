@@ -7551,6 +7551,8 @@ Preciso das ilusões para me distrairem, mas preciso das pessoas para persistir 
 
 Esse terror, só se torna suportável, por que não estou sozinho, caso contrário, enlouqueceria.
 
+Quando me forçam a abandonar minha mania, vicio ou sintoma, entre a conversão entre um sintoma e outro, a descrição é que sinto como se meu coração estivesse partido. É uma fragmentação, um romper do coração, como se estivesse sendo destruido. Quando sou obrigado a encarar o alem das aparencias, a perca das ilusões materiais, sinto o partir do coração, o desfragmentar da minha mais profunda motivação. É uma das piores sensações que um ser humano pode sentir. A auto anulação não atinge a mente somente, como um apagão, mas atinge a fonte dos desejos, o coração. Não é só um desejo pelo sono, é um desejo, um caminhar para a morte dos desejos. É algo mais terrível do que o imaginar do sono, é o imaginar da morte do coração. Pois até o sono, é um estado em que se deseja estar, mas a morte do próprio desejar é mais terrível do que qualquer imagem de sono eterno.
+
 
 
 
