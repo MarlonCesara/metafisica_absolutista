@@ -7557,6 +7557,8 @@ Ao ver do niilismo a vida terminará no pó, e me resta alcançar um vestigio de
 
 A velhice é a parte mais dolorosa para o niilista que foi pouco inceitivado ao verdadeiro significado, o tempo que parece se esgotar, para o niilista, serve como um impulssionamento, um desespero maior em direção ao significado efemero que procura nas riquezas.
 
+O niilismo é o orgulho em seu apice, o ódio que foi tamanho que se calou e perdeu-se de sua direção destruidora.
+
 
 ### **A perca do auto valor niilista**
 
