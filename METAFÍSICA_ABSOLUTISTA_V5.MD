@@ -7553,7 +7553,9 @@ Esse terror, só se torna suportável, por que não estou sozinho, caso contrár
 
 Quando me forçam a abandonar minha mania, vicio ou sintoma, entre a conversão entre um sintoma e outro, a descrição é que sinto como se meu coração estivesse partido. É uma fragmentação, um romper do coração, como se estivesse sendo destruido. Quando sou obrigado a encarar o alem das aparencias, a perca das ilusões materiais, sinto o partir do coração, o desfragmentar da minha mais profunda motivação. É uma das piores sensações que um ser humano pode sentir. A auto anulação não atinge a mente somente, como um apagão, mas atinge a fonte dos desejos, o coração. Não é só um desejo pelo sono, é um desejo, um caminhar para a morte dos desejos. É algo mais terrível do que o imaginar do sono, é o imaginar da morte do coração. Pois até o sono, é um estado em que se deseja estar, mas a morte do próprio desejar é mais terrível do que qualquer imagem de sono eterno.
 
+Ao ver do niilismo a vida terminará no pó, e me resta alcançar um vestigio de gloria, um subito momento de riqueza, para tentar atribuir algum significado, considerando que o único significado possível a material e o acumulo, é a única sombra de valor, de brilho, de esperança para o niilista. 
 
+A velhice é a parte mais dolorosa para o niilista que foi pouco inceitivado ao verdadeiro significado, o tempo que parece se esgotar, para o niilista, serve como um impulssionamento, um desespero maior em direção ao significado efemero que procura nas riquezas.
 
 
 ### **A perca do auto valor niilista**
