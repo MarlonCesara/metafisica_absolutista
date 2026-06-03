@@ -7560,6 +7560,15 @@ A velhice é a parte mais dolorosa para o niilista que foi pouco inceitivado ao 
 O niilismo é o orgulho em seu apice, o ódio que foi tamanho que se calou e perdeu-se de sua direção destruidora.
 
 
+
+
+
+### **O canto da bruxa da morte**
+
+O niilista entrou no vale, e lá havia uma senhora de cabelos grisalhos, olhar pérfido, grande escarnio e ao mesmo tempo um grande zelar. A criança entrou pela porta da casa dela, e ela preparou uma solução venenosa, agasalhou bem o pés da criança, e cantou um canto, como se a escuridão a acolhesse. A solução não fazia dormir, mas se direcionava ao coração, fazendo com que ele se 
+
+
+
 ### **A perca do auto valor niilista**
 
 Quando o indivíduo niilista percebe-se sem acreditar na própria liberdade, simula para si que as pessoas que acreditam em liberdade são mágicas, interpretando Jesus como um herói para quem não enxerga sentido na própria existência.
