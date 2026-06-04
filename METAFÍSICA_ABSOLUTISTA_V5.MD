@@ -339,7 +339,7 @@ No *Parmênides*, Platão exercita o pensamento para além das oposições simpl
 **Plotino** (204-270 d.C.), fundador do neoplatonismo, desenvolveu a primeira grande sistematização da transcendência assimétrica. Em suas *Enéadas*, o Uno (ou o Bem) está além do ser e do pensar; dele não se pode predicar nada, pois toda predicação o limitaria (VI, 9). O Uno é o **Indiferenciado Fundamental** do qual tudo emerge por processão, mas ele mesmo permanece inatingível e inesgotável — perfeita expressão da **Assimetria Fundacional**.
 
 Sobre o paradoxo, Plotino afirma: "O Uno é todas as coisas e nenhuma delas; princípio de todas as coisas, não é todas as coisas" (V, 2, 1). Esta linguagem paradoxal é necessária porque a linguagem comum, regida pela lógica aristotélica, é insuficiente para falar do Uno — aplicação do **Princípio da Inclusão do Paradoxo**.
-revisado até aqui
+
 **Proclo** (412-485 d.C.), em sua *Teologia Platônica*, desenvolve a doutrina da processão e do retorno, mostrando como o múltiplo emerge do uno e a ele retorna sem que o uno se altere — estrutura claramente assimétrica.
 
 **A Teologia Mística e a Via Negativa**
@@ -361,7 +361,7 @@ revisado até aqui
 
 **A Fenomenologia e a Abertura ao Indeterminado**
 **Edmund Husserl** (1859-1938), ao desenvolver o método fenomenológico, fala do "horizonte" que acompanha toda percepção — um pano de fundo indeterminado que não é ele mesmo percebido como objeto, mas que condiciona toda percepção determinada. Este conceito de horizonte aproxima-se do **Princípio da Indiferenciação Fundamental** como fundo do qual emergem as figuras determinadas.
-
+revisado até aqui
 **Martin Heidegger** (1889-1976), ao retomar a "diferença ontológica" entre Ser e ente, reabriu a questão de um pensar que não reduz o Ser a uma categoria entre outras. O Ser não é um ente, não pode ser determinado como "A" ou "não-A"; ele é o "nada" em relação aos entes, mas este nada não é mera ausência, é o próprio "velar-se" do fundamento — aplicação do **Princípio da Inclusão do Paradoxo** e da **Assimetria Fundacional**.
 
 **O Pensamento Contemporâneo e a Lógica do Indeterminado**
