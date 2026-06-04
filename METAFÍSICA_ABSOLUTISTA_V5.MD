@@ -7565,9 +7565,11 @@ O niilismo é o orgulho em seu apice, o ódio que foi tamanho que se calou e per
 
 ### **O canto da bruxa da morte**
 
-O niilista entrou no vale, e lá havia uma senhora de cabelos grisalhos, olhar pérfido, grande escarnio e ao mesmo tempo um grande zelar. A criança entrou pela porta da casa dela, e ela preparou uma solução venenosa, agasalhou bem o pés da criança, e cantou um canto, como se a escuridão a acolhesse. A solução não fazia dormir, mas se direcionava ao coração, fazendo com que ele se 
+O niilista entrou no vale, e lá havia uma senhora de cabelos grisalhos, olhar pérfido, grande escarnio e ao mesmo tempo um grande zelar. A criança entrou pela porta da casa dela, e ela preparou uma solução venenosa, agasalhou bem o pés da criança, e cantou um canto, como se a escuridão a acolhesse. A solução não fazia dormir, mas se direcionava ao coração, fazendo com que ele se partisse, mas não uma partição de dor, mas uma fragmentação do eu. O veneno percorria o corpo, sedava, e depois percorria as veias diretamente ao coração.
 
+A bruxa tinha ar de bondade, um sutil acolhimento, a mentira fatal, a mentira de que a morte é o esquecimento do ódio, do orgulho. A mentira que a morte é um remédio comum, sutil e pequeno, que basta algumas gotinhas daquele licor, que tudo seria apagado. A bruxa era a morte, e a morte se faz de bondosa, se disfarça de acolhedora, tenta amenizar seus efeitos, tenta se passar por correta, tenta se disfarçar de solução, mas não, para o coração que vive não faz sentido, e nunca fará. A morte não é solução alguma, é o apagão de toda a esperança.
 
+A bruxa derradeira espera na mata um desavisado, alguém que nunca ouvira um conselho, que nunca tenha feito uma prece, alguém sem amparo algum, jogado a própria sorte do desconhecimento da verdade, alguém que só escutou o ódio e não teve qualquer outra referencia. Alguém que queira acreditar em seu acalento, em seu carinho disfarçado de um ódio aterrador. No sono da morte que se passa por descanso, mas que é na verdade o terror, pois nem mesmo é sono, mas é a morte dos desejos.
 
 ### **A perca do auto valor niilista**
 
