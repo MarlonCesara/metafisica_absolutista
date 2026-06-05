@@ -563,24 +563,24 @@ Se no mundo determinado a existência de A é validada por sua não-confusão co
 Esta unidade garante que o fundamento não seja uma abstração (uma ideia vazia), mas a realidade mais concreta possível, pois nela não há hiato entre o pensamento e o fato.
 
 ---
-revisado
-## Eixo II: Dos Princípios Assimétricos à Causalidade do Indiferenciado
+
+## Eixo 2: Dos Princípios Assimétricos à Causalidade do Indiferenciado
 
 *Focando exclusivamente na transição da lógica para a causalidade dentro do estado de indiferenciação, analisamos a mecânica ontológica do indiferenciado em si.*
 
-### 4.4 A Identidade de Causa e Ser no Estado Pré-Distintivo
+### A Identidade de Causa e Ser no Estado Pré-Distintivo
 Diferente do mundo dos entes determinados (Proposição III), onde a causa da *existência* e a causa da *identidade* operam como vetores que sustentam uma coisa no tempo, no **Indiferenciado** essa distinção é logicamente impossível. 
 
 Se, pelo **Princípio da Indiferenciação Fundamental**, as distinções ainda não surgiram, não pode haver uma "forma" ou "essência" esperando para ser preenchida pela existência. No indiferenciado, o ato de ser e a determinação do que se é constituem uma unidade absoluta e indissociável.
 
 > **Tese:** No indiferenciado, a causalidade não é uma relação entre dois termos (causa e efeito), mas uma **auto-afirmação de estado**. Não se causa a existência de algo; a existência é a própria natureza daquele estado.
 
-### 4.5 O Colapso da Dualidade Causal
+### O Colapso da Dualidade Causal
 Ao aplicarmos os princípios da lógica assimétrica à causalidade, observamos uma transformação radical na estrutura da razão suficiente:
 * **Inexistência de Causa Externa:** Para que houvesse uma causa externa para o indiferenciado, seria necessário que houvesse uma distinção entre "causador" e "causado". Como o indiferenciado antecede a distinção, ele não pode ser causado por algo que lhe seja exterior.
 * **Indistinção entre Essência e Existência:** Em um objeto determinado (como uma cadeira), podemos separar o conceito (essência) do objeto físico (existência). No indiferenciado, essa separação violaria o **Princípio da Assimetria Fundacional**. O fundamento não possui "partes" ou "propriedades" que possam ser causadas separadamente. 
 
-### 4.6 A Causalidade como Emanação, não como Fabricação
+### A Causalidade como Emanação, não como Fabricação
 Enquanto a causalidade simétrica (mundo dos entes) funciona por **transmissão** (uma bola de bilhar movendo outra), a causalidade no indiferenciado funciona por **presença**.
 * **Unilateralidade:** O indiferenciado é causa de toda determinação posterior, mas as determinações não reagem sobre o indiferenciado.
 * **Sustentação Imunizante:** A causalidade do indiferenciado garante que, embora as coisas mudem no nível determinado, o fundo indiferenciado permaneça íntegro. É o **Princípio da Manifestação Não Disruptiva** aplicado à causa: o surgimento do múltiplo não fragmenta a unidade do fundo.
@@ -589,7 +589,7 @@ Enquanto a causalidade simétrica (mundo dos entes) funciona por **transmissão*
 
 ## Quadros Sintéticos e Comparativos
 
-Para organizar o escopo estrutural das dinâmicas abordadas na Proposição IV, seguem as sínteses das mecânicas do indiferenciado frente ao determinado:
+Para organizar o escopo estrutural das dinâmicas abordadas, seguem as sínteses das mecânicas do indiferenciado frente ao determinado:
 
 **Tabela 1: Síntese Ontológica para o Tratado**
 | Dimensão | Lógica da Determinação (Entes) | Lógica da Indiferenciação (Fundamento) |
@@ -619,7 +619,9 @@ A ideia de que a causalidade no indiferenciado é diferente nasce com o *Ápeiro
 Em sua análise sobre o "Um" (que aqui tratamos como o Indiferenciado), Plotino demonstra nas *Enéadas* (VI, 8) que a vontade e o ser no fundamento são a mesma coisa. Ele argumenta que, se houvesse uma causa para o ser do fundamento, o fundamento não seria o primeiro. Portanto, a causalidade aqui é entendida como uma "superabundância" que emana sem perder a unidade.
 
 **A Teoria da Simplicidade Divina em Santo Agostinho**
-A proposição ecoa a doutrina da Simplicidade Divina presente em Santo Agostinho (*A Cidade de Deus*, Livro XI), que afirma que Deus não possui qualidades (como ser bom ou ser sábio) como algo "adicionado" ao seu ser; Ele **é** sua própria bondade e sabedoria. No Absoluto Metafísico, essa simplicidade é a consequência lógica da Indiferenciação Fundamental.
+A proposição ecoa a doutrina da Simplicidade Divina presente em Santo Agostinho (*A Cidade de Deus*, Livro XI), que afirma que Deus não possui qualidades (como ser bom ou ser sábio) como algo "adicionado" ao seu ser; Ele **é** sua própria bondade e sabedoria. 
+
+revisado
 
 **A Identidade de Essência e Ser em Avicena (Ibn Sina) e Tomás de Aquino**
 A distinção entre *essentia* e *esse* foi central na filosofia medieval. Avicena argumentou que, em todos os seres criados, a existência é um acidente que se acrescenta à essência. Embora a tradição escolástica tenha usado Avicena para separar essência de existência nos seres contingentes, o ponto de partida de sua metafísica em *Al-Shifa* é que existe um estado onde a essência e a existência são **uma só coisa**. Contudo, ambos concordavam que no **Ser Necessário** (Deus/Absoluto), a essência **é** a existência. A Proposição IV sistematiza isso logicamente: se pudéssemos separar a existência da essência no fundamento, o fundamento seria dependente de um terceiro fator para uni-las, o que contradiz a natureza do que é primordial. Se não há diferenciação, não pode haver "fendas" entre o que a coisa é e o fato de ela ser.
