@@ -621,10 +621,8 @@ Em sua análise sobre o "Um" (que aqui tratamos como o Indiferenciado), Plotino 
 **A Teoria da Simplicidade Divina em Santo Agostinho**
 A proposição ecoa a doutrina da Simplicidade Divina presente em Santo Agostinho (*A Cidade de Deus*, Livro XI), que afirma que Deus não possui qualidades (como ser bom ou ser sábio) como algo "adicionado" ao seu ser; Ele **é** sua própria bondade e sabedoria. 
 
-revisado
-
 **A Identidade de Essência e Ser em Avicena (Ibn Sina) e Tomás de Aquino**
-A distinção entre *essentia* e *esse* foi central na filosofia medieval. Avicena argumentou que, em todos os seres criados, a existência é um acidente que se acrescenta à essência. Embora a tradição escolástica tenha usado Avicena para separar essência de existência nos seres contingentes, o ponto de partida de sua metafísica em *Al-Shifa* é que existe um estado onde a essência e a existência são **uma só coisa**. Contudo, ambos concordavam que no **Ser Necessário** (Deus/Absoluto), a essência **é** a existência. A Proposição IV sistematiza isso logicamente: se pudéssemos separar a existência da essência no fundamento, o fundamento seria dependente de um terceiro fator para uni-las, o que contradiz a natureza do que é primordial. Se não há diferenciação, não pode haver "fendas" entre o que a coisa é e o fato de ela ser.
+A distinção entre *essentia* e *esse* foi central na filosofia medieval. Avicena argumentou que, em todos os seres criados, a existência é um acidente que se acrescenta à essência. Embora a tradição escolástica tenha usado Avicena para separar essência de existência nos seres contingentes, o ponto de partida de sua metafísica em *Al-Shifa* é que existe um estado onde a essência e a existência são **uma só coisa**. Contudo, ambos concordavam que no **Ser Necessário** (Deus/Absoluto), a essência **é** a existência. A ultima proposição sistematiza isso logicamente: se pudéssemos separar a existência da essência no fundamento, o fundamento seria dependente de um terceiro fator para uni-las, o que contradiz a natureza do que é primordial. Se não há diferenciação, não pode haver "fendas" entre o que a coisa é e o fato de ela ser.
 
 **O Conceito de Substância Única e a Causa Sui de Spinoza**
 Embora Spinoza utilize o termo substância, sua lógica de *Causa Sui* (Causa de si mesmo) é o pilar desta proposição. Baruch Spinoza, em sua *Ética* (Parte I, Definição 1), define a Causa de Si como "aquilo cuja essência envolve a existência". Para Spinoza, no nível da substância única, não existe "vontade" ou "designio" separado do ser. A causalidade é a própria necessidade geométrica do ser existindo; não há um "porquê" separado do "que". No nível do indiferenciado, a causalidade deixa de ser um vetor externo (A move B) e passa a ser uma afirmação intrínseca de potência pura.
@@ -646,7 +644,7 @@ A separação entre essência e existência é uma ferramenta analítica necess�
 
 Fica demonstrado que o regime causal do indiferenciado não obedece às leis da mecânica ou da sucessão temporal dos entes. Nele, **causar e ser são sinônimos**. Essa indistinção é o que permite que o indiferenciado sirva de fundamento para todas as realidades determinadas, sem nunca se tornar, ele mesmo, um objeto sujeito às mesmas limitações de causa e efeito.
 
-Em suma, enquanto o mundo dos objetos exige causas externas e distintas para sua forma e vida, o **Absoluto é o ponto de convergência total**. Nele, a lógica assimétrica revela que ser e causar são o mesmo ato. Esta unidade é o que garante que o Absoluto seja o sustentáculo inabalável de todas as realidades que, no mundo manifesto, aparecem divididas e fragmentadas.
+revisado
 
 
 
@@ -665,75 +663,23 @@ Em suma, enquanto o mundo dos objetos exige causas externas e distintas para sua
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# PROPOSIÇÃO IV: DOS PRINCÍPIOS ASIMÉTRICOS AOS PRINCÍPIOS CAUSAIS - A INDISTINÇÃO ENTRE CAUSA E SER
-
-> Para que definamos uma causa para uma realidade indiferenciada, isto é, uma realidade que foge aos princípios da lógica clássica, não haverá, portanto, causa para a determinação que se separe da causa da existência. Mas a causa é sobre o indiferenciado, sobre uma única essência. No indiferenciado, a determinação e a existência são indissociáveis.
-
----
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-## Eixo III: A Indistinção Entre Causa e Ser no Absoluto
-
-*Esta etapa completa a transição iniciada na Proposição III. Enquanto no mundo dos entes a existência e a identidade são categorias que exigem causas distintas, no plano do Absoluto essa dualidade colapsa. A lógica assimétrica revela que a origem de tudo não é um "objeto", mas a própria Identidade da Existência.*
-
-### 4.7 A Unidade Radical no Indiferenciado
+### A Unidade Radical no Indiferenciado
 No domínio da lógica clássica (simétrica), operamos com a distinção entre **essência** (*o que algo é*) e **existência** (*que algo é*). Um círculo tem a essência de ser redondo, mas ele pode ou não existir no papel. Contudo, ao aplicarmos os Princípios da Lógica Assimétrica — especificamente o **Princípio da Indiferenciação Fundamental** —, chegamos a um ponto onde essa separação se torna impossível.
 
 Para o **Indiferenciado**, não existe uma causa para a sua "forma" que seja diferente da causa do seu "ser". Ele não "recebe" a existência como um molde recebe o gesso; ele **é** o ato puro de existir.
 
 > **Definição:** No Absoluto, a Determinação e a Existência são indissociáveis. A Causa não produz o Ser; a Causa **é** o Ser em sua unidade primordial.
 
-### 4.8 O Colapso das Causas no Absoluto
-Diferente dos entes contingentes descritos na Proposição III, o Fundamento Absoluto (o Indeterminado) reconfigura os princípios causais em uma **Identidade Única**:
+### O Colapso das Causas no Absoluto
+Diferente dos entes contingentes, o Fundamento Absoluto (o Indeterminado) reconfigura os princípios causais em uma **Identidade Única**:
 
-#### 4.8.1 Causa Existencial e Identitária Unificada
+#### Causa Existencial e Identitária Unificada
 Se o Absoluto é indiferenciado, ele não possui partes ou atributos separados. Portanto, a razão pela qual ele *é* (Causa Existencial) é rigorosamente a mesma razão pela qual ele é *quem é* (Causa Identitária). Sua essência é a sua própria existência.
 
-#### 4.8.2 Causa Continuada como Autossustentação
+#### Causa Continuada como Autossustentação
 Enquanto o ente temporal precisa ser "segurado" no ser para não cair no nada, o Indiferenciado — por estar fora do fluxo da disformidade (¬(A=B)) — não persiste no tempo, mas sustenta o próprio tempo. Ele é a **Causa Sui** (Causa de si mesmo), onde o sustento e o sustentado são um só.
 
-### 4.9 O Princípio da Emanação Assimétrica
+### O Princípio da Emanação Assimétrica
 A transição do Indiferenciado (Causa Una) para o Determinado (Múltiplos Entes) ocorre segundo o **Princípio da Assimetria Fundacional**.
 * **A Causa não se esgota:** Ao dar origem ao mundo determinado, o Indiferenciado não se "transforma" em mundo (o que violaria sua essência), mas sim **emana**.
 * **Não-Reciprocidade:** O mundo determinado depende totalmente da Causa Indiferenciada para ter existência e identidade, mas a Causa Indiferenciada não recebe nada dos entes. Ela permanece plena em sua indistinção.
@@ -778,6 +724,21 @@ A transição do Indiferenciado (Causa Una) para o Determinado (Múltiplos Entes
 
 
 
+
+
+
+Em suma, enquanto o mundo dos objetos exige causas externas e distintas para sua forma e vida, o **Absoluto é o ponto de convergência total**. Nele, a lógica assimétrica revela que ser e causar são o mesmo ato. Esta unidade é o que garante que o Absoluto seja o sustentáculo inabalável de todas as realidades que, no mundo manifesto, aparecem divididas e fragmentadas.
+
+
+# PROPOSIÇÃO IV: DOS PRINCÍPIOS ASIMÉTRICOS AOS PRINCÍPIOS CAUSAIS - A INDISTINÇÃO ENTRE CAUSA E SER
+
+> Para que definamos uma causa para uma realidade indiferenciada, isto é, uma realidade que foge aos princípios da lógica clássica, não haverá, portanto, causa para a determinação que se separe da causa da existência. Mas a causa é sobre o indiferenciado, sobre uma única essência. No indiferenciado, a determinação e a existência são indissociáveis.
+
+---
+
+## Eixo III: A Indistinção Entre Causa e Ser no Absoluto
+
+*Esta etapa completa a transição iniciada na Proposição III. Enquanto no mundo dos entes a existência e a identidade são categorias que exigem causas distintas, no plano do Absoluto essa dualidade colapsa. A lógica assimétrica revela que a origem de tudo não é um "objeto", mas a própria Identidade da Existência.*
 
 
 
