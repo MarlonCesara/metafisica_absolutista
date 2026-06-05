@@ -7571,6 +7571,10 @@ A bruxa tinha ar de bondade, um sutil acolhimento, a mentira fatal, a mentira de
 
 A bruxa derradeira espera na mata um desavisado, alguém que nunca ouvira um conselho, que nunca tenha feito uma prece, alguém sem amparo algum, jogado a própria sorte do desconhecimento da verdade, alguém que só escutou o ódio e não teve qualquer outra referencia. Alguém que queira acreditar em seu acalento, em seu carinho disfarçado de um ódio aterrador. No sono da morte que se passa por descanso, mas que é na verdade o terror, pois nem mesmo é sono, mas é a morte dos desejos.
 
+O dialogo em que afirma que a decisão é natural ao homem, portanto qualquer consequencia da liberdade é feliz, em vista que, o homem foi livre para decidir, é apenas uma paificação falsa de um destino aterrador. O dialogo que afirma que o individuo ao encontrar sua auto destruição encontrou sua paz, pois assim decidiu, não está de acordo com a compaixão e com as profundas aspirações do coração humano.
+
+Portanto, o dialogo, do niilismo, por vezes, vem mascarado de uma falsa conformidade, de uma mentira aparentemente calorosa de que assim se quis e assim se fez, um dialogo sem esperança.
+
 ### **A perca do auto valor niilista**
 
 Quando o indivíduo niilista percebe-se sem acreditar na própria liberdade, simula para si que as pessoas que acreditam em liberdade são mágicas, interpretando Jesus como um herói para quem não enxerga sentido na própria existência.
