@@ -7495,10 +7495,27 @@ A velhice é a parte mais dolorosa para o niilista que foi pouco inceitivado ao 
 O niilismo é o orgulho em seu apice, o ódio que foi tamanho que se calou e perdeu-se de sua direção destruidora.
 
 
+### **O desespero e o naufrago niilista**
+
+Na nausea corporea de não poder fugir da própria mente, de não poder escapar dos próprios pensamentos, de estar em um carcere mental e sem janelas. O corpo, sente-se prisioneiro de uma mente pessimista.
+
+A mente do niilismo soa como uma prisão sem sol, quando o niilista se cansa, quando sua sintomática já não resolve, quando sua consciencia o arremessa contra sua cruel posição inerte, o corpo, reage com uma nausea, um cansaço extremo, uma tentativa de fuga inevitavel e nisso o niilista recorre a saídas fantasiosas, a ilusões, procura matar, roubar, fraudar, aquilo que lhe parece uma saída de sua mente entorpecida, de sua mente pessimista. 
+
+O niilista se sente numa cabine apertada dentro de sua mente, não pode escapar dessa cabine se não pelas brechas das ilusões, o corpo reage em uma grande violencia interior em sinal da busca das ilusões, seja ela atitudes fortes ou mais aceitáveis socialmente. Isto é o niilista mostrando a falta de visão de janelas, o abafamento de sua própria mente, as ilusões são seu arejar, são uma vista para fora ainda que fantasiosa. 
+
+O corpo do niilista é uma bomba que implode em si, que se auto engana e se auto distroi para fugir do desespero da caustrofobia. Para fugir de um aperto constante de pensar o que pensa. De um coração a todo tempo apertado, temeroso e inseguro.
+
+Num ato de tentativa de descape o niilista mata, pratica qualquer crime em busca de riqueza. E o desespero é imparavel, só se acalenta intorpecido. Se não pode se intorpecer, busca ilusões.
+
+Há duas frestas que aparentam passar um pouco de luz, o completo entorpecimento ou a ilusão. 
 
 
 
-### **O canto da bruxa da morte**
+
+
+
+
+### **A falsa doutrina da eufemização do niilismo**
 
 O niilista entrou no vale, e lá havia uma senhora de cabelos grisalhos, olhar pérfido, grande escarnio e ao mesmo tempo um grande zelar. A criança entrou pela porta da casa dela, e ela preparou uma solução venenosa, agasalhou bem o pés da criança, e cantou um canto, como se a escuridão a acolhesse. A solução não fazia dormir, mas se direcionava ao coração, fazendo com que ele se partisse, mas não uma partição de dor, mas uma fragmentação do eu. O veneno percorria o corpo, sedava, e depois percorria as veias diretamente ao coração.
 
@@ -7510,6 +7527,8 @@ O dialogo em que afirma que a decisão é natural ao homem, portanto qualquer co
 
 Portanto, o dialogo, do niilismo, por vezes, vem mascarado de uma falsa conformidade, de uma mentira aparentemente calorosa de que assim se quis e assim se fez, um dialogo sem esperança.
 
+A bruxa é a eufemização do niilismo que passa por uma escolha natural da liberdade e que termina feliz, pois foi da escolha do individuo. 
+
 ### **A perca do auto valor niilista**
 
 Quando o indivíduo niilista percebe-se sem acreditar na própria liberdade, simula para si que as pessoas que acreditam em liberdade são mágicas, interpretando Jesus como um herói para quem não enxerga sentido na própria existência.
@@ -7519,6 +7538,12 @@ Essa visão niilista destitui o indivíduo de todo seu auto valor, tornando-o um
 Portanto, o indivíduo, ainda que não tenha um nível de cultura suficiente para tirar proveito de uma grande quantia de dinheiro, e ainda que o objeto de desejo que trará o dinheiro não seja de seu interesse, busca incessantemente a perda do auto valor que o dinheiro pode conceder a ele.
 
 Portanto, o indivíduo luta e busca pelo dinheiro com a mesma garra e intensidade que faria para proteger sua vida, não importando-se nem mesmo com a própria sobrevivência. A obsessão, sendo cessada na dificuldade do indivíduo de encontrar alívio para sua perda do auto valor, leva o indivíduo a usar mecanismos como o abuso de drogas, visões artificiais que lhe conferem alívio semelhante ao que a posse material lhe proporcionaria.
+
+
+
+
+
+
 
 ### **O desassossego niilista**
 
