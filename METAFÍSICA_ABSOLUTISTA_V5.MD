@@ -7509,7 +7509,13 @@ Num ato de tentativa de descape o niilista mata, pratica qualquer crime em busca
 
 Há duas frestas que aparentam passar um pouco de luz, o completo entorpecimento ou a ilusão. 
 
+O niilista clama pela luz, pela luz que transgrita a barreira espessa de sua mente, pela chave que decodifique seu coração indecifravel, pela luz que penetre em sua forteleza, o niilista necessita clamar, necessita da misericordia de Deus.
 
+Necessita da sensação de liberdade, de sorrir, de parar de depositar seu peso no mundo. De tornar-se suportavel para si mesmo. 
+
+O niilista reflete consigo mesmo, se pudesse descrever rexatamente o que sente, de assumir para si mesmo sua prisão:
+
+- Procuro a chave que me destranca. Procuro um pouco de luz. Faz tanto tempo que não vejo a luz, que a projeto, que em um delirio de loucura penso ser livre do que me amedronta, vivo dos pequenos momentos de euforia onde me imagino livre. Se não me entorpeco, se não me deleito em ilusões, não sou eu, não pertenco a nada, não vivo. 
 
 
 
