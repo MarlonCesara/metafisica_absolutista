@@ -411,20 +411,18 @@ revisado até aqui
 
 Para estruturar a correlação entre essas instâncias formalmente, integrando a visão do nada como uma existência relacional e insustentável por si mesma, estabelecemos os seguintes princípios lógicos de dependência:
 
-**1. Definição por Referência e Negação (Ontologia Relacional e Privativa)**
-O **"determinado"** (as coisas, as formas, os entes) é a atualização de uma potencialidade e requer o **"indeterminado"** (o fundamento, o Absoluto) como sua fonte e referência primordial. De modo estritamente paralelo, o **"nada"** não é uma ausência absoluta, mas uma **negação determinada**. Ele opera exclusivamente como a não-expressão de um ente (A). O nada só existe como contraparte de algo manifesto, sendo inteiramente determinado pelo que nega.
+**Definição por Referência e Negação (Ontologia Relacional e Privativa)**
+O **"determinado"** (as coisas, as formas, os entes) é a atualização ou ação de uma potencialidade e requer o **"indeterminado"** (o fundamento, o Absoluto) como sua fonte e referência primordial. De modo estritamente paralelo, o **"nada"** não é uma ausência absoluta, mas uma **negação determinada**. Ele opera exclusivamente como a não-expressão de um ente (A). O nada só existe como contraparte de algo manifesto, sendo inteiramente determinado pelo que nega.
 
-* *Exemplos:* A escuridão é a não-luz; o silêncio é a não-vibração sonora.
+* *Exemplo:* A escuridão é a não-luz; o silêncio é a não-vibração sonora. 
+* *Exemplo:* Ao afirmarmos o determinado, pressupomos uma ação sobre o indeterminado. Pois, se algo é definido como determinado, isso implica que houve um princípio determinante que o estabeleceu.
 
-**2. Referencialidade Obrigatória e Parasitismo Lógico**
+**Referencialidade Obrigatória e Parasitismo Lógico**
 O estado derivado ou relativo jamais existe por si mesmo; ele é sempre um eco de seu referencial primário. Não há manifestação do determinado sem o fundo indeterminado que a sustente. Analogamente, o nada possui um caráter ontologicamente **parasitário**: não há "nada" absoluto sem a relação dialética com o **"nadificado"** (a coisa prévia ou possível da qual o nada é a negação).
 
 * *Exemplo:* A ausência de luz solar pressupõe necessariamente a luz solar como conceito ou realidade. O silêncio pressupõe o som como uma categoria possível.
 
-**3. Assimetria Direcional, Impossibilidade de Autofundação e Autoaniquilação**
-O fluxo de dependência é estruturalmente unilateral. Enquanto o indeterminado (Absoluto) é autocausado e autossuficiente — existindo independentemente do determinado —, o nada é **heterodeterminado** (sua definição depende do outro). Ele é apenas uma sombra projetada pela luz do Ser. Tentar afirmar o nada como uma realidade ou princípio independente gera um **paradoxo autoaniquilante**: ao ser afirmado como entidade autônoma, ele se transforma paradoxalmente em "algo", destruindo sua própria definição formal.
-
-**4. Coexistência Excludente e Limite Conceitual**
+**Coexistência Excludente e Limite Conceitual**
 O determinado e o indeterminado operam pela lógica assimétrica da **Inclusão** (onde o fundo contém a figura silenciosamente). Já o nada e o nadificado operam por **Oposição Negativa**. Se a manifestação (A) e o nada (B) fossem potenciais opostos num mesmo espaço, eles não poderiam coexistir, pois o nada perderia sua definição caso abrigasse qualquer latência ou traço de manifestação. O nada atua apenas como um limite conceitual dentro do campo do Ser, nunca como sua alternativa.
 
 * *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
@@ -445,7 +443,18 @@ A tabela a seguir consolida as relações de interdependência, demonstrando que
 
 > *"O nada é a negação que revela, por oposição, a primazia irredutível do Ser. Sua própria ideia é um testemunho involuntário da realidade que pretende negar."*
 
-# PROPOSIÇÃO III: DOS PRINCÍPIOS SIMÉTRICOS AOS PRINCÍPIOS CAUSAIS
+
+
+
+
+
+
+revisado
+
+
+
+
+# DOS PRINCÍPIOS SIMÉTRICOS AOS PRINCÍPIOS CAUSAIS
 
 ## 4.1 Introdução: A Transição da Lógica para a Metafísica
 
@@ -9824,3 +9833,25 @@ Sendo o Relativo esse campo infinito de possibilidades à disposição da liberd
 ### Anúncio
 
 A metafísica absolutista nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafisica absolutista explica porque em uma sociedade que ja existe inteligencia artificial e que o hommem ja explorou o espaço, como pode nessa sociedade ainda existir miseria, no sentido de que, o homem é capaz de chegar a lua, mas não é capaz de fazer comida chegar a quem precisa, porque isso ainda acontece, qual é a razão disso? E a metafisica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do alem, as palavras de jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão, o objetivo do absolutismo é aproximar esse conhecimento verdadeiro do homem, trazer a tona a verdade para que o cenario social se modifique, para que, havendo o conhecimento pleno da alma humana se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violencia, através do verdadeiro conhecimento.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+**3. Assimetria Direcional, Impossibilidade de Autofundação e Autoaniquilação**
+O fluxo de dependência é estruturalmente unilateral. Enquanto o indeterminado (Absoluto) é autocausado e autossuficiente — existindo independentemente do determinado —, o nada é **heterodeterminado** (sua definição depende do outro). Ele é apenas uma sombra projetada pela luz do Ser. Tentar afirmar o nada como uma realidade ou princípio independente gera um **paradoxo autoaniquilante**: ao ser afirmado como entidade autônoma, ele se transforma paradoxalmente em "algo", destruindo sua própria definição formal.
