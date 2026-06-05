@@ -361,7 +361,7 @@ Sobre o paradoxo, Plotino afirma: "O Uno é todas as coisas e nenhuma delas; pri
 
 **A Fenomenologia e a Abertura ao Indeterminado**
 **Edmund Husserl** (1859-1938), ao desenvolver o método fenomenológico, fala do "horizonte" que acompanha toda percepção — um pano de fundo indeterminado que não é ele mesmo percebido como objeto, mas que condiciona toda percepção determinada. Este conceito de horizonte aproxima-se do **Princípio da Indiferenciação Fundamental** como fundo do qual emergem as figuras determinadas.
-revisado até aqui
+
 **Martin Heidegger** (1889-1976), ao retomar a "diferença ontológica" entre Ser e ente, reabriu a questão de um pensar que não reduz o Ser a uma categoria entre outras. O Ser não é um ente, não pode ser determinado como "A" ou "não-A"; ele é o "nada" em relação aos entes, mas este nada não é mera ausência, é o próprio "velar-se" do fundamento — aplicação do **Princípio da Inclusão do Paradoxo** e da **Assimetria Fundacional**.
 
 **O Pensamento Contemporâneo e a Lógica do Indeterminado**
@@ -378,21 +378,36 @@ A lógica assimétrica encontra eco não apenas na tradição ocidental, mas em 
 * **No Budismo**, especialmente na escola Madhyamaka de Nagarjuna, desenvolve-se uma lógica do vazio (*sunyata*) que opera pela negação de todas as posições fixas: "nem ser, nem não-ser, nem ambos, nem nenhum". Esta "lógica do meio" é uma aplicação radical do **Princípio da Inclusão do Paradoxo**.
 * **No Taoísmo**, o *Tao Te Ching* de Lao Tsé abre com a afirmação: "O Tao que pode ser nomeado não é o Tao eterno". O Tao é descrito como vazio, indeterminado, mãe de todas as coisas — perfeita expressão da **Indiferenciação Fundamental** e da **Assimetria Fundacional**.
 
-**Síntese da Fundamentação**
-1. **Dos pré-socráticos** (Anaximandro, Heráclito) herdamos a intuição do indeterminado como princípio e da unidade dos opostos.
-2. **De Platão e do neoplatonismo** (Plotino, Proclo) herdamos a estrutura assimétrica da realidade: o Uno transcende o que dele procede.
-3. **Da teologia mística** (Pseudo-Dionísio, Máximo, Eckhart) herdamos o método apofático e a distinção entre fundamento e manifestação.
-4. **De Nicolau de Cusa** herdamos a formulação explícita da coincidência dos opostos.
-5. **Da filosofia moderna** (Schelling, Heidegger) herdamos a retomada da questão do fundamento para além da metafísica clássica.
-6. **Da fenomenologia e do pensamento contemporâneo** (Husserl, Merleau-Ponty, Marion) herdamos ferramentas para pensar o horizonte, a carne, o inobjetivável.
-7. **Das tradições orientais** (Hinduísmo, Budismo, Taoísmo) herdamos a confirmação de que estas estruturas lógicas não são meramente ocidentais, mas apontam para uma experiência universal do fundamento.
-
 **Conclusão da Fundamentação**
 A **Lógica Assimétrica** aqui proposta não é uma invenção arbitrária, mas a formalização, em quatro princípios sistemáticos, de uma tradição filosófica e espiritual que sempre reconheceu os limites da razão discursiva diante daquilo que antecede toda determinação. Esta tradição — que atravessa culturas e milênios — ensina que o pensamento, para ser verdadeiro, precisa também aprender a calar-se diante do Mistério e, no silêncio, acolher uma Presença que nenhuma lógica simétrica pode encerrar.
 
 Os quatro princípios assimétricos — **Indiferenciação Fundamental, Inclusão do Paradoxo, Assimetria Fundacional e Manifestação Não Disruptiva** — são, portanto, a expressão lógica desta sabedoria perene, o instrumento pelo qual a razão pode, reconhecendo seus limites, abrir-se ao que os excede.
 
-# PROPOSIÇÃO III: ESTRUTURANDO A DEPENDÊNCIA DO INDETERMINADO
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+revisado até aqui
+
+
+# ESTRUTURANDO A DEPENDÊNCIA DO INDETERMINADO
 
 Para estruturar a correlação entre essas instâncias formalmente, integrando a visão do nada como uma existência relacional e insustentável por si mesma, estabelecemos os seguintes princípios lógicos de dependência:
 
