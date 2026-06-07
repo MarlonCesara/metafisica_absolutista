@@ -7517,6 +7517,13 @@ O niilista reflete consigo mesmo, se pudesse descrever rexatamente o que sente, 
 
 - Procuro a chave que me destranca. Procuro um pouco de luz. Faz tanto tempo que não vejo a luz, que a projeto, que em um delirio de loucura penso ser livre do que me amedronta, vivo dos pequenos momentos de euforia onde me imagino livre. Se não me entorpeco, se não me deleito em ilusões, não sou eu, não pertenco a nada, não vivo. 
 
+### **A onda espasmódica do desespero**
+
+Num confinamento o indiduo tem seu escapes, porém, no acumulo do desespero, quando a consciencia se cansa de procurar ilusões e escapismos, há um cansaço que pode provocar ações irremediaveis. Um individuo niilista com escassez de recursos para manter sua sanidade, tais como acesso a lazer, vicios, médico, por vezes, pode se ver trancafiado em si por tanto tempo que toma ações irracionais a procura de uma fresta arejada em sua mente. 
+
+Se o individuo nao possui ilusões que o sustentem, dinheiro para vícios, ou qualquer subterfugio legal para seu pensamento, uma atitude desesperada pelo acumulo de tensão pode faze-lo ir para o crime ou tomar ações desesperdas, como assassinato ou qualquer tipo de ação que para o individuo o desse um alívio rapido do longo tempo de tensão que esta tentando controlar e manusear sem sucesso. 
+
+Funciona como um sintoma de abstinencia que se aflora na ausencia de qualquer alivio, ilusão ou entorpecimento da consciencia. É o niilismo manifestado de forma espasmodica, como uma reação imediativa do corpo comos e quisesse escapar de uma prisão na qual se confina desesperado.
 
 
 
