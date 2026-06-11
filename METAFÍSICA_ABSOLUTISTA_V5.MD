@@ -24,7 +24,7 @@ A base deste tratado reúne séculos de reflexão, unindo as ideias de grandes p
 
 ### Fundamentação Filosófica 
 
-## I. A Consciência Vem Antes da Estrutura Social
+## A Consciência Vem Antes da Estrutura Social
 
 A ideia de que precisamos primeiro entender a nossa alma para depois consertar o mundo encontra forte apoio em grandes nomes da filosofia:
 
@@ -33,7 +33,7 @@ A ideia de que precisamos primeiro entender a nossa alma para depois consertar o
 
 ---
 
-## II. A Origem da Miséria e a Obsessão por Acumular
+## A Origem da Miséria e a Obsessão por Acumular
 
 A visão de que a pobreza é fruto de almas adoecidas e de sistemas invisíveis de dominação ganha força com estes pensadores:
 
@@ -42,7 +42,7 @@ A visão de que a pobreza é fruto de almas adoecidas e de sistemas invisíveis 
 
 ---
 
-## III. A Evolução Inevitável da Consciência Global
+## A Evolução Inevitável da Consciência Global
 
 A ideia de que o mundo caminha rumo a um entendimento absoluto e a uma grande transformação combina com a visão de pensadores sobre o curso da história:
 
@@ -310,7 +310,7 @@ A proposição aqui apresentada estabelece que:
 
 > *"A razão humana tem duas asas: a lógica aristotélica, que lhe permite voar com segurança sobre o mundo das coisas definidas; e a lógica assimétrica, que lhe permite elevar-se ao horizonte de onde todas as coisas emergem. Quem usa apenas uma asa não voa; quem as usa em conjunto, voa mais alto e vê mais longe."*
 
-## 2.8 Síntese para Fixação
+## Síntese para Fixação
 
 | Princípio | Em poucas palavras |
 | :--- | :--- |
@@ -585,6 +585,11 @@ Enquanto a causalidade simétrica (mundo dos entes) funciona por **transmissão*
 * **Unilateralidade:** O indiferenciado é causa de toda determinação posterior, mas as determinações não reagem sobre o indiferenciado.
 * **Sustentação Imunizante:** A causalidade do indiferenciado garante que, embora as coisas mudem no nível determinado, o fundo indiferenciado permaneça íntegro. É o **Princípio da Manifestação Não Disruptiva** aplicado à causa: o surgimento do múltiplo não fragmenta a unidade do fundo.
 
+### A Unidade Radical no Indiferenciado
+No domínio da lógica clássica (simétrica), operamos com a distinção entre **essência** (*o que algo é*) e **existência** (*que algo é*). Um círculo tem a essência de ser redondo, mas ele pode ou não existir no papel. Contudo, ao aplicarmos os Princípios da Lógica Assimétrica — especificamente o **Princípio da Indiferenciação Fundamental** —, chegamos a um ponto onde essa separação se torna impossível.
+
+Para o **Indiferenciado**, não existe uma causa para a sua "forma" que seja diferente da causa do seu "ser". Ele não "recebe" a existência como um molde recebe o gesso; ele **é** o ato puro de existir.
+
 ---
 
 ## Quadros Sintéticos e Comparativos
@@ -653,24 +658,13 @@ revisado
 
 
 
+a parte abaixo faz parte do absoluto
+==============
 
-
-
-
-
-
-
-
-
-
-### A Unidade Radical no Indiferenciado
-No domínio da lógica clássica (simétrica), operamos com a distinção entre **essência** (*o que algo é*) e **existência** (*que algo é*). Um círculo tem a essência de ser redondo, mas ele pode ou não existir no papel. Contudo, ao aplicarmos os Princípios da Lógica Assimétrica — especificamente o **Princípio da Indiferenciação Fundamental** —, chegamos a um ponto onde essa separação se torna impossível.
-
-Para o **Indiferenciado**, não existe uma causa para a sua "forma" que seja diferente da causa do seu "ser". Ele não "recebe" a existência como um molde recebe o gesso; ele **é** o ato puro de existir.
+### O Colapso das Causas no Absoluto
 
 > **Definição:** No Absoluto, a Determinação e a Existência são indissociáveis. A Causa não produz o Ser; a Causa **é** o Ser em sua unidade primordial.
 
-### O Colapso das Causas no Absoluto
 Diferente dos entes contingentes, o Fundamento Absoluto (o Indeterminado) reconfigura os princípios causais em uma **Identidade Única**:
 
 #### Causa Existencial e Identitária Unificada
@@ -691,41 +685,6 @@ A transição do Indiferenciado (Causa Una) para o Determinado (Múltiplos Entes
 | :--- | :--- | :--- |
 | **Entes Determinados** | Simétrica (Mecânica/Temporal) | **Distintas:** A coisa recebe o ser e a forma. |
 | **Fundamento Absoluto** | Assimétrica (Emanativa/Eterna) | **Identificadas:** O Ser é a própria Forma. |
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 Em suma, enquanto o mundo dos objetos exige causas externas e distintas para sua forma e vida, o **Absoluto é o ponto de convergência total**. Nele, a lógica assimétrica revela que ser e causar são o mesmo ato. Esta unidade é o que garante que o Absoluto seja o sustentáculo inabalável de todas as realidades que, no mundo manifesto, aparecem divididas e fragmentadas.
 
@@ -750,18 +709,7 @@ Em suma, enquanto o mundo dos objetos exige causas externas e distintas para sua
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-### **5.1 O Problema da Causalidade no Absoluto**
+### **O Problema da Causalidade no Absoluto**
 
 **Formulação do problema:**
 
