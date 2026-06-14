@@ -649,7 +649,7 @@ A separação entre essência e existência é uma ferramenta analítica necess�
 
 Fica demonstrado que o regime causal do indiferenciado não obedece às leis da mecânica ou da sucessão temporal dos entes. Nele, **causar e ser são sinônimos**. Essa indistinção é o que permite que o indiferenciado sirva de fundamento para todas as realidades determinadas, sem nunca se tornar, ele mesmo, um objeto sujeito às mesmas limitações de causa e efeito.
 
-# PROPOSIÇÃO VI: O ABSOLUTO COMO HORIZONTE METAFÍSICO
+# PROPOSIÇÃO: O ABSOLUTO COMO HORIZONTE METAFÍSICO
 
 ## O Conceito de Absoluto como Fundamento
 
@@ -832,7 +832,9 @@ A Proposição sintetiza estas tradições em um sistema coerente:
 
 O sistema resultante não é eclético, mas **sistemático**: demonstra como estas diferentes abordagens correspondem a diferentes aspectos da mesma estrutura ontológica — o Absoluto como horizonte metafísico total que contém tanto o cognoscível quanto o incognoscível em relação dinâmica e complementar.
 
-# O FUNDAMENTO DO ABSOLUTO
+# PROPOSIÇÃO: A ESTRUTURA DO ABSOLUTO
+
+Antes de explorarmos a causalidade no contexto do Absoluto, iremos, por enquanto, investigá-lo a partir de sua base estrutural. Conceitos fundamentais como o Nada, o Ser e o Fenômeno serão analisados, com o objetivo de definirmos a substância do Absoluto antes mesmo de iniciarmos a investigação da causalidade em seu âmbito.
 
 ## **O Nada como Existência Relacional**
 
@@ -864,15 +866,13 @@ Mesmo se considerarmos o nada como uma realidade existente, esta realidade seria
 
 * **O Nada como Evidenciador, não como Substrato:** O nada não é um "estado" estável, mas um **movimento de passagem** para o existente. Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja. Assim, a **autossupressão do inexistente** implica necessariamente a emergência do **existente**.
 
-REVISADO 
-
 * **A Inexistência do Produto Autossuprimido:** Não havendo o nada existente, não haveria também uma transição do nada para a existência, e nem mesmo o reverso: transformar o nada existente em nada autossupressor (não haveria um estado intermediário). A autossupressão não tem um objeto autossuprimido. O nada, como conceito infundado, tem a autossupressão como efeito de sua própria natureza fictícia. O nada não existe e, consequentemente, não tem efeito autossupressor sobre si de forma concreta.
 
 * **A Ilusão do Intervalo Nulificador:** Desta forma, o nada se faz um estado fictício que nos permite imaginar a autossupressão como um possível evocar da existência. Isto é, não existe o produto da autossupressão que aniquila a si de forma que este produto possa se transformar em existência. A suposta "passagem pelo nada autossupressor" para existência é uma **projeção epistemológica**. Na realidade metafísica, não há vácuo ontológico entre autossupressão e criação.
 
 * **Colapso por Autorreferência e Instantaneidade:** Todo nada pressupõe um "algo" como referente negado. Ao eliminar esse referente, o próprio conceito de nada perde seu substrato lógico. O resultado é que o nada não pode ser pensado como entidade autônoma – sua definição é parasitária da presença que nega. O nada puro não é um "estado sustentável", mas um **ponto de viragem metafísico**. No mesmo ato em que se concebe, já se converte em **Presença**.
 
-Ao passo que a existência criada não é oriunda de um desfazer da autossupressão, mas é um estado determinado no tempo Espiritual. Dessa forma, num tempo X, há a criação, sem que esta tenha se originado como conversão do nada em algo, ou de um processo de reversão da autossupressão. A autossupressão designa o que foi suprimido, e o produto suprimido não existe.
+Ao passo que a existência criada não é oriunda de um desfazer da autossupressão, mas é um estado determinado no tempo. Dessa forma, num tempo X, há a criação, sem que esta tenha se originado como conversão do nada em algo, ou de um processo de reversão da autossupressão. A autossupressão designa o que foi suprimido, e o produto suprimido não existe.
 
 ### ** Implicações Radicais e a Armadilha do Nada**
 A tentativa de conceber o nada como entidade metafísica independente é **um exercício de pensamento que se desfaz em suas próprias mãos**. O que chamamos de "nada" é, na verdade:
@@ -894,10 +894,6 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 1.  **Não é criação "do nada" material:** O *nihil* da criação não é uma "matéria prima" preexistente, mas a **negação absoluta** que só existe como conceito em relação ao Ser divino. *"Criar do nada" significa criar sem meio termo, sem material preexistente.* É a **posição absoluta do ser**.
 2.  **Deus não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente. *"Pela fé entendemos que o universo foi formado pela palavra de Deus, de modo que o visível veio a existir das coisas que não aparecem."* (Hebreus 11:3)
 3.  **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente de Deus (como no neoplatonismo), mas é chamado à existência por ato livre da vontade divina, como manifestação gratuita da plenitude divina. *"Digno és, Senhor nosso e Deus nosso, de receber a glória, a honra e o poder, porque todas as coisas tu criaste, sim, por causa da tua vontade vieram a existir e foram criadas."* (Apocalipse 4:11)
-
-> *"No princípio, Deus criou os céus e a terra. A terra, porém, era sem forma e vazia; havia trevas sobre a face do abismo, e o Espírito de Deus pairava por sobre as águas."* — Gênesis 1:1-2
-
-> *"No princípio era o Verbo, e o Verbo estava com Deus, e o Verbo era Deus. Ele estava no princípio com Deus. Todas as coisas foram feitas por intermédio dele, e sem ele nada do que foi feito se fez."* — João 1:1-3
 
 ---
 
