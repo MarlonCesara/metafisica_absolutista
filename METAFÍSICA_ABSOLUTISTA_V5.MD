@@ -992,7 +992,6 @@ O Princípio do Terceiro Excluído (A ∨ ¬A) opera num contexto que exige deci
 
 Chegamos assim a uma justificação totalmente pura e positiva para o Absoluto: uma realidade autojustificada que abarca todas as possibilidades sem afirmar nem negar nenhuma especificamente. A aceitação do impossível não provoca alteração disruptiva no Ser, mas dilui-se nele de forma não disruptiva. O Princípio do Terceiro Excluído mantém a sua validade, porém a critério do Absoluto, não da lógica clássica. Não há definição sobre a existência ou não de um "terceiro excluído", pois esta questão situa-se no campo da impossibilidade. Porém, o campo da impossibilidade está aberto para o Absoluto e nele diluído.
 
-revisado
 ### **Síntese Final da Gênese Dialética**
 Produzimos o indiferenciado afirmando o impossível. O nada não constitui um segundo estado do Ser, mas antes a afirmação do impossível para o Ser — o movimento de "soltura" do impossível no ser, sem definir previamente o resultado, deixando que a definição emerja como Relativo.
 
@@ -1000,11 +999,11 @@ Da mesma forma, os princípios causais são transcendidos ao nível absoluto: se
 
 **Conclusão Dialética da Gênese:** Não se trata de haver um "terceiro" escolhido, mas antes de a porta estar aberta para que haja. Devemos abrir a potência e deixar que esta se dilua no que há. Este é o Relativo: o Ser aberto à potência desconhecida de si mesmo. A potência indiferencia o Ser como única e exclusiva possibilidade, pois através da adição do impossível — da sua via contraditória — obtemos o indiferenciado. Uma realidade que não se confina a nenhuma definição lógica, mas que as transcende todas na sua pureza absoluta. O Relativo representa assim a superação definitiva da metafísica da determinação.
 
-### **8.7. O Não Causado como Substância Ontológica**
-Dada a explicação do indiferenciado, a realidade pura que se autojustifica, temos que explicar, por conseguinte, a origem da possibilidade e não somente a possibilidade. Chegamos à conclusão do indiferenciado, mas falta agora justificar a estadia do indiferenciado: como a substância do indiferenciado se faz incausada, e não somente a possibilidade de haver o incausado. Chegamos num conceito não contraditório, porém, falta ainda revelar como este conceito é realizado ontologicamente. Há o relativo, mas, de onde vem sua substância? 
+### **O Não Causado como Substância Ontológica**
+Dada a explicação do indiferenciado, a realidade pura que se autojustifica, temos que explicar, por conseguinte, a origem da possibilidade e não somente a possibilidade. Chegamos à conclusão do indiferenciado, mas falta agora justificar a estadia do indiferenciado: como a substância do indiferenciado se faz incausada, e não somente a possibilidade de haver o incausado. Chegamos num conceito não contraditório, porém, falta ainda revelar como este conceito é realizado ontologicamente. 
 
 Ao considerarmos a pureza total como homogeneidade de todas as coisas, e não como uma falta de todas as coisas, temos então o substrato que precisamos para produzir qualquer existência. Para imaginarmos de forma ainda melhor, ao considerarmos o nada fictício, de forma que consideremos mais uma vez o nada existente, este não seria realmente o nada, mas uma homogeneidade ontológica. Da mesma forma, ao considerarmos o indiferenciado, este não é, mais uma vez, o nada, mas é uma indefinição. Diferente do nada ontológico, é uma indefinição completamente pura. Desta pureza, a definição da possibilidade é uma forma não diluída.
-
+revisado
 Ainda que houvesse o nada real, este nada seria formado pela anulação do Ser, isto é, seu conteúdo já teria substrato, potencial. Já o indiferenciado é indiferenciado por sua própria natureza, sua natureza pura já traz a substância de todo seu conteúdo. O indiferenciado já é por si, existência indefinida. Ao entendermos o indiferenciado como o conceito que mais se aproxima do nada existente, temos que o próprio nada já carregaria uma homogeneidade em si. Porém, havendo o relativo, este faz o papel do nada contendo em si todo o potencial de substância de si.
 
 A existência do indiferenciado já é a existência de tudo. O substrato sai do relativo, pois o relativo já é um substrato. Tal como a cor preta já é uma mistura de outras cores, ou como a luz branca é uma mistura de cores mistas. O indiferenciado por si só, por seu próprio conteúdo, é substância. Toda existência é uma existência secundária ao relativo.
@@ -1896,7 +1895,7 @@ Com ela, temos um conceito de Absoluto que é:
 
 ---
 
-# PROPOSIÇÃO VIII: A CAUSALIDADE DO ABSOLUTO
+# PROPOSIÇÃO: A CAUSALIDADE DO ABSOLUTO
 
 ## 8.1 Introdução: Da Estrutura à Atividade
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o **modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana**. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua **própria causalidade**?
