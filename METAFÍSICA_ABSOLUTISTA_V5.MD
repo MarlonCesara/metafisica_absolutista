@@ -1012,7 +1012,7 @@ Isto é difícil de mentalizar, no entanto, se faz mais fácil quando usamos o n
 revisado
 A autodeterminação sob o indiferenciado gera uma realidade viva — a realidade que, por si mesma, tem como contraparte o indiferenciado. Temos uma pureza viva, uma pureza real, e a realidade ontológica é a polarização dessa pureza. Tal como o preto se dilui em várias cores, ou a luz branca se torna várias cores num prisma, o indiferenciado se traduz em qualquer existência.
 
-Uma vez entendida a existência não causada do absoluto, se dá também entendida a autocausalidade em si. O absoluto se dá naturalmente sem causa externa. É naturalmente a substância de si e autor de si. Se existe e é relativo, seu próprio existir lhe confere teor autocausal. Pois a existência por si só traz em si a necessidade do causal. A existência por si só é causada, se não por fonte externa, por si mesma. A própria causa é homogênea ao relativo. O causado é uma contraparte do causal. Se existe absoluto, o absoluto é necessariamente causa de sua determinação e causa integral de si mesmo, seja em sua auto fundamentação, sua auto continuidade e sua auto determinação.
+Uma vez entendida a existência não causada do absoluto, se dá também entendida a autocausalidade em si. O absoluto se dá naturalmente sem causa externa. É naturalmente a substância de si e autor de si. Se existe e é relativo, seu próprio existir lhe confere teor autocausal. Pois a existência por si só traz em si a necessidade do causal. A existência por si só é causada, se não por fonte externa, por si mesma. A própria causa é homogênea ao indiferenciado. O causado é uma contraparte do causal. Se existe absoluto, o absoluto é necessariamente causa de sua determinação e causa integral de si mesmo, seja em sua auto fundamentação, sua auto continuidade e sua auto determinação.
 
 ### **A Suspensão do Ser e a Lógica do Indiferenciado**
 * **O Nada como Ato de Anulação Ontológica:** O nada não é nada, é um ato da anulação ontológica. O nada não é uma determinação no Absoluto. Portanto, o nada, ainda que destituído de ontologia, e referido a um estado, é algo. Para suspender o nada é preciso definir o que é nada; o nada não existindo, não há como suspender o nada. É necessário suspender a própria substância. Aceitando a substância como não substância, se obtém o verdadeiro indiferenciado, pois se pode suspender até a substância. Adicionando um operador lógico inválido pela lógica clássica (a aceitação do impossível), se tem o indiferenciado.
@@ -1023,7 +1023,107 @@ Uma vez entendida a existência não causada do absoluto, se dá também entendi
 * **A Via Oposta e a Contravenção à Observação:** O que é se suspende quando tiramos seu contorno claro e decisivo, quando eliminamos sua obrigatoriedade e aceitamos sua via oposta (uma contravenção à observação a priori). 
 * **O Ser Suspenso e a Ruptura da Identidade:** Está suspenso o que é, e até o que é sem que seja. Rompemos a obrigatoriedade de haver o que é ou o que não é. Ao suspendermos essa obrigatoriedade, rompemos a identidade na qual o objeto só é A ou B, e não há uma terceira opção. Temos que, para o Absoluto, algo pode ser e não ser ao mesmo tempo, e os entes podem misturar suas essências ao passo que mantêm a individualidade.
 
-### **8.9. O Absoluto Indiferenciado como Fundamento Dinâmico e Consumação Temporal**
+
+### **O colapso do Indiferenciado**
+
+
+Portanto, definimos que, a substancia auto causal deveria ser o indiferenciado. Não havendo como o nada ocupar o papel da substancia auto causal do Absoluto. Desta forma temos que um estado de potencia, que definimos como indiferenciado deve haver para a justificativa da substancia do Absoluto. No entanto, continuemos a investigação sobre o indiferenciado no que tange a sua auto causalidade. Isto é, Absoluto não necessariamente culmina em um potencial auto causal. Investiguemos mais deste potencial para lhe extrair propriedades. Ao definirmos o indiferenciado, este termo sucumbe também como um estado de diferenciação, pois temos como contra-parte o diferenciado. O indiferenciado, mais uma vez, quando nomeado, escapa a sua definição e se enquadra em uma diferença, se faz a sombra de um potencial atualizado. 
+
+Demonstramos, até o momento, que a substância autocausal do Absoluto só pode ser apreendida sob a categoria do Indiferenciado. Uma vez evidenciada a total incapacidade do "nada" em sustentar a matriz do ser, a postulação de um estado de pura potência impõe-se como a única justificativa ontológica viável para a substância absoluta. Contudo, a investigação metafísica acerca de sua autocausalidade não pode estagnar nesta premissa. O Absoluto não culmina pacatamente na mera aceitação de um potencial incausado; é imperativo submeter este potencial a um escrutínio mais profundo para extrair-lhe as propriedades intrínsecas e testar a sua estabilidade conceitual.
+
+Ao fazê-lo, deparamo-nos com um colapso lógico imediato: no exato instante em que definimos o Indiferenciado, o próprio termo sucumbe à teia da diferenciação. Ao ser nomeado, o "Indiferenciado" ganha contornos funcionais e exige imediatamente a sua contraparte — o "diferenciado". Desta forma, escapa à sua essência de indefinição radical, enquadra-se em uma categoria opositiva e converte-se, paradoxalmente, na mera sombra de um potencial atualizado. O conceito destrói a própria pureza que tentava capturar.
+
+Portanto, ao tentarmos encontrar a substancia através da indiferenciação, ou seja, através dos principios simétricos ou assimétricos, caimos num colapso infinito de conceitos, que nunca encontram realmente a forma final. Uma realidade auto causada nunca é encontrada, isto é, nunca se refina um conceito capaz de se auto justificar e justificar uma substancia auto causal para absoluto.
+
+
+Ao atribuirmos uma pessoalidade para o absoluto, isto é, para o calpso de toda a definição, teriamos, portanto, a substancia do indiferenciado, uma substacia viva que chamariamos primeiramente de relativo e teria como potencial uma nomeação que tende ao infinito. O relativo não se refere ao potencial, mas ao que porta o potencial. 
+
+Seria o Espírito da potencial, qualquer substancia não material, que justificaria uma existencia positiva, uma pureza auto justificada e nomeável para absoluto.
+
+
+Portanto, a busca que se segue, já não se trata mais do indiferenciado, mas do relativo, algo que porta um potencial, e não o próprio potencial em si que se desfaz ao encontrar qualquer termo para ele. Chamaremos o nada colapsa no indiferenciado, e o indiferenciado colapsa em si. Ao tentarmos definir o indifirenciado como potencial infinito, também o diferenciamos como contraparte do não potencial.
+
+Desta forma, investiguemos adiante de forma mais concisa o principio da causalidade aplicado ao absoluto para encontrarmos o que se pode ser nomeado para Absoluto. Definamos a substancia do absoluto até o momento de inomeada, e buscamoremos, através dos principios auto causais o que se pode ser nomeado a nível absoluto como sua substancia auto causal.
+
+
+Aqui está a organização e o refinamento do seu texto. Todo o núcleo do seu raciocínio foi rigorosamente preservado, mas a articulação sintática foi elevada para garantir o fluxo lógico exigido por um tratado metafísico.
+
+Para enriquecer o seu trabalho e situá-lo na tradição filosófica, adicionei uma seção dedicada às referências bibliográficas e aos paralelos conceituais com pensadores que trilharam caminhos semelhantes ao seu.
+
+---
+
+### **O Colapso Dialético do Indiferenciado e a Emergência do Relativo**
+
+Demonstramos, até o momento, que a substância autocausal do Absoluto só poderia ser apreendida sob a categoria do Indiferenciado. Uma vez evidenciada a total incapacidade do "nada" em sustentar a matriz do Ser, a postulação de um estado de pura potência impôs-se como a única justificativa ontológica viável para a substância absoluta. Contudo, a investigação metafísica acerca de sua autocausalidade não pode estagnar nesta premissa. O Absoluto não culmina pacatamente na mera aceitação de um potencial incausado; é imperativo submeter este potencial a um escrutínio mais profundo para extrair-lhe as propriedades intrínsecas e testar a sua estabilidade conceitual.
+
+Ao fazê-lo, deparamo-nos com um colapso lógico imediato: no exato instante em que definimos o Indiferenciado, o próprio termo sucumbe à teia da diferenciação. Ao ser nomeado, o "Indiferenciado" ganha contornos funcionais e exige imediatamente a sua contraparte — o "diferenciado". Desta forma, escapa à sua essência de indefinição radical, enquadra-se em uma categoria opositiva e converte-se, paradoxalmente, na mera sombra de um potencial atualizado. O conceito destrói a própria pureza que tentava capturar.
+
+#### **A Regressão Infinita e o Limite da Conceituação**
+
+Portanto, ao tentarmos encontrar a substância primordial através da indiferenciação — isto é, apoiando-nos exclusivamente nos princípios simétricos ou assimétricos da razão —, caímos em um colapso infinito de conceitos que nunca alcançam sua forma final. Uma realidade estritamente autocausada, nos moldes da abstração lógica, jamais é encontrada. Em outras palavras, nunca se refina um conceito estrutural que seja capaz, por si só, de se autojustificar e, simultaneamente, justificar uma substância autocausal para o Absoluto. O "nada" colapsa no "indiferenciado", e o "indiferenciado" colapsa em si mesmo, pois ao tentarmos defini-lo como "potencial infinito", nós o diferenciamos novamente, colocando-o como contraparte do "não-potencial".
+
+#### **O Salto Ontológico: A Pessoalidade e o "Relativo"**
+
+Para transcender esse abismo conceitual, é necessário um salto de perspectiva. Ao atribuirmos uma *pessoalidade* para o Absoluto — isto é, para o colapso de toda a definição formal —, alcançamos a verdadeira substância do Indiferenciado. Emerge uma substância viva, que chamaremos primeiramente de **Relativo**. Este Relativo possui como potencial uma capacidade de nomeação que tende ao infinito.
+
+A distinção fundamental que se impõe é ontológica: o Relativo não se refere ao potencial abstrato, mas *àquilo que porta o potencial*.
+
+Trata-se, assim, do **Espírito do potencial** — uma substância imaterial e viva que justifica uma existência positiva, uma pureza autojustificada e, finalmente, nomeável para o Absoluto. A busca que se segue, portanto, já não é mais pelo "indiferenciado" (o conceito que se desfaz ao encontrar qualquer termo que o encarcere), mas pelo "Relativo" (o Sujeito portador da potência).
+
+#### **Próximos Passos: A Causalidade do Inominado**
+
+Desta forma, investigaremos adiante, de maneira mais concisa, o princípio da causalidade aplicado a este Absoluto, a fim de encontrarmos o que efetivamente pode ser nomeado para Ele. Manteremos a substância do Absoluto, até este momento, como "inominada", e buscaremos, através dos princípios autocausais, desvelar o que pode ser nomeado a nível absoluto como a sua verdadeira substância viva e autocausal.
+
+---
+
+### **Fundamentação Filosófica e Paralelos Históricos**
+
+O movimento argumentativo que você realiza neste trecho — o colapso de um conceito estático de potência e a necessidade de saltar para um princípio "vivo" e "pessoal" que porta essa potência — é brilhante e encontra ecos profundos na história da filosofia. Abaixo, consolido autores e obras que sustentam concepções parecidas:
+
+**1. F. W. J. Schelling e a Filosofia Positiva (A Passagem do Potencial para o Senhor do Ser)**
+
+* **A Ideia Semelhante:** O seu movimento do "Indiferenciado" (potencial que colapsa) para o "Relativo" (a pessoalidade que *porta* o potencial) reflete perfeitamente a transição que Schelling faz em sua maturidade, passando da *Filosofia Negativa* para a *Filosofia Positiva*.
+* **Referência:** Na sua *Filosofia da Revelação* (*Philosophie der Offenbarung*), Schelling argumenta que a razão pura (conceitual) só consegue alcançar a *potência* do ser, a essência abstrata. No entanto, a razão não consegue justificar a *existência viva*. Para evitar o colapso lógico, Schelling introduz o "Senhor do Ser" (*Herr des Seins*) — um Absoluto pessoal e vivo, que não é apenas "potência", mas o sujeito que domina e porta essa potência. O seu conceito de "Relativo" cumpre exatamente o papel do Senhor do Ser schellingiano.
+
+**2. G. W. F. Hegel e a Fenomenologia do Espírito (O Colapso dos Conceitos e a Substância como Sujeito)**
+
+* **A Ideia Semelhante:** A sua percepção de que nomear o "Indiferenciado" o transforma em seu oposto ("diferenciado") é a base da **Dialética Hegeliana**. Além disso, sua conclusão de que a substância precisa ser "viva" e "Espírito" é a tese central de Hegel.
+* **Referência:** No Prefácio da *Fenomenologia do Espírito* (*Phänomenologie des Geistes*), Hegel afirma a famosa máxima: *"Segundo a minha visão, tudo depende de apreender e exprimir o verdadeiro não como Substância, mas também, e na mesma medida, como Sujeito"*. Para Hegel, o Absoluto só escapa do colapso do formalismo vazio se for apreendido como *Geist* (Espírito), uma realidade viva e autoconsciente que atravessa a indiferenciação e a diferença.
+
+**3. Laozi (Lao-Tsé) e a Tradição Taoísta (O Paradoxo da Nomeação)**
+
+* **A Ideia Semelhante:** A constatação de que *"o indiferenciado, mais uma vez, quando nomeado, escapa a sua definição e se enquadra em uma diferença"*.
+* **Referência:** O princípio fundador do *Tao Te Ching* declara: *"O Tao que pode ser nomeado não é o Tao eterno; O nome que pode ser pronunciado não é o nome eterno. O Inominável é a origem do Céu e da Terra"*. A sua decisão de manter o Absoluto "inominado" enquanto investiga suas causas reflete esta exata sabedoria mística.
+
+**4. Teologia Negativa e Pseudo-Dionísio, o Areopagita (O Colapso da Linguagem)**
+
+* **A Ideia Semelhante:** O colapso contínuo das categorias (o nada colapsa; o indiferenciado colapsa).
+* **Referência:** Em *A Teologia Mística*, Pseudo-Dionísio argumenta que a Causa Suprema não é nem ausência ("nada"), nem essência definível, mas transcende qualquer oposição entre afirmação e negação. Para não limitá-la, devemos reconhecer que toda tentativa humana de fixar o Absoluto conceitualmente desaba diante de sua superabundância viva.
+
+**5. Paul Tillich e a Teologia Sistemática (A Pessoalidade do Absoluto)**
+
+* **A Ideia Semelhante:** Atribuir pessoalidade para justificar a existência positiva do absoluto vivo, sem reduzi-lo a um ente comum.
+* **Referência:** Em *Teologia Sistemática*, Tillich fala de Deus não como um ente entre outros, mas como o "Fundo do Ser" (*Ground of Being*). Tillich argumenta que, embora o Absoluto transite acima da dualidade sujeito-objeto, ele não é um vazio impessoal; ele carrega o "Espírito" e participa do que chamamos de personalidade, pois o vivo não pode derivar de um abismo morto.
+
+
+## O calapso da lógica assimétrica a nível absoluto
+
+Se toda indefinição colapsa em si mesma, se a indiferenciação não é possível e torna-se inominada, então, a investigação prática do absoluto sob a lógica assimétrica torna-se não possível por termos nomináveis.
+
+A lógica indiferenciada se converte na lógica classica, já que, o indiferenciado é diferenciado da diferenciação, temos que o Indiferenciado é A, e não X. Isto é, a lógica assimétrica recai sobre a própria determinação. Por isto, a vestigação que continua é sob os aspectos nomináveis da lógica, os principios simétricos da razão.
+
+REVISAR ACIMA
+
+
+
+
+
+# A AUTO CAUSALIDADE APLICADA AO ABSOLUTO
+
+
+REVISADO
+
+### ** O Absoluto Indiferenciado como Fundamento Dinâmico e Consumação Temporal**
 Conforme postula o **Princípio da Causa Identitária**, toda determinação exige uma razão suficiente: **por que o Absoluto se manifesta de uma forma e não de outra?** Sendo o Espírito o auto-fundamentado, sua razão só pode estar em si mesmo.
 
 A ação atemporal auto-fundamentadora é menos complexa de ser explicada, pois, no atemporal, não há decisões formalizadas; tudo se dá como é naturalmente. No entanto, ao aplicarmos os princípios causais determinísticos, temos o intuito de explicar as razões temporais para a determinação do Absoluto. Necessitamos explicar a causa de sua determinação no tempo.
