@@ -1173,6 +1173,189 @@ A sua argumentação de substituir um termo estático ("Indiferenciado") por um 
 
 
 
+# A CAUSALIDADE E O NADA
+
+Ao considerarmos o nada como subproduto do absoluto, como materia prima ainda não lapidada, temos que a auto causalidade sobre o mesmo, está sob o nada. Isto confere que se sobressai o teor auto causal sob o nada. Ao inferirmos o nada para absoluto como auto justificação ou substancia pura, podemos lapidar melhor o absoluto para definir de forma aprimorada sua substancia.
+
+Do absoluto podemos deduzir o não causado, a fonte primaria que dispensa qualquer regressão. Podemos deduzir também que não há nada fora, anterior ou nenhuma razão que justifique o absoluto, pois absoluto, por seu próprio termo, justifica-se por si mesmo. Essas são afirmativas ainda razas, pois carecem do conteudo que a justifique.
+
+Ao aplicar os principios da causalidade sobre o nada, chegaremos a respostas que agregam um novo teor a substancia absoluta que procuramos, aquela capaz de justificar a realidade tal como é. A causalidade somente acha sua força motriz, somente encontra sua primeira causa, quando pensamos no conceito de nada. No conceito de pureza total.
+
+O nada dispensa causa porque não é algo, não se pode aplicar uma cadeia causa para o nada, pois todos os efeitos consecutivos dentro do nada são diluidos em uma só coisa. Se não há nenhum efeito, também não é necessaria causa para este efeito. E, desta forma, o nada dispensa a causa. Porém, o nada determinado, ou seja, o nada não considerado uma singularidade exige uma causa, pois o nada representado pelo pensamento é uma determinação para absoluto, porém o irrepresentável seria realmente o auto causal. O nada, em sua representação verdadeira seria de fato um elemento com propriedade auto causal.
+
+
+Porém, não sendo capturado pela razão nem mesmo como conceito, não haveria uma forma de aplicar a causalidade sob aquilo que nem mesmo é nominavel, e cuja aquilo que usamos o conceito aproximado do que poderia ser.
+
+Portanto, continuemos considerando que o nada é um conceito não refinado, mas não insuficiente para que usemos para fins explicativos. Iremos aplicar a auto causalidade sob o nada, para encontrarmos o conteudo do absoluto, a substancia final do absoluto.
+
+
+
+Ao considerarmos que não há conceito para Absoluto, pois o conceito auto auto causal colapsa, tomemos outro ponto de partida a se considerar para absoluto. Passemos, a não mais explora-lo em seu conteudo, mas em sua relação, em seu dinamismo para consigo mesmo, em sua mobilidade auto causal. 
+
+O que poderiamos extrair de substancia do Absoluto foi extraido. O que se poderia extrair do absoluto considerando o nada foi extraido. Agora, extrairemos sem considerar o conceito de nada, apenas abordando a positidade do absoluto.
+
+Exploraremos somente a consequencias de uma realidade absoluta sob o ponto de vista auto causal. Busquemos portanto, uma pureza positiva, ou seja, uma pureza ontológica. A pureza negativa não é conceitualvel pois não é ontológica.
+
+A pureza não ontológica colapsa e torna-se incapturável, impensável, e, portanto, não se aplica os conceitos causais àquilo que se escapa ao pensamento e a própria conceitualização. Porém, restanos o conceito de absoluto para aplicar a auto causalidade, em busca de encontrar a pureza fundamental, que mais tarde definiremos como Espírito. Uma pureza positiva, nomeável.
+
+E partiremos nossa procura pela pureza ontológica aplicando de todas as formas possíveis a auto causalidade ao horizonte de nossa investigação que é o Absoluto.
+
+
+
+## A aplicação da auto causalidade ao inominável
+
+Consideremos o desabar do conceito de nada, que, ainda que passível de causalidade, não seria o auto causal, nem mesmo o causal. Seria simplesmente nada. O nada não serve como fonte causal, e nem mesmo como elemento auto causal, pois nada é. Somente é possível aplicar a auto causalidade a uma realidade ontológica.
+
+O nada como propriedade auto causadora, tem seu conceito alterado, e torna-se uma positividade, uma determinação, é auto causal, e não pode ser, não auto causal. Isto é, o nada se polariza em uma positividade relacional.
+
+O nada nem mesmo é auto causal, é simplesmente nada. Se fosse auto causal teria uma propriedade relacional para consigo mesmo, seria autor de sua própria configuração. Mais uma vez ao atribuirmos uma propriedade ao nada, está propriedade desaba como determinação na busca do indiferenciado.
+
+### A Aplicação da Autocausalidade ao Inominável
+
+Consideremos o desabar definitivo do conceito de "nada". Ainda que o submetêssemos hipoteticamente à lente da causalidade, ele jamais poderia assumir o papel de princípio autocausal, tampouco de agente causal transitivo. O nada é, em sua essência, estritamente *nada*. Ele não serve como fonte de onde algo emana, nem como elemento capaz de fundamentar a si próprio, pois não possui substrato. A aplicação da autocausalidade exige, irrevogavelmente, uma realidade ontológica — uma base existencial sobre a qual a ação de causar possa repousar e operar.
+
+Ao tentarmos postular o "nada" como uma propriedade autocausadora, alteramos violentamente a sua estrutura conceitual. Ele transmuta-se, de imediato, em uma positividade: torna-se uma determinação (a determinação inescapável de *ser* autocausal). Ao assumir o imperativo de fundamentar a si mesmo, o nada perde a sua vacuidade primordial e polariza-se, convertendo-se em uma **positividade relacional**. Ele deixa de ser o inominável para agir como um ente.
+
+O nada não pode ser o autor de sua própria configuração. Se o fosse, exigiria uma relação de si para consigo, desdobrando-se em um sujeito que causa e um objeto que é causado. Ao atribuirmos qualquer propriedade operacional ao nada — mesmo a suprema capacidade de causar a si próprio —, essa atribuição inevitavelmente colapsa. Ela recai como um peso determinante, destruindo a pureza do conceito conceitual e frustrando, mais uma vez, a busca pelo verdadeiro Indiferenciado.
+
+
+A argumentação que você construiu sobre a impossibilidade do "nada" atuar como agente autocausal — pois conferir-lhe propriedades o converte em uma "positividade relacional" — atinge o cerne da ontologia clássica e contemporânea. Você demonstra que a relação *causa sui* (causa de si mesmo) exige um desdobramento (aquilo que causa e aquilo que é causado), o que é impossível em um vácuo absoluto.
+
+Abaixo estão as referências bibliográficas fundamentais e os paralelos conceituais de filósofos que lidaram exatamente com a refutação do nada como fundamento causal e com a necessidade da positividade do ser:
+
+**1. Henri Bergson e a "Falsa Ideia do Nada" (O Colapso da Negação Absoluta)**
+
+* **A Ideia Semelhante:** A sua afirmação de que tentar dar uma propriedade ao nada o transforma em "positividade" e determinação.
+* **Referência:** Na obra ***A Evolução Criadora*** (*L'Évolution créatrice*, 1907), Bergson dedica um capítulo inteiro para destruir o conceito de "nada" absoluto. Ele argumenta que a ideia de "nada" é uma *pseudoideia*, uma ilusão da linguagem. Para Bergson, quando tentamos pensar no "nada", estamos na verdade pensando em "algo" (uma representação mental) seguida de uma operação lógica de anulação. O nada absoluto não tem força causal porque, no momento em que é pensado ou nomeado, torna-se uma "positividade psicológica e lógica".
+
+**2. Parmênides de Eleia (A Impossibilidade Ontológica do Não-Ser)**
+
+* **A Ideia Semelhante:** O seu argumento de que "o nada é simplesmente nada" e não pode ter propriedades ontológicas.
+* **Referência:** No célebre ***Poema sobre a Natureza***, Parmênides estabelece o axioma fundador da metafísica ocidental: *"O Ser é, e o Não-Ser não é"*. Parmênides argumenta que é impossível pensar ou dizer o Não-Ser (o nada), pois a própria tentativa de dizê-lo já o transforma em algo que "é". O nada não pode ser origem, destino ou causa, pois carece inteiramente de substância. Desta premissa deriva o famoso princípio escolástico posterior: *Ex nihilo nihil fit* (Do nada, nada surge).
+
+**3. Baruch Spinoza e a *Causa Sui* (A Autocausalidade como Substância Plena)**
+
+* **A Ideia Semelhante:** A sua dedução de que a autocausalidade exige uma "realidade ontológica" e não pode operar no vácuo.
+* **Referência:** Na ***Ética*** (*Ethica, ordine geometrico demonstrata*, 1677), Spinoza inicia o Livro I definindo a ***Causa Sui*** (Causa de Si Mesmo): *"Por causa de si entendo aquilo cuja essência envolve a existência, ou seja, aquilo cuja natureza não pode ser concebida senão como existente"*. Spinoza deixa claro que a autocausalidade é a afirmação máxima da positividade e da plenitude do ser (a Substância/Deus), sendo diametralmente oposta ao nada. A autocausalidade é a pura força afirmativa da realidade ontológica.
+
+**4. G.W.F. Hegel e a Transição Ser-Nada (O Paradoxo da Propriedade do Nada)**
+
+* **A Ideia Semelhante:** A constatação de que o nada, ao tentar ser fixado como causa, altera sua estrutura conceitual e se "polariza".
+* **Referência:** No Livro I da ***Ciência da Lógica*** (*Wissenschaft der Logik*, 1812), Hegel demonstra que se tomarmos o "Nada puro" de forma isolada, ele é indistinguível do "Ser puro" (pois ambos carecem de determinações). No entanto, se tentarmos reter o "Nada", nós o determinamos; ele deixa de ser o nada abstrato e torna-se um "Ser determinado" (*Dasein*). Hegel concorda com o seu raciocínio: atribuir qualquer papel (como o de causa) ao nada destrói imediatamente sua pureza, fazendo-o recair na esfera da existência.
+
+**5. Tomás de Aquino e a Escolástica (A Causalidade Exige o Ato)**
+
+* **A Ideia Semelhante:** A premissa de que a ação de causar algo (mesmo a si próprio) exige um estado relacional e prévio.
+* **Referência:** Na ***Suma Teológica*** (*Summa Theologiae*, I, q. 2), São Tomás de Aquino elabora as cinco vias e discute a natureza da causalidade. Na ontologia tomista, a causalidade é a passagem da potência para o **ato**. O nada é a ausência absoluta tanto de potência quanto de ato. Portanto, o nada não tem "eficácia". Para Aquino, algo que não tem o ser não pode comunicar o ser (causar). O fundamento não pode ser um vácuo, mas precisa ser o "Ato Puro" (*Actus Purus*), a positividade máxima sem misturas de não-ser.
+
+**6. Jean-Paul Sartre e a Néantisation (A Dependência do Nada)**
+
+* **A Ideia Semelhante:** O nada não fundamenta a si mesmo; ele precisa do ser como pano de fundo para operar.
+* **Referência:** Em ***O Ser e o Nada*** (*L'Être et le Néant*, 1943), Sartre argumenta que o "Nada" não existe por si mesmo como uma substância autônoma; ele "assombra o ser". O Ser-em-si (a realidade ontológica maciça) vem primeiro. O nada é introduzido no mundo apenas através da consciência (o Ser-para-si). Portanto, o nada não pode ser a Causa originária, pois ele é sempre um efeito, uma "falha" introduzida na plenitude do Ser.
+
+Essas referências estruturam a sua defesa de que a investigação do Absoluto precisa abandonar a miragem do "nada" como princípio ativo. Elas pavimentam logicamente a necessidade de postular, como você indica, uma **realidade ontológica e relacional (positiva)** capaz de sustentar o peso da própria existência.
+
+
+Aqui está uma elaboração rigorosa desse argumento, focada especificamente no paradoxo da referenciação (o ato de transformar o nada em "algo" ao tentar atribuir-lhe uma ação).
+
+Este texto serve para aprofundar e selar a impossibilidade lógica e ontológica de fundamentar o Absoluto no vácuo.
+
+---
+
+### A Contradição Performativa: O Nada como Falso Referente
+
+Para que qualquer instância seja postulada como autocausal (*causa sui*), ela exige, imperativamente, uma estrutura relacional interna e uma capacidade ativa. A autocausalidade não é um estado inerte; é um vetor de sustentação, um dinamismo onde o "causador" e o "causado" coincidem na mesma realidade. Causar a si mesmo implica agir sobre si mesmo, o que pressupõe, fundamentalmente, a posse de um "si".
+
+Se propomos que o "nada" é autocausal, incorremos em uma contradição linguística e ontológica fatal. O paradoxo central reside no próprio ato de **referenciação**. Para afirmar que o nada se autocausa, somos obrigados a posicioná-lo como o *sujeito lógico* da ação. No exato instante em que enunciamos que "o nada causa a si mesmo" (ou mesmo que "o nada existe por si"), estamos irrevogavelmente referenciando o nada como se ele fosse um "algo".
+
+O nada absoluto, por definição, é a privação total de ser, de propriedades e de interioridade. Ele carece de "si mesmo" para poder referenciar-se. Ao lhe atribuirmos a propriedade magna da autocausalidade, nós o dotamos de positividade: nós o transformamos em um ente disfarçado. O conceito desaba porque a razão, ao tentar instrumentalizá-lo, o preenche com o peso da substância.
+
+Trata-se de uma **hipóstase ilusória** (a materialização de um conceito vazio). Dizer que "o nada é a causa" é um equívoco sintático que a mente confunde com uma possibilidade metafísica. O nada não opera, não atua, não fundamenta e não se relaciona. Conferir-lhe o *status* de agente autocausal não é descrever o nada, mas sim fantasiar uma realidade positiva e afirmativa com a máscara da ausência. Portanto, a substância autocausal, que chamaremos de Espírito ou Relativo, deve ser uma positividade radical — um "algo" primordial —, pois apenas a presença tem força para suportar a própria existência.
+
+---
+
+### Fundamentação Filosófica da Falha de Referenciação
+
+Este argumento específico — de que transformar o nada em sujeito de uma ação é um erro lógico que o disfarça de "algo" — possui fundamentos profundos na filosofia da linguagem e na ontologia:
+
+**1. Immanuel Kant e a Hipóstase (A Ilusão Transcendental)**
+Kant, na *Crítica da Razão Pura*, alerta para a tendência natural e ilusória da razão de realizar "hipóstases" — isto é, tomar meras ideias ou negações lógicas (como o vazio ou o incondicionado) e tratá-las como se fossem substâncias reais (objetos). Ao tratar o nada como "sujeito" autocausal, a mente comete essa ilusão transcendental: transforma a ausência total em uma "coisa" capaz de agir.
+
+**2. Parmênides e o Paradoxo do Dizer (O Veto ao Não-Ser)**
+Como mencionado anteriormente, o veto de Parmênides é fundamental aqui. Ele afirma que o pensamento e a linguagem exigem um objeto. "Pois pensar e ser é o mesmo". Se tentamos dizer que o "nada atua", nós o estamos pensando. Mas, se o estamos pensando, ele já se tornou um objeto do pensamento (um ente). O nada, como sujeito referenciável, é uma impossibilidade no instante em que é pronunciado.
+
+**3. Bertrand Russell, Gottlob Frege e o Problema da Denotação**
+Na filosofia analítica da linguagem (especialmente na teoria das descrições de Russell e na distinção entre sentido e referência de Frege), surge o problema de como falar de coisas que não existem. Dizer "O atual Rei da França é calvo" é falso porque não há rei da França. Filosoficamente, dizer "O nada causa a si mesmo" falha logicamente porque a palavra "nada" não possui referente (não aponta para nenhuma coisa no mundo real). Usar o nada como um termo referencial operante (como causa) quebra a regra de que predicados e ações exigem referentes positivos.
+
+**4. Martin Heidegger e a "Coisificação" do Nada**
+Heidegger, em *Que é Metafísica?*, aborda precisamente este erro. Ele nota que a ciência e a lógica clássica sempre tentarão destruir o nada dizendo: "Ao falarmos do Nada, nós o transformamos em *algo*". Para a lógica gramatical, todo sujeito de uma frase vira uma "coisa". A sua conclusão alinha-se a essa crítica gramatical: para buscar a Causa de tudo, não podemos usar o "nada" gramaticalmente como sujeito, pois isso o "coisifica" e destrói o conceito que pretendíamos investigar.
+
+
+
+---
+
+## A Causalidade e o Nada: Rumo à Pureza Ontológica do Absoluto
+
+Se considerarmos o "nada" como um subproduto do Absoluto — uma matéria-prima ainda não lapidada —, percebemos que a autocausalidade atua sobre ele. Isso significa que o princípio autocausal se sobressai ao próprio nada. Ao tomarmos o nada em relação ao Absoluto como uma autojustificação ou substância pura, podemos refinar a definição do Absoluto, delineando de forma aprimorada a sua substância.
+
+Do Absoluto deduz-se o "não causado": a fonte primária que dispensa qualquer regressão *ad infinitum*. Infere-se também que não há nada exterior, anterior ou qualquer razão subjacente que justifique o Absoluto, pois ele, por definição, justifica-se a si mesmo (*causa sui*). No entanto, essas afirmativas ainda são rasas se desprovidas do conteúdo ontológico que as embase.
+
+Ao aplicarmos os princípios da causalidade sobre o nada, alcançamos respostas que agregam um novo teor à substância absoluta que buscamos — aquela capaz de justificar a realidade tal como ela é. A causalidade só encontra sua verdadeira força motriz e sua causa primeira quando pensamos no conceito de nada absoluto, ou seja, na pureza total.
+
+O nada dispensa causa porque não é um "ente"; não se pode aplicar uma cadeia causal ao nada, visto que, nele, quaisquer efeitos consecutivos diluem-se em uma única ausência. Onde não há efeito, também não se exige causa. Contudo, o nada *determinado* — aquele concebido pelo pensamento como uma oposição — exige uma causa, pois já é uma representação para o Absoluto. A verdadeira singularidade do nada escapa à razão; o irrepresentável seria, de fato, o elemento com propriedade autocausal.
+
+Porém, não sendo capturado pela razão nem mesmo como conceito, não haveria como aplicar a causalidade estrita sobre aquilo que é inominável e do qual possuímos apenas uma conceitualização aproximada. Ainda assim, para fins explicativos, continuemos a tratar o nada como um conceito provisório e não insuficiente. Aplicaremos a autocausalidade sobre esse conceito de nada com o objetivo de desvelar o conteúdo do Absoluto, sua substância final.
+
+Como o conceito de autocausalidade absoluta beira o colapso lógico quando preso ao nada, tomemos outro ponto de partida. Passaremos a explorar o Absoluto não apenas pelo seu conteúdo oculto, mas por sua relação, seu dinamismo interno e sua mobilidade autocausal.
+
+O que se podia extrair da substância do Absoluto à luz do nada já foi esgotado. A partir de agora, extrairemos seu sentido abandonando a negatividade do nada para focar exclusivamente na positividade do Absoluto. Exploraremos as consequências de uma realidade absoluta puramente sob a ótica da autocausalidade, buscando uma pureza positiva, isto é, uma *pureza ontológica*.
+
+A pureza puramente negativa não é plenamente conceituável, pois não é ontológica. A pureza não ontológica colapsa: torna-se incapturável e impensável, impossibilitando a aplicação de categorias causais àquilo que escapa ao próprio pensamento. Resta-nos, contudo, o conceito de Absoluto. Aplicaremos a autocausalidade a esse horizonte investigativo em busca de encontrar a pureza fundamental e positiva, afirmativa e nomeável, a qual, futuramente, definiremos como Espírito. Partiremos rumo a essa pureza ontológica submetendo, de todas as formas possíveis, a autocausalidade ao Absoluto.
+
+---
+
+## Referências Bibliográficas Sugeridas
+
+Para embasar teoricamente o seu texto (caso esteja escrevendo um artigo, ensaio ou monografia), estas obras fundamentam exatamente as transições que você faz entre Causa Primeira, o Nada, o Absoluto e o Espírito:
+
+* **Hegel, G. W. F.** *A Ciência da Lógica*. (Especialmente o Livro I, onde Hegel trata da dialética entre o Ser e o Nada, e como ambos colapsam no Devir, caminhando para a Ideia Absoluta e o Espírito).
+* **Hegel, G. W. F.** *Fenomenologia do Espírito*. (Para fundamentar a transição da substância para o Sujeito/Espírito absoluto e o seu "dinamismo para consigo mesmo").
+* **Spinoza, Baruch.** *Ética*. (Crucial para a fundamentação da *Causa Sui* — aquilo cuja essência envolve a existência — e a definição de Substância/Absoluto que dispensa causa externa).
+* **Heidegger, Martin.** *Que é Metafísica?* (Excelente para embasar a sua discussão sobre o "nada determinado" versus o Nada ontológico originário que foge à representação puramente racional).
+* **Tomás de Aquino.** *Suma Teológica* (Primeira Parte, Questão 2). (Referência clássica e essencial para a discussão das vias da causalidade e a necessidade de uma "Causa Primeira não causada" que não permite regressão infinita).
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 REVISADO
 
@@ -1188,57 +1371,6 @@ REVISADO
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# A CAUSALIDADE E O NADA
-
-Ao considerarmos o nada como subproduto do absoluto, como materia prima ainda não lapidada, temos que a auto causalidade sobre o mesmo, está sob o nada. Isto confere que se sobressai o teor auto causal sob o nada. Ao inferirmos o nada para absoluto como auto justificação ou substancia pura, podemos lapidar melhor o absoluto para definir de forma aprimorada sua substancia.
-
-Do absoluto podemos deduzir o não causado, a fonte primaria que dispensa qualquer regressão. Podemos deduzir também que não há nada fora, anterior ou nenhuma razão que justifique o absoluto, pois absoluto, por seu próprio termo, justifica-se por si mesmo. Essas são afirmativas ainda razas, pois carecem do conteudo que a justifique.
-
-Ao aplicar os principios da causalidade sobre o nada, chegaremos a respostas que agregam um novo teor a substancia absoluta que procuramos, aquela capaz de justificar a realidade tal como é.
 
 
 
