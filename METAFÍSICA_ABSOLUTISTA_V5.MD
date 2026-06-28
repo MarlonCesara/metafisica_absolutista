@@ -1360,15 +1360,245 @@ Para embasar teoricamente o seu texto (caso esteja escrevendo um artigo, ensaio 
 REVISADO
 
 
-
+0- A existencia necessaria de um Absoluto
 0- O absoluto como horizonte metafisico
 1- O absoluto como conceito ultimo, causa primaria incausada.
-2- O nada como materia prima para absoluto, uma materia prima nao lapidada, o nada justificando o auto causal
-3- A auto causalidade sobre o nada, sobre o nada no absoluto, sob um conceito dinamico
-4- Encontrando o espirito como estabilidade
-5- Encontrando o relativo
+2- O Espírito do Absoluto.
+5- Encontrando o relativo, o espírito operando sob a incognita do nada.
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+A consolidação da sua ontologia exige, neste ponto, que estabeleçamos de forma categórica **por que** o Absoluto deve existir e **quais são** as suas propriedades intrínsecas, agora que descartamos o "nada" como fundamento e reconhecemos a necessidade de uma positividade radical (o Relativo ou Espírito).
+
+Abaixo, apresento a estruturação filosófica da necessidade do Absoluto, seguida de suas propriedades dedutíveis e das referências bibliográficas que sustentam este edifício.
+
+---
+
+## I. A Necessidade Ontológica do Absoluto
+
+A postulação do Absoluto não é um capricho dogmático, mas uma exigência lógica e ontológica incontornável. A mente humana, ao operar através dos princípios causais (como estabelecido na sua Proposição IV), defronta-se com a impossibilidade de manter o Universo sem uma base de sustentação. A necessidade do Absoluto fundamenta-se em três pilares:
+
+**1. A Falsidade da Regressão Infinita (O Colapso da Contingência)**
+Toda a realidade fenomênica e manifesta é contingente (isto é, existe, mas poderia não existir, ou poderia ser diferente). Entes contingentes não possuem em si mesmos a razão de sua existência; eles "tomam o ser emprestado" de uma causa anterior. Se a cadeia de causas fosse infinita, teríamos uma transmissão infinita de ser sem que houvesse uma *fonte* original do ser. Um trem com infinitos vagões sendo puxados uns pelos outros não se move se não houver uma locomotiva que gere a tração. O Absoluto é o "motor" necessário para interromper a regressão infinita.
+
+**2. O Princípio da Razão Suficiente Universal**
+Se todo ente exige uma causa existencial e uma causa identitária (como você estruturou na dupla fundamentação causal), a totalidade da realidade requer uma Razão Suficiente última. O universo, sendo um agregado de partes contingentes, não explica a si mesmo. A razão de ser do contingente só pode repousar naquilo que carrega a suficiência em si mesmo: o Incondicionado.
+
+**3. O Horizonte da Possibilidade**
+Como você explorou nas categorias de "Possível, Impossível e Incognoscível", as próprias possibilidades (o que pode vir a ser) exigem um "receptáculo" ontológico ou uma matriz que as sustente. O nada não pode sustentar a possibilidade, pois o nada não tem propriedades. Logo, é necessária uma "positividade primordial" — o Campo Relativo — que sirva de horizonte absoluto para que qualquer determinação seja pensável e realizável.
+
+Para existir uma pureza total ela seria ontologica, nem mesmo o nada seria puro pois nao pode ter propriedades tal como a pureza. Temos nossa substancia espoeitual agora vamos explorar o espirito e purificalo de qualquer conceito que o resignifique fora de sua pureza. Ele é indiferenciado? A realidade ontoĺogica precisa ser pura ao ponto de sua essencia ser a mesma que sua identidade
+Inicialmente chamaremos apenas de espirito a substancia definida de melhor forma do absoluto. Espirito signfica para inicio de conversa uma ontologia purissima, tao pura que se auto justifica para absoluto. O nada não nos serve para justificar os fenomenos. Nem mesmo serviria para refletir sobre ele. Nem mesmo o nada poderia ser absoluto, isto é, não poderia haver o nada absoluto, pois o nada não carrega a propriedade de absoluto ou não absoluto.
+
+Recorremos, portanto, a ontologia do espírito. O Espírito, representa uma realidade pura até mesmo do fenomeno. O Espírito carregaria a representatividade da pureza que inicialmente buscavamos no nada, carregando a ontologia que precisamos em um conceito. 
+
+Portanto, busquemos explorar essa realidade pura através da aplicação dos principios auto causais.
+
+
+
+
+
+
+
+**4. A realidade elementar**
+
+O Absoluto é um conceito que designa a totalidade, o que tange a razão e o que lhe escapa. Isto é, o impossivel, o possível e o incognocível. É a soma de todos os conceitos dentro de um resultado ontológico. É a totalidade, daquilo que é ainda que irrepresentável.
+
+O absoluto é um conceito que designa um existencia ontológica base para a causalidade.
+
+O absoluto atribuido ao nada, é uma propriedade ontológica, na qual o nada ganha uma propriedade de unicidade, e a qual ganha um elementarismo. Portanto, ao tratar o nada absoluto, temos um problema lógico, pois o nada não pode ser nem mesmo absoluto.
+
+Temos, portanto, que, o conceito de absoluto agregado ao fenomeno, como tentativa de formalizar uma causa primeira, isto é, uma origem para o fenomeno, parte de uma base ontológica que é o próprio fenomeno. Já, a tentativa de estabecer uma realidade ontológica para justificar os efeitos carece de um testemunho de que algo existe para que haja uma realidade primeira.
+
+Desta forma, o absoluto é um termo resultante do principio causal aplicado ao fenomeno. Fenomenos existem, por isto exista uma causa final, e não uma causa final existe, por isto, existem fenomenos. O absoluto, portanto, é resultante da observação e dos principios causais. Ao abordamos o termo absoluto sem que seja um efeito causal, teriamos que buscar a pureza ontológica sem que houvessem seus efeitos para tal inferencia.
+
+
+A primeira causa, que dispensa anterioridade, exterior ou uma razão pela qual existe, se dá por si mesma e é ontológica para que tenha efeitos. Por isto, se deduz uma pureza absoluta, que não porta propriedades, mas que reverba na realidade com efeitos. Como uma pureza absoluta. Que se auto justifique dada a sua pureza, e cause efeitos dada sua ontologia. 
+
+Uma existencia pura, seria, de fato Espíritual. Estamos, portanto, buscando o Espírito absoluto. Isto, é, interpretamos o Absoluto como Espírito, uma existencia purissima, que tenha efeitos na realidade.
+
+Dada o Espírito, como uma primeira definição, aquilo que é ontológico e puro. 
+
+
+Aplicaremos agora, os principios causais para exainarmos as propriedades do Absoluto como Espírito.
+
+
+
+
+
+
+
+Na tradição filosófica, o **Absoluto** representa aquilo que existe por si mesmo, de forma independente, incondicionada e total. É o fundamento último da realidade, que não depende de nenhuma outra coisa para ser concebido ou para existir — opondo-se radicalmente ao conceito de *relativo* (aquilo que depende de conexões, contextos ou de um observador).
+
+Embora a ideia de uma causa primeira ou substância única cruze toda a história do pensamento, o termo "Absoluto" ganhou centralidade máxima e contornos rigorosos na virada do século XVIII para o XIX, especialmente com o Idealismo Alemão.
+
+Abaixo, apresento um panorama que sintetiza a evolução dessa categoria conceitual, dividida pelas principais correntes filosóficas.
+
+---
+
+## O Desenvolvimento do Conceito na História da Filosofia
+
+### 1. A Antiguidade e a Procura pelo Fundamento
+
+Antes da cristalização do termo "Absoluto", os filósofos gregos buscavam o princípio supremo que sustentava o cosmos:
+
+* **Platão:** Aponta para o Bem Absoluto na forma da *Ideia do Bem*, a fonte de toda a verdade, beleza e existência no mundo inteligível.
+* **Aristóteles:** Define o *Primeiro Motor Imóvel*, uma substância pura, ato puro e pensamento que pensa a si mesmo, movendo o universo sem ser movido por nada.
+* **Plotino (Neoplatonismo):** Introduz o conceito de *O Um*, uma unidade absoluta e indizível que transcende o próprio ser, da qual toda a realidade emana de forma transbordante.
+
+### 2. A Modernidade: Substância Imanente e Limites da Razão
+
+No período moderno, a busca pelo incondicionado ganha contornos lógicos e epistemológicos:
+
+* **Baruch Spinoza:** Revoluciona o conceito ao fundir Deus e a Natureza em uma única realidade (*Deus sive Natura*). Para Spinoza, existe apenas uma única substância infinita e absoluta. Tudo o que existe no mundo físico ou mental são apenas "modos" ou manifestações passageiras dessa substância única.
+* **Immanuel Kant:** Promove uma reviravolta ao afirmar que a razão humana busca naturalmente o incondicionado (o Absoluto), mas está estruturalmente limitada a conhecer apenas os fenômenos (a realidade como aparece para nós). O Absoluto (a "coisa em si" ou *númeno*) permanece inacessível ao conhecimento científico e seguro.
+
+### 3. O Idealismo Alemão: O Auge do Absoluto
+
+Como reação aos limites impostos por Kant, os idealistas alemães colocaram o Absoluto no centro de seus sistemas, não mais como algo estático, mas como um princípio vivo e dinâmico.
+
+* **Johann Fichte:** O Absoluto é o *Eu Puro* ou a Consciência Absoluta, uma atividade originária que põe a si mesma e, para se realizar, põe também o "Não-Eu" (o mundo objetivo).
+* **Friedrich Schelling:** Propõe a *Filosofia da Identidade*. Para ele, o Absoluto é a indiferença ou unidade originária entre Espírito (Sujeito) e Natureza (Objeto). A natureza é o espírito visível; o espírito é a natureza invisível. Ambos nascem da mesma fonte absoluta.
+* **G. W. F. Hegel:** Para Hegel, o Absoluto não é uma unidade estática e imediata (critica a Schelling dizendo que seu absoluto era "a noite em que todos os gatos são pardos"). O Absoluto em Hegel é o **Espírito (*Geist*)**, que se desdobra historicamente através de um processo dialético. Ele sai de si (aliena-se na natureza), passa pela história humana e retorna a si mesmo plenamente consciente e livre. Assim, o Absoluto não é apenas o ponto de partida, mas essencialmente o *resultado* de seu próprio desenvolvimento.
+
+### 4. Críticas e a Desconstrução Contemporânea
+
+A partir do final do século XIX, a filosofia passa a desconfiar de grandes sistemas metafísicos que tentam explicar a totalidade:
+
+* **Friedrich Nietzsche:** Rejeita qualquer noção de Absoluto (seja Deus, a Razão ou a Verdade universal), denunciando-os como ilusões criadas pelo ser humano para fugir do caos e do fluxo constante da vida real (o perspectivismo).
+* **Henri Bergson:** Propõe que a ciência capta o relativo, enquanto a filosofia busca o Absoluto por meio da *intuição*. Esse absoluto bergsoniano não é um conceito lógico abstrato, mas a própria duração pura e o fluxo contínuo da vida (*élan vital*).
+* **Escola de Frankfurt (Max Horkheimer e Theodor Adorno):** Na *Dialética do Esclarecimento*, criticam a tentativa de aprisionar a realidade em sistemas totalizantes (o Absoluto hegeliano), argumentando que o pensamento que busca a totalidade absoluta pode se transformar em dominação política e ideológica.
+
+---
+
+## Referências Bibliográficas
+
+Para um aprofundamento rigoroso sobre as definições e o desenvolvimento histórico do conceito de Absoluto, recomendam-se as seguintes obras de referência:
+
+* **ARISTÓTELES.** *Metafísica* (Livro Lambda/XII). (Para compreender o Primeiro Motor Imóvel).
+* **BERGSON, Henri.** *Introdução à Metafísica*. In: *O Pensamento e o Movente*. São Paulo: Martins Fontes, 2006. (Aborda a distinção entre o conhecimento relativo e o absoluto pela intuição).
+* **COPLESTON, Frederick C.** *A History of Philosophy: Volume 7 - Fichte to Nietzsche*. New York: Image Books, 1994. (Excelente manual de história da filosofia detalhando o debate do Idealismo Alemão).
+* **HEGEL, G. W. F.** *Fenomenologia do Espírito*. Tradução de Paulo Meneses. Petrópolis: Vozes, 2014. (Especialmente o "Prefácio" e a seção sobre o "Saber Absoluto").
+* **KANT, Immanuel.** *Crítica da Razão Pura*. Tradução de Manuela Pinto dos Santos e Alexandre Fradique Morujão. Lisboa: Fundação Calouste Gulbenkian, 2018. (Onde discute a ilusão transcendental e o incondicionado).
+* **SCHELLING, F. W. J.** *Sistema do Idealismo Transcendental*. Tradução de Noéli Correia de Melo Sobrinho. Bragança Paulista: Editora Universitária São Francisco, 2002.
+* **SPINOZA, Baruch.** *Ética*. Tradução de Tomaz Tadeu. Belo Horizonte: Autêntica Editora, 2015. (Parte I: "De Deus", onde define a substância única e absoluta).
+
+---
+
+Para visualizar de forma mais dinâmica como a filosofia compreende esse desdobramento contínuo do Absoluto na história, recomendo assistir à aula [Hegel | História da Filosofia | Prof. Vitor Lima](https://www.youtube.com/watch?v=g-tHYKMDvRg). O vídeo foca especificamente em como a realidade se movimenta dialeticamente para que o Espírito atinja o seu grau máximo de autoconhecimento, que é o Ser Absoluto.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## II. As Propriedades Essenciais do Absoluto
+
+Uma vez provada a sua necessidade, o Absoluto não pode possuir propriedades arbitrárias. Suas características são deduzidas estritamente a partir do fato de que ele é a *Causa Sui* (Causa de Si).
+
+* **1. Asseidade (Existência a partir de Si Mesmo):**
+O Absoluto possui "asseidade" (do latim *a se*, "a partir de si"). Sua essência não está separada de sua existência. Diferente de um ente criado, cuja essência aguarda a existência, no Absoluto, existir é a sua própria natureza. Ele é a pura afirmação de ser.
+* **2. Simplicidade Radical (Indivisibilidade):**
+O Absoluto não pode ser composto de partes (sejam materiais ou conceituais). Se fosse composto, as partes seriam logicamente anteriores a ele, e ele dependeria de um princípio organizador externo para uni-las, o que anularia sua condição de primeira causa. Sua pureza total significa que nele não há divisão entre ato e potência.
+* **3. Infinitude e Incondicionalidade:**
+Por não ter causa externa, o Absoluto não possui limites impostos de fora. A limitação é sempre o resultado de uma força externa que circunscreve um ente. Sendo o fundamento total, ele é infinito (no sentido de plenitude, não de mera extensão espacial) e incondicionado (absolvido de qualquer relação de dependência — daí a origem da palavra *absolutus*).
+* **4. Dinamismo Vivo (A Pessoalidade do Espírito):**
+Como você concluiu magistralmente ao refutar o "Indiferenciado" inerte, o Absoluto não é um abismo morto, mas o "Relativo" que porta o potencial. Para que o Absoluto seja origem da multiplicidade e da vida fenomênica sem perder a sua unidade, ele precisa possuir uma vitalidade intrínseca, uma "Substância-Sujeito". Ele é o Espírito incausado, uma pureza viva que atua sobre si mesma.
+
+---
+
+## III. Fundamentação Filosófica e Referências Bibliográficas
+
+A argumentação de que o mundo contingente exige um Absoluto com propriedades específicas de autocausalidade e simplicidade é o espinha dorsal da metafísica ocidental.
+
+**1. Aristóteles e o Primeiro Motor Imóvel**
+
+* **Referência:** *Metafísica* (Livro XII - Lambda).
+* **Conceito:** Aristóteles demonstra que o movimento e a mudança no mundo exigem uma primeira causa que mova as coisas sem, ela mesma, ser movida por nada exterior. Este *Primeiro Motor* deve ser "Ato Puro" (*energeia*), sem nenhuma potência passiva (pois a potência implicaria dependência de algo exterior para ser atualizada). Para Aristóteles, o Absoluto é vida pura e pensamento que pensa a si mesmo (*noesis noeseos*).
+
+**2. Tomás de Aquino e as Cinco Vias (A Necessidade)**
+
+* **Referência:** *Suma Teológica* (*Summa Theologiae*, Primeira Parte, Questão 2, Artigo 3).
+* **Conceito:** Na Terceira Via (a via da Contingência e Necessidade), Aquino argumenta que tudo o que observamos no mundo pode existir ou não existir (são contingentes). Se tudo fosse contingente, em algum momento nada teria existido, e nada existiria agora (pois *ex nihilo nihil fit*). Logo, é obrigatória a existência de um **Ser Necessário** que tenha a sua necessidade em si mesmo e seja a causa da necessidade de todos os outros. Na Questão 3, ele deduz que esse Ser deve ser absolutamente *simples* (sem composição).
+
+**3. Gottfried Wilhelm Leibniz e a Razão Suficiente**
+
+* **Referência:** *A Monadologia* (§ 36, 37 e 38) e *Princípios da Natureza e da Graça* (§ 7 e 8).
+* **Conceito:** Leibniz formula a célebre pergunta: *"Por que existe algo em vez de nada?"*. Ele responde com o Princípio da Razão Suficiente: a série infinita de coisas contingentes do universo não contém em si a razão de sua existência. A razão última das coisas deve estar numa "Substância Necessária" exterior à série das contingências, a qual carrega a razão de sua própria existência.
+
+**4. Baruch Spinoza e a Substância Única**
+
+* **Referência:** *Ética* (Parte I: De Deus).
+* **Conceito:** Spinoza defende que deve existir uma, e apenas uma, Substância no universo. Ele a define como "Causa Sui" (Causa de Si). Spinoza prova que a Substância é infinita e indivisível (simples), pois se fosse delimitada, teria que sê-lo por outra substância da mesma natureza, o que criaria duas substâncias absolutas, um absurdo lógico.
+
+**5. G.W.F. Hegel e a Substância como Sujeito (O Absoluto Vivo)**
+
+* **Referência:** *Fenomenologia do Espírito* (Prefácio).
+* **Conceito:** Enquanto Spinoza pensava a Substância de forma geométrica e um tanto inerte, Hegel dá o passo que você estruturou como o "Espírito do Absoluto". Para Hegel, o Absoluto não é apenas o ponto de partida (o fundamento), mas é essencialmente "Sujeito". O Absoluto é vivo, é processo, é o Espírito que sai de si mesmo, manifesta-se no mundo e retorna a si. Essa é a referência definitiva para a sua ideia do "Relativo" como um portador de potencial dinâmico.
 
 
 
@@ -10527,3 +10757,14 @@ Sobre o estado de "morte em vida" e a cegueira espiritual daqueles que manipulam
 * **Søren Kierkegaard (*O Desespero Humano*):** Explora o que ele chama de "doença até a morte" — um estado de desespero em que a pessoa, embora respire e ande, está morta por dentro, pois perdeu a conexão com o sagrado e com o seu propósito. Esse conceito ajuda a entender que a exploração econômica e a miséria moral são, na raiz, uma doença profunda da alma.
 
 ---
+
+
+
+
+
+
+
+O desontista faz acoes de duplo sentido
+Para ter aceitacao social
+Se indigna com a comformidade social a seu estado de auto anulacao
+
