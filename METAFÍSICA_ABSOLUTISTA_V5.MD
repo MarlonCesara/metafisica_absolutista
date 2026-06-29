@@ -10924,8 +10924,12 @@ Desta forma, o controle tecnologico, se faz mais eficaz que o controle financeir
 
 O direitos mais fundamentais são garantidos desde que haja forças para combate-los. Quando criados meios de coerção que não sejam agressivos ao planeta como armas de destruição em massa. Que sejam mais dramaticos e coarcivos que as grandes fortunas, então meios alternantes de controle pode se desenvolver. Então, a humanidade precisa garantir que a evolção tecnologica esteja em boas mãos e que o controle economico do mundo nao esteja centralizado em mãos alheias se não pelas forças politicas e poderes publicos.
 
+O poder economico exerce grande controle sobre a politica, sendo fomentado pelas classes que se afastam da pobreza e idealizado pelas classes dominantes que detem o poder economico, seja pelo voto, ou pela manipulação das grandes midias.
+
+Isto é, a classe burguesa sustenta pelo voto enquanto a classe bilionária, sustenta a manipulação pela poder economico. O interesse é qu e haja privilégios, e não o interesse legitimo por direitos, pois a classe a e b não se interessa em se defender da classe dos bilionários, se interessa pela manutenção da escravidão. Não se interessa pela riqueza, mas se interessa que o outro sofra.
 
 
+O acumulo de riquezas por bilionários é um segundo poder politico não elegivel que usa não o executivo, mas a força e outros meios de execução. Enquanto houver bilionarios, haverá um governo ou governos descentralizados, agindo na tangente dos interesses publicos. O dinheiro acumulado é uma forma de fazer governo sem ser votado.
 
 
 
