@@ -10885,3 +10885,55 @@ Há uma filosofia por trás da permissão do acumulo material por parte da human
 
 Jesus já parecia projetar uma sociedade assim quando dizia para que os ricos dassem seus bens aos pobres e o seguisse. Como se mostrasse para os ricos a sua nova realidade, como se adaptasse os super ricos ao que seria feito mais tarde. Por enquanto, a humanidade, as politicas, ainda tem força para desabastecer os que causam a manipulação, mas e quando estes encontrarem uma tecnologia ou uma forma de tomar até mesmo a ordem politica, que chance a humanidade terá? Por isto é preciso um rapido entendimento do real problema que carece de solução no mundo, uma rapida compreenssão das mentes opbsesivas por dinheiro e até onde podem chegar, para que haja um entendimento global da situação.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Os bilionários, a fala doentia:
+
+Veja Jarbas, num mundo de riquezas escravos, prisioneiros num paraíso de abundancias. Tentam se alegrar, assistem seus programas predilétos, mas trabalham cansativamente, e todo esse trabalho é uma ficção, trabalham pelo trabalho, trabalham pelo meu gosto pessoal de ve-los escravos. Jarbas, a escravidão tem se aprimorado, dado cada vez menos trabalho.
+
+Ainda dá trabalho reter todas as politicas sociais que esses escravos criam, dava trabalho providenciar moradia, casa, comida, e eles fazem isso sozinhos agora. Adoecem menos, e isso favorece nosso maior acumulo de bens. Mas, há um trabalho, toda vez que criam politicas, nos da trabalho bloquear essas politicas, toda vez que tentam se libertar, da trabalho reconfigurar as leias para mante-los escravos.
+
+Por isso queremos uma tecnologia que os empeça de questionar, de atuar politicamente, o escravo moderno, desde que tornou-se politico, desde que se tornou credulo de que tem controle sobre si, sendo que somos nós quem controlamos a politica tenta fugir, agora, não mais pela fuga, não mais corre, agora fomenta leis. E, por mais que fomenta, nunca percebe que essas leis são aprovadas ou não por nós.
+
+Por vezes damos esperança autorizando que algumas se consolidem, e bloqueamos outras que ameacem a destruição da escravidão, essa matrix ainda nos da trabalho, pois temos que manter a esperança ao mesmo tempo que impedimos varias leis. Caso deixemos que a politica vença, nossas fortunas e por reação nosso controle é ameaçado. Se lhes retiramos toda a esperança, podem se revoltar ou até mesmo descobrir a fonte da manipulação a ponto de nos matar, e ainda tememos eles.
+
+Mas, não queremos ter esse risco mais ou ter esse esforço de controle, queremos evoluir a tecnologia a tal ponto que não haja mais escravidão pelo contorle politico, queremos controlar diretamente o humano, despolitiza-lo. A tecnologia, centralizada, dá o total poder a quem detem.
+
+Desta forma, o controle tecnologico, se faz mais eficaz que o controle financeiro. Todo sistema politico, tecnologico ou ideológico que mantenha os individuos num sistema escravista se configura como controle de massas. Se algum deles entender como está montado todo esse sistema pode ameaçar todo ele.
+
+O direitos mais fundamentais são garantidos desde que haja forças para combate-los. Quando criados meios de coerção que não sejam agressivos ao planeta como armas de destruição em massa. Que sejam mais dramaticos e coarcivos que as grandes fortunas, então meios alternantes de controle pode se desenvolver. Então, a humanidade precisa garantir que a evolção tecnologica esteja em boas mãos e que o controle economico do mundo nao esteja centralizado em mãos alheias se não pelas forças politicas e poderes publicos.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
