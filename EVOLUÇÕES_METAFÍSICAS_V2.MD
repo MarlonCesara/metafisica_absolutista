@@ -653,7 +653,7 @@ Ao concebermos o nada como uma existência potencialmente manifestável — isto
     * *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
     * *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.
 
-### ** A Insustentabilidade Ontológica do Nada**
+### **A Insustentabilidade Ontológica do Nada**
 O nada, enquanto conceito, **não possui autonomia ontológica** — sua definição é inteiramente **relacional e derivada**. Ele só existe como **negação de algo previamente estabelecido**, seja como realidade manifesta, seja como possibilidade lógica. O nada é uma anulação da substância, um estado da substância anulada. Portanto, a investigação demonstra, de forma rigorosa, que o "nada" é insustentável como princípio explicativo, pois:
 
 1.  **Dependência Absoluta (Parasitário):** O nada não é um "ente" em si mesmo, mas **um operador lógico** que pressupõe um referencial positivo. Ele depende do "algo" que pretende negar. (*Exemplo:* A "ausência de som" só faz sentido se o som for uma categoria possível).
