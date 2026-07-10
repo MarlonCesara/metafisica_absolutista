@@ -460,7 +460,7 @@ A separação entre essência e existência é uma ferramenta analítica necess�
 
 Fica demonstrado que o regime causal do indiferenciado não obedece às leis da mecânica ou da sucessão temporal dos entes. Nele, **causar e ser são sinônimos**. Essa indistinção é o que permite que o indiferenciado sirva de fundamento para todas as realidades determinadas, sem nunca se tornar, ele mesmo, um objeto sujeito às mesmas limitações de causa e efeito.
 
-# PROPOSIÇÃO: O HORIZONTE RACIONALIZAVEL
+# PROPOSIÇÃO: O HORIZONTE DA RAZÃO
 
 ## As Três Categorias Radicais da razão
 
