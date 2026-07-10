@@ -700,7 +700,7 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 
 ## **PROPOSIÇÃO: O ABSOLUTO INDIFERENCIADO**
 
-### ** O Absoluto Indiferenciado**
+### **O Absoluto Indiferenciado**
 
 Como o "nada" não está sujeito às regras da causalidade que regem o "algo", elegê-lo como fundamento para uma realidade autocausada constitui um argumento quase defensável. Parte-se da premissa de que o "nada", em sua concepção absoluta, possuiria o potencial de se autocausar precisamente por carecer de qualquer conteúdo ou atributo que exigisse uma causa ou justificação externa. No entanto, a investigação metafísica conduzida até aqui demonstra que o conceito de "nada" não oferece uma explicação satisfatória para a emergência de uma realidade autofundamentada. Embora sua aparente simplicidade lógica — a ideia de uma ausência primordial isenta de propriedades — possa sugerir uma base para a autojustificação ontológica, uma análise rigorosa revela sua insustentabilidade. O "nada" revela-se uma construção parasitária, dependente da noção de "algo" que pretensamente nega, incapaz de servir como fundamento último.
 
