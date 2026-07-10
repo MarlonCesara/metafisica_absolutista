@@ -735,7 +735,7 @@ Para estruturar o Campo indiferenciado formalmente, estabelecemos os seguintes p
 | **Coexistência Mútua** | Podem coexistir como variações de mesma essência | Água quente e fria |
 | **Exclusão Recíproca** | Não podem coexistir se forem opostos absolutos | Luz total e escuridão total |
 
-### ** O indiferenciado como Pureza Absoluta: A Gênese Dialética do Fundamento Indiferenciado**
+### **O indiferenciado como Pureza Absoluta: A Gênese Dialética do Fundamento Indiferenciado**
 A investigação metafísica nos confronta com um paradoxo fundamental: a concepção do nada como realidade pura revela-se autodestrutiva. Ao negarmos o nada, emerge inevitavelmente a presença; ao negarmos esta presença, recaímos no nada, estabelecendo um ciclo infinito de negações que não logra atingir o fundamento último. Esta circularidade evidencia a inadequação do nada como princípio explicativo.
 
 Para transcender este impasse, devemos conceber uma realidade afirmativa que preserve a pureza do "nada" — sua indeterminação aparente — mas que simultaneamente se constitua como presença autofundamentadora. Tal realidade não pode ser o nada propriamente dito, pois este, quando afirmado como entidade metafísica, transforma-se paradoxalmente em "algo", demandando justificação externa.
