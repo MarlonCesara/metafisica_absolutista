@@ -1087,7 +1087,7 @@ Isto é, podemos extrair aspectos positivos do nada — aspectos positivos da co
 
 A inferência sobre o nada demonstrará que o nada ontológico é, na verdade, o Espírito. O nada mentalizado possui permanência, atemporalidade e estabilidade. O ato de imaginar o nada sobressai à mera razão, projetando sobre o nada aspectos espirituais; com isso, o nada ganha novos contornos. Ele se torna espiritual, intencional e adquire liberdade. Portanto, ao investigarmos o nada, percebemos que ele não é isolado em si mesmo: ele necessariamente portaria uma positividade, ainda que se esvaziasse de tal positividade para se constituir como nada.
 
-
+Em outras palavras, é do nada que se sobressai o Espírito — como veremos adiante. Do próprio nada, inferimos pessoalidade, intencionalidade, liberdade e a indistinção entre determinação e existência. Em suma, do nada inferimos o Espírito: aquele que, embora exista sem propriedades assim como o nada, carrega em si a positividade.
 
 
 REVISADO
@@ -1097,9 +1097,29 @@ REVISADO
 
 
 
-Ao explorarmos essa realidade incausada, chegamos à causa da intencionalidade. O indiferenciado não é indiferente de si, então não podemos usar o indiferenciado para conceituar o inefável ou o nada. Na Pureza, não há distinção entre determinação e existência. Sua identidade é fundida ao próprio existir: a Pureza é a causa de sua própria existência (causa sui), formando uma unicidade indissolúvel entre identidade e ser. A própria Pureza não justifica a identidade e a causa como coisas separadas, uma vez que ambas estão dissolvidas numa só realidade. Existe, assim, uma relação interna e perfeita entre a causa e o causado.
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Na Pureza, não há distinção entre determinação e existência. Sua identidade é fundida ao próprio existir: a Pureza é a causa de sua própria existência (causa sui), formando uma unicidade indissolúvel entre identidade e ser. A própria Pureza não justifica a identidade e a causa como coisas separadas, uma vez que ambas estão dissolvidas numa só realidade. Existe, assim, uma relação interna e perfeita entre a causa e o causado.
 
 
 0- A existencia necessaria de um Absoluto-dado a causalidade
