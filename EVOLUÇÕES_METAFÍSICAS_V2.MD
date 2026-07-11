@@ -1012,51 +1012,17 @@ O potencial do indiferenciado, portanto, voltado a si mesmo, não atinge o poten
 
 Em síntese, o indiferenciado busca a nulidade ao colocar-se como radicalmente diferente de qualquer coisa, enquanto o nada a persegue ao recusar-se a ser coisa alguma. Ambos os caminhos representam vias distintas que partem do mesmo intuito e desaguam no mesmo resultado: a tentativa de estabelecer uma substância incausada.
 
-
-
-
-
-
-
-
-
-
-REVISADO
-
-
-0- A existencia necessaria de um Absoluto-dado a causalidade
-0- O absoluto como horizonte metafisico
-2- O Espírito do Absoluto, como pureza e não como indiferenciado
-3- A identidade fundida a existencia
-5- A relação auto causal, a relação com a existencia. 
-6- A estabilidade
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+O nada, ou o indiferenciado, são, portanto, conceitos dinâmicos, incapazes de sintetizar conceitualmente o seu verdadeiro significado.
 
 ### A Rejeição do Nada e a Ontologia do Espírito (A Realidade Pura)
 
 O Absoluto é um conceito que designa uma existência ontológica que serve de base para toda a causalidade. Ele engloba a totalidade, o que tange à razão e o que lhe escapa: o impossível, o possível e o incognoscível. É a soma de todos os conceitos dentro de um resultado ontológico, a totalidade daquilo que é, ainda que irrepresentável.
 
-Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontológica de unicidade e elementarismo. Tratar do "nada absoluto" gera um problema lógico intransponível, pois o nada não possui propriedades, não podendo ser nem absoluto, nem relativo. O nada não nos serve para justificar os fenômenos, nem mesmo como base para refletir sobre eles. Para existir uma pureza total, ela precisa ser ontológica; o nada não pode ser puro, pois a pureza é, em si, uma propriedade.
+Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontológica de unicidade e elementarismo. Tratar do "nada absoluto" gera um problema lógico intransponível, pois o nada não possui propriedades, não podendo ser absoluto, isto é, o incausado. O nada não nos serve para justificar os fenômenos, nem mesmo como base para refletir sobre eles. Para existir uma pureza total, ela precisa ser ontológica; o nada não pode ser puro, pois a pureza é, em si, uma propriedade.
 
 Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada.
 
-Chamamos essa substância de Espírito ou Pureza. Ao explorarmos essa realidade incausada, chegamos à causa da intencionalidade. O indiferenciado não é indiferente de si, então não podemos usar o indiferenciado para conceituar o inefável ou o nada. Na Pureza, não há distinção entre determinação e existência. Sua identidade é fundida ao próprio existir: a Pureza é a causa de sua própria existência (causa sui), formando uma unicidade indissolúvel entre identidade e ser. A própria Pureza não justifica a identidade e a causa como coisas separadas, uma vez que ambas estão dissolvidas numa só realidade. Existe, assim, uma relação interna e perfeita entre a causa e o causado.
+Chamamos essa substância de Espírito ou Pureza. 
 
 ### A Dedução a partir do Fenômeno
 
@@ -1064,11 +1030,9 @@ O conceito de Absoluto agregado ao fenômeno surge como tentativa de formalizar 
 
 Desta forma, o Absoluto é um termo resultante do princípio causal aplicado à observação fenomenológica: sabemos que os fenômenos existem; logo, existe uma causa primeira. Não é o inverso (uma causa primeira existe e, por isso, deduzimos os fenômenos). Ao abordarmos o termo Absoluto sem que ele seja um mero efeito causal, buscamos a pureza ontológica. Como a Primeira Causa se dá por si mesma e é ontológica, ela reverbera na realidade através de efeitos. Deduz-se, então, o Espírito Absoluto: uma existência puríssima que se autojustifica por sua pureza, mas que causa efeitos na realidade devido à sua força ontológica.
 
----
+## A Necessidade Ontológica do Absoluto
 
-## I. A Necessidade Ontológica do Absoluto
-
-A consolidação dessa ontologia exige estabelecer de forma categórica **por que** o Absoluto deve existir e **quais são** as suas propriedades intrínsecas, reconhecendo a necessidade de uma positividade radical (o Relativo ou Espírito).
+A consolidação dessa ontologia exige estabelecer de forma categórica **por que** o Absoluto deve existir e **quais são** as suas propriedades intrínsecas, reconhecendo a necessidade de uma positividade radical (Espírito).
 
 A postulação do Absoluto não é um capricho dogmático, mas uma exigência lógica e ontológica incontornável. A mente humana defronta-se com a impossibilidade de manter o Universo sem uma base de sustentação. A necessidade do Absoluto fundamenta-se em três pilares:
 
@@ -1079,44 +1043,12 @@ Toda a realidade fenomênica e manifesta é contingente (isto é, existe, mas po
 Se todo ente exige uma causa existencial e uma causa identitária, a totalidade da realidade requer uma Razão Suficiente última. O universo, sendo um agregado de partes contingentes, não explica a si mesmo. A razão de ser do contingente só pode repousar naquilo que carrega a suficiência em si mesmo: o Incondicionado.
 
 **3. O Horizonte da Possibilidade**
-As próprias categorias do possível (o que pode vir a ser) exigem um "receptáculo" ontológico ou uma matriz que as sustente. O nada não pode sustentar a possibilidade, pois não tem propriedades. Logo, é necessária uma "positividade primordial" — o Campo Relativo ou Espírito — que sirva de horizonte absoluto para que qualquer determinação seja pensável e realizável.
+As próprias categorias do possível (o que pode vir a ser) exigem um "receptáculo" ontológico ou uma matriz que as sustente. O nada não pode sustentar a possibilidade, pois não tem propriedades. Logo, é necessária uma "positividade primordial" — o Espírito — que sirva de horizonte absoluto para que qualquer determinação seja pensável e realizável.
 
 ---
 
-## II. O Desenvolvimento do Conceito na História da Filosofia
 
-Na tradição filosófica, o **Absoluto** representa aquilo que existe por si mesmo, de forma independente, incondicionada e total. É o fundamento último da realidade, opondo-se radicalmente ao *relativo* (aquilo que depende de conexões, contextos ou de um observador).
-
-### 1. A Antiguidade e a Procura pelo Fundamento
-
-Antes da cristalização do termo "Absoluto", os filósofos gregos buscavam o princípio supremo que sustentava o cosmos:
-
-* **Platão:** Aponta para o Bem Absoluto na forma da *Ideia do Bem*, a fonte de toda a verdade, beleza e existência no mundo inteligível.
-* **Aristóteles:** Define o *Primeiro Motor Imóvel*, uma substância pura, ato puro e pensamento que pensa a si mesmo, movendo o universo sem ser movido por nada.
-* **Plotino (Neoplatonismo):** Introduz o conceito de *O Um*, uma unidade absoluta e indizível que transcende o próprio ser, da qual toda a realidade emana de forma transbordante.
-
-### 2. A Modernidade: Substância Imanente e Limites da Razão
-
-No período moderno, a busca pelo incondicionado ganha contornos lógicos e epistemológicos:
-
-* **Baruch Spinoza:** Revoluciona o conceito ao fundir Deus e a Natureza em uma única realidade (*Deus sive Natura*). Para Spinoza, existe apenas uma única substância infinita e absoluta. Tudo o que existe no mundo físico ou mental são apenas "modos" ou manifestações passageiras dessa substância única.
-* **Immanuel Kant:** Promove uma reviravolta ao afirmar que a razão humana busca naturalmente o incondicionado (o Absoluto), mas está estruturalmente limitada a conhecer apenas os fenômenos (a realidade como aparece para nós). O Absoluto (a "coisa em si" ou *númeno*) permanece inacessível ao conhecimento científico seguro.
-
-### 3. O Idealismo Alemão: O Auge do Absoluto
-
-Como reação aos limites impostos por Kant, os idealistas alemães colocaram o Absoluto no centro de seus sistemas, não mais como algo estático, mas como um princípio vivo e dinâmico:
-
-* **Johann Fichte:** O Absoluto é o *Eu Puro* ou a Consciência Absoluta, uma atividade originária que põe a si mesma e, para se realizar, põe também o "Não-Eu" (o mundo objetivo).
-* **Friedrich Schelling:** Propõe a *Filosofia da Identidade*. Para ele, o Absoluto é a indiferença ou unidade originária entre Espírito (Sujeito) e Natureza (Objeto). Ambos nascem da mesma fonte absoluta.
-* **G. W. F. Hegel:** Para Hegel, o Absoluto não é uma unidade estática e imediata. O Absoluto é o **Espírito (*Geist*)**, que se desdobra historicamente através de um processo dialético. Ele sai de si (aliena-se na natureza), passa pela história humana e retorna a si mesmo plenamente consciente e livre. O Absoluto não é apenas o ponto de partida, mas essencialmente o *resultado* de seu próprio desenvolvimento.
-
-### 4. Críticas e a Desconstrução Contemporânea
-
-A partir do final do século XIX, a filosofia passa a desconfiar de grandes sistemas metafísicos que tentam explicar a totalidade:
-
-* **Friedrich Nietzsche:** Rejeita qualquer noção de Absoluto (seja Deus, a Razão ou a Verdade universal), denunciando-os como ilusões criadas pelo ser humano para fugir do caos e do fluxo constante da vida real.
-* **Henri Bergson:** Propõe que a ciência capta o relativo, enquanto a filosofia busca o Absoluto por meio da *intuição*. Esse absoluto bergsoniano não é um conceito lógico abstrato, mas a própria duração pura e o fluxo contínuo da vida (*élan vital*).
-* **Escola de Frankfurt (Max Horkheimer e Theodor Adorno):** Na *Dialética do Esclarecimento*, criticam a tentativa de aprisionar a realidade em sistemas totalizantes, argumentando que o pensamento que busca a totalidade absoluta pode se transformar em dominação política e ideológica.
+REVISADO
 
 
 
@@ -1141,6 +1073,24 @@ A partir do final do século XIX, a filosofia passa a desconfiar de grandes sist
 
 
 
+
+
+
+
+
+
+
+Ao explorarmos essa realidade incausada, chegamos à causa da intencionalidade. O indiferenciado não é indiferente de si, então não podemos usar o indiferenciado para conceituar o inefável ou o nada. Na Pureza, não há distinção entre determinação e existência. Sua identidade é fundida ao próprio existir: a Pureza é a causa de sua própria existência (causa sui), formando uma unicidade indissolúvel entre identidade e ser. A própria Pureza não justifica a identidade e a causa como coisas separadas, uma vez que ambas estão dissolvidas numa só realidade. Existe, assim, uma relação interna e perfeita entre a causa e o causado.
+
+
+
+
+0- A existencia necessaria de um Absoluto-dado a causalidade
+0- O absoluto como horizonte metafisico
+2- O Espírito do Absoluto, como pureza e não como indiferenciado
+3- A identidade fundida a existencia
+5- A relação auto causal, a relação com a existencia. 
+6- A estabilidade
 
 
 ---
@@ -10463,7 +10413,7 @@ O niilista olha tudo a sua volta, ve que tudo é lindo e bonito, e se indigna pr
 
 
 
-
+Descrição do desontista, olhos opacos, sem vida. Um ódio primordial, que percorre de forma latenta suas ações, seus desejos. Uma ferida que nunca sara. Um ódio resgatado do passado, e que, se renova a cada acontecimento, como se fosse mirado nos fatos. Como se estivesse impregnado em todo o passado.
 
 
 
