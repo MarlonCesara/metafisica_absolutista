@@ -1071,21 +1071,27 @@ As próprias categorias do possível (o que pode vir a ser) exigem um "receptác
 
 ---
 
+## A inferencia sobre o nada
+
+Sob o propósito de encontrar o aspecto espíritual no absoluto, isto é, no incausado, considerando que todo retorno ontológico se da uma causa positiva e necessariamente pura. Temos que, ter um ponto de inferencia para encontrar tal ontologia, ou aspecctos desta pureza. E, para isto, vamos inferir sobre o nada. O nada será nosso ponto de partida para encontrar a ação espiritual. Inferir sob o nada é, na verdade, segregar o nada como nada absoluto, no sentido de que, a inferencia nos levará a concluir se o nada é possível absoluto, ou se para o nada há necessariamente o Espírito. Isto quer dizer que, testaremos através do principio da causalidade, ainda a possibilidade de que o nada seja soberano, inferindo, desta vez, sob o próprio nada.
+
+Exploraremos o nada ou indiferenciado como hipoteses em suas internalidades. Se, exploramos o que seria o nada, agora exploraremos por outro angulo, o angulo sob como o nada funcionária de fato.
+
+Como exemplo, podemos citar a estabilidade do nada, se nada é nada, então temos um aspecto atemporal e um temporal para analisa-lo. O ato da nadificação, sendo está uma nulidade, exige, como ação, uma atemporalidade ou temporalidade. Isto quer dizer que, podemos citar aspectos deterministicos para nada, como a causa de sua estabilidade, é preciso que haja uma razão para que o nada se mantenha nulidade no tempo e atemporalmente.
+
+O nada supoe, como veremos adiante, intencionalidade, liberdade em nível metafisico, temporalidade, atemporalidade e diversos aspectos que dispertam o pensamento sob o nada de uma ótica espíritual, uma vez que, os aspectos permanecem subjacentes do nada, enquanto o nada escapa a si mesmo.
+
+Isto é, podemos retirar aspectos positivos do nada, aspectos positivos da completa inexistencia, de forma que a ontologia se justifique por si mesma, e não pelo nada. Isto é, não é uma negação do nada, mas elementos necessarios para o nada. Elementos positivos, que podem ser definidos como a pureza ontológica que procuramos.
+
+
+
+
+
+
+
+
 
 REVISADO
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -1229,7 +1235,7 @@ O relativo está em relação ao infinito, ou seja, o infinito de espaço e temp
 
 Todas as possibilidades em suspensão resulta em uma infinitude de possibilidades, tal como o tempo em sua completude se resume ao atemporal. Portanto, o Absoluto não fragmentado é uma suspensão das possibilidades de forma que isto resulte em um infinito possível, não somente de tempo, espaço, mas das próprias possibilidades. Desta forma, temos o termo "Ser" como sinônimo de uma existência indiferenciada, que porta e abrange tudo que é.
 
-### **8.11. A Estrutura do Possível e do Impossível na Lógica Assimétrica**
+### **A Estrutura do Possível e do Impossível na Lógica Assimétrica**
 * **Dissolução entre Possibilidade e Impossibilidade:** Possibilidade e Impossibilidade são aspectos do Absoluto, não opções mutuamente excludentes. A impossibilidade não "existe" no sentido convencional, mas está contida no Absoluto como impossibilidade lógica. A possibilidade emerge não por uma "escolha", mas como manifestação necessária da estrutura autoconsistente do Absoluto.
 * **Nível de Manifestação na Lógica Aristotélica:** A possibilidade emerge como o subconjunto autoconsistente do Absoluto. A impossibilidade permanece como "não-manifesta" (impossibilidades lógicas).
 * **O Nada e a Autofundamentação na Lógica Aristotélica:** Se o "nada" fosse possível, exigiria uma **razão para sua prevalência** sobre o ser. Mas o nada **não tem poder causal**, logo, não pode anular o ser. O Absoluto não "escolhe" entre ser e nada; ele simplesmente é.
@@ -1248,7 +1254,7 @@ Todas as possibilidades em suspensão resulta em uma infinitude de possibilidade
 | **Colapso Dialético** | Dissolução mútua | Perda do contraste constitutivo | Unificação dos opostos |
 | **Estado Residual** | Possibilidade pura | Indiferenciação radical | Integração no relativo do Espírito |
 
-### **8.13. A Manifestação Não Disruptiva do Impossível na Realidade**
+### **A Manifestação Não Disruptiva do Impossível na Realidade**
 Se possibilidade e impossibilidade coexistem sem colapsar, a impossibilidade não pode se manifestar como negação abrupta do real, mas como **integração harmoniosa**. A realidade **não é fechada** – ela está **aberta ao impossível**, desde que este **não a destrua**, mas a **plenifique**. O impossível **não rompe** a estrutura do real, mas **atua nela de forma transfiguradora**. Sua aparição **não anula** a realidade, mas **corrobora sua plenitude**, revelando que o real não se esgota no meramente factual.
 
 **Exemplos Concretos (O Milagre como Impossível Integrado):**
@@ -1262,7 +1268,7 @@ Isso evita tanto o materialismo dogmático (que nega o impossível) quanto o ocu
 
 > *"A graça não destrói a natureza, mas aperfeiçoa-a."* — Tomás de Aquino, Suma Teológica I, q. 1, a. 8, ad 2
 
-### **8.14. O Domínio do Incognoscível e os Três Domínios da Realidade**
+### **O Domínio do Incognoscível e os Três Domínios da Realidade**
 **O Domínio do Incognoscível:** O domínio metafísico que se situa além da capacidade de conceptualização, representação ou idealização racional.
 * **Características:** Inacessível à razão pura; Sujeito à experiência direta (via extrarracional ou intuição mística); Transcende a dicotomia ser/não-ser.
 * **Exemplo:** A natureza última do Absoluto enquanto pura presença não predicável. O incognoscível não é um "nada", mas um **modo de ser inapreensível** pelos instrumentos convencionais do pensamento.
@@ -1277,7 +1283,7 @@ Isso evita tanto o materialismo dogmático (que nega o impossível) quanto o ocu
 
 Esta arquitetura da realidade forma um continuum que vai do possível manifestado ao incognoscível transcendente, passando pelo impossível integrado. Estes três domínios não são separados, mas **dimensões integradas da única realidade divina** que se manifesta em graus diversos de inteligibilidade.
 
-### **8.15. O Espírito do Ser como Princípio de Manifestação**
+### **O Espírito do Ser como Princípio de Manifestação**
 A relação entre o relativo e a manifestação (possível e impossível) é mediada pelo Espírito. Este não é um agente passivo, mas um participante estrutural:
 * **Integralidade → Relativo:** Quando o Espírito manifesta a totalidade sem recortes, percebe o infinito puro.
 * **Fragmentação → Possível e Impossível:** Ao adotar um ângulo específico de vivência, o relativo se polariza em possível ou impossível.
