@@ -1071,20 +1071,17 @@ As próprias categorias do possível (o que pode vir a ser) exigem um "receptác
 
 ---
 
-## A inferencia sobre o nada
+## A inferência sobre o nada
 
-Sob o propósito de encontrar o aspecto espíritual no absoluto, isto é, no incausado, considerando que todo retorno ontológico se da uma causa positiva e necessariamente pura. Temos que, ter um ponto de inferencia para encontrar tal ontologia, ou aspecctos desta pureza. E, para isto, vamos inferir sobre o nada. O nada será nosso ponto de partida para encontrar a ação espiritual. Inferir sob o nada é, na verdade, segregar o nada como nada absoluto, no sentido de que, a inferencia nos levará a concluir se o nada é possível absoluto, ou se para o nada há necessariamente o Espírito. Isto quer dizer que, testaremos através do principio da causalidade, ainda a possibilidade de que o nada seja soberano, inferindo, desta vez, sob o próprio nada.
+Com o propósito de encontrar o aspecto espiritual no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se, para que o nada seja uma possibilidade, o Espírito é necessário. Isto quer dizer que testaremos, através do princípio da causalidade, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada.
 
-Exploraremos o nada ou indiferenciado como hipoteses em suas internalidades. Se, exploramos o que seria o nada, agora exploraremos por outro angulo, o angulo sob como o nada funcionária de fato.
+Exploraremos o nada, ou o indiferenciado, como hipóteses em suas internalidades. Se antes exploramos o que *seria* o nada, agora o exploraremos por outro ângulo: o ângulo de como o nada funcionaria de fato.
 
-Como exemplo, podemos citar a estabilidade do nada, se nada é nada, então temos um aspecto atemporal e um temporal para analisa-lo. O ato da nadificação, sendo está uma nulidade, exige, como ação, uma atemporalidade ou temporalidade. Isto quer dizer que, podemos citar aspectos deterministicos para nada, como a causa de sua estabilidade, é preciso que haja uma razão para que o nada se mantenha nulidade no tempo e atemporalmente.
+Como exemplo, podemos citar a estabilidade do nada. Se o nada é o nada, temos um aspecto atemporal e um temporal para analisá-lo. O ato da nadificação, sendo este uma nulidade, exige, como ação, uma atemporalidade ou uma temporalidade. Isto significa que podemos atribuir aspectos determinísticos ao nada, como a causa de sua estabilidade: é preciso que haja uma razão para que o nada se mantenha como nulidade no tempo e na atemporalidade.
 
-O nada supoe, como veremos adiante, intencionalidade, liberdade em nível metafisico, temporalidade, atemporalidade e diversos aspectos que dispertam o pensamento sob o nada de uma ótica espíritual, uma vez que, os aspectos permanecem subjacentes do nada, enquanto o nada escapa a si mesmo.
+O nada supõe, como veremos adiante, intencionalidade, liberdade em nível metafísico, temporalidade, atemporalidade e diversos outros aspectos que despertam o pensamento sobre o nada a partir de uma ótica espiritual, uma vez que tais aspectos permanecem subjacentes ao nada, enquanto o nada escapa a si mesmo.
 
-Isto é, podemos retirar aspectos positivos do nada, aspectos positivos da completa inexistencia, de forma que a ontologia se justifique por si mesma, e não pelo nada. Isto é, não é uma negação do nada, mas elementos necessarios para o nada. Elementos positivos, que podem ser definidos como a pureza ontológica que procuramos.
-
-
-
+Isto é, podemos extrair aspectos positivos do nada — aspectos positivos da completa inexistência —, de forma que a ontologia se justifique por si mesma, e não pelo nada. Não se trata de uma negação do nada, mas da identificação de elementos necessários para que ele seja. Esses elementos positivos podem ser definidos como a pureza ontológica que procuramos.
 
 
 
