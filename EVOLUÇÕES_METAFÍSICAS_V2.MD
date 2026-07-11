@@ -1024,6 +1024,30 @@ Descartando o "nada", recorremos à ontologia do Espírito. O Espírito represen
 
 Chamamos essa substância de Espírito ou Pureza. 
 
+
+### **O Problema da Causalidade no Absoluto - em busca da pureza fundamental**
+
+**Formulação do problema:**
+
+Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A auto-causalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
+
+**Análise da estrutura comum de causalidade:**
+
+Quando utilizamos o termo "causa" no pensamento cotidiano ou mesmo na filosofia tradicional, estamos operando com uma estrutura que contém três elementos implícitos:
+
+1. **Dualidade:** Há uma distinção entre aquilo que causa e aquilo que é causado. Mesmo na *causa sui* (causa de si), a formulação ainda sugere um sujeito que age sobre si mesmo, dividindo-o logicamente em duas instâncias.
+2. **Anterioridade:** A causa precede seu efeito. Mesmo que essa precedência não seja temporal (pode ser lógica ou ontológica), ainda há uma ordem de prioridade: primeiro a causa, depois o efeito.
+3. **Relação:** Causa e efeito estão ligados por uma relação de produção, onde algo é transmitido, transformado ou gerado.
+
+**Aplicação ao Absoluto:**
+
+Se aplicarmos essa estrutura ao Absoluto, imediatamente surgem problemas. O Absoluto, por definição:
+* Não pode ter nada fora de si (portanto, não pode ter uma causa externa).
+* Não pode ter distinções internas (portanto, não pode ter uma relação entre aspectos distintos de si mesmo).
+* Não pode estar submetido a uma ordem de prioridade (pois isso introduziria tempo ou dependência lógica).
+
+A questão que se coloca, então, é: **podemos falar em "causa" no Absoluto sem trair sua natureza?** A solução é a recorrencia a pureza.
+
 ### A Dedução a partir do Fenômeno
 
 O conceito de Absoluto agregado ao fenômeno surge como tentativa de formalizar uma origem. A tentativa de estabelecer uma realidade ontológica para justificar os efeitos carece do testemunho de que algo existe para que haja uma realidade primeira.
@@ -1050,14 +1074,6 @@ As próprias categorias do possível (o que pode vir a ser) exigem um "receptác
 
 REVISADO
 
-
-
-
-
-
-
-
-## Primeiros aspectos espírituais do Absoluto
 
 
 
@@ -1121,28 +1137,11 @@ Como você concluiu magistralmente ao refutar o "Indiferenciado" inerte, o Absol
 
 
 
-### **O Problema da Causalidade no Absoluto - em busca da pureza fundamental**
 
-**Formulação do problema:**
 
-Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A auto-causalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
 
-**Análise da estrutura comum de causalidade:**
 
-Quando utilizamos o termo "causa" no pensamento cotidiano ou mesmo na filosofia tradicional, estamos operando com uma estrutura que contém três elementos implícitos:
 
-1. **Dualidade:** Há uma distinção entre aquilo que causa e aquilo que é causado. Mesmo na *causa sui* (causa de si), a formulação ainda sugere um sujeito que age sobre si mesmo, dividindo-o logicamente em duas instâncias.
-2. **Anterioridade:** A causa precede seu efeito. Mesmo que essa precedência não seja temporal (pode ser lógica ou ontológica), ainda há uma ordem de prioridade: primeiro a causa, depois o efeito.
-3. **Relação:** Causa e efeito estão ligados por uma relação de produção, onde algo é transmitido, transformado ou gerado.
-
-**Aplicação ao Absoluto:**
-
-Se aplicarmos essa estrutura ao Absoluto, imediatamente surgem problemas. O Absoluto, por definição:
-* Não pode ter nada fora de si (portanto, não pode ter uma causa externa).
-* Não pode ter distinções internas (portanto, não pode ter uma relação entre aspectos distintos de si mesmo).
-* Não pode estar submetido a uma ordem de prioridade (pois isso introduziria tempo ou dependência lógica).
-
-A questão que se coloca, então, é: **podemos falar em "causa" no Absoluto sem trair sua natureza?** A solução é a recorrencia a pureza.
 
 Sendo o indiferenciado, determinado indiferenciado. Temos que, a essencia do absoluto se diria indiferenciada, ou diferenciada. Porém, nem mesmo ambas as coisas, sua pureza, tende ao infinito, tal como a pureza do nada. Mais uma vez, a pureza do Espírito, sua essência, é inominavel, e amor infinito seria o termo que mais se aproximaria. 
 
