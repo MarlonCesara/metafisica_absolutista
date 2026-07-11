@@ -1085,16 +1085,12 @@ O nada supõe, como veremos adiante, intencionalidade, liberdade em nível metaf
 
 Isto é, podemos extrair aspectos positivos do nada — aspectos positivos da completa inexistência —, de forma que a ontologia se justifique por si mesma, e não pelo nada. Não se trata de uma negação do nada, mas da identificação de elementos necessários para que ele seja. Esses elementos positivos podem ser definidos como a pureza ontológica que procuramos.
 
-
+A inferência sobre o nada demonstrará que o nada ontológico é, na verdade, o Espírito. O nada mentalizado possui permanência, atemporalidade e estabilidade. O ato de imaginar o nada sobressai à mera razão, projetando sobre o nada aspectos espirituais; com isso, o nada ganha novos contornos. Ele se torna espiritual, intencional e adquire liberdade. Portanto, ao investigarmos o nada, percebemos que ele não é isolado em si mesmo: ele necessariamente portaria uma positividade, ainda que se esvaziasse de tal positividade para se constituir como nada.
 
 
 
 
 REVISADO
-
-
-
-
 
 
 
