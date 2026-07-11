@@ -1073,6 +1073,8 @@ As próprias categorias do possível (o que pode vir a ser) exigem um "receptác
 
 ## A inferência sobre o nada
 
+O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não objetos". Portanto, o nada designado pela linguagem existe e não contém a total potencialidade ou a total nulidade. Ele possui uma certa referência à nulidade, mas não à sua totalidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável.
+
 Com o propósito de encontrar o aspecto espiritual no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se, para que o nada seja uma possibilidade, o Espírito é necessário. Isto quer dizer que testaremos, através do princípio da causalidade, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada.
 
 Exploraremos o nada, ou o indiferenciado, como hipóteses em suas internalidades. Se antes exploramos o que *seria* o nada, agora o exploraremos por outro ângulo: o ângulo de como o nada funcionaria de fato.
