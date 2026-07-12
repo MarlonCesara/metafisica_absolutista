@@ -1089,11 +1089,6 @@ A inferência sobre o nada demonstrará que o nada ontológico é, na verdade, o
 
 Em outras palavras, é do nada que se sobressai o Espírito — como veremos adiante. Do próprio nada, inferimos pessoalidade, intencionalidade, liberdade e a indistinção entre determinação e existência. Em suma, do nada inferimos o Espírito: aquele que, embora exista sem propriedades assim como o nada, carrega em si a positividade.
 
-
-REVISADO
-
-
-
 ## A Natureza do Nada: Das Potências ao Limite do Absoluto
 
 ### O Problema da Inferência e a Propriedade da Infinitude
@@ -1134,13 +1129,6 @@ O indiferenciado, na verdade é uma determinação. Tal como a anulação ontol�
 O indiferenciado precisa indifereciar-se de si mesmo para ser referenciado.
 O nada, precisa ser ontológico para ser referenciado.
 
-
-
-
-
-
-
-
 ### O Nada Potencial *versus* O Nada Absoluto
 
 O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**, e não como um nada absoluto. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
@@ -1170,6 +1158,10 @@ Portanto, o nada inominável é um vazio linguístico: algo que se define como '
 
 
 
+
+
+
+REVISADO
 
 
 
