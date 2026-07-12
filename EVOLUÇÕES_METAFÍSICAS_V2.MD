@@ -1116,13 +1116,10 @@ Portanto, o nada inominável é um vazio linguístico: algo que se define como '
 Denominaremos, portanto, nossa substância bruta — o nada — como 'absoluto', avançando na investigação de propriedades que transcendam a mera potência dentro desse escopo. É preciso notar que a atribuição do termo 'absoluto' ao nada não se confunde com o conceito de 'nada absoluto' — o qual inviabilizaria a coexistência de outras propriedades —, mas qualifica o nada como a máxima expressão cognoscível do incausado que inferimos até o momento.
 
 
-
 REVISADO
 
 
-
-
-# PROPOSIÇÃO: A CAUSALIDADE DO ABSOLUTO
+# PROPOSIÇÃO: A CAUSALIDADE NO ABSOLUTO E A AUTO JUSTIFICAÇÃO
 
 ## Introdução: Da Estrutura à Atividade
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o **modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana**. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua **própria causalidade**?
