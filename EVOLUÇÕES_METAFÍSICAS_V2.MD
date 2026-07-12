@@ -902,7 +902,6 @@ Ao aplicar os principios da causalidade sobre o nada, chegaremos a respostas que
 
 O nada dispensa causa porque não é algo, não se pode aplicar uma cadeia causa para o nada, pois todos os efeitos consecutivos dentro do nada são diluidos em uma só coisa. Se não há nenhum efeito, também não é necessaria causa para este efeito. E, desta forma, o nada dispensa a causa. Porém, o nada determinado, ou seja, o nada não considerado uma singularidade exige uma causa, pois o nada representado pelo pensamento é uma determinação para absoluto, porém o irrepresentável seria realmente o auto causal. O nada, em sua representação verdadeira seria de fato um elemento com propriedade auto causal.
 
-
 Porém, não sendo capturado pela razão nem mesmo como conceito, não haveria uma forma de aplicar a causalidade sob aquilo que nem mesmo é nominavel, e cuja aquilo que usamos o conceito aproximado do que poderia ser.
 
 Portanto, continuemos considerando que o nada é um conceito não refinado, mas não insuficiente para que usemos para fins explicativos. Iremos aplicar a auto causalidade sob o nada, para encontrarmos o conteudo do absoluto, a substancia final do absoluto.
@@ -1115,9 +1114,11 @@ Portanto, o nada inominável é um vazio linguístico: algo que se define como '
 
 Denominaremos, portanto, nossa substância bruta — o nada — como 'absoluto', avançando na investigação de propriedades que transcendam a mera potência dentro desse escopo. É preciso notar que a atribuição do termo 'absoluto' ao nada não se confunde com o conceito de 'nada absoluto' — o qual inviabilizaria a coexistência de outras propriedades —, mas qualifica o nada como a máxima expressão cognoscível do incausado que inferimos até o momento.
 
+### Propriedades espirituais do Absoluto
+
+Até o momento, exploramos ao máximo o conceito do nada e do indiferenciado, retirando-lhes propriedades que não referenciam fatores relacionais ou espirituais. Concluímos que o nada é um potencial e que o completo nada, quando o nada é ausente de si mesmo, não é possível na linguagem nem inferível. Dessa forma, inferiremos sobre o nada cientes de seu potencial, seja como nada ou como indiferenciado. Ambas são potências ontológicas: o indiferenciado como indiferença do diferente, e o nada como nulidade do todo. Sendo o nada ainda nossa substância bruta inefável, lapidaremos mais essa substância na busca por fatores relacionais e espirituais que se sobressaiam ao conceito do nada. As seguintes conclusões demonstram que não faz sentido pensar no Absoluto até agora inferido sem pressupor um âmbito espectral e intencional.
 
 REVISADO
-
 
 # PROPOSIÇÃO: A CAUSALIDADE NO ABSOLUTO E A AUTO JUSTIFICAÇÃO
 
@@ -1142,7 +1143,7 @@ Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundame
 
 Ao inferir que o Absoluto é causa de si mesmo, concluímos que não há uma segunda natureza exterior ou anterior segundo a qual ele deva ser, nem uma razão exterior ou anterior pela qual ele deva ser como é. Isto nos leva a concluir que ele mesmo é a razão para sua estadia e para a sua configuração.
 
-Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é Ser, é necessário que isso se justifique em si da mesma forma. Até mesmo num estado de indeterminação total, onde não há forma, esta indeterminação necessitaria de uma causa para ser como tal e não uma determinação.
+Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é Ser, é necessário que isso se justifique em si da mesma forma. Até mesmo num estado de indeterminação total, onde não há forma, esta indeterminação necessitaria de uma causa para ser como tal e não uma determinação especifica.
 
 Porém, se a Causa Identitária é o que *determina* o que algo é, como o Absoluto — que é o próprio Indeterminado — pode ter uma "Causa Identitária"? 
 
