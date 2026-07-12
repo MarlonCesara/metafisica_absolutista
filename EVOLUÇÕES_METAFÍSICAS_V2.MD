@@ -1094,9 +1094,75 @@ REVISADO
 
 
 
+## A Natureza do Nada: Das Potências ao Limite do Absoluto
+
+### 1. O Problema da Inferência e a Propriedade da Infinitude
+
+Se a ausência total não pode ser nomeada, como se torna possível inferir algo sobre ela? Diante desse impasse. O "nada", portanto, não deve ser compreendido como um vazio estático, mas sim como um conceito de nulidade dotado de um vetor dinâmico: um rumo potencial ao infinito. Para avançar nessa investigação, é necessário racionalizar o nada inicialmente em sua primeira potência.
+
+O nada possui potência, desdobrando-se em uma progressão lógica de graus:
+
+* **Primeiro Grau (Potência 1):** A anulação em sua fase inicial, contendo o potencial bruto rumo ao infinito.
+* **Segundo Grau:** A potência da não-potência. Isto é, a potência de anular a potência.
+* **... Terceiro Grau e Ad Infinitum:** A potência de anular a potência da potência gerada pela primeira nulidade do nada, estendendo-se infinitamente.
+
+Para fins metodológicos, o foco desta análise restringe-se à primeira anulação: **o nada no potencial 1 elevado ao infinito**.
+
+Pois, ao considerarmos uma regressão infinita, retornamos a mesma substância. O nada de segunndo grau é o mesmo que o do primeiro grau e assim sucessivamente. 
+A nulidade é sempre a mesma, e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
+
+### 3. O Nada Potencial *versus* O Nada Absoluto
+
+O nada nomeável caracteriza fundamentalmente como "nada potencial", e não como "nada absoluto". Isso ocorre porque ele porta um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como ausência absoluta, pois é perenemente acompanhado de sua potência.
+
+O **nada absoluto**, por sua vez, é inalcançável, inomeável e conceitualmente definido como o nada elevado à potência infinita. Sendo esse limite absoluto inacessível à apreensão direta, a filosofia deve focar sua exploração no território do nada potencial. Ao elevarmos o nada em seu potencial, nunca se alcança a completa nulidade, somente se renova o mesmo potêncial.
+
+No estágio da primeira fase de anulação, tateia-se a noção do **incausado**. Contudo, ainda é prematuro determiná-lo formalmente como tal. A atribuição dessa e de outras propriedades exige uma investigação vasta e rigorosa, pois o nada absoluto jamais poderá ser inferido sem que antes se esgotem e se compreendam as propriedades fundamentais do próprio nada. 
+
+Desta forma, definimos o nada nomeavel e o nada inomeavel que seria a ausência do próprio nada, e ausente de qualquer propriedade, não podendo nem mesmo ser absoluto. Temos, portanto, que, para assumir o nada nomeável deve-se ter em mente a impossibilidade realizada. Tal como seria para admitir o indiferenciado, deveria haver um estado em que estado é indiferenciado e indiferenciado de si ao mesmo tempo. Isto é, tal como o nada se refere a uma nulidade, ao passo que porta certa ontologia potencial.
+
+É possível anular o todo, tal como é possível indiferenciar o indiferenciado, que na verdade é uma determinação potencial. 
+
+O tabela a seguir exemplifica:
+
+O indiferenciado - é determinado e indiferencia-se de si. Sendo uma determinaçao e uma indeterminação ao mesmo tempo.
+O nada, é potencial, é uma nulidade do todo. 
+
+Ambos os modos abarcam a impossibilidade realizada. Nada, portanto, é considerar assumir a impossibilidade, e dar realidade a dois estados simultaneos, onde o todo é anulado e está inoculado em uma forma potencial em seu estado antagonico.
+
+O indiferenciado, na verdade é uma determinação. Tal como a anulação ontológica, é uma ontológia. 
+O indiferenciado precisa indifereciar-se de si mesmo para ser referenciado.
+O nada, precisa ser ontológico para ser referenciado.
 
 
 
+
+
+
+
+
+### 3. O Nada Potencial *versus* O Nada Absoluto
+
+O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**, e não como um nada absoluto. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
+
+O **nada absoluto**, por sua vez, é inalcançável, inominável e conceitualmente definido como o nada elevado à potência infinita. Sendo esse limite absoluto inacessível à apreensão direta, a investigação filosófica deve focar-se no território do nada potencial. Afinal, ao elevarmos o nada em sua latência, nunca se atinge a nulidade completa, mas apenas a renovação desse mesmo potencial.
+
+Na primeira fase do processo de anulação, tateia-se a noção do **incausado**. Contudo, ainda é prematuro determiná-lo formalmente sob esse conceito. A atribuição desta e de outras propriedades exige uma investigação vasta e rigorosa, dado que o nada absoluto jamais poderá ser inferido sem que antes se esgotem e se compreendam as propriedades fundamentais do próprio nada potencial.
+
+Assim, delimitamos a diferença entre o nada nomeável e o **nada inominável** — este último sendo a ausência do próprio nada, destituído de qualquer propriedade e incapaz de ser até mesmo "absoluto". Portanto, para admitir o nada nomeável, é preciso conceber a ideia de uma **impossibilidade realizada**.
+
+O mesmo ocorre ao tentarmos admitir o **indiferenciado**: para aceitá-lo, deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. É perfeitamente possível anular o todo, assim como é possível indiferenciar o indiferenciado — o que, no fundo, constitui uma determinação potencial.
+
+A tabela a seguir correlaciona esses dois estados:
+
+| Conceito | Dinâmica Paradoxal | Natureza Fundamental |
+| --- | --- | --- |
+| **O Indiferenciado** | É uma determinação que se indiferencia de si mesma. | Manifesta-se como determinação e indeterminação simultâneas. |
+| **O Nada (Potencial)** | É a nulidade do todo, mas preserva uma latência ontológica. | Funciona como uma potência perene que impede a ausência absoluta. |
+
+> **A Impossibilidade Realizada:** Ambos os modos manifestam esse paradoxo. Pensar o nada exige dar realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
+
+Por consequência, o indiferenciado revela-se, na verdade, como uma determinação, assim como a anulação ontológica revela-se como uma ontologia. Para ser referenciado, o indiferenciado precisa se indiferenciar de si mesmo; para ser pensado, o nada precisa assumir um caráter ontológico.
 
 
 
