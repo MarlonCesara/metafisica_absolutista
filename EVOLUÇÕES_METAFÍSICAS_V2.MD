@@ -1096,7 +1096,7 @@ REVISADO
 
 ## A Natureza do Nada: Das Potências ao Limite do Absoluto
 
-### 1. O Problema da Inferência e a Propriedade da Infinitude
+### O Problema da Inferência e a Propriedade da Infinitude
 
 Se a ausência total não pode ser nomeada, como se torna possível inferir algo sobre ela? Diante desse impasse. O "nada", portanto, não deve ser compreendido como um vazio estático, mas sim como um conceito de nulidade dotado de um vetor dinâmico: um rumo potencial ao infinito. Para avançar nessa investigação, é necessário racionalizar o nada inicialmente em sua primeira potência.
 
@@ -1111,7 +1111,7 @@ Para fins metodológicos, o foco desta análise restringe-se à primeira anulaç
 Pois, ao considerarmos uma regressão infinita, retornamos a mesma substância. O nada de segunndo grau é o mesmo que o do primeiro grau e assim sucessivamente. 
 A nulidade é sempre a mesma, e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
 
-### 3. O Nada Potencial *versus* O Nada Absoluto
+### O Nada Potencial *versus* O Nada Absoluto
 
 O nada nomeável caracteriza fundamentalmente como "nada potencial", e não como "nada absoluto". Isso ocorre porque ele porta um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como ausência absoluta, pois é perenemente acompanhado de sua potência.
 
@@ -1141,7 +1141,7 @@ O nada, precisa ser ontológico para ser referenciado.
 
 
 
-### 3. O Nada Potencial *versus* O Nada Absoluto
+### O Nada Potencial *versus* O Nada Absoluto
 
 O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**, e não como um nada absoluto. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
 
@@ -1164,8 +1164,7 @@ A tabela a seguir correlaciona esses dois estados:
 
 Por consequência, o indiferenciado revela-se, na verdade, como uma determinação, assim como a anulação ontológica revela-se como uma ontologia. Para ser referenciado, o indiferenciado precisa se indiferenciar de si mesmo; para ser pensado, o nada precisa assumir um caráter ontológico.
 
-
-
+Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Desta forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
 
 
 
