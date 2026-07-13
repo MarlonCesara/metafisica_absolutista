@@ -253,42 +253,6 @@ Os quatro princípios assimétricos — **Indiferenciação Fundamental, Inclus�
 
 ---
 
-# ESTRUTURANDO A DEPENDÊNCIA DO INDETERMINADO
-
-Para estruturar a correlação entre essas instâncias formalmente, integrando a visão do nada como uma existência relacional e insustentável por si mesma, estabelecemos os seguintes princípios lógicos de dependência:
-
-**Definição por Referência e Negação (Ontologia Relacional e Privativa)**
-O **"determinado"** (as coisas, as formas, os entes) é a atualização ou ação de uma potencialidade e requer o **"indeterminado"** (o fundamento, o Absoluto) como sua fonte e referência primordial. De modo estritamente paralelo, o **"nada"** não é uma ausência absoluta, mas uma **negação determinada**. Ele opera exclusivamente como a não-expressão de um ente (A). O nada só existe como contraparte de algo manifesto, sendo inteiramente determinado pelo que nega.
-
-* *Exemplo:* A escuridão é a não-luz; o silêncio é a não-vibração sonora. 
-* *Exemplo:* Ao afirmarmos o determinado, pressupomos uma ação sobre o indeterminado. Pois, se algo é definido como determinado, isso implica que houve um princípio determinante que o estabeleceu.
-
-**Referencialidade Obrigatória e Parasitismo Lógico**
-O estado derivado ou relativo jamais existe por si mesmo; ele é sempre um eco de seu referencial primário. Não há manifestação do determinado sem o fundo indeterminado que a sustente. Analogamente, o nada possui um caráter ontologicamente **parasitário**: não há "nada" absoluto sem a relação dialética com o **"nadificado"** (a coisa prévia ou possível da qual o nada é a negação).
-
-* *Exemplo:* A ausência de luz solar pressupõe necessariamente a luz solar como conceito ou realidade. O silêncio pressupõe o som como uma categoria possível.
-
-**Coexistência Excludente e Limite Conceitual**
-O determinado e o indeterminado operam pela lógica assimétrica da **Inclusão** (onde o fundo contém a figura silenciosamente). Já o nada e o nadificado operam por **Oposição Negativa**. Se a manifestação (A) e o nada (B) fossem potenciais opostos num mesmo espaço, eles não poderiam coexistir, pois o nada perderia sua definição caso abrigasse qualquer latência ou traço de manifestação. O nada atua apenas como um limite conceitual dentro do campo do Ser, nunca como sua alternativa.
-
-* *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
-* *Potenciais opostos absolutos:* Excluem-se reciprocamente, pois a presença anula a ausência total.
-
-### **Modos de Dependência entre o Fundo, a Forma e a Ausência**
-
-A tabela a seguir consolida as relações de interdependência, demonstrando que o determinado depende do indeterminado exata e logicamente como o nada depende do nadificado.
-
-| Relação | Descrição Ontológica | Exemplo Analógico |
-| --- | --- | --- |
-| **Referencialidade Obrigatória** | O termo derivado requer obrigatoriamente um referencial prévio, base ou positivo para ser concebido. | O **determinado** pressupõe o **indeterminado**, tal como o **nada (ausência)** pressupõe o **nadificado (o ente negado)**. |
-| **Dependência por Emanação vs. Privação** | O determinado emana como um recorte do fundo ilimitado; o nada existe apenas como um estado de anulação da substância. | A onda (determinado) emana do oceano (indeterminado); a escuridão (nada) é a mera privação da luz (nadificado). |
-| **Assimetria Estrutural e Parasitismo Lógico** | A base existe de forma autônoma e autocausada; o derivado é uma sombra dependente que colapsa sem sua raiz. | A tela em branco prescinde da pintura; o "nada" colapsa logicamente sem o ente que ele tenta negar. |
-| **Oposição Negativa (Exclusão Recíproca)** | Potenciais opostos absolutos não coexistem, pois a latência da presença anula a definição de ausência total. | Não há coexistência simultânea entre a luz do sol plena e a escuridão absoluta. |
-
-> *"O nada é a negação que revela, por oposição, a primazia irredutível do Ser. Sua própria ideia é um testemunho involuntário da realidade que pretende negar."*
-
----
-
 # DOS PRINCÍPIOS SIMÉTRICOS AOS PRINCÍPIOS CAUSAIS
 
 ## Introdução: A Transição da Lógica para a Metafísica
@@ -454,7 +418,7 @@ Para organizar o escopo estrutural das dinâmicas abordadas, seguem as sínteses
 
 ---
 
-## Conclusões da Proposição IV
+## Conclusões da Proposição 
 
 A separação entre essência e existência é uma ferramenta analítica necessária para lidar com o mundo da multiplicidade, mas é ontologicamente falsa no domínio do indiferenciado. Ao reconhecer que o indiferenciado é o **ato puro de existir**, eliminamos a necessidade de buscar uma causa externa para sua "forma", consolidando-o como a base autossuficiente de toda a arquitetura da razão.
 
@@ -681,6 +645,42 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 ---
 
 ## **PROPOSIÇÃO: O ABSOLUTO INDIFERENCIADO**
+
+# ESTRUTURANDO A DEPENDÊNCIA DO INDETERMINADO
+
+Para estruturar a correlação entre essas instâncias formalmente, integrando a visão do nada como uma existência relacional e insustentável por si mesma, estabelecemos os seguintes princípios lógicos de dependência:
+
+**Definição por Referência e Negação (Ontologia Relacional e Privativa)**
+O **"determinado"** (as coisas, as formas, os entes) é a atualização ou ação de uma potencialidade e requer o **"indeterminado"** (o fundamento, o Absoluto) como sua fonte e referência primordial. De modo estritamente paralelo, o **"nada"** não é uma ausência absoluta, mas uma **negação determinada**. Ele opera exclusivamente como a não-expressão de um ente (A). O nada só existe como contraparte de algo manifesto, sendo inteiramente determinado pelo que nega.
+
+* *Exemplo:* A escuridão é a não-luz; o silêncio é a não-vibração sonora. 
+* *Exemplo:* Ao afirmarmos o determinado, pressupomos uma ação sobre o indeterminado. Pois, se algo é definido como determinado, isso implica que houve um princípio determinante que o estabeleceu.
+
+**Referencialidade Obrigatória e Parasitismo Lógico**
+O estado derivado ou relativo jamais existe por si mesmo; ele é sempre um eco de seu referencial primário. Não há manifestação do determinado sem o fundo indeterminado que a sustente. Analogamente, o nada possui um caráter ontologicamente **parasitário**: não há "nada" absoluto sem a relação dialética com o **"nadificado"** (a coisa prévia ou possível da qual o nada é a negação).
+
+* *Exemplo:* A ausência de luz solar pressupõe necessariamente a luz solar como conceito ou realidade. O silêncio pressupõe o som como uma categoria possível.
+
+**Coexistência Excludente e Limite Conceitual**
+O determinado e o indeterminado operam pela lógica assimétrica da **Inclusão** (onde o fundo contém a figura silenciosamente). Já o nada e o nadificado operam por **Oposição Negativa**. Se a manifestação (A) e o nada (B) fossem potenciais opostos num mesmo espaço, eles não poderiam coexistir, pois o nada perderia sua definição caso abrigasse qualquer latência ou traço de manifestação. O nada atua apenas como um limite conceitual dentro do campo do Ser, nunca como sua alternativa.
+
+* *Potenciais mútuos:* Coexistem como variações de uma mesma essência (ex.: água em diferentes temperaturas).
+* *Potenciais opostos absolutos:* Excluem-se reciprocamente, pois a presença anula a ausência total.
+
+### **Modos de Dependência entre o Fundo, a Forma e a Ausência**
+
+A tabela a seguir consolida as relações de interdependência, demonstrando que o determinado depende do indeterminado exata e logicamente como o nada depende do nadificado.
+
+| Relação | Descrição Ontológica | Exemplo Analógico |
+| --- | --- | --- |
+| **Referencialidade Obrigatória** | O termo derivado requer obrigatoriamente um referencial prévio, base ou positivo para ser concebido. | O **determinado** pressupõe o **indeterminado**, tal como o **nada (ausência)** pressupõe o **nadificado (o ente negado)**. |
+| **Dependência por Emanação vs. Privação** | O determinado emana como um recorte do fundo ilimitado; o nada existe apenas como um estado de anulação da substância. | A onda (determinado) emana do oceano (indeterminado); a escuridão (nada) é a mera privação da luz (nadificado). |
+| **Assimetria Estrutural e Parasitismo Lógico** | A base existe de forma autônoma e autocausada; o derivado é uma sombra dependente que colapsa sem sua raiz. | A tela em branco prescinde da pintura; o "nada" colapsa logicamente sem o ente que ele tenta negar. |
+| **Oposição Negativa (Exclusão Recíproca)** | Potenciais opostos absolutos não coexistem, pois a latência da presença anula a definição de ausência total. | Não há coexistência simultânea entre a luz do sol plena e a escuridão absoluta. |
+
+> *"O nada é a negação que revela, por oposição, a primazia irredutível do Ser. Sua própria ideia é um testemunho involuntário da realidade que pretende negar."*
+
+---
 
 ### **O Absoluto Indiferenciado**
 
