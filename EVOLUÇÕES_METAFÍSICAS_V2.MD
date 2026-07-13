@@ -10215,5 +10215,7 @@ Se a humanidade fosse resetada, dominadores ainda focariam em evolução tecnol�
 
 O capitalismo é permissão de enrriquecer, tendo como principio a mao de obra explorada ou o livre merecimento. A exploração se disfarça de conquistas, oportunidades, empreegos, mecanismos sociais de funcioonamento quando na verdade não é. Portanto, o capitalismo tomado como é, é uma lei que permiti a livre exploração do patrao, e o acumulo desenfreado que forma potenciais manipuladores.
 
+O conhecimento da alma humana é necessario para a construção das outras tecnologias sociais, pois tudo começa na intenção humana. Todas as estruturas sociais são pautadas no potencial de ação humana, tanto a permissão para haver grandes acumulos de dinheiro. Quanto na permissão para acumulos de bens de forma exploratória coma  justificativa que está competindo através do capitalismo e que o ganho é justo em razão de que outros perderam na competição, desmerecendo a inteligencia destes, sem levar em consideração a opressão que o acumulador fez ou a opressão da qual tirou proveito que aconteceu ao longo da história.
+
 
 
