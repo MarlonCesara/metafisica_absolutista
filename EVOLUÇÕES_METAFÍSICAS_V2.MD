@@ -10211,7 +10211,7 @@ O niilista vive em uma constante preocupação, ao olhar o semblante de sossego 
 O que leva a acumuladores de dinheiro se comportarem como feras? A verem a miséria e nada fazerem a respeito, querendo concentrar mais e mais riquezas? A permissão dada pelo capitalismo a crueldade, a seres humanos terem uma grande potencia, e que expoe a humanidade ao fato de que, se pode criar uma tecnologia de dominação como sempre aconteceu na história. Se a humanidade fosse resetada, com o conhecimento de hoje, realmente não teriamos mais fome? Ou o mesmo cenário de escrevidão ainda seria formado? Há conhecimento o suficiente para impedir as dominações?
 
 
-
+Se a humanidade fosse resetada, dominadores ainda focariam em evolução tecnológica de guerra, e concentração de renda. Deveria existir um captalismo paltado em limites? A humanidade consciente da intenção de alguns, seria diferente? E se tivesse a mesma consciencia tudo mudaria hoje? 
 
 
 
