@@ -10219,3 +10219,5 @@ O conhecimento da alma humana é necessario para a construção das outras tecno
 
 
 
+O ser humano, conhecendo realmente o desontismo, pode construir uma sociedade pautada no potencial humano, e assim pode prever os meios manipulatórios no modelo politico que constitui e na abertura ou não que dará ao acumulo material. Entender a alma humana é a base para a construção social sem exploração e concentração de renda.
+
