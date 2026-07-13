@@ -10213,7 +10213,7 @@ O que leva a acumuladores de dinheiro se comportarem como feras? A verem a misé
 
 Se a humanidade fosse resetada, dominadores ainda focariam em evolução tecnológica de guerra, e concentração de renda. Deveria existir um captalismo paltado em limites? A humanidade consciente da intenção de alguns, seria diferente? E se tivesse a mesma consciencia tudo mudaria hoje? 
 
-
+O capitalismo é permissão de enrriquecer, tendo como principio a mao de obra explorada ou o livre merecimento.
 
 
 
