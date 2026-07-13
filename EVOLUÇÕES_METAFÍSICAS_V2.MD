@@ -10213,7 +10213,7 @@ O que leva a acumuladores de dinheiro se comportarem como feras? A verem a misé
 
 Se a humanidade fosse resetada, dominadores ainda focariam em evolução tecnológica de guerra, e concentração de renda. Deveria existir um captalismo paltado em limites? A humanidade consciente da intenção de alguns, seria diferente? E se tivesse a mesma consciencia tudo mudaria hoje? 
 
-O capitalismo é permissão de enrriquecer, tendo como principio a mao de obra explorada ou o livre merecimento.
+O capitalismo é permissão de enrriquecer, tendo como principio a mao de obra explorada ou o livre merecimento. A exploração se disfarça de conquistas, oportunidades, empreegos, mecanismos sociais de funcioonamento quando na verdade não é. Portanto, o capitalismo tomado como é, é uma lei que permiti a livre exploração do patrao, e o acumulo desenfreado que forma potenciais manipuladores.
 
 
 
