@@ -10244,4 +10244,6 @@ O verdadeiro ambicioso enxerga a perseguição das multidões como uma mera falh
 
 O niilista, tem uma obsessão pelo dinheiro que substitui a ambição, mas não por aprecisar o dinheiro, mas por uma obsessão. Enxerga tudo como um meio de alcançar o objeto de sua obsessão. Portanto, sua ambição não é por meios saúdaveis, e não considera o humano em sua humanidade. Enxerga o humano como uma industria de produção de seu elixir da vida eterna, da ilusão do proposito nos bens materiais. Por isso, seus meios, não consideram o ser humano como um meio falivel de conseguir dinheiro, mas não enxerga nem memso o humano. Isto é, se o ambicioso enxerga o humano como meio para conquistar riquezas, o niilista enxerga somente como maquina operacional, tamanha sua obsessão e loucura, dado o pior dos encarceramentos.
 
-O espaço em volta do niilista aparenta-lhe pequeno.
+O espaço em volta do niilista aparenta-lhe pequeno. 
+
+Os frutos da mente do niilista são inevitavelmente ruins.
