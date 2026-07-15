@@ -10247,3 +10247,10 @@ O niilista, tem uma obsessão pelo dinheiro que substitui a ambição, mas não 
 O espaço em volta do niilista aparenta-lhe pequeno. 
 
 Os frutos da mente do niilista são inevitavelmente ruins.
+
+Os afortunados atraem niilistas.
+
+O mundo pensa que os super ricos querem acumular..q isso é imofensivo q se houver um meio de dominacao vao ser ainda piedosos
+
+Os ricos sao loucos. Querem o proposito. Querem saciar a sede. O niilista conhexe o niilismo por isso conhece a "causa" do sistema politico que defende aprsar de nao beneficiar ele
+
