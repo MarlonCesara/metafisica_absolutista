@@ -10221,3 +10221,25 @@ O conhecimento da alma humana é necessario para a construção das outras tecno
 
 O ser humano, conhecendo realmente o desontismo, pode construir uma sociedade pautada no potencial humano, e assim pode prever os meios manipulatórios no modelo politico que constitui e na abertura ou não que dará ao acumulo material. Entender a alma humana é a base para a construção social sem exploração e concentração de renda.
 
+
+
+O niilista sente estar num modelo de existencia virtual onde ele não atua na realdade, mas é refem sendo meramente um espectador prisioneiro. Esta sensação o torna infeliz e o leva a diversos crimes. A impressão do niilista é que esta numa caixa de aço fechada em algum lugar da existencia e não realmente livre e atuante. A sensação de encaarceramento num cubiculo pequeno o gera uma sensação caustrofóbica quando se poe a contemplar o momento presente e o leva a diversas escapatorias dessa visão como drogas etc. Isto acontece como um sintoma do estado de apatia consciente da alma.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+O verdadeiro ambicioso enxerga a perseguição das multidões como uma mera falha operacional, quando o ser humano ve o outro como fonte de renda, como uma fonte de renda produtiva, e não mais somente como semelhante, passa a enxergar o perseguição digital e a difamação como falhas de um sistema de lucro, e não como ofensa pessoal a sua pessoal. Entende naturalmente que está exposto a criticas e perseguições, e este acontecimento é entendido como falha de seu mecanismo de ganhar dineheiro, não como um problema que cause magoa pessoal ou afete sua estima.
+
+
+
+O niilista, tem uma obsessão pelo dinheiro que substitui a ambição, mas não por aprecisar o dinheiro, mas por uma obsessão. Enxerga tudo como um meio de alcançar o objeto de sua obsessão. Portanto, sua ambição não é por meios saúdaveis, e não considera o humano em sua humanidade. Enxerga o humano como uma industria de produção de seu elixir da vida eterna, da ilusão do proposito nos bens materiais. Por isso, seus meios, não consideram o ser humano como um meio falivel de conseguir dinheiro, mas não enxerga nem memso o humano. Isto é, se o ambicioso enxerga o humano como meio para conquistar riquezas, o niilista enxerga somente como maquina operacional, tamanha sua obsessão e loucura, dado o pior dos encarceramentos.
