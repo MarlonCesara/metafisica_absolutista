@@ -10248,9 +10248,9 @@ O espaço em volta do niilista aparenta-lhe pequeno.
 
 Os frutos da mente do niilista são inevitavelmente ruins.
 
-Os afortunados atraem niilistas.
+Os afortunados atraem niilistas. Os niilistas encontram nos artistas formas de expressão.
 
-O mundo pensa que os super ricos querem acumular..q isso é imofensivo q se houver um meio de dominacao vao ser ainda piedosos
+O mundo pensa que os super ricos querem acumular, que isso é inofensivo q se houver um meio de dominacão vao ser ainda piedosos. Os ricos são loucos. Querem o proposito. Querem saciar a sede. O niilista conhexe o niilismo por isso conhece a "causa" do sistema politico que defende apesar de não beneficiar ele.
 
-Os ricos sao loucos. Querem o proposito. Querem saciar a sede. O niilista conhexe o niilismo por isso conhece a "causa" do sistema politico que defende aprsar de nao beneficiar ele
+O niilismo age como um time, pois secretamente um conhece a causa do outro. Começando pelos eleitores da direita que votam em favor da calamidade com argumentos politicos esdruxulos, estes mesmos eletiores estão alinhados com os bilionários que subsidiam laboratórios de pensamentos contra a humanidade. 
 
