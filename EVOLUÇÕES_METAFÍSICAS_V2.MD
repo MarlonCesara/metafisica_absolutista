@@ -10254,3 +10254,5 @@ O mundo pensa que os super ricos querem acumular, que isso é inofensivo q se ho
 
 O niilismo age como um time, pois secretamente um conhece a causa do outro. Começando pelos eleitores da direita que votam em favor da calamidade com argumentos politicos esdruxulos, estes mesmos eletiores estão alinhados com os bilionários que subsidiam laboratórios de pensamentos contra a humanidade. 
 
+O niilista procura no passado uma justificacao para sua relutancia, transfere constantemente a culpa para uma magoa, para um desafeto, para algo que lhe ocasionou magoa na tentativa de dissociar seu estado de sua vontade
+O desintista foge do que lhe produz compararivos nao gosta de ver o estado de paz
