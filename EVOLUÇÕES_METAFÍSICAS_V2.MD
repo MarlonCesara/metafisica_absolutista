@@ -10267,7 +10267,7 @@ A expressão do odio do niilista, da auto anulação encontra um empasse, encont
 
 
 
-
+O niilismo então, estabelece não só em governos, mas como quase um imperio que age invisível, mas conta com a colaboratividade das mentes que conhecem o mecanismo no niilismo e sabem como a influencia acontece. Portanto, o niilismo se esconde por trás das musica que sexualizam a juventude para produzir filhos sem pais, e assim aumentar a criminilaidade, o niilsimo tem um centro de poder, centro politico, centros midiaticos e uma grande contribuição filosofica, academias de pensamento, o niilismo é uma sombra que se estabelece sobre a normalidade tentnado minar por vias invisiveis, pela filosifa e psicologia do humano a sociedade. O niilismo é uma apatia invisivel que se organiza socialmente e se estabelece na sociedade sob a garantia de não ser entnedida e percebida em seu cerne.
 
 
 
