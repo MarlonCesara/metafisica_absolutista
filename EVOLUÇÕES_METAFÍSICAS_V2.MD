@@ -10228,6 +10228,16 @@ O niilista sente estar num modelo de existencia virtual onde ele não atua na re
 
 
 
+O niilista sente-se frustrado pela baixa demanda em atender sua urgencia, se frustra com o desconhecimento alheio perante sua situação, apesar de estar em uma posição contrária consnidera de forma incosnciente alguém que mostrar uma visão, ou algo que possa lhe mudar, e se frustra pela impassividade da soceidade ao seu estado, como se todos coagissem com sua intenção e tudo estivesse nos conformes. O niilista se indigna com a normalidade das pessoas e a todo tempo esta tentando empatizar ou conscientizar através de gestos, ações que simbolizem seu estado para as pessoas. 
+
+Por exemplo, tentando separar um casal para mostrar como é a própria separação de si. Medicando uma criança com anti depressivos de forma inadequada para representar sua criança interior que esta perdendo o brilho. Ou tentando poluir o mundo. Matando alguém. O niilista está sempre querendo se expressar, em estado de descontrole emocional, sempre querendo ser entendido, sempre querendo empatia, saidas de seu pensamento anulador e desolador. A internalização do seu estado o causa grande raiva, é quase impossível conter a expressão, e quando se expressa o niilista faz uma expressão de alivio chula, falsa em saciação, pois o que se sacia é sua ira perante a normalidade do todo diante de seu estado.
+
+A expressão do odio do niilista, da auto anulação encontra um empasse, encontra um alvo perdido quando a sociedade demonstra-se normativa e conformada.O ódio do iiilistta se encerra nele mesmo, tenta achar um sentido perante a sociedade, e só encontra o sentido em desferir uma ingratidão contra Deus. Mediante ao não descaso nem mesmo do próprio Deus. O ódio do niilista se desfigura em sentido e se encerra em ódio do próprio individuo por ele mesmo. O individuo, niilista, portanto, por vezes tenta causar o auto ódio como expressão de seu estado, tenta fazer pessoas se culparem pelo passado, por quem são, se sentirem odiadas. Tenta ensina-las a ficarem presas em fatos do passado. O niilismo é uma situação de conflito interior que dá mals frutos por fora, pois é inaceitavel para o corpo humano a consciencia de tal estado por parte da alma. 
+
+
+
+
+
 
 
 
