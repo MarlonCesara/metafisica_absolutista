@@ -11,12 +11,19 @@ A determinação do nada
 A ontologia do nada
 A estabilidade do nada
 A atemporalidade e temporalidade do nada
-A autodeterminação do nada
-A liberdade no nada
-A tridimensão de pessoas do nada
-O start da determinação a partir do nada
-A criação do mundo do nada
-A criação do homem
+A autodeterminação sob nada
+A liberdade sob nada
+A tridimensão de pessoas sob nada
+O start da determinação sob nada
+A criação do mundo sob nada
+A criação do homem sob nada
+
+A indiferenciaçaõ do Espírito
+
+A unicidade do homem
+A ação do homem sob nada.
+A relatividade do homem
+O potencial de anulação do homem
 
 
 
