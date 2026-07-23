@@ -4,31 +4,6 @@
 
 
 
- # O nada e a complexidade
-
-O nada como existencia relacional
-O indiferenciação do nada
-A paradoxidade do nada
-A potencialidade nada
-A indiferenciação do nada
-A determinação do nada
-A ontologia do nada
-A estabilidade do nada
-A atemporalidade e temporalidade do nada
-A autodeterminação sob nada
-A liberdade sob nada
-A tridimensão de pessoas sob nada
-O start da determinação sob nada
-A criação do mundo sob nada
-A criação do homem sob nada
-
-A indiferenciaçaõ do Espírito
-
-A unicidade do homem
-A ação do homem sob nada.
-A relatividade do homem
-O potencial de anulação do homem
-
 
 
 
@@ -617,6 +592,33 @@ Há duas formas clássicas de concebermos a substância de uma realidade incausa
 # PROPOSIÇÃO: A SUBSTANCIA DO INCAUSADO
 
 Antes de iniciarmos a investigação acerca do incausado, torna-se necessário identificar e definir a substância incausada. Para isso, analisaremos conceitos fundamentais, como o nada, o indiferenciado e o Ser, buscando compreender sua base estrutural e estabelecer uma definição consistente dessa substância. Somente após essa fundamentação será possível prosseguir com a investigação propriamente dita sobre o incausado.
+
+Estudaremos: 
+
+O nada como existencia relacional
+O indiferenciação do nada
+A paradoxidade do nada
+A potencialidade nada
+A indiferenciação do nada
+A determinação do nada
+A ontologia do nada
+A estabilidade do nada
+A atemporalidade e temporalidade do nada
+A autodeterminação sob nada
+A liberdade sob nada
+A tridimensão de pessoas sob nada
+O start da determinação sob nada
+A criação do mundo sob nada
+A criação do homem sob nada
+
+A indiferenciaçaõ do Espírito
+
+A unicidade do homem
+A ação do homem sob nada.
+A relatividade do homem
+O potencial de anulação do homem
+
+
 
 ## **O Nada como Existência Relacional**
 
