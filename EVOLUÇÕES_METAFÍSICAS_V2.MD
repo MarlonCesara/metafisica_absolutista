@@ -589,6 +589,12 @@ Portanto, o Absoluto é o significado de uma realidade sem causa antecedente ou 
 
 Há duas formas clássicas de concebermos a substância de uma realidade incausada: estas são o indiferenciado e o nada. Inicialmente, são as realidades mais adequadas para se inferir uma existência sem causa, pois aparentemente dispensam propriedades. Se são desprovidas de qualquer propriedade, portanto, podem ser concebidas como incausadas. Começaremos nossa investigação buscando a definição exata de ambos os conceitos, para verificar se realmente podem ser usados como absolutos — isto é, se podem ser invocados, em última instância, para definir o incausado.
 
+Enquando a indiferenciação começa a anulação através da determnação, a nadificação pula está estapa e considera a eliminação direta, de forma integral, tanto da determinação quanto da positividade ontológica.
+
+Portanto, a nadificação da indiferencial é menos brusca do que a nadificação direta.
+
+
+
 # PROPOSIÇÃO: A SUBSTANCIA DO INCAUSADO
 
 Antes de iniciarmos a investigação acerca do incausado, torna-se necessário identificar e definir a substância incausada. Para isso, analisaremos conceitos fundamentais, como o nada, o indiferenciado e o Ser, buscando compreender sua base estrutural e estabelecer uma definição consistente dessa substância. Somente após essa fundamentação será possível prosseguir com a investigação propriamente dita sobre o incausado.
