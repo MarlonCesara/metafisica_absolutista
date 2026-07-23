@@ -10299,3 +10299,6 @@ O niilismo age como um time, pois secretamente um conhece a causa do outro. Come
 
 O niilista procura no passado uma justificacao para sua relutancia, transfere constantemente a culpa para uma magoa, para um desafeto, para algo que lhe ocasionou magoa na tentativa de dissociar seu estado de sua vontade
 O desintista foge do que lhe produz compararivos nao gosta de ver o estado de paz
+
+
+O movimento niilista, não gira somente em função do lucro, mas fomenta na sociedade uma evolução em direção a ruina ainda que está aconteça somente em futuras gerações, o niilismo propoe sua manutenção ao longo do tempo e não visa em prol a um lucro imediatista, mas é uma ação ideológica. Tem sua saciação em seu ato e não somente no proposito de lucro.
