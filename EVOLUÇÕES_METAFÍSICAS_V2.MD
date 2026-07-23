@@ -719,7 +719,7 @@ A tabela a seguir consolida as relações de interdependência, demonstrando que
 
 O nada é indiferenciado? O nada porta a indiferenciação, pois a determinação é retirada da existência, de forma que sobre somente a existência paradoxal. Ou seja, a indiferenciação é o processo de eliminação do diferenciamento, ao passo que se elimina o processo da existência declarada.
 
-O processo de eliminação da existência é a indiferenciação, ao passo que o processo de eliminação da existência é a nadificação. Ao retirarmos a identidade, temos uma existência potencial. O processo da indiferenciação não elimina a existência, mas produz uma existência sem determinação. Ao passo que existir é uma determinação, ao indiferenciarmos o próprio existir, resultamos no nada. Portanto, a indiferenciação é parte do processo de nadificação, tomado pelo âmbito da identidade. A indiferenciação aborda o paradoxo diretamente, enquanto é o mecanismo que remete ao que o nada oculta ou ao que ele não é.
+O processo de eliminação da determinação é a indiferenciação, ao passo que o processo de eliminação da existência é a nadificação. Ao retirarmos a identidade, temos uma existência potencial. O processo da indiferenciação não elimina a existência, mas produz uma existência sem determinação. Ao passo que existir é uma determinação, ao indiferenciarmos o próprio existir, resultamos no nada. Portanto, a indiferenciação é parte do processo de nadificação, tomado pelo âmbito da identidade. A indiferenciação aborda o paradoxo diretamente, enquanto é o mecanismo que remete ao que o nada oculta ou ao que ele não é.
 
 ### **O Absoluto Indiferenciado**
 
