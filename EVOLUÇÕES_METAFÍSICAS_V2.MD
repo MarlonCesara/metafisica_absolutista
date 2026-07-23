@@ -1,12 +1,5 @@
 # EVOLUÇÕES METAFÍSICAS
 
-# A indiferenciação do nada
-
-O nada é indiferenciado? O nada porta a indiferenciação, pois a determinação é retirada da existência, de forma que sobre somente a existência paradoxal. Ou seja, a indiferenciação é o processo de eliminação do diferenciamento, ao passo que se elimina o processo da existência declarada.
-
-O processo de eliminação da existência é a indiferenciação, ao passo que o processo de eliminação da existência é a nadificação. Ao retirarmos a identidade, temos uma existência potencial. O processo da indiferenciação não elimina a existência, mas produz uma existência sem determinação. Ao passo que existir é uma determinação, ao indiferenciarmos o próprio existir, resultamos no nada. Portanto, a indiferenciação é parte do processo de nadificação, tomado pelo âmbito da identidade. A indiferenciação aborda o paradoxo diretamente, enquanto é o mecanismo que remete ao que o nada oculta ou ao que ele não é.
-
-Uma existência indiferenciada de si mesma, e não "si mesma", portanto, se não também outra coisa, é nada. Dessa forma, pela indiferenciação da existência, chegamos ao nada novamente, tal como pela negação direta da existência. Assim, sendo ambas a mesma coisa, consideremos a indiferenciação parte do processo de negação, em que a diferença da ontologia torna-se a negação da própria ontologia. Se tudo é diferente do determinado, chegamos a um estado ontológico de negação até mesmo da ontologia.
 
 
 
@@ -722,7 +715,15 @@ A tabela a seguir consolida as relações de interdependência, demonstrando que
 
 ---
 
+# A indiferenciação do nada
+
+O nada é indiferenciado? O nada porta a indiferenciação, pois a determinação é retirada da existência, de forma que sobre somente a existência paradoxal. Ou seja, a indiferenciação é o processo de eliminação do diferenciamento, ao passo que se elimina o processo da existência declarada.
+
+O processo de eliminação da existência é a indiferenciação, ao passo que o processo de eliminação da existência é a nadificação. Ao retirarmos a identidade, temos uma existência potencial. O processo da indiferenciação não elimina a existência, mas produz uma existência sem determinação. Ao passo que existir é uma determinação, ao indiferenciarmos o próprio existir, resultamos no nada. Portanto, a indiferenciação é parte do processo de nadificação, tomado pelo âmbito da identidade. A indiferenciação aborda o paradoxo diretamente, enquanto é o mecanismo que remete ao que o nada oculta ou ao que ele não é.
+
 ### **O Absoluto Indiferenciado**
+
+Uma existência indiferenciada de si mesma, e não "si mesma", portanto, se não também outra coisa, é nada. Dessa forma, pela indiferenciação da existência, chegamos ao nada novamente, tal como pela negação direta da existência. Assim, sendo ambas a mesma coisa, consideremos a indiferenciação parte do processo de negação, em que a diferença da ontologia torna-se a negação da própria ontologia. Se tudo é diferente do determinado, chegamos a um estado ontológico de negação até mesmo da ontologia.
 
 Como o "nada" não está sujeito às regras da causalidade que regem o "algo", elegê-lo como fundamento para uma realidade autocausada constitui um argumento quase defensável. Parte-se da premissa de que o "nada", em sua concepção absoluta, possuiria o potencial de se autocausar precisamente por carecer de qualquer conteúdo ou atributo que exigisse uma causa ou justificação externa. No entanto, a investigação metafísica conduzida até aqui demonstra que o conceito de "nada" não oferece uma explicação satisfatória para a emergência de uma realidade autofundamentada. Embora sua aparente simplicidade lógica — a ideia de uma ausência primordial isenta de propriedades — possa sugerir uma base para a autojustificação ontológica, uma análise rigorosa revela sua insustentabilidade. O "nada" revela-se uma construção parasitária, dependente da noção de "algo" que pretensamente nega, incapaz de servir como fundamento último.
 
