@@ -621,10 +621,10 @@ O Nada não deve ser encarado aqui como um mero vazio lógico ou uma negação n
 ---
 
 999
-
+  
 Refinamento conceitual do nada
 
-- O nada e impensável - A ontologia do nada
+- O nada e o impensável - A cognocibilidade do nada
 - O nada e o indiferenciado - A nadificação e a indiferenciação
 
 Exploração substancial do conceito de nada
@@ -633,6 +633,7 @@ Exploração substancial do conceito de nada
 - O estado potencial do nada
 - O indifereciamento do nada
 - A paradoxidade do nada
+- A união de essência e existência no nada
 - A determinação do nada
 - A ontologia do nada
 - A estabilidade do nada
@@ -650,6 +651,8 @@ Exploração substancial do conceito de nada
 - A ação do homem sob nada.
 - A relatividade do homem
 - O potencial de anulação do homem
+
+
 
 
 ## **O Nada como Existência Relacional**
