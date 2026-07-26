@@ -11,6 +11,8 @@
 5. O Horizonte da Razão
 6. O Incausado e o Absoluto
 7. A Substância do Incausado
+8. Os mecanismos de purificação ontológica
+
 8. O Nada e o Impensável: A Cognoscibilidade do Nada
 9. O Indiferenciado e o Impensável: A Cognoscibilidade do Indiferenciado
 10. O Nada e o Indiferenciado: A Nadificação e a Indiferenciação
@@ -654,6 +656,17 @@ O Nada não deve ser encarado aqui como um mero vazio lógico ou uma negação n
 > **Diretriz de Investigação:** Tomaremos o Nada como a "substância bruta" da indeterminação — o marco zero do pensamento — para investigá-lo filosoficamente. O objetivo é testar suas resistências conceituais e verificar se ele se dissolve sob análise ou se, pelo contrário, revela-se como o verdadeiro nome do Fundamento Absoluto.
 
 ---
+
+## Os mecanismos de purificação ontológica
+
+O inefável, pela tradições religiosas, é o Ser. Porém, está obra aborda o ínicio da investigação do absoluto, pelo nada. Ao pensarmos numa realidade pura, tendemos a usar o processo da nadificação ou indiferenciação, ao invés de atribuir imediatamente uma ação Espíritual ao inefável. Pois tendemos a eliminar o fenomeno para pensar numa realidade incausada, antes mesmos de atribui-la uma ação Espíritual.
+
+O processo de nadificação é uma tentativa simplista de abordar o absoluto através do processo de nadificação ontológica. Isto é, se anula o manifestado ou determinado, para que se tenha uma nulidade ontológica.
+
+Já, pelo mecanismo de indiferenciação, se nega a determinação, até que, seja anulada a ontologia. Isto é, a indiferenciação usa o mecanismo deterministico, enquando a nadificação utiliza direetamente o mecanismo fundacional.
+
+
+
 
 999
 
