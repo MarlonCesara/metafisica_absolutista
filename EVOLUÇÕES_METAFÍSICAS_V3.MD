@@ -657,13 +657,41 @@ O Nada não deve ser encarado aqui como um mero vazio lógico ou uma negação n
 
 ---
 
-## Os mecanismos de purificação ontológica
+## Os mecanismos de purificação ontológica 
+
+Há o mecanismo de purificação existencial (nadificação) e o deterministico (indiferenciação).
 
 O inefável, pela tradições religiosas, é o Ser. Porém, está obra aborda o ínicio da investigação do absoluto, pelo nada. Ao pensarmos numa realidade pura, tendemos a usar o processo da nadificação ou indiferenciação, ao invés de atribuir imediatamente uma ação Espíritual ao inefável. Pois tendemos a eliminar o fenomeno para pensar numa realidade incausada, antes mesmos de atribui-la uma ação Espíritual.
 
 O processo de nadificação é uma tentativa simplista de abordar o absoluto através do processo de nadificação ontológica. Isto é, se anula o manifestado ou determinado, para que se tenha uma nulidade ontológica.
 
 Já, pelo mecanismo de indiferenciação, se nega a determinação, até que, seja anulada a ontologia. Isto é, a indiferenciação usa o mecanismo deterministico, enquando a nadificação utiliza direetamente o mecanismo fundacional.
+
+O mecanismo de nadificação age eliminando primeiramente a determinação, para então eliminar a propria indeterminação. O mecanismo do nada, elimina a existencia, para então eliminar a própria inexistencia.
+
+Isto é, ambos os mecanismos colapsam no não pensar sobre eles. Porém, antes do colapso, um age sob a causa determinante, que é o indiferenciado. E o outro age sob a causa existencial, a qual engloba a causa determinante.
+
+Porém, no estado de pureza, a distinção entre essencia e existencia desabam, e a essencia torna-se una a existencia.
+
+O indeterminado, nem mesmo pode ser considerado existencia, apenas um estado potencial, palco da determinação. Tal como a nulidade ontológica é um espaço potencial, palco da existencia.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
