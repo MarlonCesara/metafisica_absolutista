@@ -722,13 +722,19 @@ A pureza, portanto, máxima de se mentalizar por via intuitiva no momento é a n
 
 A indiferenciação deixa uma existencia, indiferenciada. Porém, se considerarmos a essencia indissociavel do existente, então a indiferenciação erradica o ontológico, e causa uma nulidade.
 
-No entanto, se considerarmos uma existencia sem identidade, consideramos o Ser, cuja identidade é o próprio ato de existir. 
+No entanto, se considerarmos uma existencia sem identidade, consideramos o Ser, cuja identidade é o próprio ato de existir.  O Ser, portanto, é o efeito final da indiferenciação, porém, ao indiferenciarmos até mesmo a fonte ontológica, se tem a não definição do Ser, para Ser ou para não ser. Portanto, se tem uma indefinição que se resulta num potencial de ser e não ser. Isto é, não temos a referencia de coisa alguma. Pois o indiferenciado, levado ao limite onde se indiferencia da ontologia, e até mesmo da nulidade da ontologia, não designa mais signo mental algum.
+
+Portanto, seu limite é no Ser. Enquando o limite da nadificação é o nada pensável, aquele que é a nulidade do existente.
+
+Enquando o indiferenciado se encerra numa existencia sem forma, que se caracteriza essencialemte pelo próprio ato de ser. A nadificação esgota até mesmo a ontologia do ser uno de essencia e existencia, e torna-se a nulidade do que é.
+
+Isto é, ao elevarmos o indiferenciado, indiferenciado até de si mesmo como fonte ontológica, descartamos o conceito. Ao passo que quando nadificamos o nada, também descartamos o conceito ou o signo mental a qual designa o objeto de nosso pensamento.
 
 
 
 
 
-
+revisado
 
 
 
