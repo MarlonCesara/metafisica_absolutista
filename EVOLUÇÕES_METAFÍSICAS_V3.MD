@@ -692,7 +692,7 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 
 
 
-
+O paradoxo do indiferenciado implica em que, deve ser o indiferenciado e diferente dele ao mesmo tempo, tal como o nada deve existir, e não existir.
 
 999
 
