@@ -1,38 +1,39 @@
 # EVOLUÇÕES METAFÍSICAS
 
+# Sumário
 
-Prefácio
+**Prefácio**
 
-- Lógica simétrica
-- Lógica assimétrica
-- Os principios causais simétricos
-- Os principios causais assimétricos
-- O horizonte da razão
-- O incausado e o absoluto
-- A substancia do incausado
-- O nada e o impensável - A cognocibilidade do nada
-- O indiferenciado e o impensável - A cognocibilidade do indiferenciado
-- O nada e o indiferenciado - A nadificação e a indiferenciação
-- O nada como existencia relacional
-- O estado potencial do nada
-- O indifereciamento do nada
-- A paradoxidade do nada
-- A união de essência e existência no nada
-- A determinação do nada
-- A ontologia do nada
-- A estabilidade do nada
-- A atemporalidade e temporalidade do nada
-- A autodeterminação sob nada
-- A liberdade sob nada
-- A tridimensão de pessoas sob nada
-- A indiferenciação do Espírito
-- O start da determinação sob nada
-- A criação do mundo sob nada
-- A criação do homem sob nada
-- A unicidade do homem
-- A ação do homem sob nada
-- A relatividade do homem
-- O potencial de anulação do homem
+1. Lógica Simétrica
+2. Lógica Assimétrica
+3. Os Princípios Causais Simétricos
+4. Os Princípios Causais Assimétricos
+5. O Horizonte da Razão
+6. O Incausado e o Absoluto
+7. A Substância do Incausado
+8. O Nada e o Impensável: A Cognoscibilidade do Nada
+9. O Indiferenciado e o Impensável: A Cognoscibilidade do Indiferenciado
+10. O Nada e o Indiferenciado: A Nadificação e a Indiferenciação
+11. O Nada como Existência Relacional
+12. O Estado Potencial do Nada
+13. A Indiferenciação do Nada
+14. A Paradoxalidade do Nada
+15. A União de Essência e Existência no Nada
+16. A Determinação do Nada
+17. A Ontologia do Nada
+18. A Estabilidade do Nada
+19. A Atemporalidade e a Temporalidade do Nada
+20. A Autodeterminação sob o Nada
+21. A Liberdade sob o Nada
+22. A Tridimensão da Pessoa sob o Nada
+23. A Indiferenciação do Espírito
+24. O Início da Determinação sob o Nada
+25. A Criação do Mundo sob o Nada
+26. A Criação do Homem sob o Nada
+27. A Unicidade do Homem
+28. A Ação do Homem sob o Nada
+29. A Relatividade do Homem
+30. O Potencial de Autoanulação do Homem
 
 # A ARQUITETURA SIMÉTRICA DA RAZÃO
 
