@@ -471,9 +471,6 @@ O Mistério deixa de ser uma "falha provisória do conhecimento" para se tornar 
 
 **Proposição demonstrada:** A lógica do indeterminado não é um mero conceito abstrato, mas o mapa da Causalidade Assimétrica que sustenta a realidade. Ela resolve a insuficiência do mecanicismo clássico ao demonstrar que o mundo não é apenas um sistema de engrenagens que batem umas nas outras (causalidade simétrica), mas uma manifestação permanentemente alimentada, de cima para baixo, por um Fundamento Uno, Inesgotável e Transcendente. A arquitetura da razão está, finalmente, completa em suas duas direções: protegida na sua estabilidade pelas causas simétricas e aberta ao infinito pelas causas assimétricas.
 
-
-
-
 # PROPOSIÇÃO: O HORIZONTE DA RAZÃO
 
 ## As Três Categorias Radicais da razão
@@ -708,7 +705,6 @@ Neste domínio último, o **indeterminado** sequer pode ser concebido como "exis
 
 De maneira estruturalmente análoga, a **nulidade ontológica** (o Nada absoluto metodológico) transcende o mero vácuo destrutivo; ela revela-se como o espaço de pura potencialidade existencial, o berço incondicionado que antecede, suporta e viabiliza a irrupção ontológica da própria existência.
 
-
 O mecanismo de indiferenciação, ao chegar a ser coisa alguma, ou seja nem mesmo o existir. Reflete-se como nada. Porém, o nada é uma determinação. 
 Tal como acontece com a nadificação, ao negar o todo de uma só vez em suas diferenças, se torna nada, o qual pode ainda ser negado.
 
@@ -716,9 +712,17 @@ Isto é, ambas os produtos dos processos acarregam ainda teor ou propriedades. O
 
 O nada é um estado de suspensão da determinação, e da existencia.
 
-revisado 2
+A nadificação possui 3 estados, o estado anterior ao nadificado, quando o fenomeno existe. O fenomeno nadificado. E a nadificação do próprio nada, ou seja, quando deixa de ser um signo mental designando uma realidade.
 
+A indiferenciação também possui 3 estados, o estado anterior ao diferenciado que é o do mundo de coisas com essência, a retirada da essência das coisas, e a retirada até da própria coisa cuja essência é a não essência. Que é um estado que não pode ser pensado, pois o signo mental ja não corresponde ao objeto pensável.
 
+O não pensar sobre algo não o torna inexistente. Pois a inexistencia, é a via antagonica do inexistente, é sempre uma anulação. Não existe um nada que não passou pelo processo da nadificação ou o indeterminado sem ser o processo que envolve sob o determinado.
+
+A pureza, portanto, máxima de se mentalizar por via intuitiva no momento é a nadificação ou indiferenciação. 
+
+A indiferenciação deixa uma existencia, indiferenciada. Porém, se considerarmos a essencia indissociavel do existente, então a indiferenciação erradica o ontológico, e causa uma nulidade.
+
+No entanto, se considerarmos uma existencia sem identidade, consideramos o Ser, cuja identidade é o próprio ato de existir. 
 
 
 
