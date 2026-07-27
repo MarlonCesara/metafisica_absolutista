@@ -733,6 +733,8 @@ Enquando o indiferenciado se encerra numa existencia sem forma, que se caracteri
 
 Isto é, ao elevarmos o indiferenciado, indiferenciado até de si mesmo como fonte ontológica, descartamos o conceito. Ao passo que quando nadificamos o nada, também descartamos o conceito ou o signo mental a qual designa o objeto de nosso pensamento.
 
+Em palaras mais claras, a indiferenciaçao é uma diferenciaçao de outra coisa que não seja indiferenciado, ao elevarmos o indiferenciado até mesmo como diferença de si, anulamos o conceito e nos foge a captação mental o objeto ao qual designamos. E ao mesmo acontece com o nada, ao nadificarmos o nada, não temos mais o objeto pensado.
+
 Porém, para evidenciar o incausado, precisamos começar pela nadificação completa, não somente pela indiferenciação, porém, mais do que a indiferenciação, a nadificação elimina o existente indiferenciado, e analisa uma realidade aparentemente sem propriedades que será o marco zero de nossa investigação.
 
 O indiferenciado ainda não é a pureza fundamental. Procuramos o solo fundamental, o incausado de onde poderemos inferir de onde surgiu a vida.
@@ -740,6 +742,10 @@ O indiferenciado ainda não é a pureza fundamental. Procuramos o solo fundament
 O indiferenciado como Ser, só faz sentido se a realidade for tão pura que, a essencia se confunde com o existir, isto é, no nada, não há essência e existir. Ambas as coisas não se misturam, pois há uma pureza que não é de via positiva, é de via negativa. É o não haver da existencia e da essência, e não uma existencia purissima que se confunde com sua essência e se faz Ser.
 
 Então quando falamos de uma pureza positiva, cabe falar do indiferenciado. Porém, começaremos pela pureza negativa, aquela que nem mesmo precisaria de explicação em sua razão de realidade. O nada se auto explica, enquanto qualquer via positiva pura, não tem uma explicação tão intuitiva.
+
+Portanto, pelo indiferenciado temos a pureza positiva. E pela, nadificação a pureza negativa, aquela que é pura por dispensar propriedades, e não por ser uma ontologia positivista pura. No entanto, em função do fenomeno ser essencialemnte determinado, não conseguimos, por via intuitiva, sem demais inferencias, mentalizar a pureza positiva de forma tão intuitiva.
+
+Vamos, portanto, tentar nos aproximar da pureza, positiva, explorando o nada. Reduzir o fenomeno de forma a tira-lo identidade não produz um fenomeno puro, mas produz o não fenomeno, pois em nossao observação o mundo é determinado mundo, as coisas possuem indentidade. Portanto, a redução pelo indiferenciamento do fenomeno não nos faz alcançar o indiferenciado. Começemos pela nadificação do fenomeno.
 
 Portanto, iremos inferir qualquer via postiiva através do nada. Lapidando esta realidade para averiguar suas propriedades. Tendo o conhecimento da substancia e do mecanismo mental ao qual chegamos até ela, portanto, iremos averiguar suas propriedades.
 
