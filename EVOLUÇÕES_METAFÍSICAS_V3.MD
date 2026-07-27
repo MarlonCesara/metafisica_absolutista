@@ -656,6 +656,9 @@ O Nada não deve ser encarado aqui como um mero vazio lógico ou uma negação n
 
 ## Os mecanismos de purificação ontológica 
 
+
+
+
 Há o mecanismo de purificação existencial (nadificação) e o deterministico (indiferenciação).
 
 O inefável, pela tradições religiosas, é o Ser. Porém, está obra aborda o ínicio da investigação do absoluto, pelo nada. Ao pensarmos numa realidade pura, tendemos a usar o processo da nadificação ou indiferenciação, ao invés de atribuir imediatamente uma ação Espíritual ao inefável. Pois tendemos a eliminar o fenomeno para pensar numa realidade incausada, antes mesmos de atribui-la uma ação Espíritual.
@@ -677,13 +680,13 @@ O indeterminado, nem mesmo pode ser considerado existencia, apenas um estado pot
 
 ## Os Mecanismos de Purificação Ontológica
 
-Para conceber a substância pura do incausado, o intelecto é forçado a operar processos radicais de esvaziamento. Enquanto as tradições religiosas e teológicas apressam-se em atribuir ao Inefável o estatuto de *Ser Supremo* ou de uma agência espiritual originária, a presente investigação exige um rigor anterior. Antes de postular qualquer vontade ou atributo divino, o pensamento filosófico precisa desativar o fenômeno. Ao buscarmos a realidade incausada, operamos instintivamente metodologias de subtração fenomenológica, suspendendo as determinações antes de atribuir-lhes qualquer caráter espiritual.
+Para conceber a substância pura do incausado, o intelecto é forçado a operar processos radicais de esvaziamento. Enquanto as tradições religiosas e teológicas apressam-se em atribuir ao Inefável o estatuto de *Ser Supremo* ou de uma agência espiritual originária, a presente investigação exige um rigor anterior. Antes de postular qualquer vontade ou atributo divino, o pensamento filosófico precisa desativar o fenômeno em sua identidade e existência. Ao buscarmos a realidade incausada, operamos instintivamente metodologias de subtração fenomenológica, suspendendo as determinações antes de atribuir-lhes qualquer caráter espiritual.
 
 Neste esforço para alcançar a pureza primordial, a razão desdobra-se em duas vias analíticas de retração: o **mecanismo de purificação existencial** (Nadificação) e o **mecanismo de purificação determinística** (Indiferenciação).
 
 ### A Via Existencial: O Processo de Nadificação
 
-A **Nadificação** constitui a tentativa mais contundente de acessar o Absoluto através da supressão do ser fenomênico. Este mecanismo opera diretamente sobre a **causa existencial** (o fundamento).
+A **Nadificação** constitui a tentativa mais contundente de acessar o Absoluto através da supressão do ser fenomênico. Este mecanismo opera diretamente sobre a **causa existencial** (o fundamento). 
 
 Neste processo metodológico, anula-se o ente manifestado e subtrai-se o peso de toda a realidade concreta, com o objetivo de atingir uma nulidade ontológica absoluta. O movimento da Nadificação é duplo e implacável: ele elimina primeiramente a existência fenomênica para, no limite absoluto de sua radicalidade, eliminar a própria inexistência. Trata-se de um ataque direto à base fundacional do real, buscando o Absoluto não pelo que ele afirma, mas pela aniquilação sistemática de tudo o que *é*.
 
@@ -730,8 +733,9 @@ Enquando o indiferenciado se encerra numa existencia sem forma, que se caracteri
 
 Isto é, ao elevarmos o indiferenciado, indiferenciado até de si mesmo como fonte ontológica, descartamos o conceito. Ao passo que quando nadificamos o nada, também descartamos o conceito ou o signo mental a qual designa o objeto de nosso pensamento.
 
+Porém, para evidenciar o incausado, precisamos começar pela nadificação completa, não somente pela indiferenciação, porém, mais do que a indiferenciação, a nadificação elimina o existente indiferenciado, e analisa uma realidade aparentemente sem propriedades que será o marco zero de nossa investigação.
 
-
+O indiferenciado ainda não é a pureza fundamental. Procuramos o solo fundamental, o incausado de onde poderemos inferir de onde surgiu a vida.
 
 
 revisado
@@ -814,7 +818,7 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 
 O paradoxo do indiferenciado implica em que, deve ser o indiferenciado e diferente dele ao mesmo tempo, tal como o nada deve existir, e não existir.
 
-999
+
 
 
 
@@ -828,8 +832,6 @@ O paradoxo do indiferenciado implica em que, deve ser o indiferenciado e diferen
 Enquando a indiferenciação começa a anulação através da determnação, a nadificação pula está estapa e considera a eliminação direta, de forma integral, tanto da determinação quanto da positividade ontológica.
 
 Portanto, a nadificação da indiferencial é menos brusca do que a nadificação direta.
-
-
 
 # A IDENTIDADE ONTOLÓGICA E CAUSAL NO INDIFERENCIADO
 
