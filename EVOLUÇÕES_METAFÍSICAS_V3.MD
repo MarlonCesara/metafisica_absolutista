@@ -737,6 +737,11 @@ Porém, para evidenciar o incausado, precisamos começar pela nadificação comp
 
 O indiferenciado ainda não é a pureza fundamental. Procuramos o solo fundamental, o incausado de onde poderemos inferir de onde surgiu a vida.
 
+O indiferenciado como Ser, só faz sentido se a realidade for tão pura que, a essencia se confunde com o existir, isto é, no nada, não há essência e existir. Ambas as coisas não se misturam, pois há uma pureza que não é de via positiva, é de via negativa. É o não haver da existencia e da essência, e não uma existencia purissima que se confunde com sua essência e se faz Ser.
+
+Então quando falamos de uma pureza positiva, cabe falar do indiferenciado. Porém, começaremos pela pureza negativa, aquela que nem mesmo precisaria de explicação em sua razão de realidade. O nada se auto explica, enquanto qualquer via positiva pura, não tem uma explicação tão intuitiva.
+
+Portanto, iremos inferir qualquer via postiiva através do nada. Lapidando esta realidade para averiguar suas propriedades. Tendo o conhecimento da substancia e do mecanismo mental ao qual chegamos até ela, portanto, iremos averiguar suas propriedades.
 
 revisado
 
