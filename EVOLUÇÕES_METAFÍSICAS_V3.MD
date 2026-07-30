@@ -10817,3 +10817,8 @@ O niilsita tenta tornar tudo agridoce, chato. Se afastar das emoções.
 
 
 
+
+Infinitamente mais precioso que a prata e o ouro e o diamante, mais precioso que todos os bens desse mundo reunidos. Mais precioso que toda fama e atenção. Mais necessário que tudo, é a causa pelo qual o ser humano faria qualquer coisa para obter, até mesmo abandonar a própria humanidade. A causa pela qual o pensamento procuraria sem cessar e deixaria de pensar no que é mais importante, motivo pelo qual o ser humano faria refem o outro, oprimiria. Se ao menos conhecesse o que está causando essa sede, a sintomatica de onde vem, o seu desespero amenizaria. 
+O proposito, o querer pela a vida, a aceitação do existir.
+
+
