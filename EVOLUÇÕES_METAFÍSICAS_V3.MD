@@ -10807,9 +10807,13 @@ O nada, apesar de ainda não totalmente investigado, soa, não um conceito qualq
 
 
 
+A indiferenciação é uma ferramente de purificação ontológica, onde o ontológico se purifica tanto que perde a distinção entre determinação e fundamentação.
 
 
 
+O niilista tenta dissociar seu eu, evitando ser reconhecido como alguém. 
+
+O niilsita tenta tornar tudo agridoce, chato. Se afastar das emoções.
 
 
 
