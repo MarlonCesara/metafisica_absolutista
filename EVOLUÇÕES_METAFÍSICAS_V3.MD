@@ -751,7 +751,10 @@ revisado
 
 
 
+A indiferenciação é uma ferramente de purificação ontológica, onde o ontológico se purifica tanto que perde a distinção entre determinação e fundamentação.
 
+
+A nadificação, portanto, é um estado de paradoxidade, onde a existência é anulada, ao passo que ainda existe. Através da infinitude se faz isso?
 
 
 
@@ -10807,7 +10810,6 @@ O nada, apesar de ainda não totalmente investigado, soa, não um conceito qualq
 
 
 
-A indiferenciação é uma ferramente de purificação ontológica, onde o ontológico se purifica tanto que perde a distinção entre determinação e fundamentação.
 
 
 
