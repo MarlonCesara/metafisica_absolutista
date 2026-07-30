@@ -10830,3 +10830,6 @@ Infinitamente mais precioso que a prata e o ouro e o diamante, mais precioso que
 O proposito, o querer pela a vida, a aceitação do existir.
 
 
+A sede do niilista por vida, é semelhante a sede por um vicio grave. A sensação física de falta de sentido se iguala a abstinência de um poderoso composto químico que causa dependência. A capacidade de fazer o individuo cometer crimes, ou qualquer ato que corrobore para o alivio dos sintomas é igualável ou até maior do que a influencia de uma droga física fortissima.
+
+
