@@ -742,19 +742,25 @@ Então quando falamos de uma pureza positiva, cabe falar do indiferenciado. Por�
 
 Portanto, pelo indiferenciado temos a pureza positiva. E pela, nadificação a pureza negativa, aquela que é pura por dispensar propriedades, e não por ser uma ontologia positivista pura. No entanto, em função do fenomeno ser essencialemnte determinado, não conseguimos, por via intuitiva, sem demais inferencias, mentalizar a pureza positiva de forma tão intuitiva.
 
-Vamos, portanto, tentar nos aproximar da pureza, positiva, explorando o nada. Reduzir o fenomeno de forma a tira-lo identidade não produz um fenomeno puro, mas produz o não fenomeno, pois em nossao observação o mundo é determinado mundo, as coisas possuem indentidade. Portanto, a redução pelo indiferenciamento do fenomeno não nos faz alcançar o indiferenciado. Começemos pela nadificação do fenomeno.
+Vamos, portanto, tentar nos aproximar da pureza, positiva, explorando o nada. Reduzir o fenômeno de forma a tira-lo identidade não produz um fenômeno puro, mas produz o não fenômeno, pois em nossa observação o mundo é determinado mundo, as coisas possuem identidade. Portanto, a redução pelo indiferenciamento do fenômeno não nos faz alcançar o indiferenciado. Começemos pela nadificação do fenômeno.
 
-Portanto, iremos inferir qualquer via postiiva através do nada. Lapidando esta realidade para averiguar suas propriedades. Tendo o conhecimento da substancia e do mecanismo mental ao qual chegamos até ela, portanto, iremos averiguar suas propriedades.
+Portanto, iremos inferir qualquer via positiva através do nada. Lapidando esta realidade para averiguar suas propriedades. Tendo o conhecimento da substancia e do mecanismo mental ao qual chegamos até ela, portanto, iremos averiguar suas propriedades.
 
 revisado
 
+# A indiferenciação como purificação ontológica
+
+A indiferenciação é uma ferramenta de purificação ontológica, onde o ontológico se purifica tanto que perde a distinção entre determinação e fundamentação. Na indiferenciação existe um estado de pureza que não é alcançado pela nulidade, nem pela possibilidade manifestada. Ao passo que o nada não tem fundamento ou identidade, e a manifestação possui identidade e fundamento. Ambos os estados não tem a pureza fundamental.
+
+
+# O nada e a infinitude
+
+A nadificação, portanto, é um estado de paradoxidade, onde a existência é anulada, ao passo que ainda existe. Através da infinitude se faz isso? A possibilidade, o todo, por um ângulo total, se faz nada, pois não há como capturar parte alguma da possibilidade. Portanto, havendo a anulação da matéria, a persistência do anulado, da matéria em ato de anulação. A anulação, não podendo ser a propriedade que sub existe em conjunto com a matéria, portanto, deve ser a mesma que a matéria. Para resolver este empasse, se considera que, num estado de infinitude da possibilidade, há a noção de nulidade, pois a infinitude é uma dimensão ou uma possibilidade incapturavel.
+
+Ao passo que o nada não pode ter sofrido um processo de nadificação, a propriedade da nulidade ontológica deve ter se dado tal como é, com a estabilidade. Portanto, ao considerar a infinitude da possibilidade, o nada, temos a potencial em conjunto com a ontologia, ambas coexistindo sem representar oposição, ao recortarmos uma possibilidade da infinitude da possibilidade temos a determinação.
 
 
 
-A indiferenciação é uma ferramente de purificação ontológica, onde o ontológico se purifica tanto que perde a distinção entre determinação e fundamentação.
-
-
-A nadificação, portanto, é um estado de paradoxidade, onde a existência é anulada, ao passo que ainda existe. Através da infinitude se faz isso? A possibilidade, o todo, por um angulo total, se faz nada, pois não há como capturar parte alguma da possibilidade.
 
 
 
