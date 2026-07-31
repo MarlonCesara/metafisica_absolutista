@@ -4,39 +4,6 @@
 
 **Prefácio**
 
-1. Lógica Simétrica
-2. Lógica Assimétrica
-3. Os Princípios Causais Simétricos
-4. Os Princípios Causais Assimétricos
-5. O Horizonte da Razão
-6. O Incausado e o Absoluto
-7. A Substância do Incausado
-8. Os mecanismos de purificação ontológica
----
-8. O Nada e o Impensável: A Cognoscibilidade do Nada
-9. O Indiferenciado e o Impensável: A Cognoscibilidade do Indiferenciado
-10. O Nada e o Indiferenciado: A Nadificação e a Indiferenciação
-11. O Nada como Existência Relacional
-12. O Estado Potencial do Nada
-13. A Indiferenciação do Nada
-14. A Paradoxalidade do Nada
-15. A União de Essência e Existência no Nada
-16. A Determinação do Nada
-17. A Ontologia do Nada
-18. A Estabilidade do Nada
-19. A Atemporalidade e a Temporalidade do Nada
-20. A Autodeterminação sob o Nada
-21. A Liberdade sob o Nada
-22. A Tridimensão da Pessoa sob o Nada
-23. A Indiferenciação do Espírito
-24. O Início da Determinação sob o Nada
-25. A Criação do Mundo sob o Nada
-26. A Criação do Homem sob o Nada
-27. A Unicidade do Homem
-28. A Ação do Homem sob o Nada
-29. A Relatividade do Homem
-30. O Potencial de Autoanulação do Homem
-
 # A ARQUITETURA SIMÉTRICA DA RAZÃO
 
 ## O Contexto Histórico e a Necessidade de um *Organon*
@@ -10837,3 +10804,37 @@ A sede do niilista por vida, é semelhante a sede por um vicio grave. A sensaç�
 
 A falta de conhecimento de todos, a respeita do niilismo, pode transmitir ao niilista a impressão que todos vivem num mundo mágico e que sua falta todos desconhecem, que o objeto de seu querer está em algum lugar e ninguém o transmite, mas o propósito é intangível. O mundo 
 
+
+
+1. Lógica Simétrica
+2. Lógica Assimétrica
+3. Os Princípios Causais Simétricos
+4. Os Princípios Causais Assimétricos
+5. O Horizonte da Razão
+6. O Incausado e o Absoluto
+7. A Substância do Incausado
+8. Os mecanismos de purificação ontológica
+---
+8. O Nada e o Impensável: A Cognoscibilidade do Nada
+9. O Indiferenciado e o Impensável: A Cognoscibilidade do Indiferenciado
+10. O Nada e o Indiferenciado: A Nadificação e a Indiferenciação
+11. O Nada como Existência Relacional
+12. O Estado Potencial do Nada
+13. A Indiferenciação do Nada
+14. A Paradoxalidade do Nada
+15. A União de Essência e Existência no Nada
+16. A Determinação do Nada
+17. A Ontologia do Nada
+18. A Estabilidade do Nada
+19. A Atemporalidade e a Temporalidade do Nada
+20. A Autodeterminação sob o Nada
+21. A Liberdade sob o Nada
+22. A Tridimensão da Pessoa sob o Nada
+23. A Indiferenciação do Espírito
+24. O Início da Determinação sob o Nada
+25. A Criação do Mundo sob o Nada
+26. A Criação do Homem sob o Nada
+27. A Unicidade do Homem
+28. A Ação do Homem sob o Nada
+29. A Relatividade do Homem
+30. O Potencial de Autoanulação do Homem
