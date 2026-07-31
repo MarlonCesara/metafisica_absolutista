@@ -612,7 +612,46 @@ O Nada não deve ser encarado aqui como um mero vazio lógico ou uma negação n
 
 ---
 
-## Os mecanismos de purificação ontológica 
+
+## O NADA COMO SIGNO MENTAL E A AUSÊNCIA DA REPRESENTAÇÃO
+
+O conceito de nada designa uma realidade, ao passo que não falar sobre coisa alguma não designa nem uma realidade e nem uma não realidade. No entanto, não se pronunciar sobre um objeto não o purifica. Desta forma, a ansia de alguns altores de insistir na ideia de que, o não falar sobre o nada, é a melhor forma de representa-lo, é somente uma forma de não produzir nenhum conteudo filosófico sobre o nada.
+
+Só é possível trabalhar sobre represetnações mentais, sobre entidades ou realidades que representam. O nada, portanto, deve ser tido como ontológico, através de uma demonstração e argumetnação, deve ser demonstrado que o conceito de nada permite trata-lo de forma ontológica para que possa ser representado por signos mentais.
+
+E, de modo que, possamos usa-lo para inferir sobre sua substancia procurando propriedades que testaram se o nada realmente pode ser absoluto, ou se existe uma pureza ontológica sob o nada.
+Verificaremos se o nada é realmente a substancia mais pura. Ou se ao menos pode portar pureza.
+
+Portanto, buscaremos o nada ontológico. O nada que possui traços do existente, para que possamos representa-lo, para que possamos inferir sobre esse paradoxo entre o todo e o nada. Para constatarmos se o nada é realmente puro.
+
+Buscar um nada ontológico sustentavel é uma busca mais util que dizer que a melhor representação do nada é não pensar sobre o mesmo, pois ao pensa-lo já não é mais nada. Há formas melhores de predica-lo, o considerando como, por exemplo, o infinito da possibilidade que é igual a nada, pois, na concepção do infinito, não se pode mensurar. O olhar sob o infinito, é o mesmo que o olhar sob o nada. 
+
+É um exemplo de como se pode pensar no nada de forma ontológica, sem apelar para a não representação do mesmo como tentativa de conceitua-lo ou compreende-lo.
+
+
+
+
+## OS MECANISMOS DE PURIFICAÇÃO E DA NADIFICAÇÃO ONTOLÓGICA - A INFINITUDE DO NADA
+
+Para produzir o nada, precisamos do mecanismo da infinitização ou da negação. O ato de negar não provoca a anulação do nada. A negação é uma angulação na ontologia do nada e do todo. Portanto, nadifica a possibilidade a considerando total e não apenas fragmentada. 
+
+A negação ou anulação é um ato, portanto, um ato sobre o todo, uma camada de visão sobra a infinitude da possibilidade que a nega não eficazmente, mas a nega como um angulo de visão, a nega ao considera-la total. Pois nada e infinitude são compatíveis?
+
+O infinito da possibilidade, portanto, é uma determinação estável. Ja o indiferenciado tem a verdadeira pureza, não se captura pela determinação. Tem qualidade indiferenciada, apensar de esse não ser seu único aspecto.
+
+
+
+Para produzirmos o incausado inefável através da inferência lógica precisamos do mecanismo da indiferenciação, pois está dilui a substancia em seus declives e acidentes, a, essência, portanto, tomada como acidente, é diluída através da indiferenciação, até formar o substrato Ser. Porém, não explica definitivamente como o Ser existe por si mesmo e nem tão pouco como causa a realidade contingente.
+
+Portanto, ao negarmos a determinação, temos o purificado, enquanto, ao negarmos o contingente temos o nadificado. O nadificado ainda não é puro. Temos, a infinitude da possibilidade. Queremos o acidente e o motivo dos acidentes na infinitude da possibilidade. Queremos o motor primário da realidade. O que move o nada?
+
+O nada não precisa de negação ontológica para ser provocado, é preciso de angulação. Para absoluto temos o infinito da possibilidade que é igual a nada. Portanto, para o nada, não é necessário movimentação. Mas sim para a angulação sob o nada. Para a percepção da angulação.
+
+O infinito da possibilidade não é puro. É uma determinação, pois se tem o infinito da possibilidade, se tem sua estabilidade.
+
+Pois enquanto o nada é a infinitude da possibilidade, é o resumo de todo o possível, impossível e incognocível, perante o horizonta da razão. O Ser é Espírito, 
+
+
 
 Há o mecanismo de purificação existencial (nadificação) e o deterministico (indiferenciação).
 
@@ -631,6 +670,27 @@ Porém, no estado de pureza, a distinção entre essencia e existencia desabam, 
 O indeterminado, nem mesmo pode ser considerado existencia, apenas um estado potencial, palco da determinação. Tal como a nulidade ontológica é um espaço potencial, palco da existencia.
 
 
+
+
+
+
+
+
+O indiferenciado não é determinado. Já o nada, pelo ponto de vista ontológico, é determinado nada. O nada, elevado a potencia da não potencia de si, não alcança sua purificação total, ao passso que não precisa dela para ser referenciado. 
+
+O absoluto porta não somente a pureza como uma pureza incompleta. O incausado, considerado o nada, portanto, dispensa a completa pureza para auto existir, para ser incausado? Ou ainda não dispensa a total pureza? O nada é ainda nada sob o angulo da totalidade de si. Sendo que se apresenta total.
+
+Pelo angulo da totalidade não tem total pureza. Pois é nada. Pelo angulo da totalidade não é considerado existente. Portanto, procuramos ainda o ontológico existente, o ontologico puro, que não precisa ser fragmentado, despertado ou desestabilizado para existir. 
+
+Porém, temos como principio a possibilidade de pensar no nada. O que antes ainda não era possível.
+
+Pensando no nada como algo ontológico, porem ainda nada sendo, temos que encontrar a pureza ontológica que opera sob o nada. 
+
+
+Se podemos pensar no nada, ele pode ser determinado nada? Uma vez que o nada é uma consequência fatalítica da totalidade, temos que o nada, como predicável, porta determinação. Pois é nada, e não outra coisa. Porém, o nada é suficiente para explicar sua estabilidade?
+
+
+Agora que podemos pensar no nada investiguemos suas propriedades.
 
 
 ## Os Mecanismos de Purificação Ontológica
