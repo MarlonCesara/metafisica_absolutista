@@ -1,4 +1,4 @@
-# EVOLUÇÕES METAFÍSICAS
+# O SER E O NADA: A ARQUITETURA
 
 # A ARQUITETURA SIMÉTRICA DA RAZÃO
 
@@ -434,7 +434,7 @@ O Mistério deixa de ser uma "falha provisória do conhecimento" para se tornar 
 
 **Proposição demonstrada:** A lógica do indeterminado não é um mero conceito abstrato, mas o mapa da Causalidade Assimétrica que sustenta a realidade. Ela resolve a insuficiência do mecanicismo clássico ao demonstrar que o mundo não é apenas um sistema de engrenagens que batem umas nas outras (causalidade simétrica), mas uma manifestação permanentemente alimentada, de cima para baixo, por um Fundamento Uno, Inesgotável e Transcendente. A arquitetura da razão está, finalmente, completa em suas duas direções: protegida na sua estabilidade pelas causas simétricas e aberta ao infinito pelas causas assimétricas.
 
-# PROPOSIÇÃO: O HORIZONTE DA RAZÃO
+# O HORIZONTE DA RAZÃO
 
 ## As Três Categorias Radicais da razão
 
@@ -571,43 +571,38 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 ---
 
-### Síntese da Proposição
+### Síntese
 
 **Proposição demonstrada:** O horizonte metafísico total contém três domínios irredutíveis: o Possível (realidade estruturada e coerente), o Impossível (limite lógico interno) e o Incognoscível (transcendência radical). Esta estrutura não representa uma limitação, mas uma plenitude integral — o cognoscível revela o que pode ser conhecido racionalmente, enquanto o incognoscível mantém aberto o horizonte para o que só pode ser acessado por vias não-discursivas.
 
 ---
 
 
-# PROPOSIÇÃO: O INCAUSADO E O ABSOLUTO
+# O INCAUSADO E O ABSOLUTO
 
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
 A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Esses domínios são definidos por sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível. O Absoluto se sintetiza, mediante o pensamento filosófico, com base em duas vias de reflexão: a lógica e a ilógica. Por meio dessas vias, é possível inferir o Absoluto como a totalidade, englobando aquilo que há e o que não há. Ele refere-se ao que "está", ao estado — ou não-estado — primordial.
 
-### A Definição Causal e a Natureza do Incausado
-
 O Absoluto é inferido a partir dos princípios causais e da necessidade lógica de uma Primeira Causa. É neste ponto que a definição se consolida: **o incausado não pode ter uma causa anterior, não possui uma causa externa e não carece de um motivo ou razão pela qual devesse ser tal como é, senão em si mesmo. Essa autossuficiência radical é o que define o Absoluto, pois, nessa instância primordial, não existiria absolutamente nada mais além dele para determiná-lo ou originá-lo.**
 
 Portanto, o Absoluto é o significado de uma realidade sem causa antecedente ou exterior. Esses são os atributos indissociáveis da última causa.
 
-
-Aqui está uma versão inteiramente reestruturada e refinada do seu texto. O teor filosófico foi elevado utilizando o vocabulário próprio da ontologia clássica e da metafísica radical (aproximando-se da *via negativa* ou apofatismo), mantendo a conexão exata com o modelo de Fundamento Indeterminado que construímos nas seções anteriores.
-
 ---
 
-# PROPOSIÇÃO: A SUBSTÂNCIA DO INCAUSADO
+# A SUBSTÂNCIA ABSOLUTA
 
-## O Inefável como Isenção Predicativa
+A tradição metafísica frequentemente concebe a substância de uma realidade incausada por meio da pureza absoluta ou, em termos mais rigorosos, através da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causa.
 
-A tradição metafísica frequentemente concebe a substância de uma realidade incausada por meio da pureza absoluta ou, em termos mais rigorosos, através da categoria do **inefável**. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência isenta de causa. Isto ocorre porque a pressuposição de uma causa exige, invariavelmente, uma determinação prévia: algo só precisa ser causado se foi delimitado a possuir certas propriedades em detrimento de outras.
+Para que o cosmos causado exista, exige-se uma realidade puríssima, que dispense propriedades contingentes e determinações prévias; ou seja, o incausado deve possuir primazia ontológica e eficácia causal, constituindo-se como o fundamento último sem o qual a explicação da realidade vigente permanece incompleta.
 
-O inefável, por definição, **dispensa propriedades e transcende qualquer predicado**. Se um princípio carece de delimitações qualitativas, acidentais ou essenciais, não há nele nenhuma "balança ontológica" que precise ser inclinada por um agente externo. Ele simplesmente é, imune à exigência de uma *ratio sufficiens* (razão suficiente) externa.
+Portanto, a este incausado ontológico — a realidade cuja existência é tão pura que sua determinação se funde à sua própria fundamentação — damos o nome de "Ser". Trata-se de uma realidade que não pode ser categorizada como "A" ou "B"; sua identidade é o seu próprio ato de existir. Nesse sentido, onde a identidade do existente coincide plenamente com a existência, o Ser emerge como o signo de sua própria auto-fundamentação. O incausado ontológico que justifica o causado é necessariamente simples e desprovido de delimitações conceituais: sua essência é o seu próprio fundamento, o ipsum esse subsistens.
+
+O inefável, por definição, dispensa propriedades e transcende qualquer predicação. Se um princípio carece de delimitações qualitativas, acidentais ou essenciais, não há nele nenhuma "balança ontológica" que precise ser inclinada por um agente externo. Ele simplesmente é, imune à exigência de uma ratio sufficiens (razão suficiente) heterônoma.
 
 Nesta etapa de nossa investigação, o objetivo consiste em dissecar a natureza exata desse estrato inefável, testando se os conceitos tradicionalmente invocados como absolutos podem, em última instância, sustentar e definir a arquitetura do incausado.
 
----
-
-## O "Nada" como Ponto de Partida Metodológico
+Embora haja uma inferência direta que postula o incausado a partir do causado — revelando uma realidade pura onde determinação e fundamentação se diluem no "Ser" —, essa dedução imediata não elucida como essa realidade existe de maneira necessária e absoluta, tampouco de que modo ela opera como Gênese de toda a realidade vigente. A proposta desta obra é investigar a arquitetura metafísica proveniente do Ser, iniciando metodologicamente pela arqueologia do conceito de Nada e culminando na investigação de como o Ser absoluto desencadeia a totalidade dos fenômenos.
 
 Para que a investigação acerca do incausado não se perca em abstrações vazias, faz-se necessário isolar uma substância ou conceito que sirva de baliza inicial. Para delimitar o inefável, propõe-se aqui o exame radical de uma categoria limite: **o Nada**.
 
