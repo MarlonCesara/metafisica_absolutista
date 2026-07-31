@@ -1,9 +1,5 @@
 # EVOLUÇÕES METAFÍSICAS
 
-# Sumário
-
-**Prefácio**
-
 # A ARQUITETURA SIMÉTRICA DA RAZÃO
 
 ## O Contexto Histórico e a Necessidade de um *Organon*
