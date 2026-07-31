@@ -759,6 +759,9 @@ A nadificação, portanto, é um estado de paradoxidade, onde a existência é a
 
 Ao passo que o nada não pode ter sofrido um processo de nadificação, a propriedade da nulidade ontológica deve ter se dado tal como é, com a estabilidade. Portanto, ao considerar a infinitude da possibilidade, o nada, temos a potencial em conjunto com a ontologia, ambas coexistindo sem representar oposição, ao recortarmos uma possibilidade da infinitude da possibilidade temos a determinação.
 
+O nada, no entanto, não é o infinito do fenomeno, é o infinito da possibilidade. Isto é, o nada é a anulação do todo, e o todo está para o cognoscível e incognocível.
+
+
 
 
 
@@ -10830,6 +10833,4 @@ Infinitamente mais precioso que a prata e o ouro e o diamante, mais precioso que
 O proposito, o querer pela a vida, a aceitação do existir.
 
 
-A sede do niilista por vida, é semelhante a sede por um vicio grave. A sensação física de falta de sentido se iguala a abstinência de um poderoso composto químico que causa dependência. A capacidade de fazer o individuo cometer crimes, ou qualquer ato que corrobore para o alivio dos sintomas é igualável ou até maior do que a influencia de uma droga física fortissima.
-
-
+A sede do niilista por vida, é semelhante a sede por um vicio grave. A sensação física de falta de sentido se iguala a abstinência de um poderoso composto químico que causa dependência. A capacidade de fazer o individuo cometer crimes, ou qualquer ato que corrobore para o alivio dos sintomas é igualável ou até maior do que a influencia de uma droga física fortissima. O niilista sente o alivio momentaneo na expressão, pois o alívio é a ilusão de que o problema não existe ou que o outro absorveu em seu emocional todo o problema. Portanto, a sensação é brevemente aliviada em espelha-la no outro, ou na ilusão de que foi reparado o caos emocional, por exemplo, com a aquisição de riquezas. Desta forma, o que chamaremos de tentação, que é a tendencia do corpo humano a querer de forma ilusõria, momentanea a reparação do estado mental, uma breve esperança do corpo de ter sido resgatado da tendencia da nulidade. Enfim, a sede é o querer do resgate, o querer do alivio da pressão da posição interior desoladora, angustiante e opressora. 
