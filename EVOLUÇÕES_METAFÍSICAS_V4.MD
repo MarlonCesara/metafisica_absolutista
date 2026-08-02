@@ -927,8 +927,7 @@ Portanto, a nada, é uma realidade dupla, que, abandona a si mesma e deixa somen
 
 A introdução de uma nova camada é necessaria ao nada. Ao adicionarmos a auto determinação da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciencia do nada, temos, portanto, uma angulação por um referencial de consciencia. E essa propriedade susntenta o nada através do observador. E podemos evocar essa propriedade através da investigação do próprio Absoluto.
 
-
-Passamos agora a extrair propriedades necessarias do Absoluto, não mais da substancia que foi defininda, mais ainda não explicada, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgencia do angulador. Já que nossa substancia elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessarias que serão agregadas a nossa substancia elementar.
+Passamos agora a extrair propriedades necessárias do Absoluto, não mais da substancia que foi definida, mais ainda não explicada, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgencia do angulador. Já que nossa substancia elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessarias que serão agregadas a nossa substancia elementar.
 
 Isto é, vamos extrair as propriedades necesarias a existencia de um absoluto para testarmos se é possível extrair um agulador para a completude. Pois, ate agora, inferimos o angulador como hipotese, de uma forma direta.
 
@@ -945,9 +944,14 @@ Iremos, portanto jusitificar o angulador e forma a inferir sobre suas propriedad
 
 # O Nada e o relativo
 
-Não hávendo ainda embasamento para o nada, chamaremos o mesmo de relativo, que é o nada com uma pendencia de referenciador. Portanto, o nada, em sua suma investigação é o relativo, algo que carece de um referenciador. Algo que só pode ser determinado sendo relativo. Por enquanto, é dado relativo, pelo desconhecimento do angulador, por um estado ainda de não atualização.
+Não havendo, até o momento, um embasamento para o nada, chamá-lo-emos de **relativo**, isto é, o nada enquanto portador de uma pendência referencial. O relativo, portanto, é aquilo que carece de um referenciador, algo cuja determinação somente pode ocorrer por meio de uma relação. Neste estágio da investigação, ele recebe a designação de relativo em razão do desconhecimento do angulador, encontrando-se ainda em um estado de não atualização.
 
-O relativo, desta forma, não é a completude e nem o nada, mas é uma espera, um estado de suspensão que é atualizado pelo referencial do angulador. O relativo é o nada carescendo de referencial. É a completude não atualizada.
+Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentido definitivo. É um estado de suspensão, uma espera ontológica que somente se atualiza mediante o referencial fornecido pelo angulador. O relativo é o nada enquanto carece de um referencial; é a completude ainda não atualizada.
+
+O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto, que coabita com o nada.
+
+O relativo não é um indiferenciado. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
+
 
 
 ### Introduçao ao Absoluto: A Dedução a partir do Fenômeno
@@ -2002,33 +2006,24 @@ Mesmo que se encontre o "*start*", como se define a constante ação desde o mom
 
 Para agir sobre o consumado, não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio tempo do Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Deus — um **"Deus sobre Deus"** — e nesta haveria uma temporalidade mantendo a consumação. E nesse "Deus sobre Deus", que se estende ao infinito, teria a ação do determinador.
 
-Portanto, Deus, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no nada. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante. Assim, **o tempo do Espírito pode determinar sobre o nada** precisamente porque Deus está além do tempo e da atemporalidade. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, extrapolando o absoluto cognoscível. Se o relativo não pode se autodeterminar, a autocausalidade (o Espírito observador) confere uma linha *perpendicular* ao tempo consumado a partir da aparição do Absoluto.
+Portanto, Deus, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no nada. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante. Assim, **o tempo do Espírito pode determinar sobre o nada** precisamente porque Deus está além do tempo e da atemporalidade. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, extrapolando o absoluto cognoscível. Se o relativo não pode se autodeterminar, a auto causalidade (o Espírito observador) confere uma linha *perpendicular* ao tempo consumado a partir da aparição do Absoluto.
 
 ### **8.19. Síntese Final: A Arquitetura do Tempo Divino**
-O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a autopresença (um fluxo cego). Conforme a autopresença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio e o fim, mas vive o meio com a frescura criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, no amor da Trindade.
+O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio e o fim, mas vive o meio com a frescura criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, no amor da Trindade.
 
-| Dimensão do Infinito | Ação Metafísica correspondente | Relação com a Autocausalidade |
+| Dimensão do Infinito | Ação Metafísica correspondente | Relação com a Auto causalidade |
 | :--- | :--- | :--- |
-| **Infinito Horizontal** | A Existência Atemporal e Imutável. | Autofundamentação pura do Ser. |
+| **Infinito Horizontal** | A Existência Atemporal e Imutável. | Auto fundamentação pura do Ser. |
 | **Infinito Vertical** | A Identidade do "Deus sobre Deus" (Elevação ao Infinito). | Autoconsciência absoluta e onisciência consumada. |
 | **Infinito Diagonal** | A Vontade e Liberdade de Criação (O *Start* Fenomênico). | Princípio de decisão que quebra a estaticidade. |
 | **Infinito Perpendicular** | A Ação Viva no Tempo do Espírito (Renovação Perene). | Observador Eterno atualizando o que sempre foi conhecido. |
 
 ---
 
-
-
-
-
-
-
-
-
-
-## **PROPOSIÇÃO IX: O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL**
+## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL**
 
 ### **9.1. A Necessidade de uma Purificação do Olhar: Introdução ao Caminho Apofático**
-Agora que compreendemos a estrutura da autocausalidade, as dimensões da liberdade divina e a temporalidade não linear do Espírito, podemos avançar para uma questão ainda mais fundamental: qual é o *conteúdo* do Espírito? O que é, em sua essência mais íntima, essa realidade que chamamos de Ser absoluto? Até aqui, exploramos o *como* do Espírito — como Ele age, como Se relaciona com o tempo, como exerce Sua liberdade. Agora, devemos investigar o *quê* — a substância pura que subjaz a todas as determinações, o solo ontológico do qual tudo brota e para o qual tudo tende.
+Agora que compreendemos a estrutura da auto causalidade, as dimensões da liberdade divina e a temporalidade não linear do Espírito, podemos avançar para uma questão ainda mais fundamental: qual é o *conteúdo* do Espírito? O que é, em sua essência mais íntima, essa realidade que chamamos de Ser absoluto? Até aqui, exploramos o *como* do Espírito — como Ele age, como Se relaciona com o tempo, como exerce Sua liberdade. Agora, devemos investigar o *quê* — a substância pura que subjaz a todas as determinações, o solo ontológico do qual tudo brota e para o qual tudo tende.
 
 Esta investigação, porém, exige uma preparação rigorosa. Não podemos abordar diretamente a pureza do Espírito com mentes turvadas por conceitos inadequados, por imagens que projetamos n'Ele a partir de nossa experiência limitada. É necessário, antes de mais nada, *limpar as janelas* que nos impedem de ver verdadeiramente a paisagem do Espírito. Essas janelas são as noções pré-concebidas, os hábitos mentais, as categorias filosóficas que, embora úteis para lidar com o mundo finito, tornam-se obstáculos quando aplicadas ao Infinito.
 
@@ -2048,15 +2043,15 @@ No entanto, essa experiência do nada é crucial. Ao contemplarmos o nada, somos
 O nada, portanto, é a primeira janela a ser limpa. Não porque ele contenha alguma verdade positiva, mas porque sua contemplação nos livra da ilusão de que o ser finito é autossuficiente. Ao encararmos o nada, nossa mente se desapega das determinações particulares e se abre para a possibilidade de algo que seja para além de toda determinação — algo que não possa não existir, algo cuja essência é o próprio existir.
 
 ### **9.3. Introdução: Do Causal ao Criacional — A Natureza da Presença Absoluta**
-Tendo estabelecido os princípios da autocausalidade absoluta, adentramos agora a natureza íntima do Autocausado. Se antes investigamos *como* o Absoluto se fundamenta, cabe agora perguntar: *o que é* esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia causal, mas como ato puro de autoposição?
+Tendo estabelecido os princípios da auto causalidade absoluta, adentramos agora a natureza íntima do Auto causado. Se antes investigamos *como* o Absoluto se fundamenta, cabe agora perguntar: *o que é* esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia causal, mas como ato puro de auto posição?
 
-Não exploraremos mais a causalidade, mas a natureza do autocausado. Ou seja, sabemos que o autocausado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
+Não exploraremos mais a causalidade, mas a natureza do auto causado. Ou seja, sabemos que o auto causado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
 
 
-## **Tese IV: Espírito como Auto-Presença sem Sujeito**
+## **Espírito como Auto-Presença sem Sujeito**
 
 **Proposição:**
-O Absoluto pode ser chamado de "espírito", mas não no sentido de consciência psicológica, sujeito transcendental, nem pessoa. Espírito aqui significa: *auto-presença sem divisão*, onde conhecer, ser e ser conhecido coincidem na ausência de diferença.
+O Absoluto pode ser chamado de "espírito", mas não no sentido de consciência psicológica, sujeito transcendental, nem pessoa. Espírito aqui significa: *auto presença sem divisão*, onde conhecer, ser e ser conhecido coincidem na ausência de diferença.
 
 **Formalização:**
 * Espírito não é: mente, vontade, escolha, decisão, intenção.
@@ -2066,7 +2061,7 @@ O Absoluto pode ser chamado de "espírito", mas não no sentido de consciência 
 **Defesa:**
 Três concepções de espírito falham:
 1.  **Espírito pessoal (teísmo):** implica escolha, temporalidade, alteridade interna (Pai-Filho-Espírito).
-2.  **Espírito absoluto (hegelianismo):** implica autodiferenciação, movimento lógico, historicidade.
+2.  **Espírito absoluto (hegelianismo):** implica auto diferenciação, movimento lógico, historicidade.
 3.  **Espírito impessoal (espinocismo):** ainda implica substância com atributos, ou seja, determinação.
 
 Nossa definição escapa desses problemas: o espírito não é um *sujeito* que se relaciona consigo, mas a *própria relação* abolida em identidade pura.
@@ -2132,10 +2127,10 @@ A Metafísica do Indiferenciado não é uma doutrina entre outras — ela é a *
 * É *não-operacional* — mas não se propõe a ser técnica, mas sabedoria.
 * É *silenciosa* no limite — mas todo sistema consistente termina em silêncio.
 
-esse
-## **PROPOSIÇÃO XI: O NADA COMO AUTOEXPRESSÃO DO ABSOLUTO**
 
-O relativo é o indiferenciado sob o referencial do espirito que o opera, e o indiferenciado é o nada, visto de forma escassa, de forma a não haver a liberdade que o atualiza.
+## **PROPOSIÇÃO XI: O RELATIVO COMO AUTOEXPRESSÃO DO ABSOLUTO**
+
+O relativo é sob o referencial do espirito que o opera, e o relativo é o nada, visto de forma escassa, de forma a não haver a liberdade que o atualiza.
 
 ### **1. O Espírito e o Relativo**
 Enquanto o Espírito conserva sua temporalidade e seu ato único, o relativo é uma suspensão completa. O Espírito repousa no ato relativo e é na própria suspensão.
