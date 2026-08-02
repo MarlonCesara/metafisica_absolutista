@@ -11627,3 +11627,11 @@ Denominaremos, portanto, nossa substância bruta — o nada — como 'absoluto',
 
 Até o momento, exploramos ao máximo o conceito do nada e do indiferenciado, retirando-lhes propriedades que não referenciam fatores relacionais ou espirituais. Concluímos que o nada é um potencial e que o completo nada, quando o nada é ausente de si mesmo, não é possível na linguagem nem inferível. Dessa forma, inferiremos sobre o nada cientes de seu potencial, seja como nada ou como indiferenciado. Ambas são potências ontológicas: o indiferenciado como indiferença do diferente, e o nada como nulidade do todo. Sendo o nada ainda nossa substância bruta inefável, lapidaremos mais essa substância na busca por fatores relacionais e espirituais que se sobressaiam ao conceito do nada. As seguintes conclusões demonstram que não faz sentido pensar no Absoluto até agora inferido sem pressupor um âmbito espectral e intencional.
 
+
+
+A felicidade, a leveza e a alegria natural é insuportável para o niilsita, pois o faz defrontar a irregularidade, a falta de sentido e lógica em sua postura. 
+
+O bilionário, tem uma intenção discrepante do dinheiro, o querer verdadeiro pelo dinheiro leva o ser humano a construi-lo através de ações que poucos ousam ou querem pela ausencia do querer. Porém, o bilionário não executa necessariamente tais ações, não desperta o verdadeiro impeto de ultrapassar a normalidade para obter o que quer. O bilionário, opera na sociedade, como um remedio que baixa o animo e o humor, está sempre tentando se fazer entender, colocando o peso de sua postura no outro como tentativa de alcançar o alivio, o suporte para sustentar sua decisão.
+
+O niilista exala, uma explosão de emoções negativas, exala em seu agir a ruptura interior.
+
