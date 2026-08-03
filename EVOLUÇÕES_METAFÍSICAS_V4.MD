@@ -958,6 +958,8 @@ Se o conceito de nada tornou-se dependente de um angulador para se realizar, bus
 
 O relativo, portanto, é um conceito aproximado do nada, na ausência de qualquer justificação para o angulador. Não existe de fato, porém, existe ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta fez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo nada ou um recorte deste nada em possibilidade. 
 
+O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontológia pura. Tão pura que seja sobressalente somente sua ação, que sirva para vivificar no nada. Que dê sentido, substancia e potencial ao nada no ato de sua angulação.
+
 Em conclusão, não chegamos a resposta alguma sob um nada existente, a investigação do nada se esgota com um resquício de possibilidade de encontrar seu conceito. O nada, sem o angulador, portanto, é ilógico e inconcebível.
 
 O angulador, deve, necessariamente ser puro e existir. Portanto, resta-nos a investigação sobre o indiferenciado para ir de encontro a este angulador. Se, no indiferenciado houver um ente angulador, então, teremos, portanto, o nada, ou a existência, caso também consigamos inferir a liberdade para o angulador de ação.
@@ -965,6 +967,8 @@ O angulador, deve, necessariamente ser puro e existir. Portanto, resta-nos a inv
 Nossa busca, portanto, nos levou a necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada que é o nada. 
 
 Desta forma, busquemos uma maior complexidade para entendermos a existência do nada. E, não há outro conceito em que poderiamos buscar essa complexidade, se não, no indiferenciado considerado no ambito absoluto.
+
+
 
 999
 
@@ -11648,4 +11652,26 @@ A felicidade, a leveza e a alegria natural é insuportável para o niilsita, poi
 O bilionário, tem uma intenção discrepante do dinheiro, o querer verdadeiro pelo dinheiro leva o ser humano a construi-lo através de ações que poucos ousam ou querem pela ausencia do querer. Porém, o bilionário não executa necessariamente tais ações, não desperta o verdadeiro impeto de ultrapassar a normalidade para obter o que quer. O bilionário, opera na sociedade, como um remedio que baixa o animo e o humor, está sempre tentando se fazer entender, colocando o peso de sua postura no outro como tentativa de alcançar o alivio, o suporte para sustentar sua decisão.
 
 O niilista exala, uma explosão de emoções negativas, exala em seu agir a ruptura interior.
+
+
+
+
+
+
+## Porque as pessoas não se revoltam contra os bilionários?
+
+
+
+O corpo tem a alma como hospedeira, e essa propriedade pode faze-lo reagir de diferentes formas. Uma alma não niilista não produz más reações no corpo, pois o corpo, como morfologicamente direcionado a manutenção de sua existência, vive em harmonia com seu hospedeiro. Porém, a alma niilista num corpo que não é direcionado biologicamente para seu auto findar, faz com que seu comportamento se corrompa. O ser humano, não acaba com os bilionários, pelo humano não querer criar guerra contra o humano, a humanidade busca o entendimento.
+
+A humanidade associa o crime como uma loucura, mas o acumulo de bilhões ainda não consegue associar com tal condição. A cadeia, não há punição, há um isolamento social, pela cura de alguma loucura. Mas, esta loucura se ramifica de formas diferentes, e não permite que o ser humano preveja tudo o que o niilismo frutifica no corpo. Portanto, a loucura não está somente dentro da cadeia, através de crimes hediondos, mas está também por trás de gabinetes de bilionários. 
+
+São pessoas que nao venderam uma ideia para o mundo, que não venderam seu semblante e sua alegria, que não geraram valor para a sociedade, não mereceram, mas apenas estão aproveitando de uma violencia histórica, dos meios de produção tomados pela força, e nem bem se mostram, mas se escondem por trás dos seus gabinetes apenas assombrando. Não fazem questão de riquezas, se fizessem, a conquistariam sem oprimir. Estao apenas tentando demonstrar o seu terror, o que sentem.
+
+Estão demonstrando o assombro do qual padecem.
+
+
+
+
+
 
