@@ -958,7 +958,7 @@ Se o conceito de nada tornou-se dependente de um angulador para se realizar, bus
 
 O relativo, portanto, é um conceito aproximado do nada, na ausência de qualquer justificação para o angulador. Não existe de fato, porém, existe ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta fez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo nada ou um recorte deste nada em possibilidade. 
 
-O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontológia pura. Tão pura que seja sobressalente somente sua ação, que sirva para vivificar no nada. Que dê sentido, substancia e potencial ao nada no ato de sua angulação.
+O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontologia pura. Tão pura que seja sobressalente somente sua ação, que sirva para vivificar no nada. Que dê sentido, substancia e potencial ao nada no ato de sua angulação.
 
 Em conclusão, não chegamos a resposta alguma sob um nada existente, a investigação do nada se esgota com um resquício de possibilidade de encontrar seu conceito. O nada, sem o angulador, portanto, é ilógico e inconcebível.
 
@@ -966,8 +966,9 @@ O angulador, deve, necessariamente ser puro e existir. Portanto, resta-nos a inv
 
 Nossa busca, portanto, nos levou a necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada que é o nada. 
 
-Desta forma, busquemos uma maior complexidade para entendermos a existência do nada. E, não há outro conceito em que poderiamos buscar essa complexidade, se não, no indiferenciado considerado no ambito absoluto.
+Desta forma, busquemos uma maior complexidade para entendermos a existência do nada. E, não há outro conceito em que poderíamos buscar essa complexidade, se não, no indiferenciado considerado no âmbito absoluto.
 
+Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
 
 
 999
