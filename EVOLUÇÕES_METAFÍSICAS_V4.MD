@@ -952,7 +952,7 @@ O relativo é, portanto, um potencial que depende de um angulador. Trata-se de u
 
 O relativo não é um indiferenciado. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
 
-Completa-se aqui a investigação sobre o nada. Porém, não se completa a investigação sobre o absoluto. Por agora, iremos inferir sobre o próprio conceito de totalidade, isto é, pelo conceito do indiferenciado, o que poderia despertar toda a cadeia causal.
+Completa-se aqui a investigação sobre o nada. Porém, não se completa a investigação sobre o absoluto. Por agora, iremos inferir além do próprio conceito de nada ou de existência, isto é, pelo conceito do indiferenciado, o que poderia despertar toda a cadeia causal e que está além da existência ou na nulidade.
 
 Se o conceito de nada tornou-se dependente de um angulador para se realizar, buscaremos esta possibilidade de angulação analisando as propriedades do inefável. Ao considera-lo que tem as propriedades necessarias para realizar a angulação, temos, portanto nada, e até mesmo o despertar deste nada em recortes.
 
@@ -962,7 +962,9 @@ Em conclusão, não chegamos a resposta alguma sob um nada existente, a investig
 
 O angulador, deve, necessariamente ser puro e existir. Portanto, resta-nos a investigação sobre o indiferenciado para ir de encontro a este angulador. Se, no indiferenciado houver um ente angulador, então, teremos, portanto, o nada, ou a existência, caso também consigamos inferir a liberdade para o angulador de ação.
 
-Nossa busca, portanto, nos levou a necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada que é o nada.
+Nossa busca, portanto, nos levou a necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada que é o nada. 
+
+Desta forma, busquemos uma maior complexidade para entendermos a existência do nada. E, não há outro conceito em que poderiamos buscar essa complexidade, se não, no indiferenciado considerado no ambito absoluto.
 
 999
 
