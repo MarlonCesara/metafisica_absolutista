@@ -11675,4 +11675,11 @@ Estão demonstrando o assombro do qual padecem.
 
 
 
+Os meios de produção natural são construídos estrategicamente para a poluição, para o homem precisar degradar o próprio homem. O instinto humano pela preservação é nato até mesmo nas tribos, porém, os grandes produtores, focam em materiais não perecíveis na natureza, em meios de produção que poluem, não exclusivamente pelo lucro, mas por expressão. 
+
+O desejo de não tratar o outro como gente, tratar como animais, como um gado que se cria, é a expressão do afastamento do eu, quando o individuo se desfaz da consciência do eu, e quer viver num modelo instintivo.
+
+
+
+
 
