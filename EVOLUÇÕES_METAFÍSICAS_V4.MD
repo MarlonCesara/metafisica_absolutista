@@ -11667,7 +11667,7 @@ O corpo tem a alma como hospedeira, e essa propriedade pode faze-lo reagir de di
 
 A humanidade associa o crime como uma loucura, mas o acumulo de bilhões ainda não consegue associar com tal condição. A cadeia, não há punição, há um isolamento social, pela cura de alguma loucura. Mas, esta loucura se ramifica de formas diferentes, e não permite que o ser humano preveja tudo o que o niilismo frutifica no corpo. Portanto, a loucura não está somente dentro da cadeia, através de crimes hediondos, mas está também por trás de gabinetes de bilionários. 
 
-São pessoas que nao venderam uma ideia para o mundo, que não venderam seu semblante e sua alegria, que não geraram valor para a sociedade, não mereceram, mas apenas estão aproveitando de uma violencia histórica, dos meios de produção tomados pela força, e nem bem se mostram, mas se escondem por trás dos seus gabinetes apenas assombrando. Não fazem questão de riquezas, se fizessem, a conquistariam sem oprimir. Estao apenas tentando demonstrar o seu terror, o que sentem.
+São pessoas que nao venderam uma ideia para o mundo, que não venderam seu semblante e sua alegria, que não geraram valor para a sociedade, não mereceram, mas apenas estão aproveitando de uma violência histórica, dos meios de produção tomados pela força, e nem bem se mostram, mas se escondem por trás dos seus gabinetes apenas assombrando. Não fazem questão de riquezas, se fizessem, a conquistariam sem oprimir. Estão apenas tentando demonstrar o seu terror, o que sentem.
 
 Estão demonstrando o assombro do qual padecem.
 
@@ -11680,6 +11680,6 @@ Os meios de produção natural são construídos estrategicamente para a poluiç
 O desejo de não tratar o outro como gente, tratar como animais, como um gado que se cria, é a expressão do afastamento do eu, quando o individuo se desfaz da consciência do eu, e quer viver num modelo instintivo.
 
 
-
+Conforme a ausência de conhecimentos, politicas, leis, a expressão do niilismo nos tempos antigos era mais livre, tendo formas popularizadas, mais crueis, conforme a sociedade evolui, o niilismo se expõe mais discretamente.
 
 
