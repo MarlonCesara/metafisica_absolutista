@@ -939,7 +939,7 @@ Iremos, então, explorar o Absoluto, o que existe realmente sob o nada, e consid
 
 Isto é, exploramos o nada, agora exploraremos o angulador que vai de encontro ao nada e o angula para que o nada exista de fato.
 
-Iremos, portanto jusitificar o angulador e forma a inferir sobre suas propriedades.
+Iremos, portanto justificar o angulador e forma a inferir sobre suas propriedades. E o faremos em busca de aspectos relacionais para o relativo. Aspectos relacionais estes que sejam o nosso indiferenciado. Isto é, procuraremos por propriedades Espirituais, que emergem no nada por serem absolutas. Por se darem no contexto do nada, dispensarem explicações.
 
 
 # O Nada e o relativo
