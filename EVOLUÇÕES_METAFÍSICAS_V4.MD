@@ -11683,3 +11683,5 @@ O desejo de não tratar o outro como gente, tratar como animais, como um gado qu
 Conforme a ausência de conhecimentos, politicas, leis, a expressão do niilismo nos tempos antigos era mais livre, tendo formas popularizadas, mais crueis, conforme a sociedade evolui, o niilismo se expõe mais discretamente.
 
 Por vezes o niilista tem a impressão que todos sabem de sue infortunio, tem a sensação da derrota, a leve impressão que todos conhecem sua miséria e a querem, e o condenam. Pois por hora se sente um prisioneiro e não alguém que escolhe por deliberada vontade. Portanto, ao deixar de ser niilista tem a breve sensação de vitória sobre as pessoas, de ver que o estavam o condenando ou não se importanto, e agora pode vencer a todos. O niilista se sente o mais profundo perdedor.
+
+Os niilistas pensam em conjunto.
