@@ -971,7 +971,7 @@ Desta forma, busquemos uma maior complexidade para entendermos a existência do 
 Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
 
 
-## O indiferenciado sob a existência fenomênica
+## O indiferenciado sob a existência
 
 Ao aplicarmos o indiferenciado à existência fenomênica, resultamos novamente no nada, pois o indiferenciado esgota os entes determinados. Isto é, o indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
 
@@ -997,7 +997,11 @@ Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui id
 
 Portanto, o Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de forma que o Ser não se a própria de si mesmo e se nomeia como Ser, mas simplesmente é em doação total de si.
 
+Portanto, adiante, o foco de nossa investigação explanará como uma realidade pode emergir sem realidade, de forma que seja detectada somente sua ação. E faremos isso buscando aspectos relacionais no absoluto e não entes específicos em sua estrutura. 
 
+O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica relacional, já subentende o indiferenciado.
+
+> Exemplo dogmático: Os olhos de Deus criam tudo, e, se estão voltados para nada, criaram certamente este nada. Portanto, se os olhos de Deus estão fechados, o produto desta ação é o nada. Porém, quando se abrem o produto é o todo. Deus, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois, de certa forma é determinado, é angulado. E, de Deus, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, Deus está em quem ama, e quem ama está Nele.
 
 
 revisado
