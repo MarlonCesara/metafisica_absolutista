@@ -1006,7 +1006,9 @@ O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica rela
 
 ## O indiferenciado e o relativo
 
-Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade.
+Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada, pode ser pensado nada, e imaginado nada. 
+
+Não sendo nada, existe, se mentalizado, ou se não mentalizado, há o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo.
 
 
 revisado
