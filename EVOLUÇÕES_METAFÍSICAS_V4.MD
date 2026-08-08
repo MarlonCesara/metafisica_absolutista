@@ -1004,6 +1004,11 @@ O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica rela
 > Exemplo dogmático: Os olhos de Deus criam tudo, e, se estão voltados para nada, criaram certamente este nada. Portanto, se os olhos de Deus estão fechados, o produto desta ação é o nada. Porém, quando se abrem o produto é o todo. Deus, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois, de certa forma é determinado, é angulado. E, de Deus, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, Deus está em quem ama, e quem ama está Nele.
 
 
+## O indiferenciado e o relativo
+
+Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade.
+
+
 revisado
 
 
