@@ -75,12 +75,12 @@ O nada, enquanto conceito, **não possui autonomia ontológica** — sua defini�
 
 Portanto, a investigação demonstra, de forma rigorosa, a natureza essencialmente paradoxal do Nada enquanto categoria inteligível: ele desfruta de uma vigência ontológica como signo mental operante ao mesmo tempo em que se define pela ausência absoluta de substancialidade. Sua existência reside precisamente no ato de sua própria negação.
 
-1. **Dependência Absoluta (Parasitário):** O nada não é um "ente" in se, mas um operador lógico que pressupõe um referencial positivo. Ele depende do "algo" que pretende negar. (*Exemplo:* A "ausência de som" só faz sentido se o som for uma categoria possível).
+1. **Dependência Absoluta (Parasitário):** O nada não é um "ente" em si, mas um operador lógico que pressupõe um referencial positivo. Ele depende do "algo" que pretende negar. (*Exemplo:* A "ausência de som" só faz sentido se o som for uma categoria possível).
 * *Erro:* Porque o que depende inteiramente de outrem para ser concebido não possui *ipsum esse* (ser próprio). O nada relacional é ontologicamente impotente; ele não pode gerar a realidade, pois necessita que a realidade já esteja virtualmente dada para que ele possa atuar como sua negação.
 
 
-2. **Impossibilidade de Autofundação (Autoaniquilante):** Enquanto o Absoluto é autocausado, o nada é **heterodeterminado** — só "existe" como sombra projetada pela luz da existência. *Paradoxo:* Tentar afirmar o nada como realidade independente o transforma em "algo", destruindo sua própria definição. Quando afirmado como entidade, transforma-se paradoxalmente em "algo".
-* *Erro:* A autofundação do nada é logicamente impossível porque a afirmação de sua absolutez exige conferir-lhe propriedades predicativas (como autonomia, permanência ou potência). Ao receber predicados, o nada é ontologizado à força, deixando instantaneamente de ser nada e convertendo-se em uma modalidade obscura de Ente. O conceito se devora no instante em que é enunciado.
+2. **Impossibilidade de Auto fundação (Auto aniquilante):** Enquanto o Absoluto é auto causado, o nada é **heterodeterminado** — só "existe" como sombra projetada pela luz da existência. *Paradoxo:* Tentar afirmar o nada como realidade independente o transforma em "algo", destruindo sua própria definição. Quando afirmado como entidade, transforma-se paradoxalmente em "algo".
+* *Erro:* A auto fundação do nada é logicamente impossível porque a afirmação de sua absolutez exige conferir-lhe propriedades predicativas (como autonomia, permanência ou potência). Ao receber predicados, o nada é ontologizado à força, deixando instantaneamente de ser nada e convertendo-se em uma modalidade obscura de Ente. O conceito se devora no instante em que é enunciado.
 
 
 3. **Função no Âmbito do Absoluto:** O nada não explica a existência, mas **a pressupõe**. Ele é um **limite conceitual** dentro do campo da existência, nunca sua origem. Não possui estatuto ontológico independente.
@@ -88,20 +88,20 @@ Portanto, a investigação demonstra, de forma rigorosa, a natureza essencialmen
 
 
 
-### O Mecanismo da Autossupressão do Nada
+### O Mecanismo da Auto supressão do Nada
 
-Mesmo se considerarmos o nada como uma realidade paradoxal, esta realidade seria imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada — isto é, se removermos sua dependência de um referencial —, ele deixa de ser uma negação e se torna uma **pura autossupressão**, sem auto fundamentação.
+Mesmo se considerarmos o nada como uma realidade paradoxal, esta realidade seria imediatamente extinguível. Ou seja, se esgotarmos a existência anulada no nada — isto é, se removermos sua dependência de um referencial —, ele deixa de ser uma negação e se torna uma **pura autos supressão**, sem auto fundamentação.
 
 * **O Nada Referencial não se Sustenta:** Se o nada não tem relação com nenhum "algo", ele não pode ser definido. Logo, ele **não pode permanecer como nada** e imediatamente dá lugar à **presença**.
 * *Erro:* Isolado de referenciais, o nada cai em um vácuo de inteligibilidade. Sem um contorno fornecido pelo Ente, o nada não possui sequer a estabilidade necessária para manter a si mesmo como "ausência", implodindo imediatamente na pura presença.
 
 
-* **O Nada como Evidenciador, não como Substrato:** O nada não é um "estado" estável, mas um **movimento de passagem** para o existente. Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja. Assim, a **autossupressão do inexistente** implica necessariamente a emergência do **existente**.
-* *Erro:* Se o nada é apenas um limiar dinâmico de autossupressão, ele nunca "é". Ele é uma ficção transitória. Um não-estado que se anula a si mesmo instantaneamente não possui densidade metafísica para servir de ponte, transição ou base para qualquer coisa real.
+* **O Nada como Evidenciador, não como Substrato:** O nada não é um "estado" estável, mas um **movimento de passagem** para o existente. Ele não é um vazio que persiste, mas um **limiar que se anula** para que algo surja. Assim, a **auto supressão do inexistente** implica necessariamente a emergência do **existente**.
+* *Erro:* Se o nada é apenas um limiar dinâmico de auto supressão, ele nunca "é". Ele é uma ficção transitória. Um não-estado que se anula a si mesmo instantaneamente não possui densidade metafísica para servir de ponte, transição ou base para qualquer coisa real.
 
 
-* **A Inexistência do Produto Autossuprimido:** Não havendo o nada existente, não haveria também uma transição do nada para a existência, e nem mesmo o reverso: transformar o nada existente em nada autossupressor (não haveria um estado intermediário). A autossupressão não tem um objeto autossuprimido. O nada, como conceito infundado, tem a autossupressão como efeito de sua própria natureza fictícia. O nada não existe e, consequentemente, não tem efeito autossupressor sobre si de forma concreta.
-* *Erro:* A ideia de um processo de autossupressão pressupõe um sujeito que sofre a ação de suprimir-se. Todavia, como o nada carece de toda e qualquer substancialidade, não há "quem" ou "o que" se autossuprima. A autossupressão torna-se um verbo sem sujeito e sem objeto, um fantasma mecânico que não opera na realidade metafísica concreta.
+* **A Inexistência do Produto Auto suprimido:** Não havendo o nada existente, não haveria também uma transição do nada para a existência, e nem mesmo o reverso: transformar o nada existente em nada auto supressor (não haveria um estado intermediário). A autos supressão não tem um objeto auto suprimido. O nada, como conceito infundado, tem a auto supressão como efeito de sua própria natureza fictícia. O nada não existe e, consequentemente, não tem efeito auto supressor sobre si de forma concreta.
+* *Erro:* A ideia de um processo de auto supressão pressupõe um sujeito que sofre a ação de suprimir-se. Todavia, como o nada carece de toda e qualquer substancialidade, não há "quem" ou "o que" se auto suprima. A auto supressão torna-se um verbo sem sujeito e sem objeto, um fantasma mecânico que não opera na realidade metafísica concreta.
 
 
 * **A Ilusão do Intervalo Nulificador:** Desta forma, o nada se faz um estado fictício que nos permite imaginar a autossupressão como um possível evocar da existência. Isto é, não existe o produto da autossupressão que aniquila a si de forma que este produto possa se transformar em existência. A suposta "passagem pelo nada autossupressor" para existência é uma **projeção epistemológica**. Na realidade metafísica, não há vácuo ontológico entre autossupressão e criação.
@@ -111,9 +111,7 @@ Mesmo se considerarmos o nada como uma realidade paradoxal, esta realidade seria
 * **Colapso por Autorreferência e Instantaneidade:** Todo nada pressupõe um "algo" como referente negado. Ao eliminar esse referente, o próprio conceito de nada perde seu substrato lógico. O resultado é que o nada não pode ser pensado como entidade autônoma – sua definição é parasitária da presença que nega. O nada não é um "estado sustentável", mas um **ponto de viragem metafísico**. No mesmo ato em que se concebe, já se converte em **Presença**.
 * *Erro:* O colapso autorreferencial demonstra que o nada puro é instável ao extremo. A ausência de um ponto de apoio no Ente força o nada a colapsar sobre si mesmo em velocidade infinita, convertendo-se inevitavelmente em Presença. Portanto, o nada falha como absoluto porque é incapaz de sustentar sua própria identidade no plano do ser.
 
-
-
-A existência criada não seria oriunda de um desfazer da autossupressão, mas um estado determinado de uma realidade pré-existente. Dessa forma, haveria a criação sem que esta se originasse como conversão do nada em algo, ou de um processo de reversão da autossupressão. A autossupressão designa o que foi suprimido, e o produto suprimido não existe.
+A existência criada não seria oriunda de um desfazer da auto supressão, mas um estado determinado de uma realidade pré-existente. Dessa forma, haveria a criação sem que esta se originasse como conversão do nada em algo, ou de um processo de reversão da auto supressão. A auto supressão designa o que foi suprimido, e o produto suprimido não existe.
 
 ### Implicações Radicais
 
@@ -135,6 +133,7 @@ Esta compreensão abrangente do nada relacional revela que a criação *ex nihil
 
 Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e ontológicos claros:
 
+revisado
 1. **Não é criação "do nada" material:** O *nihil* da criação não é uma "matéria-prima" preexistente, mas a **negação absoluta** que só existe como conceito em relação ao Ser. *"Criar do nada" significa criar sem meio-termo, sem material preexistente.* É a **posição absoluta do ser**.
 2. **O Ser não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente.
 3. **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente de Deus (como no neoplatonismo), mas é chamado à existência por ato livre da vontade divina, como manifestação gratuita da plenitude divina. *"Digno és, Senhor nosso e Deus nosso, de receber a glória, a honra e o poder, porque todas as coisas tu criaste, sim, por causa da tua vontade vieram a existir e foram criadas."* (Apocalipse 4:11)
