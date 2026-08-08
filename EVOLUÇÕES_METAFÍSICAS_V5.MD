@@ -67,8 +67,6 @@ Ao concebermos o nada como algo representável, fazendo-o como uma existência p
 * *Potenciais opostos:* Excluem-se, pois o "nada" não pode conter manifestação latente sem perder sua definição.
 * *Demonstração do Erro:* Esta premissa colapsa sob o crivo da consistência formal. Se $A$ e $B$ são potenciais mútuos, o nada é secretamente uma modalidade camuflada do ser (apenas um grau menor de manifestação, como o frio em relação ao calor), anulando sua definição como autêntico nada. Se são potenciais opostos, a irrupção de qualquer determinação extingue o nada instantaneamente, provando que ele é incapaz de atuar como um substrato ou transição estável para a criação.
 
-
-
 ### A Insustentabilidade Ontológica do Nada
 
 O nada, enquanto conceito, **não possui autonomia ontológica** — sua definição é inteiramente **relacional e derivada**. Ele só existe como **negação de algo previamente estabelecido**, seja como realidade manifesta, seja como possibilidade lógica. O nada é uma anulação da substância, um estado da substância anulada.
@@ -85,8 +83,6 @@ Portanto, a investigação demonstra, de forma rigorosa, a natureza essencialmen
 
 3. **Função no Âmbito do Absoluto:** O nada não explica a existência, mas **a pressupõe**. Ele é um **limite conceitual** dentro do campo da existência, nunca sua origem. Não possui estatuto ontológico independente.
 * *Erro:* Colocar o nada na base da metafísica é um erro categorial. O nada não é um motor causal, mas um horizonte de contraste. Tentar extrair o ser a partir de uma carência ontológica absoluta é violar o princípio da razão suficiente: o menos não pode produzir o mais.
-
-
 
 ### O Mecanismo da Auto supressão do Nada
 
@@ -133,7 +129,6 @@ Esta compreensão abrangente do nada relacional revela que a criação *ex nihil
 
 Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e ontológicos claros:
 
-revisado
 1. **Não é criação "do nada" material:** O *nihil* da criação não é uma "matéria-prima" preexistente, mas a **negação absoluta** que só existe como conceito em relação ao Ser. *"Criar do nada" significa criar sem meio-termo, sem material preexistente.* É a **posição absoluta do ser**.
 2. **O Ser não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente.
 3. **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente de Deus (como no neoplatonismo), mas é chamado à existência por ato livre da vontade divina, como manifestação gratuita da plenitude divina. *"Digno és, Senhor nosso e Deus nosso, de receber a glória, a honra e o poder, porque todas as coisas tu criaste, sim, por causa da tua vontade vieram a existir e foram criadas."* (Apocalipse 4:11)
@@ -193,7 +188,7 @@ O nada possui potência, desdobrando-se em uma progressão lógica de graus:
 * **Segundo Grau:** A potência da não-potência. Isto é, a potência de anular a potência.
 * **... Terceiro Grau e Ad Infinitum:** A potência de anular a potência da potência gerada pela primeira nulidade do nada, estendendo-se infinitamente.
 
-Para fins metodológicos, o foco desta análise restringe-se à primeira anulação: **o nada no potencial 1 elevado ao infinito**. Pois, ao considerarmos uma regressão infinita, retornamos à mesma substância. O nada de segundo grau é o mesmo que o do primeiro grau e assim sucessivamente. A nulidade é sempre a mesma, e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
+Para fins metodológicos, o foco desta análise restringe-se à primeira anulação: **o nada no potencial primeiro elevado ao infinito**. Pois, ao considerarmos uma regressão infinita, retornamos à mesma substância. O nada de segundo grau é o mesmo que o do primeiro grau e assim sucessivamente. A nulidade é sempre a mesma, e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
 
 ### O Nada Potencial *versus* O Nada Absoluto
 
@@ -230,7 +225,7 @@ Denominaremos, portanto, nossa substância bruta — o nada — como 'absoluto',
 
 O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não objetos". Portanto, o nada designado pela linguagem existe e não contém a total potencialidade ou a total nulidade. Ele possui uma certa referência à nulidade, mas não à sua totalidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável.
 
-Com o propósito de encontrar o aspecto espiritual no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se, para que o nada seja uma possibilidade, o Espírito é necessário. Isto quer dizer que testaremos, através do princípio da causalidade, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada.
+Com o propósito de encontrar o aspecto espiritual (Ser) no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se, para que o nada seja uma possibilidade, o Espírito é necessário. Isto quer dizer que testaremos, através do princípio da causalidade, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada.
 
 Exploraremos o nada, ou o indiferenciado, como hipóteses em suas internalidades. Se antes exploramos o que *seria* o nada, agora o exploraremos por outro ângulo: o ângulo de como o nada funcionaria de fato.
 
@@ -240,7 +235,7 @@ O nada supõe, como veremos adiante, intencionalidade, liberdade em nível metaf
 
 Isto é, podemos extrair aspectos positivos do nada — aspectos positivos da completa inexistência —, de forma que a ontologia se justifique por si mesma, e não pelo nada. Não se trata de uma negação do nada, mas da identificação de elementos necessários para que ele seja. Esses elementos positivos podem ser definidos como a pureza ontológica que procuramos.
 
-A inferência sobre o nada demonstrará que o nada ontológico é, na verdade, o Espírito. O nada mentalizado possui permanência, atemporalidade e estabilidade. O ato de imaginar o nada sobressai à mera razão, projetando sobre o nada aspectos espirituais; com isso, o nada ganha novos contornos. Ele se torna espiritual, intencional e adquire liberdade. Portanto, ao investigarmos o nada, percebemos que ele não é isolado em si mesmo: ele necessariamente portaria uma positividade, ainda que se esvaziasse de tal positividade para se constituir como nada. Em outras palavras, é do nada que se sobressai o Espírito. Do próprio nada, inferimos pessoalidade, intencionalidade, liberdade e a indistinção entre determinação e existência. Em suma, do nada inferimos o Espírito: aquele que, embora exista sem propriedades assim como o nada, carrega em si a positividade.
+A inferência sobre o nada demonstrará que o nada ontológico é, na verdade, relativo ao Espírito. O nada mentalizado possui permanência, atemporalidade e estabilidade. O ato de imaginar o nada sobressai à mera razão, projetando sobre o nada aspectos espirituais; com isso, o nada ganha novos contornos. Ele se torna espiritual, intencional e adquire liberdade. Portanto, ao investigarmos o nada, perceberemos que ele não é isolado em si mesmo: ele necessariamente portaria uma positividade, ainda que se esvaziasse de tal positividade para se constituir como nada. Em outras palavras, é do nada que se sobressai o Espírito. Do próprio nada, inferimos pessoalidade, intencionalidade, liberdade e a indistinção entre determinação e existência. Em suma, do nada inferimos o Espírito: aquele que, embora exista indiferenciado, carrega em si a positividade.
 
 ## A Aplicação da Causalidade sobre o Inominável
 
@@ -254,7 +249,7 @@ Estamos, com isso, implicando uma regressão lógica contínua de negações, on
 
 Começaremos a utilizar o conceito de "nada" não em sua acepção vulgar — como se fosse a mera "ausência de coisas" —, mas como a **representação ativa do irrepresentável**. Ele será o limite terminológico usado exclusivamente para expressar a recusa absoluta a qualquer nomenclatura sobre a substância autocausal deduzida no início da nossa investigação.
 
-O conceito de *Indiferenciado* falha em sua missão de pureza porque é, secretamente, **positivo**. Ao ser invocado, ele se diferencia da sua própria ausência; ele supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado opera apenas pela *ausência* das diferenças, pressupdo o substrato que as contém.
+O conceito de *Indiferenciado* falha em sua missão de pureza porque é, secretamente, **positivo**. Ao ser invocado, ele se diferencia da sua própria ausência; ele supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém.
 
 Em contrapartida, o conceito de *nada* colapsa de forma mais precisa e radical, pois não pressupõe nenhuma positividade inicial. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pelo Indiferenciado. Do ponto de vista estritamente filosófico, o nada oferece um "desabar" muito mais cristalino: ele traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto o Indiferenciado tenta capturar a ausência de formas, o "nada" opera sobre o próprio potencial de positividade das formas, anulando-o.
 
@@ -272,7 +267,7 @@ Se considerarmos o "nada" como um subproduto do Absoluto — uma matéria-prima 
 
 Do Absoluto deduz-se o "não causado": a fonte primária que dispensa qualquer regressão *ad infinitum*. Infere-se também que não há nada exterior, anterior ou qualquer razão subjacente que justifique o Absoluto, pois ele, por definição, justifica-se a si mesmo (*causa sui*). No entanto, essas afirmativas ainda são rasas se desprovidas do conteúdo ontológico que as embase.
 
-Ao aplicarmos os princípios da causalidade sobre o nada, alcançamos respostas que agregam um novo teor à substância absoluta que buscamos — aquela capaz de justificar a realidade tal como ela é. A causalidade só encontra sua verdadeira força motriz e sua causa primeira quando pensamos no conceito de nada absoluto, ou seja, na pureza total.
+Ao aplicarmos os princípios da causalidade sobre o nada, alcançamos respostas que agregam um novo teor à substância absoluta que buscamos — aquela capaz de justificar a realidade tal como ela é. A causalidade só encontra sua verdadeira força motriz e sua causa primeira quando pensamos no conceito de nada absoluto ou na pureza total.
 
 O nada dispensa causa porque não é um "ente"; não se pode aplicar uma cadeia causal ao nada, visto que, nele, quaisquer efeitos consecutivos diluem-se em uma única ausência. Onde não há efeito, também não se exige causa. E, desta forma, o nada dispensa a causa. Contudo, o nada *determinado* — aquele concebido pelo pensamento como uma oposição ou singularidade — exige uma causa, pois já é uma representação para o Absoluto. A verdadeira singularidade do nada escapa à razão; o irrepresentável seria, de fato, o elemento com propriedade autocausal.
 
@@ -282,7 +277,7 @@ Como o conceito de autocausalidade absoluta beira o colapso lógico quando preso
 
 A pureza puramente negativa não é plenamente conceituável, pois não é ontológica. A pureza não ontológica colapsa: torna-se incapturável e impensável, impossibilitando a aplicação de categorias causais àquilo que escapa ao próprio pensamento e à conceitualização. Resta-nos, contudo, o conceito de Absoluto para aplicar a autocausalidade, em busca de encontrar a pureza fundamental, que mais tarde definiremos como Espírito. Uma pureza positiva, afirmativa e nomeável. E partiremos nossa procura pela pureza ontológica aplicando de todas as formas possíveis a autocausalidade ao horizonte de nossa investigação que é o Absoluto.
 
-### A Aplicação da Autocausalidade ao Inominável e a Contradição Performativa
+### A Aplicação da Auto causalidade ao Inominável e a Contradição Performativa
 
 Consideremos o desabar definitivo do conceito de "nada". Ainda que o submetêssemos hipoteticamente à lente da causalidade, ele jamais poderia assumir o papel de princípio autocausal, tampouco de agente causal transitivo. O nada é, em sua essência, estritamente *nada*. Ele não serve como fonte de onde algo emana, nem como elemento capaz de fundamentar a si próprio, pois não possui substrato. A aplicação da autocausalidade exige, irrevogavelmente, uma realidade ontológica — uma base existencial sobre a qual a ação de causar possa repousar e operar.
 
@@ -333,7 +328,7 @@ O Absoluto é um conceito que designa uma existência ontológica que serve de b
 
 Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontológica de unicidade e elementarismo. Tratar do "nada absoluto" gera um problema lógico intransponível, pois o nada não possui propriedades, não podendo ser absoluto, isto é, o incausado. O nada não nos serve para justificar os fenômenos, nem mesmo como base para refletir sobre eles. Para existir uma pureza total, ela precisa ser ontológica; o nada não pode ser puro, pois a pureza é, em si, uma propriedade.
 
-Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada. Chamamos essa substância de Espírito ou Pureza.
+Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada. Chamamos essa substância de Espírito.
 
 ## Propriedades Espirituais do Absoluto
 
