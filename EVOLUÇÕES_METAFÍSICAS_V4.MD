@@ -971,6 +971,29 @@ Desta forma, busquemos uma maior complexidade para entendermos a existência do 
 Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
 
 
+## O indiferenciado sob a existência fenomênica
+
+Ao aplicarmos o indiferenciado à existência fenomênica, resultamos novamente no nada, pois o indiferenciado esgota os entes determinados. Isto é, o indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
+
+Quando o indiferenciado é aplicado à infinitude, ele a anula em prol do relativo, diluindo até mesmo a identidade do Ser. Pensar o Ser como uma identidade é, portanto, imbuí-lo de uma determinação que, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada.
+
+Como dito anteriormente, o indiferenciado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
+
+Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+
+O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturável ou nomeado existente. Ao nomeá-lo existente ou como nada, existamos o determinando. Ao atribuir ao indiferenciado existência, estamos o tornando equivalente ao nada. 
+
+Portanto, temos que desprovir o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, e nem o existente. Sua identidade é existir, e este existir não se relaciona a existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional, é presença, é vida sem recorrer a nadificação e nem mesmo a existência tradicional ou angulada.
+
+O indiferente, portanto, não é o existir angular da infinitude da possibilidade. Mas, está alem da categoria do existir. Aborda aspectos relacionais nesta categoria e pode ser inferido através dela. Porém, não se confunde com a mesma.
+
+Portanto, ao pensarmos na indiferenciação da existência, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado a existência, o mesmo efeito que a nadificação. 
+Não devemos, portanto, aplicar a indiferenciação ao mundo fenomenico. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis.
+
+revisar acima
+
+
+
 999
 
 ### Introdução ao Absoluto: A Dedução a partir do Fenômeno
