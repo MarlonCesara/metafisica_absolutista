@@ -981,20 +981,27 @@ Como dito anteriormente, o indiferenciado anula-se a si mesmo, tal como o nada, 
 
 Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
 
-O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturável ou nomeado existente. Ao nomeá-lo existente ou como nada, existamos o determinando. Ao atribuir ao indiferenciado existência, estamos o tornando equivalente ao nada. 
+O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
 
-Portanto, temos que desprovir o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, e nem o existente. Sua identidade é existir, e este existir não se relaciona a existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional, é presença, é vida sem recorrer a nadificação e nem mesmo a existência tradicional ou angulada.
+Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade é existir, e este existir não se relaciona à existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
 
-O indiferente, portanto, não é o existir angular da infinitude da possibilidade. Mas, está alem da categoria do existir. Aborda aspectos relacionais nesta categoria e pode ser inferido através dela. Porém, não se confunde com a mesma.
+O indiferente, portanto, não é o existir angular da infinitude da possibilidade. Mas está além da categoria do existir. Aborda aspectos relacionais nesta categoria e pode ser inferido através dela. Porém, não se confunde com a mesma.
 
-Portanto, ao pensarmos na indiferenciação da existência, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado a existência, o mesmo efeito que a nadificação. 
-Não devemos, portanto, aplicar a indiferenciação ao mundo fenomenico. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis.
+Portanto, ao pensarmos na indiferenciação da existência, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado à existência, com o mesmo efeito que a nadificação.
 
-revisar acima
+Não devemos, portanto, aplicar a indiferenciação ao contingente. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis.
+
+O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
+
+Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir.
+
+Portanto, o Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de forma que o Ser não se a própria de si mesmo e se nomeia como Ser, mas simplesmente é em doação total de si.
 
 
 
-999
+
+revisado
+
 
 ### Introdução ao Absoluto: A Dedução a partir do Fenômeno
 
