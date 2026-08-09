@@ -339,3 +339,46 @@ Até o momento, exploramos ao máximo o conceito do nada e do indiferenciado, re
 Esgotadas todas as instâncias e tentativas de produzir um Nada Existente que seja logicamente inteligível e passível de abstração pura — sem que para isso tenhamos de capitular diante do paradoxo absoluto, da impossibilidade impensável, da potência espúria ou da elevação infinita da potência de nadificação —, a arquitetura da razão atinge seu limite de saturação nesta linha investigativa.
 
 Torna-se metodologicamente evidente que o Nada, enquanto substância ou antecedente, é uma via apócrifa. Impõe-se, portanto, a necessidade imperiosa de **arquitetar outro mecanismo causal**, transicionando definitivamente da ontologia do nada para a metafísica da pura atualidade do Ser.
+
+
+
+
+## A indiferenciação do Todo 
+
+Ao concebermos a indiferenciação do Todo — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria possibilidade. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
+
+Logo, o estado indiferenciado atesta a sua própria existência. Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila o ser; resta, invariavelmente, o Fundamento para sustentá-lo. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como pureza ontológica.
+
+O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
+
+Conclui-se, portanto, que a completude absoluta da possibilidade não alimenta a ilusão de um "Nada Existente". Pelo contrário, a aglutinação irrestrita de todas as potências culmina inevitavelmente no Existente Puro.
+
+
+
+
+## O indiferenciado sob a existência fenomênica
+
+Ao aplicarmos o indiferenciado à existência fenomênica, resultamos novamente no nada, pois o indiferenciado esgota os entes determinados. Isto é, o indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
+
+Quando o indiferenciado é aplicado à infinitude, ele a anula em prol do relativo, diluindo até mesmo a identidade do Ser. Pensar o Ser como uma identidade é, portanto, imbuí-lo de uma determinação que, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada.
+
+Como dito anteriormente, o indiferenciado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
+
+Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+
+O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
+
+Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade é existir, e este existir não se relaciona à existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
+
+O indiferente, portanto, não é o existir angular da infinitude da possibilidade. Mas está além da categoria do existir. Aborda aspectos relacionais nesta categoria e pode ser inferido através dela. Porém, não se confunde com a mesma.
+
+Portanto, ao pensarmos na indiferenciação da existência, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado à existência, com o mesmo efeito que a nadificação.
+
+Não devemos, portanto, aplicar a indiferenciação ao contingente. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis.
+
+O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
+
+Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir.
+
+
+
