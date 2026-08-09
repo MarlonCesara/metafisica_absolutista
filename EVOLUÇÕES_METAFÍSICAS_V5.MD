@@ -385,3 +385,7 @@ Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui id
 # A ação do Ser no relativo
 
 Se ao olhar para o nada, nada é, não se está olhando para o nada, mas está se olhando para a mentalização ou para o que se quer evocar do nada. Isto significa que não há uma conversão do nada em algo, mas a uma ação de liberdade somente. E isto significa que o Ser age livremente sem que tenha transformado uma substancia em algo. Pois o mentalizar do nada se faz o próprio ato de não mentalizar. O repouso do Espírito e a inação já justifica o nada por si mesmo. Portanto, o nada não exige esforço, caso exigisse uma ação do angulador, não seria nada, mas necessitaria de um efeito causal de uma ação. Portanto, o nada é equivalente ao estado de repouso, ou a inação do Espírito.
+
+Portanto, a própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de visualizar o nada que nada é, mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia relativo e constrói o nada. O nada, portanto, é ato da liberdade, e a liberdade expressa em forma de inação.
+
+O repousar do Espírito, ou seu simples existir, sub entende um referencial, ainda que sem ação. A inatividade também é expressão da liberdade. E, se faz inativo consciente desta ação.
