@@ -627,9 +627,9 @@ Agiram, inferiremos, não mais do relativo, ou do nada como angulação ainda se
 
 Precisamos encontrar o Espírito do Absoluto, e, se antes exploramos pela escassez (nada), agora exploraremos pela abundancia. Vamos inferir diretamente sob tudo que há, sob a totalidade não somente do existente, mas do indiferenciado. Vamos abordar em via direta, através do Absoluto. Consideraremos todos os aspectos para que haja o absoluto, mesmo que ainda não formalizada sua substancia indiferenciada.
 
+O Absoluto é o próprio indiferenciado. Não há outra forma de considerarmos o desencadear dos fenômenos se não por uma fonte pura, existente e Absoluta. Portanto, investigaremos diretamente pelo Absoluto, o considerando, desde já, uma investigação sob o indiferenciado, tendo como falha a investigação do nada como tentativa de explicar o incausado, pois o nada carece do indiferenciado atribuído de certas aspectos como o poder de angulação.
 
-jjjj
-
+jjj
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
