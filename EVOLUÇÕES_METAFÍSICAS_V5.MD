@@ -629,7 +629,10 @@ Precisamos encontrar o Espírito do Absoluto, e, se antes exploramos pela escass
 
 O Absoluto é o próprio indiferenciado. Não há outra forma de considerarmos o desencadear dos fenômenos se não por uma fonte pura, existente e Absoluta. Portanto, investigaremos diretamente pelo Absoluto, o considerando, desde já, uma investigação sob o indiferenciado, tendo como falha a investigação do nada como tentativa de explicar o incausado, pois o nada carece do indiferenciado atribuído de certas aspectos como o poder de angulação.
 
-jjj
+No absoluto indiferenciado, lembremos que não a substancia nem não substancia para ser explorada. Não há nada mais, portanto, do que explorar seus aspectos relacionais. Em busca da presença, do Espírito ou da pureza.
+
+Não buscaremos uma pessoalidade, uma entidade, mas buscamos até mesmo algo mais puro que isso, como já referenciado antes. Buscamos a forma como o absoluto se relaciona consigo e com a própria possibilidade e sua infinitude.
+
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
