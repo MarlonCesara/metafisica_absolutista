@@ -606,6 +606,8 @@ Portanto, adiante, o foco de nossa investigação explanará como uma realidade 
 
 O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica relacional, já subentende o indiferenciado, ou o Espírito.
 
+Desta forma, estamos buscando, não uma substancia, mas o ato que é definido em essência por si mesmo. Não é o Espírito A ou B, mas é o Espírito do existir. É quem existe, é o Ser.
+
 
 
 
