@@ -794,6 +794,8 @@ Ainda que não haja possibilidade de escolha para o Absoluto necessário, o Abso
 
 Isto quer dizer que, o nada, para absolutos ganhariam contornos. Ganharia uma propriedade de auto causalidade. Se há nada, o sentido de haver nada e não outra coisa só poderia estar no próprio Absoluto. Porém, sendo o nada uma necessariedade, ainda assim seu sentido estaria para Absoluto, no entanto, não no sentido de um agir mecânico, mas no sentido de uma retidão de intenção a favor do existir.
 
+Dizer que o sentido do que há para absoluto está fora de si, ou é causado por uma necessidade, é um erro. Não há necessidade pela qual o absoluto deva ser se não Nele mesmo. Não há razão ou fundamentação que parta de algo a não ser do próprio absoluto. Não existe uma forma para que Ele seja, se não com razão inerente a ele mesmo. Se é nada, a razão está no próprio Nada, e se nada é nada, a razão paira livre absoluta. Então, desta forma, traçamos os primeiros contornos de nosso angulador.
+
 revisado
 
 ### O Argumento da Personalidade Necessária
