@@ -319,15 +319,7 @@ Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontoló
 
 Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada. Chamamos essa substância de Espírito.
 
-## A indiferenciação do Todo 
 
-Ao concebermos a indiferenciação do Todo — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria possibilidade. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
-
-Logo, o estado indiferenciado atesta a sua própria existência. Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila o ser; resta, invariavelmente, o Fundamento para sustentá-lo. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como pureza ontológica.
-
-O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
-
-Conclui-se, portanto, que a completude absoluta da possibilidade não alimenta a ilusão de um "Nada Existente". Pelo contrário, a aglutinação irrestrita de todas as potências culmina inevitavelmente no Existente Puro.
 
 ## O indiferenciado sob a existência fenomênica
 
@@ -373,16 +365,19 @@ Esgotadas todas as instâncias e tentativas de produzir um Nada Existente que se
 
 Torna-se metodologicamente evidente que o Nada, enquanto substância ou antecedente, é uma via apócrifa. Impõe-se, portanto, a necessidade imperiosa de **arquitetar outro mecanismo causal**, transicionando definitivamente da ontologia do nada para a metafísica da pura atualidade do Ser.
 
+Isto é, procuraremos outro substrato para dar sentido ao nada, sendo que, o puro conceito de nada não faz sentido perante a si mesmo. 
 
 ---
 
 ## O INFINITO E O NADA: A DUALIDADE PERSPECTÍVICA DO ENTE
 
+
+
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
 
 Para fins especulativos e práticos, faz-se imperativo introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela perfeitamente apta a sustentar uma integridade ontológica não colapsável: **o Infinito da Possibilidade**. Sob a égide deste conceito, a atualidade plena e a nulidade absoluta coexistem em perfeita equivalência e harmonia speculativa.
 
-Postula-se, pois, que a infinitude em sua completude absoluta é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede a imposição de qualquer mensurabilidade ou predicação restritiva. O olhar direcionado à totalidade do infinito coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui a via metodológica para conceber um nada autêntica e rigorosamente ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
+Ao considerarmos a totalidade e o nada, conceitos exatamente iguais, então, temos que, não haverá mais dualidade entre ambos. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude em sua completude absoluta é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede a imposição de qualquer mensurabilidade ou predicação restritiva. O olhar direcionado à totalidade do infinito coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui a via metodológica para conceber um nada autêntica e rigorosamente ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
 
 Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre existência e nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma **variação de angulação**. Diante da completude irrestrita — a infinitude pura —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
 
@@ -578,6 +573,42 @@ Desta forma, busquemos uma maior complexidade para entendermos a existência do 
 
 Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
 
+## O Ser e o relativo
+
+Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada, pode ser pensado nada, e imaginado nada. 
+
+Não sendo nada, existe, se mentalizado, ou se não mentalizado, há o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## O indiferenciado sob a existência
 
@@ -612,8 +643,4 @@ O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica rela
 > Exemplo dogmático: Os olhos de Deus criam tudo, e, se estão voltados para nada, criaram certamente este nada. Portanto, se os olhos de Deus estão fechados, o produto desta ação é o nada. Porém, quando se abrem o produto é o todo. Deus, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois, de certa forma é determinado, é angulado. E, de Deus, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, Deus está em quem ama, e quem ama está Nele.
 
 
-## O indiferenciado e o relativo
 
-Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada, pode ser pensado nada, e imaginado nada. 
-
-Não sendo nada, existe, se mentalizado, ou se não mentalizado, há o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo.
