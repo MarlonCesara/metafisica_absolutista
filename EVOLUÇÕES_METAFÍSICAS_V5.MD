@@ -1373,6 +1373,8 @@ Isto quer dizer que, o nada, para absolutos ganhariam contornos. Ganharia uma pr
 
 Dizer que o sentido do que há para absoluto está fora de si, ou é causado por uma necessidade, é um erro. Não há necessidade pela qual o absoluto deva ser se não Nele mesmo. Não há razão ou fundamentação que parta de algo a não ser do próprio absoluto. Não existe uma forma para que Ele seja, se não com razão inerente a ele mesmo. Se é nada, a razão está no próprio Nada, e se nada é nada, a razão paira livre absoluta. Então, desta forma, traçamos os primeiros contornos de nosso angulador.
 
+Ainda que haja uma necessidade para Absoluto, a necessidade de Ser, essa necessidade, é de autoria do próprio absoluto, pois não há lugar de onde seria oriunda uma obrigatoriedade, necessidade, ou obrigação nem mesmo uma natureza pela qual deva ser. 
+
 revisado
 
 ### O Argumento da Personalidade Necessária
