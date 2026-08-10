@@ -621,22 +621,14 @@ O repousar do Espírito, ou seu simples existir, sub entende um referencial, ain
 
 > Exemplo dogmático: Se os olhos do Ser estão fechados, o produto desta inação é o nada. Porém, quando se abrem o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois é determinado, é angulado. E, do Ser, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, o Ser está em quem ama, e quem ama está Nele.
 
+# EM BUSCA DO ESPÍRITO - ASPECTOS RELACIONAIS DO ABSOLUTO
+
+Agiram, inferiremos, não mais do relativo, ou do nada como angulação ainda sem o angulador justificado. Mas iremos inferir diretamente do Absoluto, para encontrarmos o indiferenciado. Não há ainda aspectos relacionais no nada, mas há um involucro para tais aspectos em seu conceito, precisamos portanto, preencher esse involucro. E, para faze-lo, investigaremos diretamente o conceito de absoluto para encontrarmos qualquer aspecto relacional no mesmo. Isto é, buscaremos o Espírito, o que é necessário para haver um absoluto. Ao encontrarmos, podemos encontrar o angulador para o nada. Isto é, podemos completar a hipótese da infinitude da possibilidade com a segunda parte que precisamos para justificar o nada e a criação: o angulador.
+
+Precisamos encontrar o Espírito do Absoluto, e, se antes exploramos pela escassez (nada), agora exploraremos pela abundancia. Vamos inferir diretamente sob tudo que há, sob a totalidade não somente do existente, mas do indiferenciado. Vamos abordar em via direta, através do Absoluto. Consideraremos todos os aspectos para que haja o absoluto, mesmo que ainda não formalizada sua substancia indiferenciada.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+jjjj
 
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
