@@ -3261,6 +3261,8 @@ O inferno, portanto, é uma realidade de descarte, e não uma realidade autocaus
 
 A intenção da alma a auto nulidade, é, ao mesmo tempo a sua total inação. Para que uma intenção atinja a inação, deve ter um sentimento imobilizante, um sentimento que atinge seu apice e desapareça. Isto é, uma infinitude de ódio que desaba no não sentir ou não querer, um ódio que se esvai como intenção ate atingir a inação, ate se livrar de si mesmo e tornar-se não movimento. Isto colide com a infinitude do ato infernal, que é na verdade, uma não ação ao passo que um desejo que não se retrai, totalmente endurecido. 
 
+Uma inclinação eterna a morte, é o mesmo que a inação, ou a inclinação nenhuma. Não há diferença entre um desejo infinito que é o próprio não agir, ou a própria negação a liberdade. Isto é, ambas as coisas se dão pelo mesmo resultado. O mal é, portanto, um desejo que nem mesmo o individuo escolheu. Mas o desenvolve, devido a inação. A inação, portanto, é o mesmo que o desejo infindável, que o coração totalmente endurecido, aquele que nem mesmo se abriu. E cuja inação torna-se desejo incessante pela anulação. É uma identidade ainda não apropriada de si, que deseja, mas seu desejo não é voluntário, mas imposto. É um desejo aprisionante.
+
 ### **PROPOSIÇÃO XVI: AUTONOMIA NA INTEGRALIDADE E NA MANIFESTAÇÃO**
 
 **1. A Distinção entre Ser e Sou**
