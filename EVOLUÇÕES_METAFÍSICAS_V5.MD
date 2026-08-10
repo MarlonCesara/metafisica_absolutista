@@ -362,9 +362,50 @@ Isto é, procuraremos outro substrato para dar sentido ao nada, sendo que, o pur
 
 ---
 
+
+# Problemática do infinito
+
+Quando atribuímos o conceito de infinito a determinadas coisas, elas parecem perder sua identidade enquanto determinações plenamente apresentáveis.
+
+* Um tamanho infinito é, em certo sentido, tamanho nenhum, pois já não se trata de algo que possa ser integralmente medido.
+* Um número infinito, quando tomado como um número absolutamente infinito, deixa de ser propriamente um número determinado, pois não há uma unidade total que possa ser apresentada como sua realidade acabada.
+
+Isso ocorre porque o infinito, tomado em sentido absoluto, é inalcançável. Ele constitui um horizonte que jamais pode ser inteiramente atualizado. Não se pode alcançar a totalidade de um ente infinito para que este seja apresentado em sua inteireza. Um ente dotado de infinitude jamais alcançaria a si mesmo como realidade completamente realizada, pois sempre haveria, para além de sua determinação presente, aquilo que ainda não se encontra realizado.
+
+Nesse sentido, o ente infinito conteria não apenas aquilo que é, mas também aquilo que ainda haveria de ser. Ele seria, portanto, constituído por sua realidade presente e por seu devir. Entretanto, o devir, enquanto devir, não é ainda aquilo que será. Se considerarmos que aquilo que há de vir somente existe enquanto presente quando efetivamente se atualiza, então uma suposta realidade infinita seria composta por aquilo que é e por aquilo que ainda não é.
+
+Chegamos, assim, a uma dificuldade fundamental: aquilo que ainda não existe não pode ser efetivamente acrescentado àquilo que existe. Se o nada não possui realidade própria, não pode constituir uma parcela adicional do ente. Consequentemente, não parece possível dizer que uma realidade possua, em si mesma, uma quantidade infinita já constituída.
+
+O infinito, nesse sentido, não seria uma propriedade efetivamente possuída pelo ente, mas a designação daquilo que jamais se encontra completamente atualizado. Ele corresponde à parte do ente que, por definição, ainda não pode ser apresentada como realidade atual. Por isso, nenhum ente propriamente dito possui o infinito, nem é infinito em sentido absoluto.
+
+A própria palavra **“infinidade”** revela essa dificuldade. Considerada isoladamente, ela não parece simbolizar uma realidade determinada, mas funcionar como uma atribuição feita a alguma coisa. Quando dizemos “infinidade”, estamos aparentemente acrescentando ao ente uma propriedade cuja realidade completa nunca pode ser apresentada. A infinidade seria, então, a realidade acrescida daquilo que não pode ser efetivamente determinado como realidade.
+
+Dizer que o universo possui um espaço infinito ou que uma singularidade possui uma massa infinita seria, sob essa perspectiva, problemático. Não porque a linguagem matemática não possa operar legitimamente com o conceito de infinito, mas porque, no plano ontológico, transformar o infinito em uma propriedade efetivamente existente pode produzir uma contradição conceitual. O infinito matemático pode funcionar como limite, relação ou estrutura formal; outra coisa é concebê-lo como uma determinação real integralmente presente em um ente.
+
+É importante, entretanto, distinguir **ser finito** de **ter um fim**. A finitude não implica necessariamente uma cessação. Algo pode ser finito em sua determinação atual e, ainda assim, permanecer suscetível de transformação, expansão ou duração indefinida.
+
+Assim, adicionar a um ente uma **fluência contínua** é conceitualmente diferente de atribuir-lhe infinitude. A fluência contínua não pressupõe a existência atual de uma realidade que ainda não existe. Ela apenas afirma que aquilo que existe permanece em processo de transformação ou duração. Cada estado presente é real enquanto presente, ainda que outros estados possam sucedê-lo indefinidamente.
+
+Por isso, talvez não seja adequado afirmar que o espaço do universo é infinito. Seria mais coerente dizer que o universo pode apresentar uma expansão contínua, caso essa expansão seja compreendida como um processo cuja atualização não exige a existência presente de uma totalidade espacial já realizada.
+
+No campo das sensações, poderíamos encontrar igualmente determinações finitas que se modificam, se ampliam ou se sucedem continuamente. Poderíamos conceber a delimitação de nosso universo particular como aquilo que constitui sua própria fronteira fenomênica, além da qual se iniciariam outros universos ou outras **h.c.s.**. Mas poderíamos também considerar que nosso universo particular não possui uma extensão previamente determinada e encerrada, mas permanece em expansão contínua.
+
+Não seria possível atribuir simplesmente um espaço às sensações, pois o próprio espaço poderia ser compreendido como mais uma determinação sensível, e não como um recipiente absoluto no qual as sensações estariam dispostas. É possível, contudo, atribuir às sensações uma continuidade temporal: uma sucessão incessante de estados presentes, na qual cada estado é plenamente real enquanto ocorre, sem que seja necessário pressupor uma totalidade temporal infinita já existente.
+
+Temos, portanto, dois conceitos distintos:
+
+* **Um ente infinito** seria, em sentido absoluto, um ente acrescido daquilo que jamais pode ser integralmente atualizado; sua infinitude apontaria para uma totalidade que nunca se apresenta como realidade acabada.
+* **Um ente de fluência contínua**, por outro lado, é um ente cuja realidade é inteiramente efetiva em cada atualização presente e que se acresce somente de propriedades que, quando atualizadas, tornam-se igualmente reais.
+
+A sensação, portanto, é real e inteira enquanto sensação. Ela não é uma realidade incompleta por ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe.
+
+Desse modo, a fluência contínua pode ser compreendida como uma propriedade da realidade efetivamente existente em seu processo de atualização. Ela pode ser incessante sem ser infinita. Pode ser eterna enquanto continuidade sem constituir uma totalidade infinita já realizada.
+
+A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
+
+
+
 ## O INFINITO E O NADA: A DUALIDADE PERSPECTÍVICA DO ENTE
-
-
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
 
@@ -379,6 +420,8 @@ Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade
 Com o fito de conferir inteligibilidade a esta tese, cumpre analisar primeiramente a morfologia conceitual da própria infinitude através de modelos geométricos e temporais.
 
 Consideremos, hipoteticamente, uma régua linear cuja extensão seja fixada em 30 centímetros; seus limites inicial e final são perfeitamente demarcados e cognoscíveis no espaço. Se, todavia, expandirmos idealmente esse instrumento a uma extensão geométrica infinita, a tentativa de perscrutar o seu término resultará no encontro com o nada. O fim da infinitude é intrinsecamente inalcançável. conquanto a régua subsista na integridade de sua totalidade irrestrita, suas balizas limítrofes são absolutamente incapturáveis pelo aparato cognitivo. A tentativa de apreender o limite de uma extensão infinita traduz-se metafisicamente na equivalência ao nada, dada a radical impossibilidade de mensuração.
+
+Ao tentarmos acrescentar a infinitude a um ente recortado, isto é, ao dizermos que uma régua de trinta centímetros é infinita, estamos num antagonismo, pois o que tem trinta centimentros não pode ser infinito, pois tem trinta centímetros, sua medida é angulada. Portanto, ou o ente esta angulado e mensurado ou é infinito, não existe meio termo. Portanto, uma regua infinita é uma régua não passível de ser visualizada. Portanto, o que é considerado infinito necessariamente desapareceria. 
 
 O Nada, por conseguinte, pode ser rigorosamente definido como a projeção analítica que resulta da tentativa da razão discursiva de predicar ou visualizar a **infinitude e totalidade do horizonte da possibilidade**. Ele deixa de ser uma ausência de ser para se tornar a consequência cognitiva do excesso do ser.
 
@@ -444,6 +487,19 @@ Esta proposição, é desfalcada por não explicar a natureza do angulador e com
 O nada exige uma bidimensionalidade em seu antro. Por si mesmo não atinge a própria natureza, pois é lateral a uma perspectiva. É necessário achar seu outro lado, o angulador.
 
 ---
+
+
+## A não virtualização da realidade
+
+A infinitude da totalidade fenomênica, tem as mesmas propriedades que o nada. Que se caracteriza em atemporalidade, não espacialidade.
+E a infinitude da possibilidade, é equivalente a não dimensionalidade da mesma, o que equivale a nada. Não somente a ausência do tempo ou espaço, mas a visão nula na possibilidade. Porém, isto não quer dizer que a existência esteja completamente nos olhos do observador e que se trate de uma existência imagina, sem teor de verdade em si e para si, porém, somente real para o angulador. 
+
+O que se dispõe é uma existência em consonância com o visualizador. Uma existência que é real ao passo que obedece o angulador, uma existência que carrega a vivacidade consigo, pois, não é uma existência pronta, é uma existência ordenada. Que existe segundo um comando, uma mentalização. Portanto, é uma existência vívida. 
+
+O nada, portanto, é o pico da possibilidade, é a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas vivida em sua totalidade. Ao escolher a vida na infinitude, se tem a vida na ausência da determinação. Tal como ao se escolher viver em um tempo infinito, se tem a ausência concreta do tempo, um estado literalmente atemporal. Pois, o que concretamnte não possui medição, não é tangível. A infinitude não tem um nada para visualizador, mas tem um nada em si. Pois a vivencia da mesma representa também a forma com que foi visualizada. 
+
+Ao se segurar uma infinitude, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo inteiramente infinito, se vive tempo algum. Portanto, o nada, é a infinitude da possibilidade, é a vivencia simultânea do que é infindável e inesgotável.
+
 
 ## A Natureza do Angulador: Liberdade, Propósito e Fundamento Vivo
 
