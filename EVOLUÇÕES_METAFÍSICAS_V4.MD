@@ -3259,6 +3259,8 @@ Portanto, a realidade do inferno, após o nascimento já não é mais real. Pois
 
 O inferno, portanto, é uma realidade de descarte, e não uma realidade autocausada. Na qual o não despertar se resvala, no sentido intencional e não intencional. Intencional porque é vivo, e é impossível escolher não escolher. E não intencional no sentido da não escolha se realizar como escolha e não escolha ao mesmo tempo.
 
+A intenção da alma a auto nulidade, é, ao mesmo tempo a sua total inação. Para que uma intenção atinja a inação, deve ter um sentimento imobilizante, um sentimento que atinge seu apice e desapareça. Isto é, uma infinitude de ódio que desaba no não sentir ou não querer, um ódio que se esvai como intenção ate atingir a inação, ate se livrar de si mesmo e tornar-se não movimento. Isto colide com a infinitude do ato infernal, que é na verdade, uma não ação ao passo que um desejo que não se retrai, totalmente endurecido. 
+
 ### **PROPOSIÇÃO XVI: AUTONOMIA NA INTEGRALIDADE E NA MANIFESTAÇÃO**
 
 **1. A Distinção entre Ser e Sou**
