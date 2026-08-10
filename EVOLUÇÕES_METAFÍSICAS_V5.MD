@@ -689,6 +689,8 @@ No absoluto indiferenciado, lembremos que não a substancia nem não substancia 
 
 Não buscaremos uma pessoalidade, uma entidade, mas buscamos até mesmo algo mais puro que isso, como já referenciado antes. Buscamos a forma como o absoluto se relaciona consigo e com a própria possibilidade e sua infinitude.
 
+Ainda não sabemos a substancia absoluta, embora sabemos que ela, de certa forma, pode preencher a lacuna do angulador. No entanto, consideremos a substancia sinônimo de Absoluto. E investiguemos essa substancia, ainda que não sabemos especificadamente sua natureza, a definamos sob a luz de causalidade. Sabemos, somente o que não é, não é o nada, e não é o fenômeno. Portanto, busquemos o Absoluto, que o que chamamos de Espírito, nomenclatura que é resultado da segregação do fenômeno e do nada em prol de um termo que designe uma realidade pura. Invisível, mas reativa, acionária e eficaz. 
+
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
