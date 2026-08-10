@@ -792,6 +792,10 @@ A análise das três propriedades autocausais conduz a uma conclusão inevitáve
 
 Ainda que não haja possibilidade de escolha para o Absoluto necessário, o Absoluto é absoluto por si mesmo. Sua necessidade não exclui o fundamento vivo, pois a causa é inerente ao próprio Absoluto. Isso significa que a realidade causadora já integra aquilo que o Absoluto é.
 
+Isto quer dizer que, o nada, para absolutos ganhariam contornos. Ganharia uma propriedade de auto causalidade. Se há nada, o sentido de haver nada e não outra coisa só poderia estar no próprio Absoluto. Porém, sendo o nada uma necessariedade, ainda assim seu sentido estaria para Absoluto, no entanto, não no sentido de um agir mecânico, mas no sentido de uma retidão de intenção a favor do existir.
+
+revisado
+
 ### O Argumento da Personalidade Necessária
 Para que uma realidade seja auto causada, ela necessariamente precisa:
 1. **Conhecer-se integralmente** – para que possa escolher conscientemente sua própria natureza.
@@ -814,7 +818,7 @@ Esta tríade é a definição mesma de uma pessoalidade plena. Um princípio imp
 | **Substância indiferenciada** | Passiva, sem interioridade | É atividade pura e interioridade absoluta |
 | **Campo quântico** | Determinístico ou aleatório | É livre e autocausal |
 
-## 8.5 A Autocausalidade Bifásica: Temporal e Atemporal
+## A Autocausalidade Bifásica: Temporal e Atemporal
 A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**.
 
 * **Autocausalidade Atemporal: A Causa Definitiva:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. Princípios Envolvidos: Causa essêncial (Atemporal) e Causa Existencial (Atemporal).
