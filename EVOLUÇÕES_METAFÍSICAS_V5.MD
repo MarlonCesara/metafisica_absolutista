@@ -3482,6 +3482,7 @@ Portanto, a nadificação é a retirada da determinação para entes causados. �
 
 A infinitude de formas que se opõe resultando a não forma. Ou da forma indefinida (relativo).
 
+Ao retirar a forma de A, A torna-se X, e X são todas as formas possíveis. Sendo todas as formas possíveis X é a infinitização que colapsa. Essa infinitização, existe angularmente, ao ser olhada pela totalidade é nada, ao ser recortada em uma forma, é algo.
 
 
 
