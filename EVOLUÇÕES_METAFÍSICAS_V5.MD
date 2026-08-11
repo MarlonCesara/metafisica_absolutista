@@ -3492,12 +3492,13 @@ A infinitização ocorre em decorrência da forma relativizada, se não a a form
 
 Um objeto que perde os contornos, portanto, não tem um devir, mas torna-se o próprio devir inexistente. Pois o objeto desaparece. Torna-se inteiro o devir. Um objeto de crescimento continuo pode ser visualizado, mas caso seu crescimento seja infinito, caso tenha grandezas infinitas, o objeto é desfigurado. Um tamanho infinito é um não tamanho, uma velocidade infinita é uma não velocidade, uma densidade infinita é não densidade. 
 
-Dentro do buraco negro, a matéria já não existe, mas o universo de comporta como se ela existisse? 
+Ex ilustrativo: Dentro do buraco negro, a matéria já não existe, mas o universo de comporta como se ela existisse? Um objeto infinitamente pequeno é um objeto inexistente. A matéria, ao perder seus contornos, colapsa? Portanto, o buraco negro teria a memoria da matéria que de anulou de forma ate mesmo a ejetar essa matéria anulada, se assim se comportasse conforme as leis físicas. Desta forma, o peso do buraco negro, seria causado pela memorização do universo que continua o comportamento da matéria mesmo em seu colapso. Isto é, o buraco negro interage com uma não realidade. O universo grava a densidade da matéria antes de ser colapsada e o espaço que ela ocupava. Portanto, o buraco se comporta tal como o momento antes da matéria colapsar, porem, a própria matéria em si, não existe mais. Temos portanto, o comportamento da gravidade como memória, como informação da matéria colapsada, onde o universo "Grava" como deveria ser seu comportamento antes da matéria colapsar. (coloque teorias que referenciam essa hipotese)
 
 
 
+Ex: uma pessoalidade individualizada, isto é, um Espírito individualizado, ao perder sua identidade, seria relativo. 
+Somente um sentimento, um bem querer pode ser infinito. A forma, a unicidade, não pode ser infinita sem que colapse. A não ser que essa forma seja de todo o bem querer em pessoalidade. 
 
-A matéria, ao perder seus contornos, colapsa?
+(Coloque o exemplo do devir do nada e do Ser, de algum filosofo)
 
-
-O nada tem seu em si e para si? O para si existe isoladamente. Somente o Espírito.
+O nada tem seu em si e para si? Ou o para si existe isoladamente. Somente o Espírito. Pois o Espírito seria o para si do nada? O Espírito não é o para si do nada, pois o nada não existe para ter um para sí. E o si denomina uma determinação de uma unicidade. Para um. O amor, portanto pode ser infinito, pois o amor não é varios ou não é um. O amor como bem querer não necessidade de cerceamento, fronteiras ou numerações. O amor, angula o nada simplesmente sendo para o todo. E não para si. O amor é doação total. Portanto, o amor, é o ato de angulação que se doa para o todo. Não há um si a fim de doar-se para uma unicidade.
