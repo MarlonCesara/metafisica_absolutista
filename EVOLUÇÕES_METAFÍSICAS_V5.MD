@@ -3490,9 +3490,9 @@ O ente, portanto, ao sofrer a perca da identidade, entra numa indefinição, e e
 A infinitização ocorre em decorrência da forma relativizada, se não a a forma, então o ente tem forma X, todas as formas ao mesmo tempo e nenhuma forma. 
 
 
+Um objeto que perde os contornos, portanto, não tem um devir, mas torna-se o próprio devir inexistente. Pois o objeto desaparece. Torna-se inteiro o devir. Um objeto de crescimento continuo pode ser visualizado, mas caso seu crescimento seja infinito, caso tenha grandezas infinitas, o objeto é desfigurado. Um tamanho infinito é um não tamanho, uma velocidade infinita é uma não velocidade, uma densidade infinita é não densidade. 
 
-
-
+Dentro do buraco negro, a matéria já não existe, mas o universo de comporta como se ela existisse? 
 
 
 
