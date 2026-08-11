@@ -769,6 +769,7 @@ O nada possui potência, desdobrando-se em uma progressão lógica de graus:
 
 Para fins metodológicos, o foco desta análise restringe-se à primeira anulação: **o nada no potencial primeiro elevado ao infinito**. Pois, ao considerarmos uma regressão infinita, retornamos à mesma substância. O nada de segundo grau é o mesmo que o do primeiro grau e assim sucessivamente. A nulidade é sempre a mesma, e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
 
+
 ### O Nada Potencial *versus* O Nada Absoluto
 
 O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**, e não como um nada absoluto. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
@@ -1253,6 +1254,12 @@ Portanto, a própria existência do Espírito, ainda que sem ação, já subente
 O repousar do Espírito, ou seu simples existir, sub entende um referencial, ainda que sem ação. A inatividade também é expressão da liberdade. E, se faz inativo consciente desta ação.
 
 > Exemplo dogmático: Se os olhos do Ser estão fechados, o produto desta inação é o nada. Porém, quando se abrem o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois é determinado, é angulado. E, do Ser, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, o Ser está em quem ama, e quem ama está Nele.
+
+
+# A infinitude do indiferenciado
+
+Não digo que a infinitude do espirito é igual a nada, pois o espirito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada. Mas a infinitude do Espírito nao sucumbe a nadificação, pois é de aspecto relacional e não fenomenico. Por exemplo, ao citarmos um amor infinito, ele não sucumbe, mas se realiza por ser relacional. O indiferenciado já não é identificado como determinação, por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplica-lo rumo a uma infinitude. É infinito no sentido relacional de intensidade, constância, retidão, etc.
+
 
 # EM BUSCA DO ESPÍRITO - ASPECTOS RELACIONAIS DO ABSOLUTO
 
