@@ -11719,6 +11719,19 @@ Estão demonstrando o assombro do qual padecem.
 
 
 
+Estando definido com maior clareza o que é o Espírito Santo, podemos também compreender de maneira mais nítida o que é o pecado (Ato contra a plenitude). O pecado pode ser entendido como uma postura interior contrária ao próprio existir, isto é, uma intenção que se coloca em oposição à orientação fundamental da pessoa para a vida, para a plenitude e para a realização de seu próprio ser.
+
+Essa postura interior não permanece necessariamente abstrata. Ela tende a repercutir na própria existência humana, manifestando-se no corpo, na afetividade, nos desejos e nas ações. É essa manifestação concreta de uma disposição interior contrária ao existir que podemos reconhecer como a sintomática do pecado.
+
+Por exemplo, quando um ser humano reprime seu desejo natural pela vida, pela esperança e pela eternidade, essa orientação não necessariamente desaparece. Ela pode buscar outras formas de expressão, de maneira distorcida e indireta. O desejo pela plenitude pode, então, ser projetado sobre objetos incapazes de realizá-lo plenamente, manifestando-se, por exemplo, como uma obsessão desordenada por bens materiais. O que originalmente apontava para uma plenitude do ser passa a buscar, nos objetos, uma compensação para aquilo que foi interiormente reprimido.
+
+Podemos levar essa ideia ainda mais longe. Quando um ser humano se posiciona interiormente contra a própria vida e contra aquilo que reconhece como bom, a própria experiência da felicidade pode tornar-se dolorosa. Isso ocorre porque a felicidade revela o valor daquilo que ele pretende negar. Diante disso, pode surgir uma tentativa de desfigurar o que é bom, seja diminuindo seu valor, seja rejeitando-o, seja praticando ações que contrariem aquilo que interiormente se reconhece como valioso.
+
+
+
+
+
+
 
 Os meios de produção natural são construídos estrategicamente para a poluição, para o homem precisar degradar o próprio homem. O instinto humano pela preservação é nato até mesmo nas tribos, porém, os grandes produtores, focam em materiais não perecíveis na natureza, em meios de produção que poluem, não exclusivamente pelo lucro, mas por expressão. 
 
