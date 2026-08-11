@@ -3392,6 +3392,8 @@ O sistema metafísico aqui reconstruído estabelece:
 
 O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
 
+Está é a maneira mais clara de referenciar um nada existente, isto é, que é algo por ser a anulação da totalidade. E não a própria ausência de si mesmo. Este nada, pode ser pensado. Pois guarda em si, sua contraparte, é potencial sem que isso seja uma referência ilógica. 
+
 O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
 Ao considerarmos, por outro lado, um "Nada Absoluto", esse nada torna-se relacional, autocausado. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
