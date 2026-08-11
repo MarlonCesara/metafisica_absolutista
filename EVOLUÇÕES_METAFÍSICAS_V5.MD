@@ -3485,8 +3485,19 @@ A infinitude de formas que se opõe resultando a não forma. Ou da forma indefin
 Ao retirar a forma de A, A torna-se X, e X são todas as formas possíveis. Sendo todas as formas possíveis X é a infinitização que colapsa. Essa infinitização, existe angularmente, ao ser olhada pela totalidade é nada, ao ser recortada em uma forma, é algo.
 
 
+O ente, portanto, ao sofrer a perca da identidade, entra numa indefinição, e está indefinição possibilita o ente estar para uma infinidade de formas. E isto o anula. Portanto, qualquer ente que perde seu contorno é infinitizado, torna-se relativo. Pois sua forma é relativa. Colapsa. 
+
+A infinitização ocorre em decorrência da forma relativizada, se não a a forma, então o ente tem forma X, todas as formas ao mesmo tempo e nenhuma forma. 
 
 
+
+
+
+
+
+
+
+A matéria, ao perder seus contornos, colapsa?
 
 
 O nada tem seu em si e para si? O para si existe isoladamente. Somente o Espírito.
