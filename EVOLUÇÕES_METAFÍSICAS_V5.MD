@@ -1260,6 +1260,68 @@ O repousar do Espírito, ou seu simples existir, sub entende um referencial, ain
 
 Não digo que a infinitude do espirito é igual a nada, pois o espirito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada. Mas a infinitude do Espírito nao sucumbe a nadificação, pois é de aspecto relacional e não fenomenico. Por exemplo, ao citarmos um amor infinito, ele não sucumbe, mas se realiza por ser relacional. O indiferenciado já não é identificado como determinação, por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplica-lo rumo a uma infinitude. É infinito no sentido relacional de intensidade, constância, retidão, etc.
 
+O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
+
+O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
+
+Ao considerarmos, por outro lado, um "Nada Absoluto", esse nada torna-se relacional, autocausado. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
+
+Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
+
+Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
+
+Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
+
+Quando adentramos nos aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas.
+
+Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação.
+
+O Espírito atua, portanto, em três dimensões ontológicas complementares:
+
+1. Autocausalidade Vertical — Espírito Fundamentador
+
+Definição: qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
+
+Características para o Absoluto:
+
+• Incorruptibilidade: o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+
+• Fundamentação: o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
+
+Princípio: "Eu Existo."
+
+Trata-se da pura afirmação ontológica do Absoluto.
+
+2. Autocausalidade Diagonal — Espírito Plenificador
+
+Definição: qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua existência e plenitude.
+
+Características para o Absoluto:
+
+• Despersonalização metafísica: o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+
+• Autodeterminação essencial: o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
+
+• Exemplo: o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
+
+Princípio: "Escolho o que me realiza como Absoluto."
+
+3. Autodeterminação Horizontal — Espírito Personalizador
+
+Definição: qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+
+Características para o Absoluto:
+
+• Personalização: manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
+
+• Liberdade direcionada: a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+
+• Exemplo: não está no momento de ser poético, porém, como isto é um aspecto da personalidade, isso pode ser realizado pela Alma do Absoluto.
+
+Princípio: "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."
+
+Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal.
+
 
 # EM BUSCA DO ESPÍRITO - ASPECTOS RELACIONAIS DO ABSOLUTO
 
