@@ -2411,6 +2411,13 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 ---
 
+
+### **O fundamento como sabedoria**
+
+Deus pais, o estado atemporal do Espírito, é definido como sabedoria. Pois seu conhecer envolve ser a totalidade concluída, o fundamento. O espírito envolve a santidade, a retidão para a sabedoria ou para a personalidade. E o personalizador envolve a expressão dessa sabedoria de forma particular.
+
+
+
 ## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL**
 
 ### **9.1. A Necessidade de uma Purificação do Olhar: Introdução ao Caminho Apofático**
