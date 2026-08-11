@@ -3390,3 +3390,76 @@ O sistema metafísico aqui reconstruído estabelece:
 ---
 
 
+O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
+
+O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
+
+Ao considerarmos, por outro lado, um "Nada Absoluto", esse nada torna-se relacional, autocausado. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
+
+Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
+
+Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
+
+Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
+
+Quando adentramos nos aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas.
+
+Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação.
+
+O Espírito atua, portanto, em três dimensões ontológicas complementares:
+
+1. Autocausalidade Vertical — Espírito Fundamentador
+
+Definição: qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
+
+Características para o Absoluto:
+
+• Incorruptibilidade: o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+
+• Fundamentação: o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
+
+Princípio: "Eu Existo."
+
+Trata-se da pura afirmação ontológica do Absoluto.
+
+2. Autocausalidade Diagonal — Espírito Plenificador
+
+Definição: qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua existência e plenitude.
+
+Características para o Absoluto:
+
+• Despersonalização metafísica: o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+
+• Autodeterminação essencial: o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
+
+• Exemplo: o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
+
+Princípio: "Escolho o que me realiza como Absoluto."
+
+3. Autodeterminação Horizontal — Espírito Personalizador
+
+Definição: qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+
+Características para o Absoluto:
+
+• Personalização: manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
+
+• Liberdade direcionada: a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+
+• Exemplo: não está no momento de ser poético, porém, como isto é um aspecto da personalidade, isso pode ser realizado pela Alma do Absoluto.
+
+Princípio: "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."
+
+Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal.
+
+  O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.  
+
+Estando definido com maior clareza o que é o Espírito Santo, podemos também compreender de maneira mais nítida o que é o pecado (Ato contra a plenitude). O pecado pode ser entendido como uma postura interior contrária ao próprio existir, isto é, uma intenção que se coloca em oposição à orientação fundamental da pessoa para a vida, para a plenitude e para a realização de seu próprio ser.
+
+Essa postura interior não permanece necessariamente abstrata. Ela tende a repercutir na própria existência humana, manifestando-se no corpo, na afetividade, nos desejos e nas ações. É essa manifestação concreta de uma disposição interior contrária ao existir que podemos reconhecer como a sintomática do pecado.
+
+Por exemplo, quando um ser humano reprime seu desejo natural pela vida, pela esperança e pela eternidade, essa orientação não necessariamente desaparece. Ela pode buscar outras formas de expressão, de maneira distorcida e indireta. O desejo pela plenitude pode, então, ser projetado sobre objetos incapazes de realizá-lo plenamente, manifestando-se, por exemplo, como uma obsessão desordenada por bens materiais. O que originalmente apontava para uma plenitude do ser passa a buscar, nos objetos, uma compensação para aquilo que foi interiormente reprimido.
+
+Podemos levar essa ideia ainda mais longe. Quando um ser humano se posiciona interiormente contra a própria vida e contra aquilo que reconhece como bom, a própria experiência da felicidade pode tornar-se dolorosa. Isso ocorre porque a felicidade revela o valor daquilo que ele pretende negar. Diante disso, pode surgir uma tentativa de desfigurar o que é bom, seja diminuindo seu valor, seja rejeitando-o, seja praticando ações que contrariem aquilo que interiormente se reconhece como valioso.
+
+Se quiser acompanhar toda a minha obra. 
