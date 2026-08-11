@@ -3396,11 +3396,15 @@ Está é a maneira mais clara de referenciar um nada existente, isto é, que é 
 
 O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
+Para encontrar este angulador basta que tornemos o nada absoluto, isto é o incausado. Ao faze-lo, surgem novas propriedades para o nada.
+
 Ao considerarmos, por outro lado, um "Nada Absoluto", esse nada torna-se relacional, autocausado. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
 
 Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
 
 Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
+
+Isto é, o mundo determinado que não resistiu a infinitização, isto é, a totalidade colapsada, existe. E existe por ela mesma. Porém, essa existencia é um palco, um espaço cristalino onde impera somente seu aspecto relacional. Isto é, o nada existe e tem um sentido em si, este sentido não advem do nada, pois o nada, nada é. Este sentido impera sem que haja qualquer poluição ou contra parte. Restando apenas o sentido e as possibilidades colapsadas pela infinitude.
 
 Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
 
