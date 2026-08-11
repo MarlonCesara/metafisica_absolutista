@@ -3458,7 +3458,7 @@ Princípio: "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa 
 
 Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal.
 
-  O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.  
+O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.  
 
 Estando definido com maior clareza o que é o Espírito Santo, podemos também compreender de maneira mais nítida o que é o pecado (Ato contra a plenitude). O pecado pode ser entendido como uma postura interior contrária ao próprio existir, isto é, uma intenção que se coloca em oposição à orientação fundamental da pessoa para a vida, para a plenitude e para a realização de seu próprio ser.
 
@@ -3470,4 +3470,16 @@ Podemos levar essa ideia ainda mais longe. Quando um ser humano se posiciona int
 
 Se quiser acompanhar toda a minha obra. 
 
-Porque os entes não resistem a infinitização?
+Porque os entes não resistem a infinitização? O ente determinado colapsa ao ser infinitizado, porém, ao deixarmos um fragmento fenomenico, isto ainda não fará sentido, pois até o fragmento sem determinação, é uma determinação de fragmento. É algo. Tudo que é algo é um algo, ou é formatado conforme a si mesmo. Para o ente ter sua essencia fundida a determinação, precisa ser completamente puro. Necessita que seu resquicio de fundamentação seja, não a parte que resta sem determinação, pois a parte da fundamentação sem sua determinação, na verdade, não existe.
+
+Se A é A, e retiramos o A. Obtemos o X. Tiramos, portanto, a terminologia, as expressões, a numerabilidade, isto é, infintizamos A. E, o que temos é X. Isto é, coisa alguma.
+
+Ao aplicarmos a causa de A ser A, e não B, ou de A existir A, para absoluto, temos, portanto, uma razão para X, que se faz X segundo o angulador. Sendo X = Nada, temos somente o angulador.
+
+
+
+
+
+
+
+O nada tem seu em si e para si? O para si existe isoladamente. Somente o Espírito.
