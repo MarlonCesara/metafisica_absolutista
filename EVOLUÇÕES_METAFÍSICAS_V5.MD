@@ -3476,6 +3476,12 @@ Se A é A, e retiramos o A. Obtemos o X. Tiramos, portanto, a terminologia, as e
 
 Ao aplicarmos a causa de A ser A, e não B, ou de A existir A, para absoluto, temos, portanto, uma razão para X, que se faz X segundo o angulador. Sendo X = Nada, temos somente o angulador.
 
+A infinitização dos entes determinados, portanto, se encerra na perca da determinação. E isto não conserva o ente, mas o colapsa. 
+
+Portanto, a nadificação é a retirada da determinação para entes causados. É a possibilidade elevada a sua máxima potencia, a sua disformidade. Se existe tudo ao mesmo tempo, isto provoca a competição de formas para se por, se forma A, se mostra A, porem existe a forma B, em seu lugar, até haver o X. Portanto, temos a nadificação. Que é a indefinição.
+
+A infinitude de formas que se opõe resultando a não forma. Ou da forma indefinida (relativo).
+
 
 
 
