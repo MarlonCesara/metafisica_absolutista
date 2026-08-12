@@ -11768,3 +11768,7 @@ O niilista é um ser que nao está bem, um ser em decadência, um ser em colapso
 
 A transformação social do total entendimento do niilismo é grande. Grandes mudanças nas relações e nos comportamentos podem ocorrer, de forma que, a evangelização aumente e tenha um alvo mais crítico. De forma que os relacionamentos e os trabalhos se construa de forma diferente. De forma que a estrutura social protege a pessoa humana de comportamentos obsessivos privando o humano de constituir grande poder econômico. Pois o poder atrai a expressão niilista que se faz implacável mediante a uma grande forma de expressão como a opressão as minorias e todas as formas de manipulação e manutenção da exploração humana.
 
+
+
+A obsessão por riquezas não acontece em pessoas eruditas ou inteligentes pois causar miséria e escassez não tem a ver com inteligência. A obsessão por riquezas vem de um conflito interior que o individuo tenta resolver quando nega a si seu próprio existir, o extremo acumulo de riqueza material é uma substituição insana e ilusória do que o individuo rejeita, a sua própria eternidade.
+
