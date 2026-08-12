@@ -11762,7 +11762,9 @@ O niilista quer deixar seus atos insanos sempre a mostra, não pela própria int
 
 Sente-se a uma distancia infinita do porto seguro, chama a humanidade constantemente de seu naufrago. Busca os holofotes, busca o objeto de sua sede, bebe, bebe e não se sacia. A humanidade, tenta comove-lo, tenta se organizar, mas o niilista deve ser segurado, não comovido. Pois a humanidade não pode retira-lo do direito de usufruto de sua liberdade.
 
+O niilista é um ser que nao está bem, um ser em decadência, um ser em colapso. Seu mal estar é nítido em seu comportamento. O niilismo é tão doloroso quanto uma sede, e as miragens vem sem cessar. Num grande deserto da alma, o niilista enxerga as miragens da vida, no ouro, no acumulo, como alguém que é sedento e não encontra água, e nem mesmo pensa saber o que é a água. Interpreta como algo misterioso a que lhe foi escondido. 
 
 
 
+A transformação social do total entendimento do niilismo é grande. Grandes mudanças nas relações e nos comportamentos podem ocorrer, de forma que, a evangelização aumente e tenha um alvo mais crítico. De forma que os relacionamentos e os trabalhos se construa de forma diferente. De forma que a estrutura social protege a pessoa humana de comportamentos obsessivos privando o humano de constituir grande poder econômico. Pois o poder atrai a expressão niilista que se faz implacável mediante a uma grande forma de expressão como a opressão as minorias e todas as formas de manipulação e manutenção da exploração humana.
 
