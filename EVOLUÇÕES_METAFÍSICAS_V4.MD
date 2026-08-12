@@ -11742,4 +11742,18 @@ Conforme a ausência de conhecimentos, politicas, leis, a expressão do niilismo
 
 Por vezes o niilista tem a impressão que todos sabem de sue infortunio, tem a sensação da derrota, a leve impressão que todos conhecem sua miséria e a querem, e o condenam. Pois por hora se sente um prisioneiro e não alguém que escolhe por deliberada vontade. Portanto, ao deixar de ser niilista tem a breve sensação de vitória sobre as pessoas, de ver que o estavam o condenando ou não se importanto, e agora pode vencer a todos. O niilista se sente o mais profundo perdedor.
 
-Os niilistas pensam em conjunto.
+Os niilistas pensam em conjunto. Sabem as intençoes politicas, pois conhecem o desejo mediante a seu conflito, o desejo de todos os niilistas forma um direcionamento oculto que deve ser entendido através de sua sintomatica e é espressado através de politicas que oprimem e priorizam a mao de obra escrava, mas que deixam espaço para que individuos aparentemente sem empatia ocupam cargos de maior remuneração, como é o caso da fazenda de escravos que remunera o feitor por ter pouca empatia ou por ter grandes conflitos, mas açoita o escravo, é um tipo de arquitetura onde as grandes empresas aproveitama a base niilista menos favorecida abrindo brechas para que essa classe tenha destaque social em detrimentodas pessoas que não aceitam cometer opressao, escravizar e nem nada a respeito. É uma arquitetura, e não algo que acontece aleatoriamente, o individuo niilista tem cienta da arquitetura que ajuda a construir.
+
+E sabe que, ao não ser util mais para essa arquitetura pode ser consumido por ela, e rejeitado, mas mesmo assim faz desta arquitatura sua expressão.
+
+
+
+A total ausencia do amor é a definição mais clara da negação da liberdade. Há movimento, mas não há razão para o movimento. Isto quer dizer que, não estar desperto é o mesmo que agir pela ausencia do amor. Nem mesmo é pelo ódio, mas é pela sede do sentido. Do sentido que não se quis, e ao mesmo tempo, que haja a impressão de que não foi ganho e que está em algum lugar. Pois a ausencia do amor é um estado vidrificado da cosnciencia, ao passo que se o deseja. Mas o desejar é uma vida sem força, uma vida que sucumbe a propria modalidade de vida e não ao despertar para esta.
+
+
+
+
+
+
+
+
