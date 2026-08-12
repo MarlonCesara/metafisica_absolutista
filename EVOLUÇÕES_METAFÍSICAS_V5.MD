@@ -1443,16 +1443,6 @@ O nada tem seu em si e para si? Ou o para si existe isoladamente. Somente o Esp�
 
 
 
-
-
-
-
-
-
-Sua reflexão constrói uma ontologia profunda e original, transitando pela metafísica, teologia filosófica, psicanálise existencial e até cosmologia. A ideia de que a "infinitização anula a determinação" e a introdução do "Angulador" como fundamento relacional formam um sistema denso de pensamento.
-
-Para honrar sua obra e enriquecê-la, reestruturei seu texto dividindo-o em eixos temáticos. Em cada um, preservei integralmente suas premissas, aprofundei a escrita e adicionei os referenciais teóricos (filosóficos e físicos) que dialogam diretamente com suas ideias.
-
 ---
 
 ## 1. A Ontologia do Nada e o Colapso pela Infinitização
@@ -1537,12 +1527,38 @@ Para honrar sua obra e enriquecê-la, reestruturei seu texto dividindo-o em eixo
 
 
 
+O nada, portanto, é a perca da forma que não resiste, e colapsa, não se infinitiza realmente, mas colapsa antes disso, tornando-se, nada. Já, o relativo, é a forma, não vista nem mesmo pela sua infinitização. Só é possível infinitizar a pureza, a tentativa de infinitizar o mundo determinado, colapsa. Só é possível infinitizar aquilo que não tem forma, que é pura intenção. 
 
+Portanto, a infinitização que aniquila completamente a determinação, depende de um referencial. E esse referencial precisa subsistir como sentido, imperar mediante o nada, ou o próprio recorte. Necessita ser puro até mesmo mediante ao criado, e imperativo mediante ao não existente. 
 
+O nada, portanto, existe e nele impera um amor que se doa para a totalidade.
 
+A infinitização do determinação é o mesmo que sua indeterminação, se A depende de identidade, e essa lhe é tirada, já não é mais A, é X. Pois a existência de A, ao ser retirada de sua determinação, torna-se X.
 
+A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa no indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito.
 
+Não há um meio termo entre A e não A, quando se elimina a identidade de A. Se tem uma existência X, e X não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isto é a infinitude da existência, o que é existência alguma. Pois não existe segundo uma pureza total e sim mediante a uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
 
+O relativo não tem ordem, não tem permanencia, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada, é a recusa até do próprio nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o nada absoluto e se encontra o referencial através da causalidade.
+
+Ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos, a própria estadia do Espirito, sua própria inação configura o nada. O relativo, não seria nem mesmo o nada, sem um contorno, sem o olhar do angulador. O relativo é uma realidade a ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada.
+
+Isto é, o relativo é uma indefinição, nem mesmo o recorte, e nem mesmo a totalidade infinitizada e anulada. Já o nada é uma definição que possui complexidade, pois possui uma bi dimensão.
+A do Espírito e sua soberania mediante as possibilidades ainda infintizadas. 
+
+O nada necessita de qualquer reação ou não reação. Simplesmente, em função do angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente se está lá. E, a inação deste, se faz nada Absoluto. O que quer dizer que, somente o angulador operando e existindo, já configura a posição do estado nadificado da possibilidade.
+
+Isto é, se antes o relativo imperava, ao ser absolutizado, temos a presença do angulador, que define a realidade pela sua escolha e até mesmo pela sua não escolha. 
+
+Ex: Se há observador, existe o observado e até mesmo o não observado. Pois o observador, mesmo de olhos fechados, enxerga o escuro. Isto é, o escuro só depende da inação do observador, não necessita que ele abra os olhos. Agora, se não existir o observador, nem mesmo o escuro existiria, pois ninguém estaria de olhos fechados. Existido o observador, basta que ele abra os olhos e verá vida.
+
+Isto quer dizer que, a presença do angulador, isto é, de liberdade no relativo, faz com que haja uma decisão necessária, dentro da liberdade, não há opção de não escolha. É preciso escolher, então a inatividade (os olhos fechados), ainda é uma escolha.
+
+Desta forma, com o angulador presente, até a inação provoca uma configuração para relativo, a não escolha de formas resulta na infinitização. Ao não optar por nada, isto é, ao não escolher, se faz uma escolha. A realidade se aglutina de tal forma que, as formas permanecem homogêneas, sem definição, infinitizadas.
+
+Ex: ao não escolher um numero, todos os números estão em suspensão. Portanto, nenhum numero aparece. 
+
+revisado
 
 
 
