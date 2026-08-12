@@ -1,6 +1,3 @@
-Aqui está uma estrutura otimizada e visualmente atraente para o seu `README`. Utilizei ícones e formatação em Markdown (citações, negritos e divisórias) para tornar a leitura densa mais escaneável e impactante.
-
----
 
 > *"Este tratado representa o ápice das evoluções metafísicas. Trata-se de um conhecimento rigorosamente estruturado, alicerçado em tudo o que já foi pensado pela humanidade e expandido até conduzir a filosofia ao seu limite absoluto."*
 
