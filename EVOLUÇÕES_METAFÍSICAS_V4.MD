@@ -11758,6 +11758,9 @@ A ausência do sentido, portanto, se equivale a vitrificação da alma, a infeli
 
 
 
+O niilista quer deixar seus atos insanos sempre a mostra, não pela própria intenção deles somente, mas por desabar o peso de seu pesar, de seu desespero inconsolável nos ombros do outro, a amostra da maldade, o horizonte da loucura é o próprio pedido de consolo do niilista, é o descarregar de seu peso interior nos ombros do outro, é o desabar de suas defesas em prol de não ser quem é. O niilista, não é intencionado a desordem social, mais que isso, a partir do momento que faz o mal uso de sua liberdade, já não pode atuar socialmente. Já não pode ser comovido, o seu âmbito humano já não pode ser mais evocado para resolver as causas sociais, pois está envolto num problema que considera maior que qualquer outro, esta assombrado pela saudade de si, pelo desproposito de si mesmo.
+
+Sente-se a uma distancia infinita do porto seguro, chama a humanidade constantemente de seu naufrago. Busca os holofotes, busca o objeto de sua sede, bebe, bebe e não se sacia. A humanidade, tenta comove-lo, tenta se organizar, mas o niilista deve ser segurado, não comovido. Pois a humanidade não pode retira-lo do direito de usufruto de sua liberdade.
 
 
 
