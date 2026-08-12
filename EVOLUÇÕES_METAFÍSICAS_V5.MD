@@ -2110,7 +2110,7 @@ O Ser de Deus transcende o que é, no sentido de que é um Ser na forma mais pur
 
 ---
 
-### Síntese da Proposição XIV
+### Síntese da Proposição
 
 **Proposição XIV demonstrada:** O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação transcende a positividade determinada. Ao transgredir a lógica e abarcar o domínio do impossível (o ser e o não-ser simultâneos), o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a essência de sua própria presença inabalável.
 
@@ -2398,6 +2398,8 @@ Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura
 ## **PROPOSIÇÃO A AUTOCAUSALIDADE BIFÁSICA E A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO**
 
 A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.
+
+O Espírito, sendo a infinitude manifesta, é naturalmente atemporal, e temporal. Seu tempo não é linear. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo espírito através da personalização.
 
 ### **A Dinâmica Bifásica**
 
