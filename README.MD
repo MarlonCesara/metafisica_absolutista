@@ -1,6 +1,6 @@
 <div align="center">
 
-# INTRODUÇÃO: O ABSOLUTISMO METAFÍSICO E A ARQUITETURA DO SER
+# INTRODUÇÃO: EVOLUÇÕES METAFÍSICAS
 
 > *"Este tratado representa o ápice das evoluções metafísicas. Trata-se de um conhecimento rigorosamente estruturado, alicerçado em tudo o que já foi pensado pela humanidade e expandido até conduzir a filosofia ao seu limite absoluto."*
 
