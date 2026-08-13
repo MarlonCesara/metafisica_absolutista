@@ -3865,4 +3865,5 @@ O Espírito obrigatoriamente move. O Espírito é como uma chama que arde. Mas q
 
 A linha horizontal e a perpendicular, na pureza, se dissolvem. E formam uma única linha. Isto é, a consumação do tempo se fundiria a atualidade. Haveria um tempo infinito e vivo em toda a sua extensão.
 
+O amor não depende de estar numa dimensão de tempo pra criar, ele é sua própria dimensão. A atualidade do amor já é futuro presente e passado. Ele é todo tempo em si.
 
