@@ -3847,6 +3847,11 @@ O bem querer não subentende nenhum tempo, nenhuma diferença em si de fundament
 
 O que faz sentido para o amor, é o que há. A atualidade, portanto, não é dominada por uma linha perpenducular ou horizontal, não está enraizada numa linha temporal.
 
+Colocar grandezas físicas no amor, é algo complexo, pois representar o amor pela proprópria dimensão é somente uma forma de tentar compreender, tal como se tenta compreender um sentimento com poesia, o comprando a atributos da natureza.
+
+O amor é tudo, o começo e o fim. E essa é uma tentativa de significar o amor.
+
+
 
 
 
