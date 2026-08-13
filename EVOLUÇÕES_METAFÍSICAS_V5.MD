@@ -3863,4 +3863,6 @@ Se a liberdade é necessidade, ela deve se exercida, conforme os contornos da po
 
 O Espírito obrigatoriamente move. O Espírito é como uma chama que arde. Mas que é chama em seu inicio e fim. É todo calor. É o que e, e é tudo.
 
+A linha horizontal e a perpendicular, na pureza, se dissolvem. E formam uma única linha. Isto é, a consumação do tempo se fundiria a atualidade. Haveria um tempo infinito e vivo em toda a sua extensão.
+
 
