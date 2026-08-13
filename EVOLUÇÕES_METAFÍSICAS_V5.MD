@@ -3826,5 +3826,7 @@ A percepção de tempo e não tempo, é a percepção da propria totalidade e n�
 
 Isto se dá como uma ação no que é instaurado quando falamos em fundamentador e personalizador. Temos uma fundamentação que não diz respeito ao tempo, mas a qualidade do amor. E uma atualização que não disrespeito nem mesmo a um tempo fisico perpendicular, mas a vivacidade deste amor que estabelece um presente vivo, uma capacidade ininterrupta de ação, mesmo sendo sua fundamentação instaurada.
 
+O amor é atemporal, ou infinito, não no sentido fenomenico, mas no sentido de que é todo ele do ínciio ao fim, é o que é, é o que se instaura sem começo e fim. E o que existe para alem do tempo, ou seja, é o começo meio e fim, isto é, é tudo.
 
+Definamos, portanto, que o tempo do Espírito é diferente do tempo fenomenico. É fundamento e atualizada, é tudo, ao passo que se atualiza sob essa totalidade que é.
 
