@@ -3851,7 +3851,9 @@ Colocar grandezas físicas no amor, é algo complexo, pois representar o amor pe
 
 O amor é tudo, o começo e o fim. E essa é uma tentativa de significar o amor.
 
+Compreender o amor, através de outras comparações, talvez seja mais interessante. Ao dizer que o amor é profundo, se tem uma visão dimensional dele. Tal como dizer que é o começo meio e o fim. Portanto, o amor é tudo, o amor é profundo é o começo meio e o fim, é pura atualizade....tão todas descrições para descrever o bem querer e mundo que se faz este bem querer. Para entender as possibilidades do bem querer, de forma poética é a mais apróximada.
 
+O amor é pura atualidade, é a fonte de tudo, até do tempo. O amor tem seu tempo, e profundo, as vezes é complexo, mas é simples, é pura doação sem explicação.
 
 
 
