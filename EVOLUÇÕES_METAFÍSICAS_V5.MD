@@ -3855,6 +3855,6 @@ Compreender o amor, através de outras comparações, talvez seja mais interessa
 
 O amor é pura atualidade, é a fonte de tudo, até do tempo. O amor tem seu tempo, e profundo, as vezes é complexo, mas é simples, é pura doação sem explicação.
 
-
+O amor é mistério, o amor realiza o impossível, o ilógico. Para o amor tudo é possível. A potencia do amor é infinita.
 
 
