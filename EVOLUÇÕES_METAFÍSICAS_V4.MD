@@ -5117,6 +5117,8 @@ Sua vontade seria lembrar de si, resgatar em alguma lembrança longínqua a memo
 
 A alma que escapou, portanto, busca um coração. E viver sem coração, é viver a mais severa das privações. Era a alma que buscava um coração.
 
+Seu coração se foi, sem dizer que voltava, ali a esperança era necessaria.
+
 
 
 
