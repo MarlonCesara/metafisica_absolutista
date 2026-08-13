@@ -3820,15 +3820,34 @@ O conceito, portanto, de fundamento e atualidade, temos que o amor é o que est�
 Ao chamarmos o fundamento de atemporal, é quase um erro, pois o atemporal é o nada. E ao chamarmos de tempo infinito, é um erro, pois o tempo é uma dimensão fisica, é uma determinação.
 O amor é infinito em sentimento, bem querer, e é pura atualidade.
 
-A percepção de tempo e não tempo, é a percepção da propria totalidade e não totalidade quando referenciadao pelo tempo infinitizado ou recortado. Então, instaurar o potencial fenomenico no Espírito é algo complexo, o tempo do Espírito, portanto, se difere do tempo fenomenico.
+A percepção de tempo e não tempo, é a percepção da própria totalidade e não totalidade quando referenciado pelo tempo infinitizado ou recortado. Então, instaurar o potencial fenomenico no Espírito é algo complexo, o tempo do Espírito, portanto, se difere do tempo fenomenico.
 
 É consumado não no sentido convencional da infinitude colapsada. E nem tem um espaço infinito. Mas é consumado no sentido que é um amor inviolável, já se dado como tal e imutável. É como é. E é atualizável pois é vivo, é o bem querer ativo.
 
-Isto se dá como uma ação no que é instaurado quando falamos em fundamentador e personalizador. Temos uma fundamentação que não diz respeito ao tempo, mas a qualidade do amor. E uma atualização que não disrespeito nem mesmo a um tempo fisico perpendicular, mas a vivacidade deste amor que estabelece um presente vivo, uma capacidade ininterrupta de ação, mesmo sendo sua fundamentação instaurada.
+Isto se dá como uma ação no que é instaurado quando falamos em fundamentador e personalizador. Temos uma fundamentação que não diz respeito ao tempo, mas a qualidade do amor. E uma atualização que não diz respeito nem mesmo a um tempo físico perpendicular, mas a vivacidade deste amor que estabelece um presente vivo, uma capacidade ininterrupta de ação, mesmo sendo sua fundamentação instaurada.
 
-O amor é atemporal, ou infinito, não no sentido fenomenico, mas no sentido de que é todo ele do ínciio ao fim, é o que é, é o que se instaura sem começo e fim. E o que existe para alem do tempo, ou seja, é o começo meio e fim, isto é, é tudo.
+O amor é atemporal, ou infinito, não no sentido fenomenico, mas no sentido de que é todo ele do início ao fim, é o que é, é o que se instaura sem começo e fim. E o que existe para além do tempo, ou seja, é o começo meio e fim, isto é, é tudo.
 
 Definamos, portanto, que o tempo do Espírito é diferente do tempo fenomenico. É fundamento e atualizada, é tudo, ao passo que se atualiza sob essa totalidade que é.
-A infinitude do amor está alem do tempo.
+A infinitude do amor está além do tempo.
 
 O tempo fenomenico não se atualiza conforme o Espírito, portanto o tempo do Espírito é diferente.
+
+Não há tempo para o amor infinito, o amor é o próprio tempo. E é a própria atualidade desse tempo. É o próprio tempo se atualizando.
+
+A linha horizontal e vertical, são duas dimensões que para o fenômeno não fariam sentido. A linha horizontal é morta, ao passo que não poderia ser escolhido um ponto de partida dessa linha.
+
+Porém, ao considerarmos ela viva, temos que toda a linha se torna atualidade. Temos um passado e futuro que estão acontecendo ao mesmo tempo.
+
+Ao sucumbirmos o tempo para o domínio da atualidade, isto é, ao considerarmos o tempo um produto da atualidade, temos uma dimensão acima do tempo. 
+
+O tempo consumado é um produto da atualidade. E não a atualidade um produto do tempo, pois só existe a atualidade. Temos portanto, a temporalidade como produto do observador.
+
+O bem querer não subentende nenhum tempo, nenhuma diferença em si de fundamento e não fundamento, ou fundamento e personalizador. 
+
+O que faz sentido para o amor, é o que há. A atualidade, portanto, não é dominada por uma linha perpenducular ou horizontal, não está enraizada numa linha temporal.
+
+
+
+
+
