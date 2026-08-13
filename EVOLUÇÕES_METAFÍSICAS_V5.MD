@@ -3857,4 +3857,10 @@ O amor é pura atualidade, é a fonte de tudo, até do tempo. O amor tem seu tem
 
 O amor é mistério, o amor realiza o impossível, o ilógico. Para o amor tudo é possível. A potencia do amor é infinita.
 
+Ao retirar do nada uma realidade que não precise de tempo para ser despertada, seria possível?
+
+Se a liberdade é necessidade, ela deve se exercida, conforme os contornos da possibilidade, impossibilidade e do incognoscível. Precisa haver liberdade, apesar disto não ser entendido. O entendimento disto é interno a própria consciência. A consciência é gestora de suas ações. Portanto, o tempo do Espírito é particular.
+
+O Espírito obrigatoriamente move. O Espírito é como uma chama que arde. Mas que é chama em seu inicio e fim. É todo calor. É o que e, e é tudo.
+
 
