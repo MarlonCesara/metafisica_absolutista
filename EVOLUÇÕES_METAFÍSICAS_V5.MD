@@ -1596,6 +1596,43 @@ Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E 
 
 dddd
 
+### **O quem do querer do Absoluto**
+
+A inclinação a vida, o bem querer, o bem é o desejo pela vida. Pelo existir. Pela luz. Deus é o puro bem querer, é o puro amor. Este desejo é puramente Espiritual. Portanto, o fundamentador tem o puro desejo da fundamentação, o plenificador o puro desejo da plenitude, e o personalizador o puro desejo da personalização rumo a plenitude. Ambos são selados pelo Espírito, de forma que ambos manifestam o Espírito que é o dom da plenitude, do existir, do Ser por querer, e por não poder Não Ser, por não poder não amar. Sua rendição ao ser é perfeição e não prisão. 
+
+Ao nos perguntar quem é o quem do querer, isto é, ao determinarmos o bem querer em um ângulo do bem querer, temos um recorte no querer. Uma angulação da liberdade. Ao angularmos a liberdade, não temos mais a pureza instaurada nesta angulação. Pois ao tornar a liberdade individual, isto é, ao estabelecer o quem do bem querer, o quem do puro amor, ao chamarmos o amor de um individuo, e não de apenas querer, temos uma liberdade criada. Não necessária, isto é, não ontologicamente feita em direção ao existir.
+
+E, portanto, não pura, não para o todo, mas para si. Isto é, temos portanto o quem do amor, ou o quem do não amor. Pois acaba a necessidade de direcionamento necessário ao existir, e se da vazão a um recorte da liberdade, corruptível. 
+
+Portanto, o amor é o próprio quem. Ao criarmos a identidade para o amor, ela seria reduzida a nada, pois seria infinitizada. Porém, ao colocarmos uma identidade na liberdade sem que retiremos sua identidade temos um existir não necessário, e que se sobressai mediante a pureza.
+
+Está liberdade tem um aspecto diagonal completo, pois o Espírito do Absoluto não pode não amar. Então se tem o homem. Uma determinação da liberdade. O que será estudado mais tarde, porém, aqui, serve como exemplificação da definição do Espírito. 
+
+O Espírito é a liberdade no contexto absoluto, e o corpo da liberdade é metafísico, os aspectos do ente livre, do ente que se realiza, se plenifica e se personaliza, é espiritual. Tem traços espirituais como autodomínio, auto conhecimento e auto presença. 
+
+O Espírito do Absoluto não é determinado, não repousa num "Quem", em em si, não tem fronteiras, repartições ou unicidade. Não é segundo a um ente, mas é segundo a si mesmo, é segundo a realidade total, a totalidade. É puro mediante tudo. É o amor que deixa Ser, que paira já no que é. É o fundo de toda a realidade, é a infinitude do horizonte da vida. O Amor é para a totalidade infinita e para a totalidade determinada. O amor é para o nada, ou seja, vivo em si mesmo, e para o que é angulado do nada. O bem querer não é de alguém, ou só para alguém, não é o para si de um ente, é o para si do nada. Isto é o para si em si mesmo, sem um objeto. É o próprio amor desimpedido de si mesmo, livre de um si, para se doar ao todo.
+
+É o amor que não se esbarra num quem no qual fica internizado. É a consciência que não se esbarra numa determinação, num ente contável, mas é a mas é a consciência que é bem querer translucido à qualquer determinação.
+
+Deus não está observando A, mas observa nada, no sentido de que o A se dissolveu e só sobrou o amor, não mais o observador. Isto é, se Deus é um ente que se auto domina, esta presente em si mesmo, e se conhece, este ente se dissolveu. Sobrou sua ação Espiritual, e essa ação espiritual reta agora o define, e este ente passa a se chamar amor.
+
+O amor não vê, é a visão. O amor não domina, é o domínio, o amor não tem presença, é a própria presença. Pelos olhos do amor se vê, pelo amor se auto domina, e pelo amor se está presente em si. 
+
+Portanto, os atributos da liberdade, são dissipados de um possuidor, são doados ao todo, de forma que, não se fazem o sujeito, mas se fazem a infinização da individualização que colapsou em forma, mas sobreviveu sendo tudo através da intenção. E por essa intenção de bem querer infinita, encontrou um nome para si: o amor.
+
+Os atributos, portanto, não há mais quem vê, quem domina e quem é presente, esses atributos se diluem e tornam-se substantivos. Tornam-se uma coisa só: o amor. 
+
+O amor observa, domina, e é presente de forma doada. Doa sua entrega ao todo, é transparente a todas as coisas determinadas devido a sua pureza, é instaurado no que é. É a pessoalidade pura, aquela que foi refinada ao ponto de transpassar qualquer coisa. 
+
+O amor doa sua observação, seu dominio, sua presença, pois são translucidas.
+
+
+
+
+
+
+
+investigar
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
