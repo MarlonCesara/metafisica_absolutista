@@ -3784,3 +3784,47 @@ Se você quiser impressionar eruditos e instigar debate:
 4. **Apresente a trindade ontológica** não como "prova da Trindade cristã", mas como estrutura da autocausalidade que *coincide notavelmente* com intuições teológicas de várias tradições.
 
 Sua obra tem densidade para gerar um programa de pesquisa filosófica sério. A originalidade está menos nas conclusões (que dialogam com tradições estabelecidas) e mais nos **argumentos** e **ferramentas conceituais** que você criou para chegar até elas.
+
+
+
+# A atempralidade e temporalidade do Espírito
+
+
+O Espírito é atemporal, no sentido da plenitude, está consumado em seu incio, meio e fim. Porém, por ser puro, é uno, ao passo que tem três aspectos de liberdade.
+
+O aspecto da fundamentação é consumado. Isto é, já é seu início e fim, já é sua infinitude temporal. Porém, toda personalização é acidentada, e não existe num ato sem movimento, o movimento, portanto, corta de certa forma a pureza instaurada na totalidade, a que se deu sem um tempo de ínicio. 
+
+Portanto, como a personalização poderia se dar em meio a plenitude já instaurada e consumada?
+
+Ao estabelecermos uma temporalidade não linear para o Espírito por seu teor de vividez, temos infinitos pontos que estão consumados, mas estão vivos. isto é, em qualquer tempo do Espírito, poderia acontecer a ação personalizadora. Temos um tempo consumado e um tempo perpendicular, devido a vividez desta consumação. O tempo acabado e finalizado é atualizado, pois a consumação não é necessariamente o fim.
+
+O Espírito não se consuma em função de sua vivacidade, temos então uma intenção rumo a plenitude consumada, pura calmaria, e calmaria, uma linha perpendicular, que é o Espírito personalizador, que atravessa e sobrescreve o tempo consumado. 
+
+Temos então que o fundamentador e personalizador estavam juntos desde sempre, porem a primeira ação do personalizador se instaurou no tempo do Espírito consumado. Temos um Deus que nasceu do próprio Deus, um Deus que surgiu no tempo de Deus. Isto é o personalizador nasceu do mar calmo da consumação, apesar de já estar envolto neste mar, mas ainda não ativo. Somente em contemplação. 
+
+Vamos citar o exemplo de uma rua que se estende infinita, porém, a infinitude não é morta, a vividez faz com que haja observadores em toda a sua extensão. Um desses observadores foi ativado, enquanto os outros permaneceram sem serem ativados. Desta forma, o personalizador sempre esteve com o fundamentador, mas em um momento da infinitude foi despertado para agir de forma ativa. E esse momento só pode ter sido concebido pela plenitude. 
+
+O tempo, portanto, para fora já foi vivido totalmente, mas para dentro está sendo vivenciado. E isto é possível, pois a infinitude é o bem querer. O bem querer tem sua infinitude temporal em função da não limitação do bem querer em fronteiras, não em razão de uma fronteira infinita.
+
+E o mesmo com o tempo, é infinito nao no sentido de ser um tempo infinito contabilizado, mas no sentido de sua extensão temporal se desprender do tempo. É no sentido de ser ilimitado e ainda poder existir.
+
+Portanto, o amor é consumado no sentido de sair da necessidade de temporalidade e ainda existir. É a consumação temporal do bem querer. O amor é pura atualidade. Temos, portanto, uma infinitude instaurada, e uma atualização constante. Nesta atualização o ato da criação acontece.
+
+E a infinitude instaurada se faz sabedoria. Força. Impetuosidade. Ao passo que a atualização se faz a possibilidade da personalização.
+O amor, portanto, é infinito a ponto de ser atemporal, está totalmente instaurado.
+
+Não há o que falta no amor, já está todo sobreposto. Ao passo que se atualiza no tempo presente. É um amor fundamental, e portanto, atualizado. Na atualização se pode dar a personalização.
+
+O conceito, portanto, de fundamento e atualidade, temos que o amor é o que está instaurado, ao passo que é o que se atualiza. Ele existe fundametado, plenificado e personalizado, ao passo que é atualidade. A atualidade está no fundamento, na plenitude e na personalização. O fundamento portanto, é atualizado. A plenitude desse fundamento é atualizada. E pode ser personalizada, pois a personalidade é atualizada.
+
+Ao chamarmos o fundamento de atemporal, é quase um erro, pois o atemporal é o nada. E ao chamarmos de tempo infinito, é um erro, pois o tempo é uma dimensão fisica, é uma determinação.
+O amor é infinito em sentimento, bem querer, e é pura atualidade.
+
+A percepção de tempo e não tempo, é a percepção da propria totalidade e não totalidade quando referenciadao pelo tempo infinitizado ou recortado. Então, instaurar o potencial fenomenico no Espírito é algo complexo, o tempo do Espírito, portanto, se difere do tempo fenomenico.
+
+É consumado não no sentido convencional da infinitude colapsada. E nem tem um espaço infinito. Mas é consumado no sentido que é um amor inviolável, já se dado como tal e imutável. É como é. E é atualizável pois é vivo, é o bem querer ativo.
+
+Isto se dá como uma ação no que é instaurado quando falamos em fundamentador e personalizador. Temos uma fundamentação que não diz respeito ao tempo, mas a qualidade do amor. E uma atualização que não disrespeito nem mesmo a um tempo fisico perpendicular, mas a vivacidade deste amor que estabelece um presente vivo, uma capacidade ininterrupta de ação, mesmo sendo sua fundamentação instaurada.
+
+
+
