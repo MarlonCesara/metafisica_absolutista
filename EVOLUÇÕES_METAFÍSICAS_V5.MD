@@ -3829,4 +3829,6 @@ Isto se dá como uma ação no que é instaurado quando falamos em fundamentador
 O amor é atemporal, ou infinito, não no sentido fenomenico, mas no sentido de que é todo ele do ínciio ao fim, é o que é, é o que se instaura sem começo e fim. E o que existe para alem do tempo, ou seja, é o começo meio e fim, isto é, é tudo.
 
 Definamos, portanto, que o tempo do Espírito é diferente do tempo fenomenico. É fundamento e atualizada, é tudo, ao passo que se atualiza sob essa totalidade que é.
+A infinitude do amor está alem do tempo.
 
+O tempo fenomenico não se atualiza conforme o Espírito, portanto o tempo do Espírito é diferente.
