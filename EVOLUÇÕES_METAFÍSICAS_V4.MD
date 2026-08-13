@@ -5101,13 +5101,21 @@ Os corpos do inferno, apesar do terror do sumiço interior, mentalizam o tempo t
 
 
 
+### **A ALMA QUE FUGIU DOS ANJOS**
 
+As almas, na roda infinita, entoando canções, hipnotizadas, capturadas pela atenção de vozes inefáveis, escapou. Algo a fez acordar do transe quase hipnótico daquelas cantigas. Algo a levou para fora, talvez uma inteligência anormal, então, se deu um comportamento para fora da normalidade daquele recinto. O individuo, com as pupilas brancas, como se não houvesse identidade, pôs se a perceber lentamente, a questionar sobre si mesmo. Ao tomar a noção de si, buscava sua identidade, lembrou-se do seu nome. E lentamente, despertou do transe, a merdida que saia daquela doce entonação, se dava conta lentamente de quem era. E ao se dar conta, o controle que havia sob teu corpo foi perdido. Imediatamente, em segundos, se viu sem si mesmo. E caiu num desespero que lhe cortava a consciência e pedia um imediato suicídio, mas não podia se suicidar, e nem mesmo dormir. Ali, era imortal. O desespero lhe fazia torcer seu corpo, como uma convulsão incessante, nem mesmo feridas profundas no corpo poderiam disfarçar essa perca. Porém, uma crença, em meio essa sabotagem, quase lhe estabilizara, que poderia ser o outro. Absorver a alma de alguém e tomar para si. Trazer o outro para sua escuridão afim de preenche-la. Então, quando via alguém perto de si, por um breve instante uma sintomatica era transferida do completo desespero e o retorcer do seu corpo procurando fugir de si mesmo, batendo a cabeça no chão incessantemente, para uma perseguição brutal e impaciente. Acreditava absorver o outro para si. Queria puxar o outro para sua escuridão, no sentido de abduzir, tomar a consciência do outro. Acreditava poder possuir o outro, ou atrai-lo para a sua completa escuridão afim de assumir sua identidade.
 
+A alma que conseguiu escapar do canto dos anjos, tinha uma perspicácia grande, era questionadora, sabia se esvair de um prazer que fazia esquecer-se de pensar. E esse era o mal que lhe afligia, pois era melhor que ficasse absorvida pelas cantigas.
 
+Portanto, o objetivo era absorver a auto consciência do outro, toma-la para si como se fosse si, como se fosse um involucro que obstruísse sua escuridão e o trouxesse luz. O corpo, julgam do se inocente, não sabe dizer quem foi lhe roubou o eu, quem lhe tirou de si mesmo, é só um corpo, aparentemente sem intenção, querendo seu eu, mas no seu antro há o individuo fechado a vida, não percebido por si mesmo, porem, em sua superfície impera o completo desespero. O corpo se projetando para saciar o absoluto escuro de seu interior. Um vazio insuportável, que desaba na constante e completa loucura que tenta a todo tempo proteger o individuo do profundo desespero.
 
+Portanto, as almas do inferno idealizavam a possessão ou a abdução, atraindo para sua escuridão ou tentando adentrar no corpo do outro de alguma forma, ou apenas se imaginando possuir o outro. Quando não havia um individuo para perseguir, e nem um anjo para lhe prestar um canto, seu corpo, sem comportamentos de defesa, dedicava-se ao auto flagelo de forma inútil, se retorcia, despedaçava sua carne, como se a dor externa pudesse amenizar a interna, a consciência adotava a alto sabotagem.
 
+A ilusão do obsessor é projetar as batidas do coração do outro, colocar seu eu no outro. Nesta ilusão a alma condenada se projetava. Se, tivesse alto controle, a alma do inferno sentiria uma inexplicável inveja das almas felizes, da própria sensação de bem estar que dá a entender o outro ser possuidor do que foi negado a ela, ou do que ela mesma negou e agora não tem mais consciência do individuo que negou a si, mas só consciência do vazio resultado da negação.
 
+Sua vontade seria lembrar de si, resgatar em alguma lembrança longínqua a memoria de si mesma. A inveja, não se aplacaria, portanto na vingança, mas na capacidade de se lembrar quem se é.
 
+A alma que escapou, portanto, busca um coração. E viver sem coração, é viver a mais severa das privações. Era a alma que buscava um coração.
 
 
 
