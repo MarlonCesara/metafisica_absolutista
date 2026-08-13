@@ -3867,6 +3867,11 @@ O determinador, num estado relativo, isto é, sem qualquer determinação, perma
 No coração da dualidade há um "X". Ou seja, o coração de uma das almas terá um "X" no encontro com outra. A alma é totalmente livre para ser outra, sair de si ou ser mais que si. No encontro entre duas almas, relacional, é possível a fusão, o encontro; a relativização do eu é possível. O eu está para o relativo, por isto é possível relativizado; se fosse um ente em separação de seu relativo de liberdade, então não seria relativizável. Ao unir homogeneamente de forma perfeita dois determinadores, se tem um terceiro determinador da união.
 
 **5. Os Anjos, os Desejos de Deus e o Relativo dos Anjos**
+
+Os anjos não tem alma, são puro Espírito, pois são feitos do material da idealização. São mentalizações do Espírito, projeções de seres. Fulgazes. E se fazem mal por ordem probabilística. Deus projeta a totalidade sem recortes, abrindo até mesmo espaço para a liberdade nessa projeção.
+
+
+
 Os anjos são projeções criadas pelo desejo no relativo. Desejos de Deus. E tentativas de previsões possivelmente errôneas sobre a moralidade dos anjos. Os anjos são projeções que não podem se materializar; portanto, sua liberdade é projetada e não constituída. São projeções puríssimas da individualização do absoluto. Projeções que obtêm teor de liberdade incutido na própria projeção, por isso, não constituído. Então possuem obediência a nível absoluto. São criados sob uma perspectiva de liberdade, e não sobre a liberdade constitutiva. Portanto, não podem desobedecer, possuem um conhecimento avançado, e não podem assumir formas materiais se não designados a seu intuito projetado. 
 
 > *Quando Jesus disse: "serão como os anjos do céu", refere-se que serão como uma projeção de uma vida, uma idealização de vidas. E isso pode se referir ao ato de consumação de ambos, como uma dualidade indiferenciada.*
