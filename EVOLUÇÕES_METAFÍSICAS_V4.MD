@@ -11787,3 +11787,5 @@ A transformação social do total entendimento do niilismo é grande. Grandes mu
 
 A obsessão por riquezas não acontece em pessoas eruditas ou inteligentes pois causar miséria e escassez não tem a ver com inteligência. A obsessão por riquezas vem de um conflito interior que o individuo tenta resolver quando nega a si seu próprio existir, o extremo acumulo de riqueza material é uma substituição insana e ilusória do que o individuo rejeita, a sua própria eternidade.
 
+
+O niilismo é um vicio, cuja tentação é irresistível, tão irresistível que sua resistência depende de sua cura.
