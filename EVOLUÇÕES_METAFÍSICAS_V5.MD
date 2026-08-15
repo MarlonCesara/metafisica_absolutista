@@ -3867,3 +3867,6 @@ A linha horizontal e a perpendicular, na pureza, se dissolvem. E formam uma úni
 
 O amor não depende de estar numa dimensão de tempo pra criar, ele é sua própria dimensão. A atualidade do amor já é futuro presente e passado. Ele é todo tempo em si. Já é seu início, meio e fim.
 
+Toda a extensão temporal do Espírito é viva. Não se pode chamar o espírito de temporal, pois está é uma grandeza fisica. Mas há o tempo da consciência. O tempo da consciência ganha uma dimensão viva, então não se fecha em si mesmo. Portanto não se completa, apesar de ser completo, é constantemente atualizado. Temos uma linha horizontal temporal, cruzada a uma linha vertical da atualização, ambas perdem as diferenças. E temos um tempo que já passou, mas ainda é vivo, ao passo que um tempo futuro que ainda é operante. O tempo está para a consciencia, e não a consciência para o tempo.
+
+O próprio tempo, portanto é consciente, não existe o tempo, existe uma consciência temporal completa, que se atualiza em si. Portanto o Espírito pode agir em qualquer tempo de si, pois se faz o próprio tempo para dar o start fenomenico. 
