@@ -3867,6 +3867,18 @@ A linha horizontal e a perpendicular, na pureza, se dissolvem. E formam uma úni
 
 O amor não depende de estar numa dimensão de tempo pra criar, ele é sua própria dimensão. A atualidade do amor já é futuro presente e passado. Ele é todo tempo em si. Já é seu início, meio e fim.
 
-Toda a extensão temporal do Espírito é viva. Não se pode chamar o espírito de temporal, pois está é uma grandeza fisica. Mas há o tempo da consciência. O tempo da consciência ganha uma dimensão viva, então não se fecha em si mesmo. Portanto não se completa, apesar de ser completo, é constantemente atualizado. Temos uma linha horizontal temporal, cruzada a uma linha vertical da atualização, ambas perdem as diferenças. E temos um tempo que já passou, mas ainda é vivo, ao passo que um tempo futuro que ainda é operante. O tempo está para a consciencia, e não a consciência para o tempo.
+Toda a extensão temporal do Espírito é viva. Não se pode chamar o espírito de temporal, pois está é uma grandeza física. Mas há o tempo da consciência. O tempo da consciência ganha uma dimensão viva, então não se fecha em si mesmo. Portanto não se completa, apesar de ser completo, é constantemente atualizado. Temos uma linha horizontal temporal, cruzada a uma linha vertical da atualização, ambas perdem as diferenças. E temos um tempo que já passou, mas ainda é vivo, ao passo que um tempo futuro que ainda é operante. O tempo está para a consciencia, e não a consciência para o tempo.
 
 O próprio tempo, portanto é consciente, não existe o tempo, existe uma consciência temporal completa, que se atualiza em si. Portanto o Espírito pode agir em qualquer tempo de si, pois se faz o próprio tempo para dar o start fenomenico. 
+
+# A distinção de pessoas da trindade
+
+Ao analisarmos o contexto temporal da forma que conhecemos, a consumação é uma pessoa direcionada a totalidade de si e findada. Ao passo que a constante atualização, que é uma linha diagonal, seria uma pessoa direcionada a um momento presente, ainda não terminada. Mais adiante, temos, portanto, ambas as pessoas voltadas para a completude, a um direcionamento necessário ao existir. Essa ação, da completude, exista em ambas, é a conexão de intenção de ambas, que unifica tanto a fundamentação quanto a constante atualização.
+
+Isto é, há uma pessoa que tudo enxergou, e uma pessoa que observa constantemente, e essas pessoas são uma só, pois o indiferenciado se dilui de repartições em si. Temos portanto, dois observadores com a mesma intenção que são na verdade o mesmo.
+
+O fundamentador não tem a liberdade voltada para a personalização. Já é todo de si. Ao passo que o atualizador, possui liberdade para a personalização. Isto é, possui uma ação diferente da fundamentação, possui frescor, renovação. 
+
+A atualização não funda, ao passo que o fundamento não atualiza. Mas ambos, sendo um só, compartilham as mesmas funções. E ambos se conectam pelo mesmo principio da plenitude. 
+
+
