@@ -1064,6 +1064,10 @@ Esta proposição, é desfalcada por não explicar a natureza do angulador e com
 
 O nada exige uma bidimensionalidade em seu antro. Por si mesmo não atinge a própria natureza, pois é lateral a uma perspectiva. É necessário achar seu outro lado, o angulador.
 
+Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. Porem, a partir do momento que há o visualizador, a simples presença dele já subentende uma visualização, pois a inatividade a nível de consciência é uma escolha.
+
+Porém essa escolha não é programada, isto é, dada como tal, mas é um existir ainda sem ação para-  o que seria sem a presença do angulador - o relativo, pois o nada não exigiu nenhum movimento. O nada se instaura como a focalização sem escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da possibilidade. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria relativo.
+
 ---
 
 
