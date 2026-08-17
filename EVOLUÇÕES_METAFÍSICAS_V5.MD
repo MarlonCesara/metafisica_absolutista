@@ -3881,4 +3881,6 @@ O fundamentador não tem a liberdade voltada para a personalização. Já é tod
 
 A atualização não funda, ao passo que o fundamento não atualiza. Mas ambos, sendo um só, compartilham as mesmas funções. E ambos se conectam pelo mesmo principio da plenitude. 
 
+O fundamentador é livre para fundar, ao passo que sua ação não é livre para a refrescancia, para a eterna atualidade. O atualizador é livre para a personalização. Ambos tem uma tendencia diferente, porém são um só.
+
 
