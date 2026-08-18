@@ -1081,9 +1081,17 @@ O nada é um ângulo de visão, sem ser visto o relativo não é nem mesmo o nad
 
 Imagine um observador que não olha nem a totalidade e nem olha o nada. 
 
-O nada é obtido pela presença do angulador, o nada some completamente sem o angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tantao quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
+O nada é obtido pela presença do angulador, o nada some completamente sem o angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
 
+Sem a visão do angulador o relativo não seria nada e nem o recorte, não haveria o autor do processo decisório. Simplesmente seria relativo. Pois só é totalidade segundo o observador. O fato de que o nada deveria necessariamente existir não faz com que se dispense o observador da totalidade, tal como dizer que uma montanha deveria estar a nossa frente, não dispensa o fato de que deveríamos enxerga-la ao olhar para ela.
 
+Portanto, a totalidade é um ângulo no relativo, e não simplesmente a totalidade. O ângulo da totalidade não explora totalmente o relativo, por isto é necessariamente um angulo. Ao tirarmos o ângulo da totalidade o relativo deveria mostrar a totalidade e seus recortes ao mesmo tempo, tudo saltaria. Portanto não seria algo e nem mesmo o nada, seria o relativo.
+
+O relativo é um erro lógico, é o mesmo que falar sobre algo, porém esse algo não indica nada e nem tem nome. Portanto, é o mesmo que não falar sobre nada. O relativo não indica uma realidade, é a expressão de que poderia haver uma realidade segundo uma escolha a nivel metafísico.
+
+Quando definimos o relativo sob a totalidade definimos um ângulo sob a totalidade, é uma definição do que, estamos falando sobre um olhar sob a totalidade, não mais sob a completa inexistência.
+
+O presença do angulador trás contornos, trás uma determinação para a totalidade sob o foco de um olhar. Já não é nada, é um horizonte de ação.
 
 revisado
 
