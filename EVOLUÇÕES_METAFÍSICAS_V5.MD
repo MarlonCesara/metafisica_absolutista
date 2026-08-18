@@ -3914,4 +3914,16 @@ A atualização não funda, ao passo que o fundamento não atualiza. Mas ambos, 
 
 O fundamentador é livre para fundar, ao passo que sua ação não é livre para a refrescancia, para a eterna atualidade. O atualizador é livre para a personalização. Ambos tem uma tendencia diferente, porém são um só.
 
+Se o tempo do Espírito tem uma infinitude, como o Espírito se recorta para encontrar um momento para criar? O fato é que toda a infinitude é refrescancia, duas coisas acontecem ao mesmo tempo, em toda a infinitude há presente. Portanto temos um paradoxo, onde o passado e o futuro é o tempo presente. 
+
+
+Ao elevarmos isso para uma escala fenomênica, teríamos uma totalidade temporal, angulada em sua totalidade. Porém, para criar deveria haver um momento para recorte. O próprio relativo não saberia em que tempo se recortar, pois não está vivo.
+
+Quando, no entanto, consideramos o Espírito ser a totalidade de si, e ao mesmo tempo seu recorte, isto é agir em todo tempo, mas ter um enfoque de ação num tempo determinado, estamos considerando que o Espírito é um relativo auto gerente de si. isto é, o Espírito é o unico que pode ser infinito e ao mesmo tempo não uma nulidade, pois não colapsa.
+
+Isto quer dizer que o Espírito é uma infinitude existente, e não uma anulação como o nada. Sendo uma infinitude existente, cada fragmentação de tempo dessa infinitude existente, existe. Isto é, é um infinito que se apresenta não como a nulidade da forma, mas em sua totalidade.
+
+Isto é, o infinito do Espírito pode ser visto em sua totalidade bem como seus recortes. AO visualizar o Espírito temos ...A, B, C, D... Não enxergamos portanto somente o recorte A, B, C, D, enxergamos a infinitude para a direta e para a esquerda. Portanto, cada momento na infinitude do Espírito não é passado ou futuro somente, é manifestação real. O tempo infinito não esta colapsado de forma que esteja perdido em uma homogeneidade de formas, mas está operante, visível.
+
+Portanto, ao ser o tempo fenomenico tal como o Espírito, teriamos o passado e o presente acontecendo agora, e não colapsados de forma inalcançável para a atualizão constante (refrescancia) do presente.
 
