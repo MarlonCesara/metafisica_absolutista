@@ -1068,6 +1068,25 @@ Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. P
 
 Porém essa escolha não é programada, isto é, dada como tal, mas é um existir ainda sem ação para-  o que seria sem a presença do angulador - o relativo, pois o nada não exigiu nenhum movimento. O nada se instaura como a focalização sem escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da possibilidade. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria relativo.
 
+
+
+
+
+
+Poderia surgir o seguinte argumento: se o relativo é infinito em si, porque necessita de um recorte em sua totalidade? A resposta é que o relativo não designa algo, é um conceito ilógico. O relativo não é nem a si mesmo, pois nem mesmo é nada. O nada é uma forma determinada e angulada. 
+
+Para um relativo absoluto necessariamente há determinação, o relativo é simplesmente a ausência de qualquer forma, até a forma de uma totalidade. O relativo têm dois ângulos possíveis, sua forma crua, isto é, sem recortes, e sua forma recortada. O relativo absoluto, portanto, não é um conceito que existe por si mesmo, o relativo desaparece pois não é forma de nada, nem de si mesmo, colapsa, e não se pode chama-lo nem mesmo de nada.
+
+O nada é um ângulo de visão, sem ser visto o relativo não é nem mesmo o nada.
+
+Imagine um observador que não olha nem a totalidade e nem olha o nada. 
+
+O nada é obtido pela presença do angulador, o nada some completamente sem o angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tantao quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
+
+
+
+revisado
+
 ---
 
 
