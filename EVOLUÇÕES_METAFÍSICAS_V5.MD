@@ -3977,6 +3977,12 @@ Caso contrário, as formas se colapsam. E se tornam relativo. Porem, com a liber
 
 Agora, se um observador olhasse para a infinitude da forma colapsada, não enxergaria nem a infinitude e nem a forma, enxergaria uma indefinição, o relativo. E esse observar, não seria uma existencia e nem uma completa inexistencia ao ponto de não ser pensada, seria o nada. Seria a totalidade da forma colapsada. 
 
+Portanto, o relativo, não é totalidade, e nem mesmo o recorte, pois para a totalidade não se apresenta, e para o recorte não tem sentido definidor, não tem liberdade em seu nivel.
+
+
+
+Ao introduzirmos a liberdade, a auto causalidade, o observador, o angulador, temos, portanto, a visão do indefinido, que é nada. Pois a totalidade, antes, que não se apresentava, se apresenta agora como vazio ontológico.
+
 O observador somente poderia enxergar a forma se escolhesse, elegesse uma das formas na infinitude da forma colapsada. Ao tentar enxergar todas elas ao mesmo tempo, enxergaria o relativo, isto é, não existiria nada.
 
 Mas o observador não existiria até então, no entanto, ao considerarmos o relativo absoluto, temos o relativo colapsado com propriedades como a auto causalidade, pois o absoluto, ainda que seja necessariamente uma indefinição, não há razão para que seja a não ser em si mesmo.
