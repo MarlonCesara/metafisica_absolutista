@@ -3968,6 +3968,13 @@ Isto é, não há forma nenhuma. Há uma indefinição que chamaremos de relativ
 
 O relativo não é a apresentação de todas as formas, e uma forma apresentada em individual. Pois a apresentação de todas as formas existiria que fosse possível todas elas se encaixarem no mesmo lugar. O relativo, portanto, é uma espera por definição. Não se apresenta como uma totalidade, e nem se apresenta como forma.
 
+A forma, quando infinitizada, desaparece. Quando não há sentido, ou seja, escolha para a forma, quando a totalidade das formas está para um palco, nenhuma forma aparece.
+
+Nao há razão para uma forma ser predominante, então a forma colapsa. Portanto, quando pensamos numa existência determinada, para antes do universo, precisamos da liberdade de optação entre as formas.
+
+Caso contrário, as formas se colapsam. E se tornam relativo. Porem, com a liberdade, temos a visão sob o relativo, que é em si, uma determinação, não no relativo, mas na inatividade do observador.
+
+
 Agora, se um observador olhasse para a infinitude da forma colapsada, não enxergaria nem a infinitude e nem a forma, enxergaria uma indefinição, o relativo. E esse observar, não seria uma existencia e nem uma completa inexistencia ao ponto de não ser pensada, seria o nada. Seria a totalidade da forma colapsada. 
 
 O observador somente poderia enxergar a forma se escolhesse, elegesse uma das formas na infinitude da forma colapsada. Ao tentar enxergar todas elas ao mesmo tempo, enxergaria o relativo, isto é, não existiria nada.
