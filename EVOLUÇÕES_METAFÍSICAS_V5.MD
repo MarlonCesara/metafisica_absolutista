@@ -3942,5 +3942,20 @@ Isto quer dizer que o Espírito é uma infinitude existente, e não uma anulaç�
 
 Isto é, o infinito do Espírito pode ser visto em sua totalidade bem como seus recortes. AO visualizar o Espírito temos ...A, B, C, D... Não enxergamos portanto somente o recorte A, B, C, D, enxergamos a infinitude para a direta e para a esquerda. Portanto, cada momento na infinitude do Espírito não é passado ou futuro somente, é manifestação real. O tempo infinito não esta colapsado de forma que esteja perdido em uma homogeneidade de formas, mas está operante, visível.
 
-Portanto, ao ser o tempo fenomenico tal como o Espírito, teriamos o passado e o presente acontecendo agora, e não colapsados de forma inalcançável para a atualizão constante (refrescancia) do presente.
+Portanto, ao ser o tempo fenomenico tal como o Espírito, teríamos o passado e o presente acontecendo agora, e não colapsados de forma inalcançável para a atualizão constante (refrescancia) do presente.
+
+
+
+
+
+# As pessoas da trindade
+
+
+As pessoas se difereciam pelo nivel de liberdade. O nivel de liberdade se faz tendencia pessoal. A fundamento é livre para ser, e é em plenitude. E o personalizar é livre para personalizar, e o faz em plenitude. E a plenitude é livre para a retidão e o faz sendo uma interconexão entre o fundamentador e o personalizador.
+
+
+
+
+
+
 
