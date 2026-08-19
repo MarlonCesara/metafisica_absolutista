@@ -3945,6 +3945,9 @@ Isto é, o infinito do Espírito pode ser visto em sua totalidade bem como seus 
 Portanto, ao ser o tempo fenomenico tal como o Espírito, teríamos o passado e o presente acontecendo agora, e não colapsados de forma inalcançável para a atualizão constante (refrescancia) do presente.
 
 
+O atemporal que é o colapso da forma temporal, não funciona no Espírito. Portanto, a consumação do Espírito, é presente e existente em toda sua extensão. Portanto pode ser resgatada no momento presente de atualidade em cada ponto de sua expressão. Ao passo que o atemporal, ou o nada, é a consumação também do tempo. Isto é, o Espírito não está consumado no sentido de aniquilado, mas está consumado no sentido de totalmente apresentado.
+
+
 
 
 
@@ -3952,6 +3955,77 @@ Portanto, ao ser o tempo fenomenico tal como o Espírito, teríamos o passado e 
 
 
 As pessoas se difereciam pelo nivel de liberdade. O nivel de liberdade se faz tendencia pessoal. A fundamento é livre para ser, e é em plenitude. E o personalizar é livre para personalizar, e o faz em plenitude. E a plenitude é livre para a retidão e o faz sendo uma interconexão entre o fundamentador e o personalizador.
+
+
+
+
+# Sintese
+
+
+Vamos pensar o que existiria antes de existir qualquer coisa em nível de determinação, isto é, vamos pensarm formas. Imagine que exista a determinação, então vamos imaginar uma forma para absoluto, forma A,B, C....são infinitas formas possíveis. Todas elas tentam se sobrepor ao mesmo tempo, mas nenhuma pode ser maior que a outra e se fixar, pois todas são formas, grandes ou pequenas. Então, nenhuma consegue ficar se todas ficam ao mesmo tempo, há portanto um colapso da forma, a forma sucumbe numa indefinição fundamaental.
+
+Isto é, não há forma nenhuma. Há uma indefinição que chamaremos de relativo. O relativo não é uma forma, mas são todas as formas que tentaram se apresentar ao mesmo tempo e colapsaram. Nenhuma forma se apresentou, ao passo que todas se apresentaram. Portanto, temos o nada. O relativo, é a totalidade de determinações colapsada em uma indefinição.
+
+O relativo não é a apresentação de todas as formas, e uma forma apresentada em individual. Pois a apresentação de todas as formas existiria que fosse possível todas elas se encaixarem no mesmo lugar. O relativo, portanto, é uma espera por definição. Não se apresenta como uma totalidade, e nem se apresenta como forma.
+
+Agora, se um observador olhasse para a infinitude da forma colapsada, não enxergaria nem a infinitude e nem a forma, enxergaria uma indefinição, o relativo. E esse observar, não seria uma existencia e nem uma completa inexistencia ao ponto de não ser pensada, seria o nada. Seria a totalidade da forma colapsada. 
+
+O observador somente poderia enxergar a forma se escolhesse, elegesse uma das formas na infinitude da forma colapsada. Ao tentar enxergar todas elas ao mesmo tempo, enxergaria o relativo, isto é, não existiria nada.
+
+Mas o observador não existiria até então, no entanto, ao considerarmos o relativo absoluto, temos o relativo colapsado com propriedades como a auto causalidade, pois o absoluto, ainda que seja necessariamente uma indefinição, não há razão para que seja a não ser em si mesmo.
+
+Temos, portanto, uma indefinição viva, e essa vitalidade é soberana na forma colapsada, de forma que só haja a vitalidade enquanto a forma está colapsada.
+
+Essa vitalidade, se apresenta como infinitude, é espiritual, é relacional. Não tem forma, mas é o sentido no absoluto. O Espírito não colapsa pois não tem forma. Sua essência e existencia são fundidas, assim não precisa competir pela aparição com outras formas.
+
+Com todas as formas colapsadas, e sendo a indefinição absoluta, o que sobrou foi só o querer por viver, a intenção de existir, o sentido de existir mediante a forma colapsada. A auto causalidade confere o sentido.
+
+E o sentido pode se apresentar tal como é. A propriedade do sentido é a pureza, sua forma se dilui em seu fundamento, então vamos chama-lo de Ser, pois sua forma, ou seja, seu nome, é seu próprio existir.
+
+Por ser puro, pode se apresentar infinito, pois sua forma não colapsa. E, desta forma, temporalmente pode ser também infinito, pois se apresenta por todo. 
+
+Se considerado consumado, sendo o passado o presente e futuro. Podemos achar uma vitalidade nessa consumação. Pois ao se apresentar por inteiro, o passado, o presente e o futuro não colapsaram num momento atemporal. Temos o tempo todo manifesto de forma presente.
+
+Temos uma consciencia viva.
+
+E essa consciencia tem tres direcionamentos, tres formas de liberdade, a liberdade para quer o que é, isto é, para existir e afirmar-se, essa é a liberdade fundamentadora. A liberdade para ser totalmente a si mesma, de forma que, entre duas escolhas sempre define a que está retilinia com o existir, essa é a liberdade da plenitude. E a liberdade personalizadora, entre duas escolhas iguais, escolhe a que melhor representa a face do amor. A liberdade da plenitude está tanto na liberdade na fundamentação quanto na da personalização, pois ambas coagem para o existir.
+
+
+
+O Espírito, sendo a liberdade soberana na indefinição, já definine o nada pela sua própria inatividade. A propria não escolha, no nível metafísico, a própria estatização da infinitude da forma, é uma escolha quando o Espírito é presente. Pois o Espírito tem o domínio da indefinição, é o Espírito da indefinição, que não está ligado a ela, pois a indefinição nada é, mas que tem domínio, conhecimento e presença. O Espírito já provoca a totalidade, somente de existir e ficar sem ação. A não escolha, em nível metafísico, é uma escolha.
+
+O Espírito, portanto, primordialmente se dá pelo seu descansar. E a ação surte no tempo do Espírito. A liberdade exige auto dominio, auto presença, e auto conhecimento, pois essas tres propriedades são necessarias para ação, até mesmo para o nada, pois a inação exige dominio também.
+
+O Espírito, portanto, ao recortar o nada, já que o provoca naturalmente, tem a forma. E faz a forma no tempo da plenitude e segundo o personalizador ao mesmo tempo. 
+
+O direcionamento do Espírito é necessariamente para a existencia, não por obrigação, mas por perfeição, pois apesar de existir necessario, essa existencia tem o sentido somente em si mesma. Então não é uma existencia mecancica, é uma existencia retilinia, perfeita em direção a vida, incorruptivel.
+
+O Espírito, portanto, faz o mundo, e faz o homem. 
+
+O homem por sua vez é uma individualização, um deus determinado, um deus que não se chama Ser, mas tem seu próprio nome. O homem é um deus com forma. E seu nível de liberdade não tem necessariedade, pode, portanto, não estar a favor da plenitude. Portanto, o homem pode ser corruptível.
+
+
+
+
+
+# Sintese do Existencialismo
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Portanto, se o relativo fosse observado por alguém, seria o nada. Não o infinito, e nem o recorte. A infinitização da forma resulta em nada. Se ninguém observasse, seria o relativo.
 
 
 
