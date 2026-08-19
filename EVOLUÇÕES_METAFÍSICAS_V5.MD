@@ -1356,9 +1356,26 @@ Assim, a distinção entre essas três dimensões não seria uma simples divisã
 
 
 
-
+## A infinitização do relativo 
 
 O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
+
+A infinitização da possibilidade, ou mais exatamente da forma, ou da determinação se dá como nada. Pois a existência da forma depende de sua essência. Não pode haver uma forma infinita. Pois então, a angulação dessa infinitização é o nada. Ao enxergar o relativo, temos, a visão da infinitização da forma, do colapso da forma numa existência nula. 
+
+O nada é uma existência que não sustenta-se em forma, isto é, não se visualiza mais A, B, C, mas na infinitização da forma, visualiza-se a nulidade ou o recorte, e não a forma infinitizada de forma exposta, mas se visualiza a infinitude da forma colapsada. 
+
+Portanto, através da angulação da totalidade, não se vê o conteúdo do nada, que é a forma infinitizada, mas se vê só o colapso. Ao passo que para uma realidade indiferenciada, se veria a extensão infinita. 
+
+
+Isto quer dizer que o relativo por si só não teria uma emergência, nem de sua totalidade nem de um recorte. Pois, não pode ser infinitizado para ser singular, é dependente de uma angulação. Isto é, podemos afirmar que a totalidade da forma não tem sua emergência manifesta. Depende de um referencial. Isto é, o relativo não pode se apresentar como ...A, B, C...mas se apresenta com somente A, B, C ou se apresenta como seu colapso. Não pode se apresentar com seu devir. 
+
+Não pode ser manifesto em sua totalidade, pois necessita de escolha em sua interioridade. A derruba a forma B, que derruba a forma C, portanto, a determinação, pedindo exclusividade, dá lugar para coisa alguma. A luta pela permanência do recorte, dá lugar a recorte nenhum.
+
+Isto é, a partir do momento que se determina, se faz um palco onde pode atuar vários atores, não havendo alguém para decidir qual atuará, o palco colapsa e torna-se a anulação. Portanto, o nada é o olhar sob essa anulação.
+
+
+
+
 
 Está é a maneira mais clara de referenciar um nada existente, isto é, que é algo por ser a anulação da totalidade. E não a própria ausência de si mesmo. Este nada, pode ser pensado. Pois guarda em si, sua contraparte, é potencial sem que isso seja uma referência ilógica. 
 
