@@ -4004,8 +4004,9 @@ O Espírito, portanto, faz o mundo, e faz o homem.
 
 O homem por sua vez é uma individualização, um deus determinado, um deus que não se chama Ser, mas tem seu próprio nome. O homem é um deus com forma. E seu nível de liberdade não tem necessariedade, pode, portanto, não estar a favor da plenitude. Portanto, o homem pode ser corruptível.
 
+O homem, sendo uma individualização da liberdade pode estar alinhado ou não com a plenitude.
 
-
+Ao tentar se auto anular, o homem se coloca num estado de negação de si, e da própria liberdade. Onde intenta escolher não escolher. Isto quer dizer um processo de auto anulação, onde o homem, através da capacidade para o relativo, incide um apagão sobre si. Uma auto anulação. E nesta incidência podemos usar a representatividade do fogo, o Espírito provocando sequelas em si, de forma a tentar se auto anular.
 
 
 # Sintese do Existencialismo
