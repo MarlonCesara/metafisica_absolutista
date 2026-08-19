@@ -3979,7 +3979,7 @@ Agora, se um observador olhasse para a infinitude da forma colapsada, não enxer
 
 Portanto, o relativo, não é totalidade, e nem mesmo o recorte, pois para a totalidade não se apresenta, e para o recorte não tem sentido definidor, não tem liberdade em seu nivel.
 
-
+O nada, portanto, não é o infinito da determinação, pois o infinito da determinação leva ao relativo. O nada, portanto é a visão sob o relativo, o Espírito enxerga, no relativo o nada. É visão de uma tentativa de infinitude colapsada. A visão do colapso da totalidade de determinações.
 
 Ao introduzirmos a liberdade, a auto causalidade, o observador, o angulador, temos, portanto, a visão do indefinido, que é nada. Pois a totalidade, antes, que não se apresentava, se apresenta agora como vazio ontológico.
 
