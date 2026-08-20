@@ -3988,6 +3988,8 @@ O nada, portanto, não é o infinito da determinação, pois o infinito da deter
 
 O olhar sob a indefinição olha algo, portanto, imediatamente gera a visão sob a totalidade colapsada, gera a existência do colapso, define o relativo sendo o colapso da forma. Pois, sendo relativo, nem mesmo é o colapso. O olhar, sob o relativo, portanto, não o infinitiza, mas o confere liberdade.
 
+O olhar é lançado na indefinição buscando sua infinitude, porém encontra uma ontologia colapsada, anulada. Este é o nada. O nada é o olhar sob a indefinição e não a própria indefinição. Portanto, o nada é dependente do angulador. 
+
 
 
 Ao infinitizarmos a forma ela colapsa e não resulta em nada, resulta em uma indefinição. Ao haver um observador sob essa indefinição, não haveria ainda a forma, haveria o nada. Não uma infinitude, mas um vazio potencial. Um vazio ontológico, que pode ser referenciado, pois é uma indefinição. O nada, portanto, não seria ainda a infintização da forma, pois essa não se realiza, a forma colapsa, se indefine mediante a infinitização. 
