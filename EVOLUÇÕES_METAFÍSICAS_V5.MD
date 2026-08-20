@@ -3995,6 +3995,15 @@ Portanto, temos a indefinição auto dominante, auto presente e auto conhecedora
 
 A indefinição, portanto, tem liberdade em si mesma. E isto quer dizer liberdade de ser como tal, e de recortar a indefinição. Portanto, há a intencionalidade, a liberdade e a onipotência. Chamaremos de Espírito tais propriedades absolutas que tem ação na indefinição. Porém, não compõem a indefinição de forma a se misturar com seu conteúdo. O olhar sob a definição é o olhar sob nenhuma coisa. O espírito impera soberano sem nenhuma outra infinitude para se miscigenar, tem somente a liberdade criadora.
 
+Um contraponto seria: se é necessario que seja o relativo, então não há motivo para a liberdade no nível metafísico, porém, ao considerarmos que o sentido da obrigatoriedade está no próprio absoluto, não temos uma realidade mecanica, mas temos uma realidade de reta intenção. Portanto, a obrigatoriedade é perfeição, no sentido de incorruptibilidade, no sentido de uma intencionlidade estretreitamente direcionada ao existir.
+
+O sentido do absoluto se realiza em si mesmo, a causa de sua indefinição é a si mesmo. Ao perguntarmos, porque o absoluto deve ser uma indefinição, temos a seguinte tentativa de explicação: porque a natureza da forma se colapsa e se torna nada. Mas, qual seria o sentido do colapso para absoluto? O que causaria o colapso? A resposta seria: a própria forma.
+
+E de onde vem a necessidade de uma forma para absoluto? A indefinição não é uma forma.
+
+O relativo não é uma forma, não é nem mesmo o nada, pois o nada é a definição do olhar sob a totalidade. É o olhar que gera a forma para relativo, que chamamos de nada. Que é uma infinitização não realizada. Cuja captação, é o nada sob um olhar.
+
+Portanto, para que haja o nada, é necessário um definidor, e essa definição só pode estar no absoluto. Porém, para que haja relativo, é necessário ao menos que o relativo tenha uma referencia, e é uma espera pela definição, não é nem mesmo o nada.
 
 
 
