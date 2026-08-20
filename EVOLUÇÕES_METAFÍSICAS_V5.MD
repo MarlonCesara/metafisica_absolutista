@@ -3989,6 +3989,14 @@ Porém, a indefinição ganha um contorno ao ser visualizada, ao olharmos para a
 
 O olhar, portanto, define o colapso da forma como algo.
 
+Quando, portanto, consideramos a indefinição absoluta, a mesma ganha novos contornos. A auto causalidade, o fato de que a indefinição necessita ter um sentido em si, isto é, ser auto causada, ainda que necessariamente indefinição, porém absoluta, temos que, a indefinição não tem ordem, natureza, comando ou ação anterior a si que a trace contornos ou defina como deva ser. Portanto, ainda que seja definição, tem os sentido de ser em si mesma. O absoluto isola a indefinição em si, de forma que a indefinição responda por seu próprio estatuto. A necessariedade não a dispensa por realizar em si mesma seu próprio sentido, pois é absoluta, isto é, é auto causada. 
+
+Portanto, temos a indefinição auto dominante, auto presente e auto conhecedora. Pois é por si mesma sua própria mantenedora, regula-se a si mesma. Portanto, a liberdade conhecedora da indefinição, está para o nada. 
+
+A indefinição, portanto, tem liberdade em si mesma. E isto quer dizer liberdade de ser como tal, e de recortar a indefinição. Portanto, há a intencionalidade, a liberdade e a onipotência. Chamaremos de Espírito tais propriedades absolutas que tem ação na indefinição. Porém, não compõem a indefinição de forma a se misturar com seu conteúdo. O olhar sob a definição é o olhar sob nenhuma coisa. O espírito impera soberano sem nenhuma outra infinitude para se miscigenar, tem somente a liberdade criadora.
+
+
+
 
 Ao introduzirmos a liberdade, a auto causalidade, o observador, o angulador, temos, portanto, a visão do indefinido, que é nada. Pois a totalidade, antes, que não se apresentava, se apresenta agora como vazio ontológico.
 
