@@ -4016,7 +4016,7 @@ Porém, ao se lançar o olhar sob a indefinição, a indefinição se define pel
 
 O nada, portanto, tem um sentido em si mesmo, ao passo que, ao mesmo tempo dispensa a si mesmo, dando o palco do absoluto somente para o sentido. Isto é, temos, portanto o nada, como liberdade do sentido criador, e não como um produto que existe por si mesmo, ou que existiria por ser necessário, pois nem mesmo sendo necessário existiria.
 
-
+Ao unirmos a liberdade, isto é, a auto causalidade com a indefinição, temos o nada. Que é o olhar sob a indefinição. Temos, portanto, a forma da indefinição estabelecida sob o olhar sob a mesma. Uma forma que é na verdade liberdade metafísica. 
 
 
 Ao introduzirmos a liberdade, a auto causalidade, o observador, o angulador, temos, portanto, a visão do indefinido, que é nada. Pois a totalidade, antes, que não se apresentava, se apresenta agora como vazio ontológico.
@@ -4040,6 +4040,7 @@ Se considerado consumado, sendo o passado o presente e futuro. Podemos achar uma
 Temos uma consciencia viva.
 
 E essa consciencia tem tres direcionamentos, tres formas de liberdade, a liberdade para quer o que é, isto é, para existir e afirmar-se, essa é a liberdade fundamentadora. A liberdade para ser totalmente a si mesma, de forma que, entre duas escolhas sempre define a que está retilinia com o existir, essa é a liberdade da plenitude. E a liberdade personalizadora, entre duas escolhas iguais, escolhe a que melhor representa a face do amor. A liberdade da plenitude está tanto na liberdade na fundamentação quanto na da personalização, pois ambas coagem para o existir.
+
 
 
 
