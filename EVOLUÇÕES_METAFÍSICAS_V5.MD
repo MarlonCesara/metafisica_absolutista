@@ -3974,6 +3974,11 @@ Nao há razão para uma forma ser predominante, então a forma colapsa. Portanto
 
 Caso contrário, as formas se colapsam. E se tornam relativo. Porem, com a liberdade, temos a visão sob o relativo, que é em si, uma determinação, não no relativo, mas na inatividade do observador.
 
+No nível absoluto, o sentido de ser está no próprio conteúdo absoluto. Ao colocarmos o sentido sob o relativo, temos o auto domínio, a auto presença e auto conhecimento sob a indefinição, temos portanto, o olhar sob a indefinição, que é o nada. O nada é uma determinação da indefinição estabelecida pelo ponto de vista do observador e que não está no próprio nada.
+
+Não se diz que o nada é a infinitude da forma, mas que é a visão da forma colapsada que é igual a zero para o observador, mas dentro da própria indefinição seria uma indefinição.
+
+
 
 Agora, se um observador olhasse para a infinitude da forma colapsada, não enxergaria nem a infinitude e nem a forma, enxergaria uma indefinição, o relativo. E esse observar, não seria uma existencia e nem uma completa inexistencia ao ponto de não ser pensada, seria o nada. Seria a totalidade da forma colapsada. 
 
