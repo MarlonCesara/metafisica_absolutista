@@ -4005,6 +4005,13 @@ O relativo não é uma forma, não é nem mesmo o nada, pois o nada é a defini�
 
 Portanto, para que haja o nada, é necessário um definidor, e essa definição só pode estar no absoluto. Porém, para que haja relativo, é necessário ao menos que o relativo tenha uma referencia, e é uma espera pela definição, não é nem mesmo o nada.
 
+Não há como a indefinição ter um sentido em si mesma, pois não é a totalidade infinita, e nem a forma, simplesmente não estamos falando nem mesmo do nada, pois a indefinição não se sustenta de nenhuma forma.
+
+Porém, ao se lançar o olhar sob a indefinição, a indefinição se define pelo determinador, e não por si mesma, a definição torna-se determinada vazio, pelo observador, mas em si mesma não carrega determinação. Portanto, o nada, tem seu nível de escolha exclusivamente na inoperância do determinador, e não no próprio nada. A indefinição não se escolhe, porém,  o nada se faz nada em função de um nível de liberdade metafísica.
+
+O nada, portanto, tem um sentido em si mesmo, ao passo que, ao mesmo tempo dispensa a si mesmo, dando o palco do absoluto somente para o sentido. Isto é, temos, portanto o nada, como liberdade do sentido criador, e não como um produto que existe por si mesmo, ou que existiria por ser necessário, pois nem mesmo sendo necessário existiria.
+
+
 
 
 Ao introduzirmos a liberdade, a auto causalidade, o observador, o angulador, temos, portanto, a visão do indefinido, que é nada. Pois a totalidade, antes, que não se apresentava, se apresenta agora como vazio ontológico.
