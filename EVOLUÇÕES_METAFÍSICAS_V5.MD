@@ -4018,6 +4018,8 @@ Portanto, para que haja o nada, é necessário um definidor, e essa definição 
 
 Não há como a indefinição ter um sentido em si mesma, pois não é a totalidade infinita, e nem a forma, simplesmente não estamos falando nem mesmo do nada, pois a indefinição não se sustenta de nenhuma forma.
 
+O olhar sob a indefinição gera um ângulo no relativo, e esse ângulo é o nada. O olhar sob o relativo, envolve tentar capturar toda a sua extensão, porém só a há ausencia, e essa ausencia, a indefinição, a infinitude não realizada que ocasionou o colapso da forma, é a nulidade, o nada.
+
 Porém, ao se lançar o olhar sob a indefinição, a indefinição se define pelo determinador, e não por si mesma, a definição torna-se determinada vazio, pelo observador, mas em si mesma não carrega determinação. Portanto, o nada, tem seu nível de escolha exclusivamente na inoperância do determinador, e não no próprio nada. A indefinição não se escolhe, porém,  o nada se faz nada em função de um nível de liberdade metafísica.
 
 O nada, portanto, tem um sentido em si mesmo, ao passo que, ao mesmo tempo dispensa a si mesmo, dando o palco do absoluto somente para o sentido. Isto é, temos, portanto o nada, como liberdade do sentido criador, e não como um produto que existe por si mesmo, ou que existiria por ser necessário, pois nem mesmo sendo necessário existiria.
