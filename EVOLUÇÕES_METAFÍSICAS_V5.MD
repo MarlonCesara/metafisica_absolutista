@@ -3986,6 +3986,10 @@ Portanto, o relativo, não é totalidade, e nem mesmo o recorte, pois para a tot
 
 O nada, portanto, não é o infinito da determinação, pois o infinito da determinação leva ao relativo. O nada, portanto é a visão sob o relativo, o Espírito enxerga, no relativo o nada. É visão de uma tentativa de infinitude colapsada. A visão do colapso da totalidade de determinações.
 
+O olhar sob a indefinição olha algo, portanto, imediatamente gera a visão sob a totalidade colapsada, gera a existência do colapso, define o relativo sendo o colapso da forma. Pois, sendo relativo, nem mesmo é o colapso. O olhar, sob o relativo, portanto, não o infinitiza, mas o confere liberdade.
+
+
+
 Ao infinitizarmos a forma ela colapsa e não resulta em nada, resulta em uma indefinição. Ao haver um observador sob essa indefinição, não haveria ainda a forma, haveria o nada. Não uma infinitude, mas um vazio potencial. Um vazio ontológico, que pode ser referenciado, pois é uma indefinição. O nada, portanto, não seria ainda a infintização da forma, pois essa não se realiza, a forma colapsa, se indefine mediante a infinitização. 
 
 O relativo, não é, portanto, uma definição, não é a infinitude. Isto é, não é a forma em sua infinitude, pois a indefinição não atinge a infinitude, não está determinada infinita. Não, há portanto a infinitude ou a forma determinada. Há simplesmente uma indefinição.
