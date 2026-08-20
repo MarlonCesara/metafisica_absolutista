@@ -4035,6 +4035,12 @@ O nada, portanto, tem um sentido em si mesmo, ao passo que, ao mesmo tempo dispe
 
 Ao unirmos a liberdade, isto é, a auto causalidade com a indefinição, temos o nada. Que é o olhar sob a indefinição. Temos, portanto, a forma da indefinição estabelecida sob o olhar sob a mesma. Uma forma que é na verdade liberdade metafísica. 
 
+Quando adicionamos liberdade no nível do relativo, temos a necessidade de escolha, a necessidade de não agir ou agir, e até o não agir é uma escolha. O não agir é uma observação, uma presença, um auto controle. Temos a intenção da nao ação como um recorte que transforma o relativo na captura de todas as formas, na captura da indefinição que é o nada. 
+
+Ao reunir todas as formas, isto é, ao angular a infinitude colapsada, temos coisa alguma, o nada, se faz, puramente, referencia do auto causal, da liberdade metafísica do indefinido, que se abandona e deixa somente soberano o Espírito dessa liberdade.
+
+O Espírito, por sua vez, foi livre para Existir, foi livre para escolher este existir, entre mais níveis de escolha metafísica, isto é, escolhe o que o realiza. 
+
 
 Ao introduzirmos a liberdade, a auto causalidade, o observador, o angulador, temos, portanto, a visão do indefinido, que é nada. Pois a totalidade, antes, que não se apresentava, se apresenta agora como vazio ontológico.
 
