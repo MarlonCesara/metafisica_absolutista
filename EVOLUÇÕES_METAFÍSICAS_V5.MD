@@ -4012,6 +4012,8 @@ O sentido do absoluto se realiza em si mesmo, a causa de sua indefinição é a 
 
 A primeira causa, além der pura, deve ser auto causada. Sua substancia pura é auto causal. Então se agrega uma pureza auto causal para relativo, que não se mistura ao colapso da forma, mas que impera sob o colapso através da liberdade. Isto é, a indefinição ganha o Espírito, e o Espírito atribui liberdade, transforma em liberdade ação o que era indefinição. E seu estatuto confere o nada, que é o observar da infinitude colapsada. A infinitude que não se vê, mas que é liberdade de ação.
 
+O nada, portanto, é a liberdade do Espírito, é o campo que se define por sua inoperância.  E que se modifica em sua ação.
+
 
 O nada, portanto, é o olhar sob todas as formas ao mesmo tempo, é o olhar sem decisão. O angulador consegue reunir todas as formas e formular um produto disso, a ausência de escolha do angulador, é o próprio nada em estabilidade. O nada se angula pela própria presença do determinador, sua própria escolha de inação dá ao estatudo do relativo uma referencia.
 
