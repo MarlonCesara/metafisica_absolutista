@@ -3998,7 +3998,7 @@ O relativo, não é, portanto, uma definição, não é a infinitude. Isto é, n
 
 Porém, a indefinição ganha um contorno ao ser visualizada, ao olharmos para a indefinição, temos um campo vazio, que se define por ser observado, e não por si mesmo. Define-se simplesmente pela presença do observador. O campo por si mesmo é relativo, mas segundo o olhar é o nada, a forma em indefinição que se apresenta como coisa alguma. A definição, que é o nada se dá quando o olhar percorre a indefinição. 
 
-O olhar, portanto, define o colapso da forma como algo.
+O olhar, portanto, define o colapso da forma como algo. O relativo não é a infinitude da forma, mas é o que se extrai da indefinição pelo olhar, é uma infinitude vazia, é a ausência que adquire vida, e se abandona em prol dessa vida ser soberana. O olhar para o relativo
 
 Quando, portanto, consideramos a indefinição absoluta, a mesma ganha novos contornos. A auto causalidade, o fato de que a indefinição necessita ter um sentido em si, isto é, ser auto causada, ainda que necessariamente indefinição, porém absoluta, temos que, a indefinição não tem ordem, natureza, comando ou ação anterior a si que a trace contornos ou defina como deva ser. Portanto, ainda que seja definição, tem os sentido de ser em si mesma. O absoluto isola a indefinição em si, de forma que a indefinição responda por seu próprio estatuto. A necessariedade não a dispensa por realizar em si mesma seu próprio sentido, pois é absoluta, isto é, é auto causada. 
 
@@ -4009,6 +4009,15 @@ A indefinição, portanto, tem liberdade em si mesma. E isto quer dizer liberdad
 Um contraponto seria: se é necessario que seja o relativo, então não há motivo para a liberdade no nível metafísico, porém, ao considerarmos que o sentido da obrigatoriedade está no próprio absoluto, não temos uma realidade mecanica, mas temos uma realidade de reta intenção. Portanto, a obrigatoriedade é perfeição, no sentido de incorruptibilidade, no sentido de uma intencionlidade estretreitamente direcionada ao existir.
 
 O sentido do absoluto se realiza em si mesmo, a causa de sua indefinição é a si mesmo. Ao perguntarmos, porque o absoluto deve ser uma indefinição, temos a seguinte tentativa de explicação: porque a natureza da forma se colapsa e se torna nada. Mas, qual seria o sentido do colapso para absoluto? O que causaria o colapso? A resposta seria: a própria forma.
+
+A primeira causa, além der pura, deve ser auto causada. Sua substancia pura é auto causal. Então se agrega uma pureza auto causal para relativo, que não se mistura ao colapso da forma, mas que impera sob o colapso através da liberdade. Isto é, a indefinição ganha o Espírito, e o Espírito atribui liberdade, transforma em liberdade ação o que era indefinição. E seu estatuto confere o nada, que é o observar da infinitude colapsada. A infinitude que não se vê, mas que é liberdade de ação.
+
+
+O nada, portanto, é o olhar sob todas as formas ao mesmo tempo, é o olhar sem decisão. O angulador consegue reunir todas as formas e formular um produto disso, a ausência de escolha do angulador, é o próprio nada em estabilidade. O nada se angula pela própria presença do determinador, sua própria escolha de inação dá ao estatudo do relativo uma referencia.
+
+O angulador diz: Enxerguei todas as formas ao mesmpo tempo, isto é, angulei sobre o relativo que antes não era todas as formas e nem uma delas em primazia. Tentei capturar o indefinido, e disso obtive a liberdade. Não visualizei a infinitude, mas posso agir com base em minha própria infinitude.
+
+O relativo não é o nada pois não pode ser uma totalidade, e nem mesmo um recorte, quem dá totalidade é o angulador ao nada, pela capacidade de ver, de até mesmo decidir sua estabilidade. A decisão da estabilidade é a junção de todas as formas que resultam na nulidade, na soberania do Espírito Absoluto.
 
 E de onde vem a necessidade de uma forma para absoluto? A indefinição não é uma forma.
 
