@@ -326,8 +326,11 @@ Ao retrocedermos a forma de forma a desconfigura-la, temos, portanto, um estado 
 
 8- Para a infintização de uma variedade de formas para absolutos, não se tem todas manifestas, e nem a infinidade de formas à mostra no palco do absoluto, temos apenas a indefinição.
 
+9- Qualquer estado eleito para absoluto é determinado. Pois, ao definirmos uma realidade fixa para absoluto, necessitamos explicar o motivo de estar sendo eleita tal realidade, em vista que deve haver uma razão para que absoluto seja A, e não B ou infinitas formas possíveis. 
 
-Portanto, ao negar a forma, não obtemos o nada, obtemos o relativo, não um ente, uma realidade, mas uma pendencia de referencia. Uma realidade que depende do observador para determinar-se. Que necessita de um angulo de apreensão.
+10- O motivo de uma forma ser eleita para absoluto só pode estar nele mesmo, ainda que essa forma seja necessaria, o motivo da necessidade não está em nenhum outro lugar se não no próprio absoluto. 
+
+Portanto, ao negar a forma, não obtemos o nada, obtemos o relativo, não um ente, uma realidade, mas uma pendencia de referencia. Uma realidade que depende do observador para determinar-se. Que necessita de um angulo de apreensão. O nada, portanto, para absoluto é uma determinação.
 
 
 
