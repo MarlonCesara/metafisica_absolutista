@@ -11795,4 +11795,4 @@ A intenção do niilista se confunde com a morte, por ser petrificada, irrevogá
 O niilista procura uma vitima para seu estado, na indignação interior e mediante a passividade externa, a inoperância do outro diante sua decisão, o niilista vitimiza o outro pelo uso pesado de sua liberdade. Uma vitima surge, um culpado existem em sua visão.
 
 
-O niilismo assintomático se caracteriza com o individuo apenas mantendo sua postura sem aparentemente manifestar reações de auto sabotagem, porém, há reações como irritação, afastamento social, ou outras reações que não se classificam por uma ação de auto sabotagem.
+O niilismo assintomático se caracteriza com o individuo apenas mantendo sua postura sem aparentemente manifestar reações de auto sabotagem, porém, há reações como irritação, afastamento social, ou outras reações que não se classificam por uma ação de auto sabotagem. O individuo tenta, por vezes, manter a normalidade, dizendo a si mesmo que é apenas uma posição e que pode ter sua vida normal, respeitando as regras e as leis sociais, conservando a boa moral, porém, expressa de diversas formas sua infelicidade, até mesmo através de um péssimo humor constante.
