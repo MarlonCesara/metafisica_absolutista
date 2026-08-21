@@ -306,6 +306,33 @@ A lógica do indiferenciado: A lógica do indiferenciado dispensa a determinaç�
 
 reformar abaixo
 
+## Lógica assimétrica - Os princípios da relativização
+
+Ao retrocedermos a forma de forma a desconfigura-la, temos, portanto, um estado de pendencia que chamaremos de relativo. Quando infinitizamos uma forma ou misturamos varias formas em uma só realidade, não se vê a forma, se vê algo que não é a forma, e nem sua infinitização.
+
+1- No nível absoluto, para a competição de infinitas formas, temos o relativo. Isto é, para a infintização da forma em numero de formas.
+
+2- No nível absoluto, ao infinitizarmos uma determinada forma, temos a relativização desta forma. Pois suas propriedades infinitizadas, colapsam a forma, isto é, para qualquer forma infinitizada, temos o colapso do ente. Pois a forma torna-se o devir, isto é, o que não existe. Para a infintização de uma propriedade da forma, temos uma infinidade que dissocia a forma de seu contesto como forma, pois já não e forma e sim devir de si mesma. A forma, portanto é dependente de um referencial recortado, dela. A forma, portanto, torna-se pendente.
+
+3-Ao considerarmos uma dualidade entre existir e não existir para absoluto, temos relativo, uma realidade que equivale a uma pendencia de configuração. 
+
+4- Se imaginarmos uma realidade entre potencial e totalidade, temos o relativo. Não temos o potencial e nem a totalidade ontológica, temos ambas as coisas. Portanto, o nada não pode ser uma realidade potencial, pois o potencial é existência, e o nada não o seria a existência, pois o potencial é propriedade daquilo que existe.
+
+5- Ao imaginarmos a impossibilidade como aceitação do de uma realidade que existe e que não existe, temos uma contravenção lógica estabelecida. Temos, desta forma a impossibilidade como possível, o relativo da possibilidade, algo sem definição.
+
+6- Ao imaginarmos o nada como definição para absoluto, temos um estado de determinação para absoluto.
+
+7- Ao imaginarmos o nada como negação do ente, temos o ente anulado, pois para negar algo este algo deve existir ou precisa ter o potencial de existir. Portanto, havendo o ente e sua negação para absoluto, concomitantemente, não demos o nada, mas relativo.
+
+8- Para a infintização de uma variedade de formas para absolutos, não se tem todas manifestas, e nem a infinidade de formas à mostra no palco do absoluto, temos apenas a indefinição.
+
+
+Portanto, ao negar a forma, não obtemos o nada, obtemos o relativo, não um ente, uma realidade, mas uma pendencia de referencia. Uma realidade que depende do observador para determinar-se. Que necessita de um angulo de apreensão.
+
+
+
+
+
 
 
 # A ARQUITETURA colapsantes (assimétricos) DA RAZÃO
