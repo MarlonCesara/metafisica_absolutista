@@ -1,6 +1,6 @@
 # EVOLUÇÕES METAFÍSICAS
 
-# A ARQUITETURA SIMÉTRICA DA RAZÃO
+# A LÓGICA CONTINGENTE
 
 ## O Contexto Histórico e a Necessidade de um *Organon*
 
@@ -110,6 +110,16 @@ Esta estrutura revela uma **simetria lógica profunda** e completa, integrando *
 
 
 
+# A LÓGICA FUNDAMENTAL
+
+A lógica que opera no indierenciado
+
+
+
+
+
+
+aaaaa
 
 
 
@@ -119,39 +129,28 @@ Esta estrutura revela uma **simetria lógica profunda** e completa, integrando *
 
 
 
-
-fff
-
-
-
-
-
-# DOS PRINCÍPIOS SIMÉTRICOS AOS PRINCÍPIOS CAUSAIS
+# DOS PRINCÍPIOS CONTINGENTES AOS PRINCÍPIOS CAUSAIS
 
 ## Introdução: A Transição da Lógica para a Metafísica
 
-Estabelecemos a arquitetura completa e dual da razão humana: a sua **face simétrica** (que rege o mundo dos entes definidos, protegendo a sua identidade e persistência no tempo) e a sua **face assimétrica** (que aponta para o fundamento indeterminado de onde tudo emerge, acolhendo o paradoxo e a unidade original). Esta estrutura, em sua totalidade, não constitui um mero exercício formal de pensamento. Ela revela o próprio esqueleto das leis que regem a realidade.
-
-O próximo passo inevitável é perguntar: **que implicações ontológicas e causais decorrem necessariamente desta dupla estrutura?** Se a razão organiza-se segundo uma simetria estrita para os entes ($A = A$, $\neg(A \land \neg A)$, $A \lor \neg A$, $\neg(A = B)$) e uma assimetria aberta para o fundamento (Indiferenciação, Inclusão do Paradoxo, Assimetria Fundacional e Manifestação Não Disruptiva), e se há uma correspondência necessária entre a estrutura do *logos* (pensamento) e a estrutura do ser (realidade), então os princípios lógicos devem refletir-se em **princípios metafísicos e causais que regem a totalidade do real**.
-
-Esta proposição realiza precisamente esta transição: dos princípios *lógicos* aos princípios *causais*. Demonstra-se aqui que a dupla dimensão da razão exige uma dupla fundamentação para tudo o que existe e acontece:
-
-1. **A Causalidade Simétrica:** Derivada da lógica clássica e do Princípio da Não-Disformidade, que rege as relações de causa e efeito entre os entes no espaço e no tempo. É a causalidade que explica o devir, a mudança fenomênica e garante a manutenção da existência e da identidade das coisas no mundo manifesto.
-2. **A Causalidade Assimétrica:** Derivada da lógica do indeterminado, que explica a relação contínua e unilateral entre o Fundamento (o que antecede a definição) e a Manifestação (o mundo determinado). É a causalidade que não opera por choque ou transformação mecânica, mas por emanação, sustentação e atualização de potencialidades, onde a causa maior não se esgota nem se limita no efeito que produz.
+1. **A Causalidade contingente:** Derivada da lógica clássica e do Princípio da Não-Disformidade, que rege as relações de causa e efeito entre os entes no espaço e no tempo. É a causalidade que explica o devir, a mudança fenomênica e garante a manutenção da existência e da identidade das coisas no mundo manifesto.
+2. **A Causalidade fundamental:** Explica a relação contínua e unilateral entre o Fundamento (o que antecede a definição) consigo mesmo. É a causalidade que não opera por choque ou transformação mecânica, mas por emanação, sustentação e atualização do incausado, onde a causa maior não se esgota nem se limita no efeito que produz.
 
 Apenas ao compreender a articulação entre estas duas formas de causalidade — a força que move as coisas entre si e a força que sustenta as coisas a partir do fundo infinito — torna-se possível edificar uma metafísica capaz de explicar não apenas o funcionamento mecânico do universo, mas a sua própria razão de ser.
 
 
-A causalidade contingente
+
+
 
 
 A causalidade fundamental
 
-1- Para absoluto não a causa anterior, posterior ou natureza pela qual deva existir.
-2- Ainda que necessariamente A, absoluto é A por retidão, não por necessariedade, pois
+1- Para absoluto não a causa anterior, posterior ou natureza pela qual deva existir. O absoluto é autor e atuante em sua própria natureza ainda que essa seja necessária. Ainda que necessariamente A, absoluto é A por retidão, não por necessariedade.
 
 
+2- Não há uma causa anterior a própria causa, o aubsoluto não porta uma dualidade, a própria causa encontra a si mesma na causa absoluta, sendo um fenomeno auto causal.
 
+3- 
 
 
 ##### ERRO
@@ -162,7 +161,7 @@ O indeterminado é o Ser, e o indeterminado não se reorganiza como potencia par
 
 
 
-
+## A CAUSALIDADE CONTINGENTE
 
 ## A Dupla Fundamentação da Realidade
 
@@ -4054,11 +4053,11 @@ A lógica estabelecida por Aristóteles no *Organon* — com seus princípios de
 
 No entanto, quando o pensamento se volta para aquilo que **antecede a definição** — para o estado anterior à fixação de "A" ou "não-A", para aquilo que ainda não se determinou como coisa alguma —, a lógica aristotélica mostra-se insuficiente. Ela opera por exclusão, exige identidades fixas e não pode conceber, sem contradizer-se, um estado onde as distinções ainda não surgiram.
 
-Faz-se necessária, portanto, uma **lógica assimétrica**: uma estrutura que não nega a lógica clássica, mas a complementa, permitindo pensar aquilo que está para além (ou aquém) da determinação. Esta nova lógica não opera por oposições binárias, mas por relações de fundamento, inclusão e suspensão da individuação.
+Faz-se necessária, portanto, uma **lógica fundamental**: uma estrutura que não nega a lógica clássica, mas a complementa, permitindo pensar aquilo que está para além (ou aquém) da determinação. Esta nova lógica não opera por oposições binárias, mas por relações de fundamento, inclusão e suspensão da individuação.
 
 ## A Sistematização dos Princípios da Lógica Assimétrica
 
-Assim como Aristóteles estabeleceu três princípios fundamentais para a lógica clássica, a lógica assimétrica estrutura-se em **quatro princípios** que descrevem o comportamento daquilo que ainda não se determinou em "A" ou "não-A".
+Assim como Aristóteles estabeleceu três princípios fundamentais para a lógica clássica, a lógica fundamental estrutura-se em **quatro princípios** que descrevem o comportamento daquilo que ainda não se determinou em "A" ou "não-A".
 
 ### Princípio da Indiferenciação Fundamental
 > *"Antes de toda distinção, as coisas não estão separadas."*
@@ -4068,7 +4067,7 @@ Assim como Aristóteles estabeleceu três princípios fundamentais para a lógic
 Este princípio estabelece que, no nível mais básico — anterior a toda definição e individuação —, não há multiplicidade nem oposição. Os símbolos "x" e "y" não designam coisas diferentes, mas apontam para um **estado uno** onde toda diferenciação ainda não ocorreu.
 
 **O que este princípio afirma:**
-* Antes de haver "A" e "B", há um fundo comum do qual ambos emergem.
+* Antes de haver "A" e "B", há um fundo comum que os causa.
 * As distinções que vemos no mundo não são originárias, mas surgem posteriormente.
 * A multiplicidade pressupõe uma unidade anterior que a torna possível.
 
@@ -4252,7 +4251,7 @@ Ao retrocedermos a forma de forma a desconfigura-la, temos, portanto, um estado 
 
 10- O motivo de uma forma ser eleita para absoluto só pode estar nele mesmo, ainda que essa forma seja necessária, o motivo da necessidade não está em nenhum outro lugar se não no próprio absoluto. 
 
-11- A diferença entre a existência e o existir, o Ser e o Sou. É a mesma, a existência é dotada de identidade. Toda vez que se fala em existencia se pergunta o que existe. Portanto, exige forma, ao passo que o Ser não tem forma. Isto indica que, a existencia, para absoluto, seria uma determinação. Portanto, temos a ontologia, sem determinação que chamamos de Ser para absoluto, e carecemos de definir esta ontologia, como ela pode ser pura? Como é indiferenciada? Ao elegermos a existência, temos a determinação para absoluto, porem porque está determinação determinada existencia, isto é, qual seria sua determinação e qual o sentido de ser existencia e não outra coisa?
+11- A diferença entre a existência e o existir, o Ser e o Sou. É a mesma, a existência é dotada de identidade. Toda vez que se fala em existência se pergunta o que existe. Portanto, exige forma, ao passo que o Ser não tem forma. Isto indica que, a existência, para absoluto, seria uma determinação. Portanto, temos a ontologia, sem determinação que chamamos de Ser para absoluto, e carecemos de definir esta ontologia, como ela pode ser pura? Como é indiferenciada? Ao elegermos a existência, temos a determinação para absoluto, porem porque está determinação determinada existência, isto é, qual seria sua determinação e qual o sentido de ser existência e não outra coisa? Portanto, quando elegemos a existência, isto é um termo que designa a alguma existência que precede de definição, qual existia? E ao elegermos tal existência devemos supor que essa opção exclui todas as outras, portanto é necessário um sentido para que essa existência seja A e não B. Sem um sentido para A, e não B, a existência se relativiza, sendo todas as formas que se excluem mutuamente. 
 
 12- Ao elegermos o nada, teremos que decidir o que é o nada, e o que o determina. Se não haver nem mesmo o nada sem o sentido para o absoluto que o determine, cairemos no relativo. Uma realidade só possível mediante ao sentido.
 
@@ -4260,10 +4259,9 @@ Portanto, ao negar a forma, não obtemos o nada, a existência, obtemos o relati
 
 O relativo é uma realidade que não se determina por si mesma, que carece de um sentido para sua determinação.
 
+Qualquer forma que tentemos eleger uma possibilidade, uma substancia originaria caímos no relativo. No entanto ao considerar o absoluto para relativo, temos, portanto, um sentido para relativo. Uma definição. O nada, desta forma, é a liberdade de ação. Criou do nada, significa que criou da própria liberdade, e não da existência anulada. Pois a existência anulada é uma determinação.
 
-
-
-
+A indeterminação não se sustenta através da infinitização da forma. A forma depende da determinação.
 
 
 # A ARQUITETURA colapsantes (assimétricos) DA RAZÃO
