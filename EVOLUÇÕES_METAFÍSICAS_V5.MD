@@ -4272,6 +4272,7 @@ No nível absoluto, o sentido de ser está no próprio conteúdo absoluto. Ao co
 
 Não se diz que o nada é a infinitude da forma, mas que é a visão da forma colapsada que é igual a zero para o observador, mas dentro da própria indefinição seria uma indefinição.
 
+o Ser não cria do nada, cria da sua inoperância, desperta a sua inoperância. O nada, é, portanto a inoperância do Espírito. É a visão dada pela inoperância. 
 
 
 Agora, se um observador olhasse para a infinitude da forma colapsada, não enxergaria nem a infinitude e nem a forma, enxergaria uma indefinição, o relativo. E esse observar, não seria uma existencia e nem uma completa inexistencia ao ponto de não ser pensada, seria o nada. Seria a totalidade da forma colapsada. 
