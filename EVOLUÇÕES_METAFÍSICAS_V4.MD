@@ -11793,3 +11793,6 @@ O niilismo é um vicio, cuja tentação é irresistível, tão irresistível que
 A intenção do niilista se confunde com a morte, por ser petrificada, irrevogável. Não se move porque não quer, ao passo que é porque não tem vida. Ambas as condições se fazem a mesma quando a vontade é tão dura que se confunde com a falta de movimento. A decisão infinita pela nulidade, é a mesma que a inoperância do Espírito.
 
 O niilista procura uma vitima para seu estado, na indignação interior e mediante a passividade externa, a inoperância do outro diante sua decisão, o niilista vitimiza o outro pelo uso pesado de sua liberdade. Uma vitima surge, um culpado existem em sua visão.
+
+
+O niilismo assintomático se caracteriza com o individuo apenas mantendo sua postura sem aparentemente manifestar reações de auto sabotagem, porém, há reações como irritação, afastamento social, ou outras reações que não se classificam por uma ação de auto sabotagem.
