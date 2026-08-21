@@ -11791,3 +11791,5 @@ A obsessão por riquezas não acontece em pessoas eruditas ou inteligentes pois 
 O niilismo é um vicio, cuja tentação é irresistível, tão irresistível que sua resistência depende de sua cura.
 
 A intenção do niilista se confunde com a morte, por ser petrificada, irrevogável. Não se move porque não quer, ao passo que é porque não tem vida. Ambas as condições se fazem a mesma quando a vontade é tão dura que se confunde com a falta de movimento. A decisão infinita pela nulidade, é a mesma que a inoperância do Espírito.
+
+O niilista procura uma vitima para seu estado, na indignação interior e mediante a passividade externa, a inoperância do outro diante sua decisão, o niilista vitimiza o outro pelo uso pesado de sua liberdade. Uma vitima surge, um culpado existem em sua visão.
