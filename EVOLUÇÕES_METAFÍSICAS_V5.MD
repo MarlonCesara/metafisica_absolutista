@@ -328,9 +328,15 @@ Ao retrocedermos a forma de forma a desconfigura-la, temos, portanto, um estado 
 
 9- Qualquer estado eleito para absoluto é determinado. Pois, ao definirmos uma realidade fixa para absoluto, necessitamos explicar o motivo de estar sendo eleita tal realidade, em vista que deve haver uma razão para que absoluto seja A, e não B ou infinitas formas possíveis. 
 
-10- O motivo de uma forma ser eleita para absoluto só pode estar nele mesmo, ainda que essa forma seja necessaria, o motivo da necessidade não está em nenhum outro lugar se não no próprio absoluto. 
+10- O motivo de uma forma ser eleita para absoluto só pode estar nele mesmo, ainda que essa forma seja necessária, o motivo da necessidade não está em nenhum outro lugar se não no próprio absoluto. 
 
-Portanto, ao negar a forma, não obtemos o nada, obtemos o relativo, não um ente, uma realidade, mas uma pendencia de referencia. Uma realidade que depende do observador para determinar-se. Que necessita de um angulo de apreensão. O nada, portanto, para absoluto é uma determinação.
+11- A diferença entre a existência e o existir, o Ser e o Sou. É a mesma, a existência é dotada de identidade. Toda vez que se fala em existencia se pergunta o que existe. Portanto, exige forma, ao passo que o Ser não tem forma. Isto indica que, a existencia, para absoluto, seria uma determinação. Portanto, temos a ontologia, sem determinação que chamamos de Ser para absoluto, e carecemos de definir esta ontologia, como ela pode ser pura? Como é indiferenciada? Ao elegermos a existência, temos a determinação para absoluto, porem porque está determinação determinada existencia, isto é, qual seria sua determinação e qual o sentido de ser existencia e não outra coisa?
+
+12- Ao elegermos o nada, teremos que decidir o que é o nada, e o que o determina. Se não haver nem mesmo o nada sem o sentido para o absoluto que o determine, cairemos no relativo. Uma realidade só possível mediante ao sentido.
+
+Portanto, ao negar a forma, não obtemos o nada, a existência, obtemos o relativo, não um ente, uma realidade, mas uma pendencia de referencia. Uma realidade que depende do observador para determinar-se. Que necessita de um ângulo de apreensão. O nada, portanto, para absoluto é uma determinação.
+
+O relativo é uma realidade que não se determina por si mesma, que carece de um sentido para sua determinação.
 
 
 
