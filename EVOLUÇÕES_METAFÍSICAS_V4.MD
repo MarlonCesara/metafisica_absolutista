@@ -11796,3 +11796,6 @@ O niilista procura uma vitima para seu estado, na indignação interior e median
 
 
 O niilismo assintomático se caracteriza com o individuo apenas mantendo sua postura sem aparentemente manifestar reações de auto sabotagem, porém, há reações como irritação, afastamento social, ou outras reações que não se classificam por uma ação de auto sabotagem. O individuo tenta, por vezes, manter a normalidade, dizendo a si mesmo que é apenas uma posição e que pode ter sua vida normal, respeitando as regras e as leis sociais, conservando a boa moral, porém, expressa de diversas formas sua infelicidade, até mesmo através de um péssimo humor constante.
+
+
+O niilismo é uma tentativa de fazer o corpo aceitar o inaceitavel, produz um grande estado de insatisfação e infelicidade, frustração, o individuo passa a desenvolver a tentação, o corpo começa a manifestar escapismo para a realidade conscienciente da postura contraria a vida.
