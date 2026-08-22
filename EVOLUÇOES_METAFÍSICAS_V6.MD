@@ -3854,7 +3854,31 @@ As pessoas se difereciam pelo nivel de liberdade. O nivel de liberdade se faz te
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+################################
+
 # Sintese
+
+Através do principio da causalidade, chegamos a conclusão de uma realidade incausada, pura, indiferenciada, pois ao supormos qualquer determinação para o absoluto, a determinação colapsa em relativo. Até mesmo ao supormos o nada, a investigação aponta que o nada não sub existe sem um referencial, sem o inefável. O nada por si mesmo não oferece sentido lógico. Porém, para inferir sobre a substancia incausada, temos que, portanto, deliminar o que é o contingente, o que seria o causado. Ao reduzirmos o causado, seja este uma determinação como nada ou existência, esclarecemos o cenário para inferirmos sob o inefável.
+
+Precisamos esgotar o contingente, tentando, de certa forma torna-lo inefável, e observando como o contigente se comporta quando damos a ele o palco absoluto, que só é ocupado pelo indiferenciado.
 
 
 Vamos pensar o que existiria antes de existir qualquer coisa em nível de determinação, isto é, vamos pensarm formas. Imagine que exista a determinação, então vamos imaginar uma forma para absoluto, forma A,B, C....são infinitas formas possíveis. Todas elas tentam se sobrepor ao mesmo tempo, mas nenhuma pode ser maior que a outra e se fixar, pois todas são formas, grandes ou pequenas. Então, nenhuma consegue ficar se todas ficam ao mesmo tempo, há portanto um colapso da forma, a forma sucumbe numa indefinição fundamaental.
@@ -3931,7 +3955,7 @@ Porém, ao se lançar o olhar sob a indefinição, a indefinição se define pel
 
 O inoperar do Espírito define o relativo. Refere, a o que o Espírito não opera? Por isso, a liberdade do absoluto define o campo onde o Espírito exerce sua liberdade.
 
-A 
+
 
 
 O nada, portanto, tem um sentido em si mesmo, ao passo que, ao mesmo tempo dispensa a si mesmo, dando o palco do absoluto somente para o sentido. Isto é, temos, portanto o nada, como liberdade do sentido criador, e não como um produto que existe por si mesmo, ou que existiria por ser necessário, pois nem mesmo sendo necessário existiria.
