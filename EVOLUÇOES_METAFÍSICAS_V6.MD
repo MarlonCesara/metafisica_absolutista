@@ -3929,6 +3929,11 @@ O olhar sob a indefinição gera um ângulo no relativo, e esse ângulo é o nad
 
 Porém, ao se lançar o olhar sob a indefinição, a indefinição se define pelo determinador, e não por si mesma, a definição torna-se determinada vazio, pelo observador, mas em si mesma não carrega determinação. Portanto, o nada, tem seu nível de escolha exclusivamente na inoperância do determinador, e não no próprio nada. A indefinição não se escolhe, porém,  o nada se faz nada em função de um nível de liberdade metafísica.
 
+O inoperar do Espírito define o relativo. Refere, a o que o Espírito não opera? Por isso, a liberdade do absoluto define o campo onde o Espírito exerce sua liberdade.
+
+A 
+
+
 O nada, portanto, tem um sentido em si mesmo, ao passo que, ao mesmo tempo dispensa a si mesmo, dando o palco do absoluto somente para o sentido. Isto é, temos, portanto o nada, como liberdade do sentido criador, e não como um produto que existe por si mesmo, ou que existiria por ser necessário, pois nem mesmo sendo necessário existiria.
 
 Ao unirmos a liberdade, isto é, a auto causalidade com a indefinição, temos o nada. Que é o olhar sob a indefinição. Temos, portanto, a forma da indefinição estabelecida sob o olhar sob a mesma. Uma forma que é na verdade liberdade metafísica. 
@@ -4261,7 +4266,11 @@ O relativo é uma realidade que não se determina por si mesma, que carece de um
 
 Qualquer forma que tentemos eleger uma possibilidade, uma substancia originaria caímos no relativo. No entanto ao considerar o absoluto para relativo, temos, portanto, um sentido para relativo. Uma definição. O nada, desta forma, é a liberdade de ação. Criou do nada, significa que criou da própria liberdade, e não da existência anulada. Pois a existência anulada é uma determinação.
 
+A existencia do nada, é uma determinação. Ao se eleger qualquer determinação para o incausado.
+
 A indeterminação não se sustenta através da infinitização da forma. A forma depende da determinação.
+
+O existir esta em tudo, no intuito do existente. Que é existir.
 
 
 # A ARQUITETURA colapsantes (assimétricos) DA RAZÃO
