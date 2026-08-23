@@ -306,36 +306,6 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 ---
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ### A NECESSIDADE DE UM FUNDAMENTO ABSOLUTO
 
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
@@ -391,9 +361,11 @@ dddddddd
 
 # AS TENTATIVAS DE DEFINIR E CATEGORIZAR O NADA
 
-Para investigar o Nada de forma rigorosa e exaurir suas possibilidades ontológicas e metafísicas, é imperativo categorizar as abordagens e tentativas conceituais que a razão impõe sobre esta substância bruta. A seguir, delineamos a progressão destas categorias.
+Para investigar o Nada de forma rigorosa e exaurir suas possibilidades ontológicas e metafísicas, é imperativo categorizar as abordagens e tentativas conceituais que a razão impõe sobre esta substância bruta. A seguir, delineamos a progressão destas categorias. 
 
-## TENTATIVA: O Nada como Signo Mental e a Imanência da Representação
+Já é possível adiantar que o final dessa investigação delineará o nada como uma tentativa falha de conceber um Ser falso, pois, ao tentarmos capturar o nada como uma realidade pura, sempre caímos em um estado de indefinição. Criar do nada não subentende uma categoria nova a ser estudada, opositora ao Ser, mas subentende a condição da liberdade para o Ser no campo Absoluto. A pergunta fundamental, portanto, não será “o que é o nada?”, mas “como é possível criar sem transformar uma realidade ou substância prévia chamada nada?”. Dessa forma, ao refutarmos todas as tentativas de contextualizar o nada como realidade, chegaremos a um entendimento mais preciso da liberdade metafísica e de como o Ser opera sobre essa liberdade.
+
+## O Nada como Signo Mental e a Imanência da Representação
 
 O conceito de "nada" designa uma categoria inteligível, ao passo que o mero silêncio — o não pronunciar-se sobre coisa alguma — abstém-se de referenciar tanto a realidade quanto a irrealidade. Todavia, a omissão deliberada acerca de um objeto não equivale à sua elucidação. Desta forma, a insistência de certas vertentes filosóficas em afirmar que a ausência de discurso ou a suspensão do pensamento é a melhor forma de representar o nada constitui, em última análise, uma renúncia à produção de conteúdo ontológico autêntico. Essa postura frequentemente mascara uma tentativa de esquivar-se da complexidade inerente ao tema e das dificuldades lógico-formais de se inferir sobre ele.
 
@@ -403,7 +375,7 @@ Uma vez estabelecido o estatuto ontológico do nada, torna-se viável a inferên
 
 Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição do truísmo místico de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
 
-## TENTATIVA: O Nada como Existência Relacional
+## O Nada como Existência Relacional
 
 Ao concebermos o nada como algo representável, fazendo-o como uma existência potencialmente manifestável — isto é, como uma nulidade ou neutralização do existente —, estamos operando ainda dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial. Nesse sentido, o **nada** poderia ser interpretado como existência, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. Assim, o signo mental do Nada deixa de ser um mero índice de vacuidade e passa a operar como o horizonte primordial de onde a pura atualidade do Ser irrompe.
 
@@ -488,7 +460,7 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 2. **O Ser não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente.
 3. **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente de Deus (como no neoplatonismo), mas é chamado à existência por ato livre da vontade divina, como manifestação gratuita da plenitude divina. *"Digno és, Senhor nosso e Deus nosso, de receber a glória, a honra e o poder, porque todas as coisas tu criaste, sim, por causa da tua vontade vieram a existir e foram criadas."* (Apocalipse 4:11)
 
-## TENTATIVA: O Nada Existente, a Aporia do Impossível e a Indiferenciação do Todo
+## O Nada Existente, a Aporia do Impossível e a Indiferenciação do Todo
 
 Como última tentativa teoricamente viável, cumpre postular a própria impossibilidade radical: afirmaremos o **Nada Existente** como uma fratura ou abertura do impossível no seio do Ser. Ao admitirmos o impossível no horizonte metafísico do Absoluto, tornamo-nos capazes de suspender o colapso imediato do nada. Sob esta óptica, o nada subsistiria em virtude de ser uma *impossibilidade manifesta* — isto é, uma singularidade ontológica que rasga a razão tradicional de forma disruptiva, sustentando-se na realidade fenomênica.
 
@@ -520,6 +492,13 @@ Como modelo exemplificativo, teríamos a negação sucessiva do nada potencial. 
 Afigura-se, pois, impossível extirpar a potência do nada se o considerarmos permanentemente como um existir que oculta uma eficácia causal. Cada ato de negação perpetrado pela razão atribui reflexivamente ao nada a potência de produzir o próprio nada que foi negado — o qual, por sua vez, já é portador de uma nova potência.
 
 > **Demonstração do Erro III (Regressio ad Infinitum da Nadificação):** Este mecanismo falha geometricamente por incorrer em uma regressão infinita de operadores lógicos (*infinite regress*). Ao introduzir a categoria de "potência oculta" no nada, transforma-se a vacuidade em um motor gerador infinito. A negação deixa de ser um termo resolutivo e passa a agir como um espelho posicionado frente a outro espelho: cada negação gera um novo invólucro potencial ($\neg N \rightarrow N_{pot1} \rightarrow \neg N_{pot1} \rightarrow N_{pot2}$). Esse processo esvazia o conceito de qualquer *ratio sufficiens* (razão suficiente), pois o fundamento da existência é indefinidamente postergado para o próximo "nada" da série infinita.
+
+
+### O potenciado como mancha no relativo
+
+Ao considerarmos o nada como uma realidade potencial, temos o potenciado como fundo para o potencial. Desta forma, a existência de uma potencia define o potencial. Ao considerarmos onde está essa potencia, novamente caímos num realidade negada, sob o pretexto de que agora está em potencia. 
+
+
 
 ### TENTATIVA: A SINTESE DA TOTALIDADE PELA INDIFERENCIAÇÃO
 
@@ -700,7 +679,6 @@ Não devemos, portanto, aplicar a indiferenciação ao contingente. Pois o indif
 O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
 
 Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir.
-
 
 
 ## Propriedades Espirituais do Absoluto
