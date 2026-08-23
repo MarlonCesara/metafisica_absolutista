@@ -4583,7 +4583,7 @@ O nada, portanto, reflete uma descontrução ilusória do determinado. Quando de
 
 Quando desconstruimos o determinado temos o relativo, a liberdade metafísica. Portanto, o antagonismo do determinado não é o nada, é a liberdade.
 
-
+Ao nao aprisionarmos absoluto em uma forma, temos a liberdade. Exercida
 
 
 
@@ -4593,4 +4593,11 @@ Ao infinitizarmos ou inferirmos a determinação pela indiferenciação não tem
 Quando o relativo alcança seu referencial, não ganha contornos, torna-se, portanto o campo de ação, torna-se a liberdade do referencial. O bem querer não necessita exercer uma força sob o relativo, pois não é necessário transforma-lo em algo. Como se uma força exercesse a transformação no relativo.
 
 O relativo é o conhecer do potencial pelo Ser. É o potencial do Ser, e não de si mesmo. 
+
+
+
+
+
+
+Portanto, traçamos o princípios simétricos, os princípios assimétricos que rasgam a assimetria em busca do que antecede a forma, testamos o nada, porem, chegamos ao relativo, que é liberdade metafísica. Depois, ao introduzirmos essa liberdade como absoluta, chegamos até o Ser. Depois exploramos intencionalidade, pessoas do Ser e por fim a atemporalidade.
 
