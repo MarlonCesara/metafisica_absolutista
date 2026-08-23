@@ -4579,6 +4579,14 @@ Ao destruirmos o fenômeno, o mundo determinado, e até mesmo o nada, uma fictí
 
 O nada, portanto, é uma ilusão, explorada, e inferida como não opção como fenômeno puro, potencial, ou uma realidade que sub existe para absoluto. O sentido se instaura para relativo, sem olhar e dar um contorno com seu olhar, nem mesmo dar um contorno a ele com sua inatividade. Simplesmente o relativo se instaura como liberdade metafísica. Liberdade que é exercida até na inação.
 
+O nada, portanto, reflete uma descontrução ilusória do determinado. Quando descontruimos o determinado, não temos o nada. Uma realidade subexistente, falsamente indiferenciada. Ou um Ser lógicamente inferivel pela nadificação do ente. 
+
+Quando desconstruimos o determinado temos o relativo, a liberdade metafísica. Portanto, o antagonismo do determinado não é o nada, é a liberdade.
+
+
+
+
+
 O nada não é o colapso da determinação através da infinitização, ou indiferenciação da determinação pelos princípios assimétricos. O nada nem é mesmo a visão do angulador sob o relativo. 
 Ao infinitizarmos ou inferirmos a determinação pela indiferenciação não temos nem mesmo o nada. Temos uma pendencia por referencia, que pede o referenciado, portanto, temos somente o referenciado.
 
