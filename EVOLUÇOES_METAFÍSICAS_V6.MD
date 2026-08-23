@@ -4575,8 +4575,12 @@ O olhar sob a totalidade também não faz o nada. Nem a inação o define, pois 
 
 Ao reverter a lógica aristotelica, temos a lógica assimetrica que nos leva a destruição do determinado. Até mesmo a destruição do nada ontoógico. Para então, chegarmos a liberdade, o relativo. O relativo, quando unido ao auto causador, tem se como liberdade. Liberdade do amor.
 
+Ao destruirmos o fenômeno, o mundo determinado, e até mesmo o nada, uma fictícia realidade ontológica que pode ser confundida com o Ser ou com uma determinação. Isto é, ao eliminarmos a determinação, e até o nada, que se pensa ser a determinação pura potencial da determinação. Temos finalmente a suspensão total, a liberdade metafísica, livre de conceitos como nada, porém, intuída do sentido.
 
+O nada, portanto, é uma ilusão, explorada, e inferida como não opção como fenômeno puro, potencial, ou uma realidade que sub existe para absoluto. O sentido se instaura para relativo, sem olhar e dar um contorno com seu olhar, nem mesmo dar um contorno a ele com sua inatividade. Simplesmente o relativo se instaura como liberdade metafísica. Liberdade que é exercida até na inação.
 
+O nada não é o colapso da determinação através da infinitização, ou indiferenciação da determinação pelos princípios assimétricos. O nada nem é mesmo a visão do angulador sob o relativo. 
+Ao infinitizarmos ou inferirmos a determinação pela indiferenciação não temos nem mesmo o nada. Temos uma pendencia por referencia, que pede o referenciado, portanto, temos somente o referenciado.
 
 
 
