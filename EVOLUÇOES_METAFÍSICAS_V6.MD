@@ -379,22 +379,9 @@ Estabelece-se, portanto, uma via radicalmente oposta ao convencionalismo metafí
 
 
 
-A aplicação regressiva destes princípios conduz necessariamente à postulação de um **Fundamento Absoluto** que:
-1.  **Existe por si mesmo** (satisfaz as causas existenciais sem exigir causa anterior)
-2.  **É identicamente si mesmo de modo necessário** (satisfaz as causas identitárias sem depender de determinação externa)
-3.  **É a causa sustentadora de toda existência e identidade contingente**
 
 
-### A Distinção entre Ser Necessário e Seres Contingentes
-* **Ser Necessário:** Aquele cuja essência implica existência e cuja identidade é autofundada. Não está sujeito às causas existenciais ou identitárias no mesmo sentido que os contingentes.
-* **Seres Contingentes:** Todos os entes que requerem causas tanto para existir quanto para serem o que são.
-
-### A Resposta à Pergunta Metafísica Fundamental
-A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta completa é: **"Por que há *estas coisas específicas* em vez de outras, ou em vez de nada?"** A resposta exige referência a um Fundamento que seja tanto Causa Existencial quanto Causa Identitária de tudo o que é contingente.
-
-
-
-
+dddddddd
 
 
 
@@ -4571,3 +4558,36 @@ O Mistério deixa de ser uma "falha provisória do conhecimento" para se tornar 
 ## Conclusão da Proposição
 
 **Proposição demonstrada:** A lógica do indeterminado não é um mero conceito abstrato, mas o mapa da Causalidade Assimétrica que sustenta a realidade. Ela resolve a insuficiência do mecanicismo clássico ao demonstrar que o mundo não é apenas um sistema de engrenagens que batem umas nas outras (causalidade simétrica), mas uma manifestação permanentemente alimentada, de cima para baixo, por um Fundamento Uno, Inesgotável e Transcendente. A arquitetura da razão está, finalmente, completa em suas duas direções: protegida na sua estabilidade pelas causas simétricas e aberta ao infinito pelas causas assimétricas.
+
+
+A aplicação regressiva destes princípios conduz necessariamente à postulação de um **Fundamento Absoluto** que:
+1.  **Existe por si mesmo** (satisfaz as causas existenciais sem exigir causa anterior)
+2.  **É identicamente si mesmo de modo necessário** (satisfaz as causas identitárias sem depender de determinação externa)
+3.  **É a causa sustentadora de toda existência e identidade contingente**
+
+
+### A Distinção entre Ser Necessário e Seres Contingentes
+* **Ser Necessário:** Aquele cuja essência implica existência e cuja identidade é autofundada. Não está sujeito às causas existenciais ou identitárias no mesmo sentido que os contingentes.
+* **Seres Contingentes:** Todos os entes que requerem causas tanto para existir quanto para serem o que são.
+
+### A Resposta à Pergunta Metafísica Fundamental
+A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta completa é: **"Por que há *estas coisas específicas* em vez de outras, ou em vez de nada?"** A resposta exige referência a um Fundamento que seja tanto Causa Existencial quanto Causa Identitária de tudo o que é contingente.
+
+
+# Liberdade, Ser e criação do nada
+
+A liberdade no relativo, sem um sujeito livre, permanece pendente de definição. Toda definição que buscamos, em última instância, resulta no Ser.
+
+Assim, a investigação acerca do nada não deve se voltar propriamente ao nada como uma realidade ou ente passível de investigação, mas ao modo como o Ser cria a partir do nada e à liberdade do próprio Ser.
+
+Portanto, o bem-querer do Absoluto possui liberdade: é a própria liberdade do bem-querer.
+
+Uma realidade potencial designa aquilo que pode ser potencializado. Por isso, essa realidade encontra-se limitada em sua liberdade, pois depende daquilo que a potencializa. O nada, por sua vez, não possui potencialidade própria: ele não é uma realidade potencial que possa determinar ou limitar o Ser.
+
+A potência pressupõe aquilo que pode ser potencializado; portanto, ela é, de certo modo, dependente do potencializável. Não se trata, contudo, de transformar o nada em Ser por meio de uma potência, mas de compreender, a partir do Ser, a liberdade pela qual algo pode existir sem matéria prévia.
+
+Nesse sentido, os argumentos não procuram transformar o nada em Ser, mas revelar a liberdade e o Ser.
+
+A liberdade, quando considerada sem um agente livre, pode ser compreendida apenas como relatividade. O amor é livre porque pertence ao âmbito do bem-querer.
+
+Criar sem matéria prévia é explorar o campo do relativo a partir da liberdade do Absoluto: é o Ser produzindo uma realidade sem depender de uma realidade material anterior.
