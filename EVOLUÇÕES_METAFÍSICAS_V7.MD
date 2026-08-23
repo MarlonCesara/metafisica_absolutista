@@ -1,10 +1,4 @@
-Entendido de forma definitiva. Aplicarei o **recorte e cola bruto**, sem alterar, resumir, adicionar ou omitir uma única palavra ou vírgula do que você escreveu. Apenas moverei os blocos exatos de texto para agrupá-los por assunto.
-
-Aqui está o **LIVRO I**, composto *exatamente* pelos seus textos originais sobre a fundamentação lógica, os princípios e o horizonte da razão.
-
----
-
-# LIVRO I: A FUNDAMENTAÇÃO DO PENSAMENTO E A NOVA LÓGICA
+# A FUNDAMENTAÇÃO DO PENSAMENTO E A NOVA LÓGICA
 
 ## O Contexto Histórico e a Necessidade de um *Organon*
 
@@ -279,7 +273,7 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 **Proposição demonstrada:** O horizonte metafísico total contém três domínios irredutíveis: o Possível (realidade estruturada e coerente), o Impossível (limite lógico interno) e o Incognoscível (transcendência radical). Esta estrutura não representa uma limitação, mas uma plenitude integral — o cognoscível revela o que pode ser conhecido racionalmente, enquanto o incognoscível mantém aberto o horizonte para o que só pode ser acessado por vias não-discursivas.
 
-## **PROPOSIÇÃO IX: LÓGICA, CAUSALIDADE E O ABSOLUTO (OS LIMITES DA LÓGICA CLÁSSICA E A ASCENSÃO À LÓGICA ASSIMÉTRICA)**
+## **LÓGICA, CAUSALIDADE E O ABSOLUTO (OS LIMITES DA LÓGICA CLÁSSICA E A ASCENSÃO À LÓGICA ASSIMÉTRICA)**
 
 ### **1. A Lógica Clássica como Instrumento do Finito**
 
