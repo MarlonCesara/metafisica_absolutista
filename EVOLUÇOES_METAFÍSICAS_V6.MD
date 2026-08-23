@@ -4175,6 +4175,32 @@ A existencia do nada, é uma determinação. Ao se eleger qualquer determinaçã
 A indeterminação não se sustenta através da infinitização da forma. A forma depende da determinação.
 
 O existir esta em tudo, no intuito do existente. Que é existir.
+O relativo é liberdade: pressupõe o livre. O relativo compreende todas as formas possíveis, uma pendência determinada pela determinação.
+
+A liberdade no relativo, sem o sujeito livre, permanece pendente de definição. Portanto, a investigação acerca do nada também deve considerar como o Ser cria a partir do nada.
+
+Toda definição que buscamos resulta no Ser e é formulada sob o Ser, não propriamente sob o nada enquanto realidade ou ente passível de investigação.
+
+Portanto, o bem-querer do Absoluto possui liberdade: é a própria liberdade do bem-querer.
+
+A realidade potencial designa aquilo que pode ser potencializado. Portanto, essa realidade está impedida de liberdade, visto que se constitui mediante aquilo que a potencializa. O nada, portanto, teria em si mesmo o impedimento de sua própria liberdade.
+
+A potência aniquila a potência de não-potência, e a potência é parasitária do potencializável.
+
+Assim, todos os argumentos não transformam o nada em Ser, mas revelam a liberdade e o Ser.
+
+O absoluto supoe algumas propriedades:
+
+1- O que existe para absoluto não tem natureza externa, anterior ou sentido pelo qual deve ser tal como é se não no próprio Absoluto. Pois então, para tudo que existe para absoluto deduz se que, é dado pelo próprio absoluto como tal. Ainda que exista uma natureza necessaria para absoluto e que deva ser tal como é para que haja absoluto, esta natureza é definida pelo próprio absoluto, não como uma natureza mecanica, mas como retidão de intenção.
+
+2- Se não há nada para absoluto, há a auto causalidade, que implica em auto querer, auto desejar, vontade, intencionalidade reta.
+
+3- Se há o aspecto da intencionalidade, em contraponto, a intencionalidade deve encontrar liberdade. O amor. Isto é, se há o amor. O absoluto deve encontrar sua liberdade, a intencão designa o intencionado. A lomomoção rumo a sua manifestação, portanto, deve haver a liberdade no nível metafísico.
+
+Explorar os aspectos da liberdade. É o que erroneamente se intitula como exploração do nada. Pois o nada é sempre tido como uma tentativa de mentalizar o inefavel, mentalizar a pureza sem recorrer ao inefável. Não há busca metafisica, portanto numa realidade que se chama nada, a busca é pelo entendimento da liberdade ontológica do Ser.
+revisar
+
+
 
 
 # A ARQUITETURA colapsantes (assimétricos) DA RAZÃO
