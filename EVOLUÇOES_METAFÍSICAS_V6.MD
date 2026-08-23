@@ -308,25 +308,35 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### A NECESSIDADE DE UM FUNDAMENTO ABSOLUTO
-
-A aplicação regressiva destes princípios conduz necessariamente à postulação de um **Fundamento Absoluto** que:
-1.  **Existe por si mesmo** (satisfaz as causas existenciais sem exigir causa anterior)
-2.  **É identicamente si mesmo de modo necessário** (satisfaz as causas identitárias sem depender de determinação externa)
-3.  **É a causa sustentadora de toda existência e identidade contingente**
-
-
-
-
-
-
-### A Distinção entre Ser Necessário e Seres Contingentes
-* **Ser Necessário:** Aquele cuja essência implica existência e cuja identidade é autofundada. Não está sujeito às causas existenciais ou identitárias no mesmo sentido que os contingentes.
-* **Seres Contingentes:** Todos os entes que requerem causas tanto para existir quanto para serem o que são.
-
-### A Resposta à Pergunta Metafísica Fundamental
-A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta completa é: **"Por que há *estas coisas específicas* em vez de outras, ou em vez de nada?"** A resposta exige referência a um Fundamento que seja tanto Causa Existencial quanto Causa Identitária de tudo o que é contingente.
-
 
 A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
 
@@ -361,6 +371,36 @@ Estabelece-se, portanto, uma via radicalmente oposta ao convencionalismo metafí
 > **Diretriz de Investigação:** Tomaremos o Nada como a "substância bruta" da indeterminação — o marco zero do pensamento — para investigá-lo filosoficamente. O objetivo é testar suas resistências conceituais e verificar se ele se dissolve sob análise ou se, pelo contrário, revela-se como o verdadeiro nome do Fundamento Absoluto.
 
 ---
+
+
+
+
+
+
+
+
+A aplicação regressiva destes princípios conduz necessariamente à postulação de um **Fundamento Absoluto** que:
+1.  **Existe por si mesmo** (satisfaz as causas existenciais sem exigir causa anterior)
+2.  **É identicamente si mesmo de modo necessário** (satisfaz as causas identitárias sem depender de determinação externa)
+3.  **É a causa sustentadora de toda existência e identidade contingente**
+
+
+### A Distinção entre Ser Necessário e Seres Contingentes
+* **Ser Necessário:** Aquele cuja essência implica existência e cuja identidade é autofundada. Não está sujeito às causas existenciais ou identitárias no mesmo sentido que os contingentes.
+* **Seres Contingentes:** Todos os entes que requerem causas tanto para existir quanto para serem o que são.
+
+### A Resposta à Pergunta Metafísica Fundamental
+A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta completa é: **"Por que há *estas coisas específicas* em vez de outras, ou em vez de nada?"** A resposta exige referência a um Fundamento que seja tanto Causa Existencial quanto Causa Identitária de tudo o que é contingente.
+
+
+
+
+
+
+
+
+
+
 
 # AS TENTATIVAS DE DEFINIR E CATEGORIZAR O NADA
 
