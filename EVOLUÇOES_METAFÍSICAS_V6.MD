@@ -4569,3 +4569,14 @@ Nesse sentido, os argumentos não procuram transformar o nada em Ser, mas revela
 A liberdade, quando considerada sem um agente livre, pode ser compreendida apenas como relatividade. O amor é livre porque pertence ao âmbito do bem-querer.
 
 Criar sem matéria prévia é explorar o campo do relativo a partir da liberdade do Absoluto: é o Ser produzindo uma realidade sem depender de uma realidade material anterior.
+
+O olhar sob a totalidade também não faz o nada. Nem a inação o define, pois isto seria um referencial uma visão não manifestada, uma visão projetada. Então o nada, não seria a visão do observador.
+
+
+Ao reverter a lógica aristotelica, temos a lógica assimetrica que nos leva a destruição do determinado. Até mesmo a destruição do nada ontoógico. Para então, chegarmos a liberdade, o relativo. O relativo, quando unido ao auto causador, tem se como liberdade. Liberdade do amor.
+
+
+
+
+
+
