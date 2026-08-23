@@ -4582,5 +4582,7 @@ O nada, portanto, é uma ilusão, explorada, e inferida como não opção como f
 O nada não é o colapso da determinação através da infinitização, ou indiferenciação da determinação pelos princípios assimétricos. O nada nem é mesmo a visão do angulador sob o relativo. 
 Ao infinitizarmos ou inferirmos a determinação pela indiferenciação não temos nem mesmo o nada. Temos uma pendencia por referencia, que pede o referenciado, portanto, temos somente o referenciado.
 
+Quando o relativo alcança seu referencial, não ganha contornos, torna-se, portanto o campo de ação, torna-se a liberdade do referencial. O bem querer não necessita exercer uma força sob o relativo, pois não é necessário transforma-lo em algo. Como se uma força exercesse a transformação no relativo.
 
+O relativo é o conhecer do potencial pelo Ser. É o potencial do Ser, e não de si mesmo. 
 
