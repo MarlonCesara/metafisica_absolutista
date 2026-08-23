@@ -1,7 +1,5 @@
 # EVOLUÇÕES METAFÍSICAS
 
-# A LÓGICA CONTINGENTE
-
 ## O Contexto Histórico e a Necessidade de um *Organon*
 
 A fundação da lógica como disciplina sistemática é obra de Aristóteles (384-322 a.C.), desenvolvida em resposta às limitações percebidas na filosofia platônica. Enquanto Platão orientava a investigação para o mundo transcendente das Ideias ou Formas, Aristóteles buscou estabelecer um método formal para o pensamento correto acerca do mundo real — um *organon* (ferramenta) para a ciência e a demonstração.
@@ -4128,9 +4126,33 @@ Ao retrocedermos a forma de forma a desconfigura-la, temos, portanto, um estado 
 
 5- Ao imaginarmos a impossibilidade como aceitação do de uma realidade que existe e que não existe, temos uma contravenção lógica estabelecida. Temos, desta forma a impossibilidade como possível, o relativo da possibilidade, algo sem definição.
 
-6- Ao imaginarmos o nada como definição para absoluto, temos um estado de determinação para absoluto.
+6- Ao imaginarmos o nada como definição para absoluto, temos um estado de determinação para absoluto. Ao elegermos o nada como negação do ente, estamos tentando produzir uma substancia pura, porém ainda determinada.
+
+Ao assumirmos o nada como estado potencial, também devemos assumir o potencializado. Ao assumirmos a negação do ente, temos que assumir o ente. Todos estes são ainda estados determinados, que exigem o sentido do porque são para absoluto, isto é, não compõem a pureza necessária, isto é, a indiferenciação. Precisamos definir o que é a substancia indiferenciada.
+
+Ao chegarmos em relativo para o absoluto determinado, pois nenhuma forma de determinação sub existe no absoluto, o absoluto sonega qualquer estado determinado, pois tal estado exige uma escolha, um determinante, isto é uma anterioridade a si mesma.
+
+Ao chegamos no relativo, que é opção mais próxima, que é a liberdade que subentende o agente livre. Temos portanto, um conceito que espera ainda o agente. Ao absolutizarmos o relativo, temos finalmente o inefável.
+
+A tentativa de negar o ente é de produzir um Ser falso. Um nada que se sustenta no absoluto é um Ser falso, um ser determinado, que não se sustentaria no palco absoluto. Temos, portanto o relativo, que o próprio nome diz, que tem como necessariedade o agente da relativização para se fazer algo.
+
+O agente, no ato puro de Ser, olha para o vazio indefinido, o nomeia de nada, o ato de sua observação sob a infinitude da totalidade colapsada seria o nada, isto é
 
 7- Ao imaginarmos o nada como negação do ente, temos o ente anulado, pois para negar algo este algo deve existir ou precisa ter o potencial de existir. Portanto, havendo o ente e sua negação para absoluto, concomitantemente, não demos o nada, mas relativo.
+
+
+Criar do nada, significa, criar sem matéria pré existente. E não criar de uma realidade ou um estado metafísico chamado nada. Portanto, o estado de soberania do Espírito paira sob o relativo, o relativo é seu campo de movimentação. No simples ato de existir, o Espírito provoca o "criar do nada", no sentido de que o ato de formatação, visualização, querer trás vida. Pois este ato é sob o relativo. Isto é, o nada, que nada é, através do pairar do Espírito sem ação, ganha um contorno dado pela inação. O nada, é dado pela inação. 
+
+O nada, seria o coisa alguma. Não a negação do ente, mas o próprio criar sem matéria prima. Criar do nada é uma expressão que designa criar sem matéria prévia, por isto, isto nos faz não ter a necessidade de definir o que é nada. Pois a definição é tentar explicar a liberdade metafisica do Espírito. Não um estado potencial de uma realidade que pode ser transformada, ou definida para algo, mas explicar como o Espírito é livre.
+
+O nada não possui potência, capacidade ou possibilidade real de ser transformado. Por justamente não ser uma realidade. Ao atribuirmos tais características ao nada. O relativo é liberdade metafísica. O relativo não é um estado coisa ou ente, é relativo, no sentido que carece de uma determinação. 
+
+Ao absolutizarmos este relativo, temos um bem querer sobre o mesmo, um agente sob o mesmo que acata a liberdade. Temos um bem querer para a liberdade. Um querer pelo existir livre. O absoluto necessariamente existe e o sentido está em si, e se temos relativo para absoluto, temos um bem querer incorruptível pela liberdade, pela possibilidade e o produto da possibilidade, que é a definição. 
+
+O relativo é definido somente para o ente, não para si mesmo. Temos portanto não o nada, mas a liberdade metafísica referente a um agente que a exerce. Ao absolutizarmos a liberdade que padece de um referencial, temos o referencial necessário que é o agente, o querer pela liberdade, uma subjetividade metafísica pura, sem determinação, isto é, sem o quem subjetiviza, mas somente a subjetividade sendo seu autor. Temos um amor infinito e puro.
+
+O absoluto se escolhe necessariamente, escolhe a si e sua liberdade. E, a consciencia da liberdade, é criar do nada, isto é, criar sem objeto de criação.
+
 
 8- Para a infintização de uma variedade de formas para absolutos, não se tem todas manifestas, e nem a infinidade de formas à mostra no palco do absoluto, temos apenas a indefinição.
 
