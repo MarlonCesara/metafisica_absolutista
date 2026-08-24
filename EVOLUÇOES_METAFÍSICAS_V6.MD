@@ -4880,3 +4880,9 @@ Seu texto está pronto. Esta formulação ("Em síntese, a própria inação do 
 A inação rejeita todas as ações possíveis. A inação é uma relativização de todas as ações possíveis. Quando se escolhe a inação, se a escolhe referente a potencia da ação. Portanto, a própria ação é criadora.
 
 O relativo, portanto, sendo vivo, absoluto, é um estado de inação, um estado auto imposto. E não uma realidade independente, mas a autonomia soberana do querer absoluto mediante a um ato relativo, um ato de não escolha, de não determinação, de escolha da não determinação, em decorrência de todas as outras escolhas possíveis.
+
+Portanto, não há o relativo ontológico, há a inação do Espírito, ou ação relativa. E o potencial dessa ação é a criação.
+
+O relativo, sendo o relativo é determinado. Seria uma ação, a construção de um ente. Mas não nos referimos mais ao relativo, dada a autonomia do absoluto, temos a ação absoluta, o relativo, mediante auto causalidade do absoluto, é uma ação relativa, um produto da liberdade. E, o relativo, ausentando-se de si mesmo, é presentado pelo atuador, pela ação libertadora da forma.
+
+
