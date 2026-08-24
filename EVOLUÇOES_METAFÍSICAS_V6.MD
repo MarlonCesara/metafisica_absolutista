@@ -4896,3 +4896,14 @@ Portanto não há o nada, há a soberania do Espírito, há inação do Espirito
 O não criar nada é uma configuração para absoluto, que nega toda a capacidade de produção. O absoluto determina a soberania do Ser, tal como determinaria a não soberania de forma a existir o mundo fenomenico. 
 
 Ex: A inação do Espírito desenha inicialmente sobre um quadro negro, que é o nada. O nada é um desenho que reune todos os desenhos e por isso não aparece. Ao escolher um desenho, o desenho se revela. Porem se o quadro negro existir, o desenho já está feito. Temos, portanto, o nada dando lugar somente para inação, o não desenhar. Então temos a verdadeira liberdade para que se desenhar, pois já não há nenhum desenho.
+
+Pq **relativo** e não **o relativo**? Se tivéssemos do relativo ao absoluto, teríamos uma formatação.
+
+O relativo não é uma realidade ontológica; é o **ato relativo**. Só existe o ato, sem efeitos — um ato que, em sua pureza, nega todos os efeitos.
+
+O ato relativo possui a pureza necessária para criar, pois não designa nenhuma realidade determinada. Há apenas a ação e a inação puras do indiferenciado.
+
+No ato relativo, o relativo se esgota, restando apenas o ato.
+
+O relativo se esgota no ato de ser soberano. Não há mais um “relativo”; há apenas o **ato relativo**, mediante a causalidade.
+
