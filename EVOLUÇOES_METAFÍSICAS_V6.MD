@@ -4771,4 +4771,4 @@ Isto é, a determinaçaõ é produto real da ação, tanto quanto o nada, ou a n
 
 Temos portanto, a inação, como ação relativa. E a ação, como determinada. Temos, portanto, o fenômeno invertido, não como uma realidade ontológica, uma pureza falsa. Mas como a ação relativa. O relativo, sendo auto causado, é um estado de inoperancia do ente.
 
-
+O relativo não existe, portanto, temos a ação relativa. O relativo deixa espaço para o agente, E relativo é a determinação do agente assim como o recorte do relativo também o é. Portanto, se não há nada é pela vontade do inefável, e se há, é pela sua vontade, ambos são subprodutos de sua liberdade.
