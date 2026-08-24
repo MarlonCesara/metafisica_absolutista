@@ -4600,13 +4600,17 @@ Se tem o indiferenciado em exercício de liberdade. Isto é, ao destruirmos a fo
 
 Ao purificarmos totalmente a forma, temos o relativo, que é uma espera pelo relativizador da realidade. O relativo, portanto é a espera da formatação, é um conceito que precisa ser atribuído a uma ontologia que se sustente por si mesma e que o exerça. 
 
-E, para produzirmos essa substancia, não é necessario recorrer a destruição da forma, pois a destruição na forma não faz o indiferenciado, uma forma colapsada ou inacabada, ou infinitizada não produz o indiferencaido, isto é, o Ser. Pois destruir a forma elimina o ente da forma sem deixar vestigios. Procurar estados de semi existencia para o que é forma, não realiza o indiferenciado.
+E, para produzirmos essa substancia, não é necessário recorrer a destruição da forma, pois a destruição na forma não faz o indiferenciado, uma forma colapsada ou inacabada, ou infinitizada não produz o indiferenciado, isto é, o Ser. Pois destruir a forma elimina o ente da forma sem deixar vestígios. Procurar estados de semi existência para o que é forma, não realiza o indiferenciado.
 
 O indiferenciado não é uma forma colapsada. Porém, ao explorarmos o indiferenciado diretamente do absoluto, temos portanto o sentido que é o indiferenciado, temos o amor. E Para inferir a liberdade deste amor, por via inversa, isto é, pelo próprio absoluto, temos que recorrer a pergunta, se absoluto é amor, é tendencia, é liberdade, de forma essa liberdade se realiza?
 
 de que forma essa liberdade se concretiza? Ao concebermos que o exercer da liberdade é a determinação. Se o absoluto é auto causado, sua própria auto posição já insere um teor auto causal, já se dá como se dá, então é causador de como se dá.
 
 E, se dá como absoluto, em sua inação, temos a não determinação de coisa alguma. Ao definirmos essa não determinação, não há como extipular uma determinação pura, mas a não deterinação é a própria liberdade do ente. Não há o que mais referenciar para a não determinação, se não o próprio estatuto do ser e de sua liberdade.
+
+O absoluto é o que é por si mesmo, sendo o que é por si mesmo, até mesmo sendo a não determinação. Temos que, se há o poder para a estaticidade, há um poder prévio para o dinamismo. Isto quer dizer que, se há poder sob o nada, isto é, para se fazer nada, sem nenhuma determinação prévia, há o poder de se determinar. 
+
+Neste sentido, o nada é a inação, e não uma realidade autônoma. Ao se mover, o Espírito determina, provoca a diferenciação do campo absoluto. O nada, não é um estatuto, mas a habilidade do absoluto de fazer surgir pelo simples exercício de sua mobilidade ou desejo.
 
 
 
