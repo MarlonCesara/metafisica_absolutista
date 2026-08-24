@@ -4891,3 +4891,8 @@ Em síntese, não existe o nada, o relativo, o indiferenciado determinado, ou a 
 Temos que a inação, livre de ser determinante de uma ontologia reversa como o nada, é realmente livre a não ter formas pré estabelecidas, é realmente criar do nada, ao não haver nenhum nada ontológico ou reverso à existência determinada. Evocar do nada é agir e criar, e não evocar de uma realidade.
 
 Portanto não há o nada, há a soberania do Espírito, há inação do Espirito. A inação é real, um produto real, inexistente. Uma inexistência real de forma a delimitar os contornos do existente soberano que é o Ser. Ao passo que para a inação temos como subentendida a ação. A inação surtindo efeitos reais de soberania, temos a ação surtindo efeitos reais de determinação para absoluto.
+
+
+O não criar nada é uma configuração para absoluto, que nega toda a capacidade de produção. O absoluto determina a soberania do Ser, tal como determinaria a não soberania de forma a existir o mundo fenomenico. 
+
+Ex: A inação do Espírito desenha inicialmente sobre um quadro negro, que é o nada. O nada é um desenho que reune todos os desenhos e por isso não aparece. Ao escolher um desenho, o desenho se revela. Porem se o quadro negro existir, o desenho já está feito. Temos, portanto, o nada dando lugar somente para inação, o não desenhar. Então temos a verdadeira liberdade para que se desenhar, pois já não há nenhum desenho.
