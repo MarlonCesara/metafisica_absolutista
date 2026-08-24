@@ -4772,3 +4772,7 @@ Isto é, a determinaçaõ é produto real da ação, tanto quanto o nada, ou a n
 Temos portanto, a inação, como ação relativa. E a ação, como determinada. Temos, portanto, o fenômeno invertido, não como uma realidade ontológica, uma pureza falsa. Mas como a ação relativa. O relativo, sendo auto causado, é um estado de inoperancia do ente.
 
 O relativo não existe, portanto, temos a ação relativa. O relativo deixa espaço para o agente, E relativo é a determinação do agente assim como o recorte do relativo também o é. Portanto, se não há nada é pela vontade do inefável, e se há, é pela sua vontade, ambos são subprodutos de sua liberdade.
+
+A ação relativa é a não escolha, o permitir da suspensão. O permitir da solitude no âmbito metafísico. Portanto, a ausência, nesse estado é definida pela soberania do inefável, e não por si mesma. A ação, é a soberania abandonada, em prol do recorte determinístico dado pela passagem da ação da inação, para a ação ativa.
+
+O estado, portanto, de soberania, é determinado, tal como o estado de ação que produz a determinação.
