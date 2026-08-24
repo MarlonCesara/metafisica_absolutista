@@ -11799,3 +11799,8 @@ O niilismo assintomático se caracteriza com o individuo apenas mantendo sua pos
 
 
 O niilismo é uma tentativa de fazer o corpo aceitar o inaceitavel, produz um grande estado de insatisfação e infelicidade, frustração, o individuo passa a desenvolver a tentação, o corpo começa a manifestar escapismo para a realidade conscienciente da postura contraria a vida.
+
+
+
+
+Os antigos egipcios construiam piramides pois nao conseguiam entender o proposito, nao conseguiam dissociar a religiosidade que para eles significava a construção, da mesma forma que o humano ainda não consegue entender qual a raiz dos bilionários, pensam estar fazendo a inovação, pensam permitir que alguém seja livre trará progresso ao mmundo, não entendem realmente como é urgente impedir as piramides modernas, os bilionários, não entendem qual conflito se esconde por trás da concentração de renda, tal como não se entendia qual conflito se esconda atrás de construções tão pesadas como as piramides, tal como é o peso da vida moderna mediante a existencia de concetradores de dinheiro.
