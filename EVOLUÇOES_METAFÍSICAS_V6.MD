@@ -4832,4 +4832,6 @@ Seu texto está pronto para integrar a obra principal. A distinção entre **Aç
 
 Em palavras simples, o absoluto é autor de si mesmo e dispensa explicação para o que haja em si, sendo esta ação a inatividade, a inatividade por si mesma dispensa a explicação, tal como a atividade também o dispensaria, portanto, a atividade de determinar dispensa explicação prévia, tal como a ação estática. Para toda ação no absoluto há um vontade imperante. Por isso, a simples inação não é um mecanismo involuntário, ou de natureza exterior, mas é auto imposto, auto causado, de forma a compor, neste ato, todas as propriedades para a não existência, ou para a suspensão, tal como o ato de ação e criação o é.
 
-Em síntese, a própria inação do Ser é criadora. A própria inação já tem o produto usado na ação.
+Em síntese, a própria inação do Ser é criadora. A própria inação já tem o produto usado na ação. A inação é viva, auto causada, e agrega em si o potencial criador. Havendo o tempo do Espírito, inação pode ser corrompida, de forma que a ação diferenciada resulte num produto diferenciado. 
+
+Isto é, a ação indiferente, a ação relativa, a não ação não cria a realidade, propositalmente. Tal como propositalmente a ação determinada a cria.
