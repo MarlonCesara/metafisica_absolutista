@@ -4586,7 +4586,34 @@ Quando o relativo alcança seu referencial, não ganha contornos, torna-se, port
 
 O relativo é o conhecer do potencial pelo Ser. É o potencial do Ser, e não de si mesmo. 
 
+O relativo, ao ser tomado como realidade autônoma, sem a absolutização, é, portanto uma tentativa de imaginar uma realidade existente e pura. Porém, ainda existindo uma determinação, pois essa realidade é potencial, a infinitude colapsada.
 
+o relativo, portanto não pode ser o Ser falso. 
+
+Ao absolutizarmos relativo, temos o auto querer para relativo. Isto implica que temos o auto querer livre, e não o relativo como realidade. O relativo não existe, deixa espaço para o ente livre. O ente livre é referenciado, já o relativo por si só não tem traço de existência. A ação, portanto, do ente livre tem resultados sem que seja necessária uma segunda realidade indiferenciada para tal, como é a tentativa de conceber o relativo autonomamente.
+
+Portanto, não há o relativo, mais uma tentativa de estabelecer um nada ontológico. Ou uma tentativa de fazer com que o determinado seja puro. Isto é, produzir o fenômeno puro sem lhe tirar a determinação.
+
+O nada existente, é a tentativa de estabelecer o determinado como o auto causal, de forma a tentar purifica-lo sem lhe retirar a determinação. Ao concebermos o campo relativo, aparentemente a melhor tentativa de purificação, novamente estamos tentando fazer com que o campo fenomenico seja puro. Ao destruir totalmente a determinação não se tem nem mesmo o relativo.
+
+Se tem o indiferenciado em exercício de liberdade. Isto é, ao destruirmos a forma, não sobra nem mesmo o relativo. O relativo retira-se, a formatação retira-se dando vazão para a total liberdade. O relativo, portanto, não é um ente ontológico, é uma pendencia pelo ente que pode relativizar, e nessa pendencia deve sobrar somente ente que exerce a relativização, isto é, a liberdade. Ao encontrarmos o sentido do absoluto como agente, temos o colapso total até mesmo do relativo como determinação, e o sentido prevalece exercendo a liberdade total.
+
+Ao purificarmos totalmente a forma, temos o relativo, que é uma espera pelo relativizador da realidade. O relativo, portanto é a espera da formatação, é um conceito que precisa ser atribuído a uma ontologia que se sustente por si mesma e que o exerça. 
+
+E, para produzirmos essa substancia, não é necessario recorrer a destruição da forma, pois a destruição na forma não faz o indiferenciado, uma forma colapsada ou inacabada, ou infinitizada não produz o indiferencaido, isto é, o Ser. Pois destruir a forma elimina o ente da forma sem deixar vestigios. Procurar estados de semi existencia para o que é forma, não realiza o indiferenciado.
+
+O indiferenciado não é uma forma colapsada. Porém, ao explorarmos o indiferenciado diretamente do absoluto, temos portanto o sentido que é o indiferenciado, temos o amor. E Para inferir a liberdade deste amor, por via inversa, isto é, pelo próprio absoluto, temos que recorrer a pergunta, se absoluto é amor, é tendencia, é liberdade, de forma essa liberdade se realiza?
+
+de que forma essa liberdade se concretiza? Ao concebermos que o exercer da liberdade é a determinação. Se o absoluto é auto causado, sua própria auto posição já insere um teor auto causal, já se dá como se dá, então é causador de como se dá.
+
+E, se dá como absoluto, em sua inação, temos a não determinação de coisa alguma. Ao definirmos essa não determinação, não há como extipular uma determinação pura, mas a não deterinação é a própria liberdade do ente. Não há o que mais referenciar para a não determinação, se não o próprio estatuto do ser e de sua liberdade.
+
+
+
+Chegamos ao relativo. Mas como referenciado o relativo pode se dizer o nada Novamente desfazemos um possível conceito de nada o ontológico
+Entao quando tiramos do relativo a visão isolada dele e o absolutizamos temos nao mais o relativo mas a liberdade metafisica De forma a se fazer uma realidade em suspensão.
+
+O relativo por si mesmo é uma tentativa de estabelecer o inefável, alavancando uma realidade que não persiste por si mesma, que não se infinitiza, que não se consuma sendo existente. Porém, ao analisarmos o relativo através do aspecto do absoluto, temos um
 
 
 
