@@ -4705,7 +4705,68 @@ Em repouso o Ser já tem o nada, já tem o exercício da liberdade em sua não f
 
 
 
+Chegamos ao relativo. Contudo, enquanto referenciado, o relativo pode ser dito como nada. Quando retiramos do relativo a visão isolada que temos dele e o absolutizamos, já não temos mais o relativo, mas a liberdade metafísica. Novamente, desfazemos a possibilidade de conceber o nada como uma realidade ontológica, isto é, como uma realidade em suspensão.
+
+O Absoluto determina-se em estado solo: pureza. Portanto, pode determinar também um estado de impureza. O relativo, porém, não é sustentável quando esgotado: ao seu término, temos novamente o Absoluto, puro, como amor.
+
+O amor se faz indiferenciado. Portanto, é autor de seu próprio ato de indiferenciação. A indiferenciação do Absoluto é o único objeto resultante do colapso da determinação, e não mais o relativo.
+
+Então, temos que inferir que o Absoluto inefável, a partir do determinado, não é possível. Há, contudo, uma tentativa de purificar o determinado sem destruí-lo, e isso não é possível. Temos, portanto, como única via de inferência, o Absoluto, que nos conduz até o indiferenciado.
+
+A compreensão das vias de destruição da determinação não nos leva ao inefável. É a mudança do inefável que nos leva à determinação, pois o inefável é autor de sua própria soberania e de sua própria indiferenciação.
+
+A liberdade metafísica não é ontologizável, mas é propriedade ontológica do indiferenciado. Não se pode dominá-la e torná-la, ela mesma, um ente ontológico; pode-se, contudo, atribuí-la como propriedade do ente livre. Qualquer inação do Absoluto é, ainda, uma determinação inativa.
+
+O Absoluto já é livre para ser. Então, é livre também para não ser ele mesmo?
+
+Ser já é uma liberdade reta, exercida de modo incorruptível.
+
+Explorar de forma a nadificar o determinado para chegar no indiferenciado é um erro, apenas se chega numa realidade jamais purificada totalmente, sempre dotada de determinações.
+
+Por isto a abordagem direta do indiferenciado através do absoluto, dispensa pensarmos algo que não seja o indiferenciado, ou seja, pensar sob o indiferenciado sob a purificação do determinado.
 
 
+O relativo, portanto nada mais é do que o pedido pelo indiferenciado, um erro lógico que quer se excluir mediante a descoberta do agente livre. Isto é, o relativo, a forma mais lapidada, não é ainda um conceito sustentável sem o relativizador. 
+
+O relativo nunca existiu, mas está presente como liberdade para o agente determinante. O relativo é relativo para o agente relativizante, e não existe por si mesmo. 
+
+
+O Ser é sem necessidade, tal como é livre para ser o que é sem necessidade. Desta forma, a liberdade se dá como função em absoluto. Ao analisarmos desde o absoluto, o inefável é como é sem que seja necessária uma explicação, cumpre sua função absoluta.
+
+
+
+Segundo o texto apresentado, a concepção de "criar do nada" (*criação ex nihilo*) sofre uma desconstrução ontológica radical. O autor abandona a ideia intuitiva de que o "nada" seja uma espécie de matéria-prima invisível, um vácuo escuro ou um recipiente vazio preexistente que Deus transforma em mundo.
+
+Com base na metafísica do texto, a explicação de como o Ser cria do nada estrutura-se nos seguintes passos:
+
+**1. O "Nada" não é uma substância, é um Ângulo de Visão**
+O texto prova que o "nada" não possui realidade autônoma. Se tentarmos retirar todas as formas e determinações do universo, não chegamos a um vácuo puro, mas ao que o texto chama de **"Relativo"** — um estado onde infinitas possibilidades colapsam e ficam em suspensão, aguardando um referencial. Esse campo só é traduzido como "nada" quando é observado por uma consciência (o Angulador/Espírito). Portanto, o nada não existe por si só; ele é apenas a perspectiva do Absoluto diante daquilo que ainda não foi determinado.
+
+**2. O "Nada" é a Inação do Espírito**
+Como o nada não é uma coisa, o que ele é? O texto o define estritamente como a **inatividade** do Espírito Absoluto. O Ser possui liberdade metafísica total. Quando Ele exerce essa liberdade para *não agir*, *não escolher* e *não determinar* forma alguma, esse estado de puro repouso e suspensão é o que chamamos de nada. O nada é, portanto, a liberdade do Absoluto em estado de inoperância.
+
+**3. Criar é o salto da Inação para a Ação**
+Se o "nada" é simplesmente o Espírito *não agindo*, então a criação não é o ato de manipular um material inexistente. A criação é o simples **despertar da vontade do Espírito**. "Criar do nada" significa, de forma literal, **criar unicamente pelo poder de transitar da inação para a ação, sem intermediários.** Não há choque de realidades nem transformação de vácuo em matéria.
+
+**4. A Criação ocorre por "Angulação" (Foco e Escolha)**
+O ato criador é definido como uma **angulação**. O Espírito abandona a suspensão panorâmica (onde tudo era possível, mas nada estava definido) e decide *focar* sua liberdade. Determinar não é fabricar um objeto físico; determinar é **escolher**. O mundo fenomênico surge porque o Espírito recorta a totalidade através de um ato livre de escolha.
+
+**5. A "Matéria" da Criação é a Própria Vontade (O Bem-Querer / Amor)**
+Uma vez que não há matéria-prima pré-existente, de que é feito o universo? O texto afirma que o único substrato real de tudo o que existe é a própria **Ação do Ser**. E essa ação não nasce de uma falta ou carência, pois o Absoluto já é pleno, mas da **superabundância**. O desejo de criar é o puro Bem-Querer (o Amor) que transborda. O mundo determinado (físico e fenomênico) sustenta-se unicamente porque o Espírito continua agindo e *desejando* que ele seja. Se o Absoluto voltasse à inação total, o universo colapsaria instantaneamente no Relativo.
+
+**Em síntese:**
+Para a metafísica do texto, o Ser não pega o "nada" para moldar o "algo". O Ser, que é pura plenitude e liberdade, simplesmente decide transitar do silêncio de sua inação (que chamamos de nada) para o verbo de sua determinação (a criação). A realidade criada é a própria vontade do Ser exercendo seu amor e dando contorno àquilo que, sem Ele, seria apenas uma infinidade de possibilidades colapsadas.
+
+
+
+
+
+
+
+A inação do Espírito, portanto, é o que mais proximamente podemos dizer que é o nada. O Espírito sendo livre, determina, pela inação, a não existência de qualquer coisa. A inatividade é um ato livre, espontâneo e que gera resultados. O nada, ou seja, a não ação gera um resultado substancial na realidade, portanto, a inação de criar, não é apenas uma consequência, mas é o produto como inatividade. O não desejo, que é a permanência pura do absoluto, é determinada, coagida pelo Espírito de forma a coagir como uma suspensão de todas as outras possibilidades.
+
+Escolher a não atividade, é negar todas as atividades possíveis. Isto é, nada criar e rejeitar criar todas as outras coisas. Para que haja o nada, isto é, a não criação ou a inatividade, é preciso que houvesse a rejeição de toda a atividade. A inatividade gera por si mesmo um produto. A inatividade, gera o nada, não no sentido que o nada é algo, mas no sentido de que a atividade, naturalmente também é produto da ação, tanto quanto o nada é produto da inaçao.
+
+Isto é, a determinaçaõ é produto real da ação, tanto quanto o nada, ou a não criação é produto real da inação. Isto evoca a potencialidade do Ser de ser soberano, ou ser criador. Pois o ''ser''soberano, é somente uma face criatividade um potencial de liberdade.
 
 
