@@ -4601,3 +4601,10 @@ O relativo é o conhecer do potencial pelo Ser. É o potencial do Ser, e não de
 
 Portanto, traçamos o princípios simétricos, os princípios assimétricos que rasgam a assimetria em busca do que antecede a forma, testamos o nada, porem, chegamos ao relativo, que é liberdade metafísica. Depois, ao introduzirmos essa liberdade como absoluta, chegamos até o Ser. Depois exploramos intencionalidade, pessoas do Ser e por fim a atemporalidade.
 
+Ao regredirmos a determinação, não podemos parar no nada, ao purificarmos realmente o determinado, não temos o nada, temos a liberdade. E ao avançarmos na totalidade da liberdade, temos o Ser. O nada é uma ontologia falsa, um ponto de parada falso na tentativa de negar o determinado, de forma a compreender pela negação como se cria do nada. Mas não se cria a partir da negação do ente, negar um ente não confere poder de liberdade no campo metafísico, concebe a somente o ente negado, que não é o Ser. 
+
+O nada, portanto, considerado ontológico, é uma forma de tentar recriar as formas em um estado primordial de forma que uma força exterior possa remontar essa forma em algo. Isto é, ao ser concebido como um vazio formatavel, seja exterior ou na consciencia do observador, é uma realidade formatada, e não a verdadeira liberdade. O nada, nem mesmo é livre de si. A liberdade é criar sem material prévio ou sem que seja necessario transformar uma realidade determinada.
+
+
+
+
