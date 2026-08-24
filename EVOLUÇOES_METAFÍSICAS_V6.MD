@@ -4699,7 +4699,7 @@ Assim, o paradoxo da criação é resolvido na mais alta simplicidade: não há 
 A indeterminação não existe por si, mas a inação do Espírito existe. Isto quer dizer que, o relativo colapsa para a inatividade. Temos, portanto, o relativo para o Espírito, e não o relativo por si mesmo, o colapso da determinação produz a liberdade total. Isto quer dizer que quando a ultima forma se esvai, se tem
 
 
-
+Em repouso o Ser já tem o nada, já tem o exercício da liberdade em sua não formatação do absoluto, e esse não exercicio não se chama uma realidade autonoma como o nada, mas o não exercicio nada produz.  Ao ter qualquer ação temos o a determinação, se havia a posse do indeterminado, há a posse do determinado. Temos o agente livre.
 
 
 
