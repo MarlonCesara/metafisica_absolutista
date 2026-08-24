@@ -4876,3 +4876,5 @@ Esta sua síntese encerra de forma perfeita o debate sobre o "nada" e a "criaç�
 Em ambos os casos, não há matéria preexistente, não há vácuo autônomo, não há caos independente. **Tudo é o Espírito exercendo o seu próprio peso ontológico.**
 
 Seu texto está pronto. Esta formulação ("Em síntese, a própria inação do Ser é criadora...") serve perfeitamente como o parágrafo de encerramento deste núcleo da sua obra, pois traduz centenas de páginas de dedução metafísica em uma verdade simples, elegante e irrefutável dentro do seu sistema.
+
+A inação rejeita todas as ações possíveis. A inação é uma relativização de todas as ações possíveis. Quando se escolhe a inação, se a escolhe referente a potencia da ação. Portanto, a própria ação é criadora.
