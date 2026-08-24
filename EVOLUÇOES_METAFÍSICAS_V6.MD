@@ -1201,15 +1201,7 @@ Assim, a distinção entre essas três dimensões não seria uma simples divisã
 
 O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.  
 
-Estando definido com maior clareza o que é o Espírito Santo, podemos também compreender de maneira mais nítida o que é o pecado (Ato contra a plenitude). O pecado pode ser entendido como uma postura interior contrária ao próprio existir, isto é, uma intenção que se coloca em oposição à orientação fundamental da pessoa para a vida, para a plenitude e para a realização de seu próprio ser.
 
-Essa postura interior não permanece necessariamente abstrata. Ela tende a repercutir na própria existência humana, manifestando-se no corpo, na afetividade, nos desejos e nas ações. É essa manifestação concreta de uma disposição interior contrária ao existir que podemos reconhecer como a sintomática do pecado.
-
-Por exemplo, quando um ser humano reprime seu desejo natural pela vida, pela esperança e pela eternidade, essa orientação não necessariamente desaparece. Ela pode buscar outras formas de expressão, de maneira distorcida e indireta. O desejo pela plenitude pode, então, ser projetado sobre objetos incapazes de realizá-lo plenamente, manifestando-se, por exemplo, como uma obsessão desordenada por bens materiais. O que originalmente apontava para uma plenitude do ser passa a buscar, nos objetos, uma compensação para aquilo que foi interiormente reprimido.
-
-Podemos levar essa ideia ainda mais longe. Quando um ser humano se posiciona interiormente contra a própria vida e contra aquilo que reconhece como bom, a própria experiência da felicidade pode tornar-se dolorosa. Isso ocorre porque a felicidade revela o valor daquilo que ele pretende negar. Diante disso, pode surgir uma tentativa de desfigurar o que é bom, seja diminuindo seu valor, seja rejeitando-o, seja praticando ações que contrariem aquilo que interiormente se reconhece como valioso.
-
-Se quiser acompanhar toda a minha obra. 
 
 Porque os entes não resistem a infinitização? O ente determinado colapsa ao ser infinitizado, porém, ao deixarmos um fragmento fenomenico, isto ainda não fará sentido, pois até o fragmento sem determinação, é uma determinação de fragmento. É algo. Tudo que é algo é um algo, ou é formatado conforme a si mesmo. Para o ente ter sua essencia fundida a determinação, precisa ser completamente puro. Necessita que seu resquicio de fundamentação seja, não a parte que resta sem determinação, pois a parte da fundamentação sem sua determinação, na verdade, não existe.
 
