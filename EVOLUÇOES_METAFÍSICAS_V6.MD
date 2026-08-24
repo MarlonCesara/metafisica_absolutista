@@ -4885,4 +4885,9 @@ Portanto, não há o relativo ontológico, há a inação do Espírito, ou açã
 
 O relativo, sendo o relativo é determinado. Seria uma ação, a construção de um ente. Mas não nos referimos mais ao relativo, dada a autonomia do absoluto, temos a ação absoluta, o relativo, mediante auto causalidade do absoluto, é uma ação relativa, um produto da liberdade. E, o relativo, ausentando-se de si mesmo, é presentado pelo atuador, pela ação libertadora da forma.
 
+Em síntese, não existe o nada, o relativo, o indiferenciado determinado, ou a destruição da determinação. Existe o ato relativo, a inatividade. Ao elegermos qualquer determinação previa ontológica, limitariamos o potencial criativo, então não se daria por inação do Espírito, mas por uma ação já instaurada.
 
+
+Temos que a inação, livre de ser determinante de uma ontologia reversa como o nada, é realmente livre a não ter formas pré estabelecidas, é realmente criar do nada, ao não haver nenhum nada ontológico ou reverso à existência determinada. Evocar do nada é agir e criar, e não evocar de uma realidade.
+
+Portanto não há o nada, há a soberania do Espírito, há inação do Espirito. A inação é real, um produto real, inexistente. Uma inexistência real de forma a delimitar os contornos do existente soberano que é o Ser. Ao passo que para a inação temos como subentendida a ação. A inação surtindo efeitos reais de soberania, temos a ação surtindo efeitos reais de determinação para absoluto.
