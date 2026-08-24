@@ -4769,4 +4769,6 @@ Escolher a não atividade, é negar todas as atividades possíveis. Isto é, nad
 
 Isto é, a determinaçaõ é produto real da ação, tanto quanto o nada, ou a não criação é produto real da inação. Isto evoca a potencialidade do Ser de ser soberano, ou ser criador. Pois o ''ser''soberano, é somente uma face criatividade um potencial de liberdade.
 
+Temos portanto, a inação, como ação relativa. E a ação, como determinada. Temos, portanto, o fenômeno invertido, não como uma realidade ontológica, uma pureza falsa. Mas como a ação relativa. O relativo, sendo auto causado, é um estado de inoperancia do ente.
+
 
