@@ -4930,3 +4930,53 @@ Por isso procuramos um sentido para o que possa existir para relativo. Descobrim
 Ex: Ao concebermos um absoluto sem o sentido, sem a auto causalidade, sem a auto posição, temos qualquer opção para absoluto, um vendaval de pelas soltas, que não são nem mesmo coisa, e nem mesmo coisa alguma. Ao serem espalhadas essas peças não formam nem o nada e nem fragmentos de algo, se forma o relativo. Que não é o nada, e não é nem mesmo algo. Não é a totalidade colapsada e nem mesmo o recorte.
 
 Ao descobrirmos o sentido do absoluto, definimos a auto posição absoluta, temos a inação somente do Espírito. Que remete a algo que se pode referenciar, e essa posição de inatividade remete a liberdade total, pois não precisamos dizer que algo existe referenciando uma ontologia falsa como o nada, podemos somente dizer que a ação inativa existe. E a auto posição para absoluto está dada. Isto é, o nada existe de forma figurativa sem ser chamado de nada, sem ser referenciado, sem ser ontológico, não há o nada, há a inação do Espírito, e com a ação mediante a total liberdade, temos a criação.
+
+
+
+
+
+
+
+
+
+
+
+
+Chegamos ao relativo. Mas, quando referenciado, o relativo pode ser tomado como nada. Portanto, quando retiramos do relativo a visão isolada dele e o absolutizamos, já não temos o relativo, mas a liberdade metafísica.
+
+Novamente, desfazemos um possível conceito ontológico de nada, para que não se faça dele uma realidade em suspensão.
+
+O absoluto determina-se em estado solo: em pureza. Portanto, pode determinar também o estado de impureza. O relativo, porém, não é sustentável: esgota-se, e então temos novamente apenas o absoluto, puro, como amor.
+
+O amor se faz indiferenciado e, portanto, é autor de seu próprio ato de indiferenciação. A indiferenciação do absoluto é o único objeto resultante do colapso da determinação, e não mais o relativo.
+
+Assim, temos de inferir que não é possível alcançar o absoluto inefável a partir do determinado. Trata-se, contudo, de uma tentativa de purificar o determinado sem destruí-lo, e isso não é possível. Nossa única via de inferência é o absoluto, que nos conduz ao indiferenciado.
+
+A compreensão das vias de destruição da determinação não nos leva ao inefável; ao contrário, é a mudança do inefável que nos conduz à determinação, pois o inefável é autor de sua própria soberania e de sua própria indiferenciação.
+
+A liberdade metafísica não é ontologizável, mas pode ser entendida como propriedade ontológica do indiferenciado. Não se pode dominá-la e transformá-la em um ente ontológico, mas pode-se atribuí-la como propriedade do ente livre.
+
+Qualquer inação em relação ao absoluto é uma determinação inativa. O absoluto já é livre para ser. Então, é livre também para não ser ele? O ser já é uma liberdade reta, exercida de modo incorruptível.
+
+O relativo não é uma realidade ontológica; é o ato relativo. Só existe o ato, sem efeitos que possam ser tomados como realidades autônomas. O ato relativo possui a pureza necessária para criar, pois não designa nenhuma realidade determinada. Há apenas a ação ou a inação pura do indiferenciado.
+
+No ato relativo, o relativo se esgota, sobrando apenas o ato. O relativo esgota-se no ato de ser soberano. Não há mais o relativo, mas o ato relativo mediante a causalidade.
+
+O relativo é como uma bagunça, uma espécie de lousa que pode assumir qualquer forma. Mas a própria lousa já é uma forma; portanto, o relativo não é sequer a lousa, muito menos o nada.
+
+Nessa bagunça, tudo transita: o possível e o impossível. Mas nada se instaura, nem mesmo o nada, até que encontremos o sentido. Quando o sentido se instaura, sua inação torna-se uma ação. Sua inação produz o nada — ou, mais precisamente, não produz. A inação gera o não ente. Nesse sentido, a inação justifica a criação, pois a própria inação é criada.
+
+Não encontramos o inefável destruindo a forma. Ou seja, não encontramos o nada.
+
+Outro exemplo: digamos que queremos jogar as cartas de um baralho para cima. Não jogá-las significa simplesmente permanecer com o baralho na mão. Tal como a inação, o produto da ação também pode ser compreendido a partir daquilo que não ocorre.
+
+O absoluto, sendo vivo, possui um sentido em sua suspensão, e esse sentido define o que não há com base em tudo aquilo que há.
+
+Quando tentamos destruir a formatação para chegar ao absoluto, com o intuito de definir o que haveria nele, partimos da suposição de uma formatação determinada, isto é, de algo definido como forma. Porém, ao mesmo tempo, supomos que essa realidade seja pura: não há diferença entre essência e fundamento, e não há forma determinada.
+
+
+
+
+Não se chega no aspecto relacional do absoluto, no inefável, no indiferenciado, sem que seja através da inferencia do próprio absoluto, quando tentamos anular a forma, chegamos a lugar algum. Não há pureza retrocedendo a forma, pois a forma em si precisa da essência, ao diluilá, a forma se esvai. 
+
+Portanto a realidade do relativo nao se obtem através da redução da forma, se obtem como inferencia diretamente do absoluto. 
