@@ -11816,3 +11816,6 @@ Por exemplo, quando um ser humano reprime seu desejo natural pela vida, pela esp
 Podemos levar essa ideia ainda mais longe. Quando um ser humano se posiciona interiormente contra a própria vida e contra aquilo que reconhece como bom, a própria experiência da felicidade pode tornar-se dolorosa. Isso ocorre porque a felicidade revela o valor daquilo que ele pretende negar. Diante disso, pode surgir uma tentativa de desfigurar o que é bom, seja diminuindo seu valor, seja rejeitando-o, seja praticando ações que contrariem aquilo que interiormente se reconhece como valioso.
 
 
+
+
+O niilista, quando tenta se apropriar de uma postura social correta e secretamente ter o intuito da anulação, se encerra numa sensação de aprisionamento de carcere, e os efeitos físicos disso se dão como uma insônia e constante irritação. Um mal humor que nunca se esvai.
