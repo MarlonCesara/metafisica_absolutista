@@ -4977,12 +4977,19 @@ Quando tentamos destruir a formatação para chegar ao absoluto, com o intuito d
 
 
 
-Não se chega no aspecto relacional do absoluto, no inefável, no indiferenciado, sem que seja através da inferencia do próprio absoluto, quando tentamos anular a forma, chegamos a lugar algum. Não há pureza retrocedendo a forma, pois a forma em si precisa da essência, ao diluilá, a forma se esvai. 
+Não se chega no aspecto relacional do absoluto, no inefável, no indiferenciado, sem que seja através da inferência do próprio absoluto, quando tentamos anular a forma, chegamos a lugar algum. Não há pureza retrocedendo a forma, pois a forma em si precisa da essência, ao diluila, a forma se esvai. 
 
-Portanto a realidade do relativo nao se obtem através da redução da forma, se obtem como inferencia diretamente do absoluto. 
-
-
+Portanto a realidade do relativo nao se obtém através da redução da forma, se obtém como inferência diretamente do absoluto. 
 
 
 
-Em sintese, ao pensarmos no que poderia haver para absoluto, temos que, ao escolher o nada, precisamos averiguar o motivo de não haver coisa alguma, em detrimento de haver. Deve haver uma razão para não haver coisa alguma tal como uma razão para haver alguma coisa. Qualquer determinação para absoluto necessita de um sentido ou razão partida do prório absoluto. Pois para a determinação deve haver causa tanto quanto para a existência. 
+
+
+Em síntese, ao pensarmos no que poderia haver para absoluto, temos que, ao escolher o nada, precisamos averiguar o motivo de não haver coisa alguma, em detrimento de haver. Deve haver uma razão para não haver coisa alguma tal como uma razão para haver alguma coisa. Qualquer determinação para absoluto necessita de um sentido ou razão partida do prório absoluto. Pois para a determinação deve haver causa tanto quanto para a existência. 
+
+
+Procurar o inefável pela reversão do determinado, pela tentativa de purificar o determinado, sempre se encerra num relativo. Numa forma e nem não forma. Pois a forma é destruída assim como a não forma se torna uma ontologia ilógica, insustentável. Isto é, formar o nada ontológico se torna uma tarefa cansativa. Ao transformar o determinado num todo que existe mas é invisivel, temos para este invisível uma determinação sempre. Isto é, nunca se destrói a determinação para absoluto. 
+
+Ao dizer que absoluto é uma coisa, dizemos que não é outra. 
+
+Porém, ao se buscar o inefável diretamente do absoluto, temos 
