@@ -4927,3 +4927,6 @@ Por isso procuramos um sentido para o que possa existir para relativo. Descobrim
 
 
 
+Ex: Ao concebermos um absoluto sem o sentido, sem a auto causalidade, sem a auto posição, temos qualquer opção para absoluto, um vendaval de pelas soltas, que não são nem mesmo coisa, e nem mesmo coisa alguma. Ao serem espalhadas essas peças não formam nem o nada e nem fragmentos de algo, se forma o relativo. Que não é o nada, e não é nem mesmo algo. Não é a totalidade colapsada e nem mesmo o recorte.
+
+Ao descobrirmos o sentido do absoluto, definimos a auto posição absoluta, temos a inação somente do Espírito. Que remete a algo que se pode referenciar, e essa posição de inatividade remete a liberdade total, pois não precisamos dizer que algo existe referenciando uma ontologia falsa como o nada, podemos somente dizer que a ação inativa existe. E a auto posição para absoluto está dada. Isto é, o nada existe de forma figurativa sem ser chamado de nada, sem ser referenciado, sem ser ontológico, não há o nada, há a inação do Espírito, e com a ação mediante a total liberdade, temos a criação.
