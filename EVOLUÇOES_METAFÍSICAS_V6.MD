@@ -4914,3 +4914,16 @@ A auto posição está rendida ao Ser, a pura posição sem criação, isto é, 
 
 Para absoluto poderia haver qualquer determinação, não haveria uma razão pela qual deveria ser A ou B, e nem mesmo A ou Não A. Havendo uma posição está posição é a negação de todas as outras posições. É uma determinação que surge com o inefável, mantendo a soberania do inefável e a aberto para a liberdade do mesmo.
 
+
+# A destruição da forma para chegar ao inefável
+
+Quando dissecamos o absoluto através da destruição da forma, descobrimos que, a forma sem sentido, não existe. nem mesmo a não forma ''relativo", existe sem sentido, tal como se revela na auto posição, por isso foi preciso primeiramente a reversão da forma, o encontro do sentido absoluto e depois a desmembração do relativo do campo absoluto, deixando somente a auto posição pura do absoluto.
+
+Pois até mesmo o relativo considerado um campo ontológico necessitaria de explicação como inefável, e não apresente pois sendo ontológico é uma determinação. Não é o inefável e nem mesmo a forma pura, pois a forma pura não existe, a forma necessariamente é forma e não pode ser destruída sem lhe retirar a forma, não pode ser refinada até chegarmos ao relativo.
+
+Quando chegamos ao relativo como um conceito e não uma realidade ontológica, não descobrimos uma realidade ontológica formatada e inefável, descobrimos a total falta de sentido num absoluto sem definição.
+
+Por isso procuramos um sentido para o que possa existir para relativo. Descobrimos o sentido soberano, e a "forma" do absoluto na própria auto posição sem ação deste sentido. O nada, isto é, o que seria o relativo, se abandona e entrega a ação inativa, isto é, a ação relativa, que é a soberania sem criação do Espírito. Que escolhe sua auto posição soberana, que figurativamente chamamos de posição que gera o nada. Pois o nada não pode ser referenciado, mas a ação soberana pode. Temos então a liberdade com total potencia, aquela que não é tomada por existentes ontológicos falsos como relativo, nada, etc. Mas aquela que tem total potencia, livre de formas. 
+
+
+
