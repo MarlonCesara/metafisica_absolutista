@@ -4907,3 +4907,10 @@ No ato relativo, o relativo se esgota, restando apenas o ato.
 
 O relativo se esgota no ato de ser soberano. Não há mais um “relativo”; há apenas o **ato relativo**, mediante a causalidade.
 
+
+Ex: Até para haver o nada, e não outra coisa para absoluto, exige uma explicação. Isto é, para o estado de auto posição do absoluto, onde não há contingência, é necessária uma explicação tal como havê-la. Pois, nem mesmo o nada deveria existir para absoluto, não haveria motivo pelo qual nada existisse se não no próprio absoluto. Não há motivo externo e anterior para qual o absoluto deva ser A em detrimento de B. Isto é, ser uma auto posição do bem querer pura, e não ser uma auto posição com elementos criados. Portanto, ao não haver coisa alguma se não o inefável, este é um estado determinado pelo inefável.
+
+A auto posição está rendida ao Ser, a pura posição sem criação, isto é, é determinada pela vontade, é intencional. Isto é, para tudo que poderia haver em absoluto, há uma auto posição, a simplicidade do Ser em detrimento a todas as outras formas.
+
+Para absoluto poderia haver qualquer determinação, não haveria uma razão pela qual deveria ser A ou B, e nem mesmo A ou Não A. Havendo uma posição está posição é a negação de todas as outras posições. É uma determinação que surge com o inefável, mantendo a soberania do inefável e a aberto para a liberdade do mesmo.
+
