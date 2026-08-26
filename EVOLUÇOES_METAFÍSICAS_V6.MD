@@ -4985,11 +4985,11 @@ Portanto a realidade do relativo nao se obtém através da redução da forma, s
 
 
 
-Em síntese, ao pensarmos no que poderia haver para absoluto, temos que, ao escolher o nada, precisamos averiguar o motivo de não haver coisa alguma, em detrimento de haver. Deve haver uma razão para não haver coisa alguma tal como uma razão para haver alguma coisa. Qualquer determinação para absoluto necessita de um sentido ou razão partida do prório absoluto. Pois para a determinação deve haver causa tanto quanto para a existência. 
+Em síntese, ao pensarmos no que poderia haver para absoluto, temos que, ao escolher o nada, precisamos averiguar o motivo de não haver coisa alguma, em detrimento de haver. Deve haver uma razão para não haver coisa alguma tal como uma razão para haver alguma coisa. Qualquer determinação para absoluto necessita de um sentido ou razão partida do próprio absoluto. Pois para a determinação deve haver causa tanto quanto para a existência. 
 
 
-Procurar o inefável pela reversão do determinado, pela tentativa de purificar o determinado, sempre se encerra num relativo. Numa forma e nem não forma. Pois a forma é destruída assim como a não forma se torna uma ontologia ilógica, insustentável. Isto é, formar o nada ontológico se torna uma tarefa cansativa. Ao transformar o determinado num todo que existe mas é invisivel, temos para este invisível uma determinação sempre. Isto é, nunca se destrói a determinação para absoluto. 
+Procurar o inefável pela reversão do determinado, pela tentativa de purificar o determinado, sempre se encerra num relativo. Numa forma e nem não forma. Pois a forma é destruída assim como a não forma se torna uma ontologia ilógica, insustentável. Isto é, formar o nada ontológico se torna uma tarefa cansativa. Ao transformar o determinado num todo que existe mas é invisível, temos para este invisível uma determinação sempre. Isto é, nunca se destrói a determinação para absoluto. 
 
 Ao dizer que absoluto é uma coisa, dizemos que não é outra. 
 
-Porém, ao se buscar o inefável diretamente do absoluto, temos 
+Porém, ao se buscar o inefável diretamente do absoluto, temos uma autoposição sem que seja necessário ao menos mencionar o nada. Mencionamos apenas a total liberdade, que seria impedida se houvesse um nada determinado previamente que fosse ontológico.
