@@ -11819,3 +11819,7 @@ Podemos levar essa ideia ainda mais longe. Quando um ser humano se posiciona int
 
 
 O niilista, quando tenta se apropriar de uma postura social correta e secretamente ter o intuito da anulação, se encerra numa sensação de aprisionamento de carcere, e os efeitos físicos disso se dão como uma insônia e constante irritação. Um mal humor que nunca se esvai.
+
+
+
+O acumulador se direciona para a morte como se direciona para o sarcófago, o acumulo material é sua cegueira, é a ferramenta necessária para o pleno esquecimento de si mesmo, com total atenção em um valor material que já não quer encontrar na própria existência. Ao projetar todo o valor ao acumulo financeiro, evita pensar por si mesmo, pensa na morte como único sentido de sua vida, e alivia-se da perca de si, alivia-se de não pensar sobre si espelhando todo o valor no âmbito material. Simplesmente evita pensar. Ao ter que se dispor de sua fortuna ou parte dela, é levado a um pensamento existencial de si mesmo, um pensamento de si quando ser existente, e não como ser para a morte e para o vazio. Então, neste momento, precisa defrontar sua aparente derrota interior de outras formas. 
