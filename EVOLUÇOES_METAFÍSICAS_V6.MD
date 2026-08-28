@@ -5006,6 +5006,11 @@ O relativo não é o recorte, não é a totalidade, não é simplesmente nada de
 
 E, ao considerarmos o absoluto sem investigamos alguma de suas facetas, temos, a auto causalidade imperando. O sentido é soberano.
 
+Para qualquer configuração que definimos para absoluto, precisamos de uma definição do porque é como é, isto é, precisamos para a causa da determinação. Por isso o relativo. Ao tentarmos encontrar uma definição para o defindo como A ou não A, de qualquer forma, caimos no relativo. Não há um sentido para a forma, para definirmos forma. 
+
+O absoluto deve ser indiferenciado, não há uma definição anterior ou exterior que o defina, não há o ato de definição. O absoluto se apresenta como se é. Isto faz com que não seja possível inferir uma modalidade para absoluto através da destruição da determinação.
+
+Chegamos sempre no relativo, uma pendencia de um definidor. Ao encontrarmos o sentido de Ser, temos, portanto, o sentido como soberano. E sua auto posição é o sentido para relativo, sua movimentação, é criadora.
 
 
 
