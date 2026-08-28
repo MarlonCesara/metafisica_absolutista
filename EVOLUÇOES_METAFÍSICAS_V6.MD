@@ -5004,6 +5004,15 @@ Porém, ao pensarmos a nível absoluto, e não mais a nível de um absoluto conf
 
 O relativo não é o recorte, não é a totalidade, não é simplesmente nada designado, é a espera de um relativizador. É uma pendencia lógica, argumentativa. 
 
+
+
+
+
+
+
+
+
+
 E, ao considerarmos o absoluto sem investigamos alguma de suas facetas, temos, a auto causalidade imperando. O sentido é soberano.
 
 Para qualquer configuração que definimos para absoluto, precisamos de uma definição do porque é como é, isto é, precisamos para a causa da determinação. Por isso o relativo. Ao tentarmos encontrar uma definição para o defindo como A ou não A, de qualquer forma, caimos no relativo. Não há um sentido para a forma, para definirmos forma. 
