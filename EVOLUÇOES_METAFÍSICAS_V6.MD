@@ -5002,9 +5002,9 @@ Quando pensamos o que há no absoluto, pensamos no que descartamos que poderia h
 
 Porém, ao pensarmos a nível absoluto, e não mais a nível de um absoluto configurado. Temos, agora, a auto causalidadade, o sentido do Absoluto voltado para si. 
 
+O relativo não é o recorte, não é a totalidade, não é simplesmente nada designado, é a espera de um relativizador. É uma pendencia lógica, argumentativa. 
 
-
-
+E, ao considerarmos o absoluto sem investigamos alguma de suas facetas, temos, a auto causalidade imperando. O sentido é soberano.
 
 
 
