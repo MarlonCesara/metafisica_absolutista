@@ -4993,3 +4993,7 @@ Procurar o inefável pela reversão do determinado, pela tentativa de purificar 
 Ao dizer que absoluto é uma coisa, dizemos que não é outra. 
 
 Porém, ao se buscar o inefável diretamente do absoluto, temos uma autoposição sem que seja necessário ao menos mencionar o nada. Mencionamos apenas a total liberdade, que seria impedida se houvesse um nada determinado previamente que fosse ontológico.
+
+
+
+A tentativa de purificar o determinado, ainda que tenhamos o relativo como máxima purificação, esta seria mais uma determinação para o absoluto, não no nivel da forma, mas no nivel da possibilidade. Diriamos que relativo é possível. Ao passo que o nada determinado, também seria uma determinação no nível da possibilidade.
