@@ -11823,3 +11823,5 @@ O niilista, quando tenta se apropriar de uma postura social correta e secretamen
 
 
 O acumulador se direciona para a morte como se direciona para o sarcófago, o acumulo material é sua cegueira, é a ferramenta necessária para o pleno esquecimento de si mesmo, com total atenção em um valor material que já não quer encontrar na própria existência. Ao projetar todo o valor ao acumulo financeiro, evita pensar por si mesmo, pensa na morte como único sentido de sua vida, e alivia-se da perca de si, alivia-se de não pensar sobre si espelhando todo o valor no âmbito material. Simplesmente evita pensar. Ao ter que se dispor de sua fortuna ou parte dela, é levado a um pensamento existencial de si mesmo, um pensamento de si quando ser existente, e não como ser para a morte e para o vazio. Então, neste momento, precisa defrontar sua aparente derrota interior de outras formas. 
+
+O niilista simula magoas constantes, pois quer projetar a tendencia, a sensação de ódio interior, em projeções, acontecimentos e pessoas do passado. Fingir-se uma pessoa magoada, ressentida, desfigura sua intenção de forma a se projetar como uma pessoa extremamente afetável.
