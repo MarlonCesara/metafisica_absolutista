@@ -4977,7 +4977,7 @@ Quando tentamos destruir a formatação para chegar ao absoluto, com o intuito d
 
 
 
-Não se chega no aspecto relacional do absoluto, no inefável, no indiferenciado, sem que seja através da inferência do próprio absoluto, quando tentamos anular a forma, chegamos a lugar algum. Não há pureza retrocedendo a forma, pois a forma em si precisa da essência, ao diluila, a forma se esvai. 
+Não se chega no aspecto relacional do absoluto, no inefável, no indiferenciado, sem que seja através da inferência do próprio absoluto, quando tentamos anular a forma, chegamos a lugar algum. Não há pureza retrocedendo a forma, pois a forma em si precisa da essência, ao dilui-la, a forma se esvai. 
 
 Portanto a realidade do relativo nao se obtém através da redução da forma, se obtém como inferência diretamente do absoluto. 
 
@@ -4992,8 +4992,25 @@ Procurar o inefável pela reversão do determinado, pela tentativa de purificar 
 
 Ao dizer que absoluto é uma coisa, dizemos que não é outra. 
 
-Porém, ao se buscar o inefável diretamente do absoluto, temos uma autoposição sem que seja necessário ao menos mencionar o nada. Mencionamos apenas a total liberdade, que seria impedida se houvesse um nada determinado previamente que fosse ontológico.
+Porém, ao se buscar o inefável diretamente do absoluto, temos uma auto posição sem que seja necessário ao menos mencionar o nada. Mencionamos apenas a total liberdade, que seria impedida se houvesse um nada determinado previamente que fosse ontológico.
+
+A tentativa de purificar o determinado, ainda que tenhamos o relativo como máxima purificação, esta seria mais uma determinação para o absoluto, não no nível da forma, mas no nível da possibilidade. Diríamos que relativo é possível. Ao passo que o nada determinado, também seria uma determinação no nível da possibilidade.
+
+Para toda forma ou determinação, nega-se qualquer outra forma ou possibilidade que poderia haver. Não funciona buscar o que há em absoluto, mas a razão de haver. Para a opção que se aceita, negam-se todas as outras. Não funciona procurar o que há, mas a razão de haver, o sentido. Não mais o que existe, e sim o sentido de existir. Que é o Ser. E se faz isso diretamente a partir do Absoluto, não numa tentativa de purificar o que conhecemos ou o que deduzimos, mas numa empreitada de inferir sobre o sentido.
+
+Quando pensamos o que há no absoluto, pensamos no que descartamos que poderia haver. Ao pensarmos que poderia haver tudo no absoluto, não obtemos nenhuma coisa nem outra, obtemos o relativo. Para toda a determinação, não encontramos uma indeterminação existente. Não encontramos o indiferenciado pela destruição da forma. Isto é, sempre há uma configuração.
+
+Porém, ao pensarmos a nível absoluto, e não mais a nível de um absoluto configurado. Temos, agora, a auto causalidadade, o sentido do Absoluto voltado para si. 
 
 
 
-A tentativa de purificar o determinado, ainda que tenhamos o relativo como máxima purificação, esta seria mais uma determinação para o absoluto, não no nivel da forma, mas no nivel da possibilidade. Diriamos que relativo é possível. Ao passo que o nada determinado, também seria uma determinação no nível da possibilidade.
+
+
+
+
+
+
+
+
+
+O niilista frequentemente adere à postura de ressentido para justificar a si mesmo, mediante sua postura relutante.
