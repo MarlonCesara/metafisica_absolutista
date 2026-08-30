@@ -11855,3 +11855,9 @@ O niilista portanto, não está estreitamente interessado nos privilégios, mas 
 Por hora o niilista nao quer ser descoberto, nao quer ter suas raizes sociais, toda sua estrutura de poder desmascarada pelo completo entendimento de sua base emocional e afetiva. Pois perderá seus personagens, sua força de expressão, sua tentativa de extrair o proposito sem realmente este ser o proposito, sem que imagine estar extraindo o elixir da vida que precisa do esforço alheio de forma que se sinta amparado, não de forma que tenha realmente o direcionamento que precisa para encerrar sua postura niilista.
 
 Por hora o niilista quer ser descoberto, quer ser amparado, quer um grupo de pessoas que entendam para o estabilizar, para o lembrar do que precisa, para o dar razões para continuar.
+
+
+O niilista busca por um falso messias, por um imitador como tentativa de segregar a história cristã, como tentativa de mascarar o sentido da religião.
+
+
+O traficante no alto do morro, mata, não por uma vontade passional, mas pela expressão da morte que sente infligir a si mesmo, mata pela angustia existencial acerca de sua liberdade e do uso antagonico desta.
