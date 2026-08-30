@@ -5033,7 +5033,11 @@ E essa forma é a inferencia direta pelo absoluto, pela auto causalidade, que de
 
 Portanto, o relativo é a segregação de qualquer forma para absoluto em prol de sum sentido maior, que é inferido diretamente pelo Absoluto como o sentido em direção a si mesmo, não o que há, mas o sentido de Ser, isto é, não é uma forma, é o sentido de qualquer forma que tenha a finalidade de sustentar-se.
 
-É o existir e o sentido, o existir e a essencia do existir.
+É o existir e o sentido, o existir e a essência do existir. Não há o que existe, no sentido de A ou B, mas há o existir, o fundamento sem forma, não algo que é, mas o Ser. E o Ser, é inferido, não por reversão da determinação para encontrar um fundo sem forma. Mas pelos sentido auto causal, uma realidade que causa a si mesma, que se coloca a favor de si sem que tenha que Ser A ou B para isso, é somente o "a favor".
+
+É somente o amar, não é algo amado, pois se instaura o relativo, uma indefinição. Há somente o amor sem foco primeiro, o amar sem objeto. O amar que se dá e entrega a si mesmo livre para a indefinição. E sua movimentação é criar do nada.
+
+Há o desejo irrevogável por si, sem um si. Há o desejar, há o Ser. O Ser, não é algo que é, uma definição, mas é o ato de Ser sem sujeito, tal como o ato de amar sem o amado.
 
 
 
