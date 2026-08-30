@@ -5213,3 +5213,14 @@ O Ser não é um princípio abstrato, nem uma substância impessoal. Ele é **at
 
 E é por isso que o Ser pode ser, ao mesmo tempo, **indeterminado** (sem forma) e **pleno de sentido** (amor). A ausência de determinação não é vazio, mas liberdade absoluta de ser amor. O Ser é, portanto, o amor que se ama a si mesmo como puro ato de ser. E nada mais é preciso dizer.
 
+
+O Ser, naturalmente é direcionado ao que é, ao amor a si mesmo, pois se sustenta como Ser, e se é, é a si. Não como o para si do ente determinado que direcionase a si mesmo, mas o para si do Absoluto é para o todo, pois é absoluto, para todas as coisas. O sim, do absoluto é a totalidade, um amor que se doa sem fronteiras de um si determinado, o absoluto não é para si, é para absoluto.
+
+
+
+
+
+A tradição filosófica tenta constantemente a busca pelo inefável através do mundo fenomenico ou através da tentativa de anulação deste mundo fenomenico, para encontrar o que se esgota dele. Porém, a tentativa de esgotamento não revela o Ser, mas a necessidade do relativizador tal como revela a necessidade do criador mediante a criação. Portanto, são os mesmos caminhos para uma definição vaga, que é uma realidade pura, o Ser.
+
+Ao inferirmos diretamente do absoluto temos um horizontem vasto para compreender a dimensão das pessoas divinas, a temporalidade, a intencionlidade e todos os aspectos do Ser. 
+
