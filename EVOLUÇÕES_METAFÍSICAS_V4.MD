@@ -11837,3 +11837,6 @@ O cansaço que o humano sente em decorrência de uma péssima economia, salário
 
 
 O niilista por vezes tenta transparecer uma pessoa feliz, uma pessoa totalmente normal, quer provar que pode compor a sociedade sendo normal, mas num acumulo de frustração sempre manifesta sintomas, como um cansaço extremo, uma irritação que vem muito fácil. Sua voz é empoderante ao passo que por trás carrega um fundo de raiva.
+
+
+Quando o niilista tenta reprimir totalmente até mesmo sintomas físicos, isso pode se manifestar em forma de agressividade. Uma agressividade quase inevitável de se expressar contra pessoas ao seu redor, ou contra quem considera estar lhe cobrando o comportamento normativo.
