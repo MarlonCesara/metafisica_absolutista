@@ -11840,3 +11840,8 @@ O niilista por vezes tenta transparecer uma pessoa feliz, uma pessoa totalmente 
 
 
 Quando o niilista tenta reprimir totalmente até mesmo sintomas físicos, isso pode se manifestar em forma de agressividade. Uma agressividade quase inevitável de se expressar contra pessoas ao seu redor, ou contra quem considera estar lhe cobrando o comportamento normativo.
+
+
+O rico, quando nao gerador de valor para a sociedade afim de merecer realmente a riqueza que desenvolveu, é apenas um personagem que simula a predileção, a cultura, o querer pelo requinte, pela ampliação de possibilidades, como viagens, aquisições. O individuo gosta daquilo pela posição que esses requintes o adicionam perante os outros, mas não pelos próprios requintes. Viaja pela posição privilegiada de poder viajar e não exclusivamente pela própria viagem. Ao retirar os privilegios destes personagens, simplesmente não possuem o desejo suficiente para construir sua riqueza. 
+
+Qualquer tipo de riqueza gerada pela vontade de agregar valor a sociedade, tem seu consumo necessário e quase nunca envolve grande acumulo, vamos citar o exemplo de um famoso que apareceu para milhões de pessoas e foi perseguido pelo seu bom exemplo social por unm grupo organizado de niilistas, então precisou fazer uma viagem que lhe recuperasse o animo de viver, ou uma aquisição que restaurasse seus ânimos. O ganho foi respectivo ao esforço desempenhado. Isto é, o individuo cobrou pela sua restauração, conseguiu converter ofensas em possibilidades.
