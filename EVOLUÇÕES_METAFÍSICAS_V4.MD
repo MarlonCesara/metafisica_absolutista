@@ -11827,3 +11827,9 @@ O acumulador se direciona para a morte como se direciona para o sarcófago, o ac
 O niilista simula magoas constantes, pois quer projetar a tendencia, a sensação de ódio interior, em projeções, acontecimentos e pessoas do passado. Fingir-se uma pessoa magoada, ressentida, desfigura sua intenção de forma a se projetar como uma pessoa extremamente afetável.
 
 Os efeitos do niilismo podem ser insônia e um desgaste mental anormal, o individuo gasta energia tentando se esquivar da discrepância, preenchendo sua cabeça de distrações, ou simplesmente tem até mesmo dificuldades para dormir e morrer mantendo sua decisão interir. Portanto, são pessoas com um nervosismo quase que natural sem nenhuma explicação aparente.
+
+
+O niilista frequentemente adere à postura de ressentido para justificar a si mesmo, mediante sua postura relutante.
+
+
+O cansaço que o humano sente em decorrência de uma péssima economia, salários ruins é o reflexo do cansaço do niilista, um peso transferido aos ombros do mundo, numa tentativa de se expressar e se fazer compreender. Uma tentativa forçada, e imaginada justificada mediante ao desespero interior oculto do niilsimo e a breve esperança que se fazer entendido movera esse desespero para longe.
