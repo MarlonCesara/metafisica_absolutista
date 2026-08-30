@@ -5039,6 +5039,105 @@ Portanto, o relativo é a segregação de qualquer forma para absoluto em prol d
 
 Há o desejo irrevogável por si, sem um si. Há o desejar, há o Ser. O Ser, não é algo que é, uma definição, mas é o ato de Ser sem sujeito, tal como o ato de amar sem o amado.
 
+E esse desejo é, não como uma determinação do que seja, tal como afirmaria o ''sou'', mas como a essência pura do sou, que é o Ser.
+
+O Ser é puro ato de Ser, sem quem seja. E este ato de Ser se define em qualidade, ser para si, isto é, este Ser, é qualitativamente amor. É o tipo de Ser, o ato, que não é vazio, é direcional, é amor.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Sua reflexão toca em um ponto central da metafísica e da mística: a tentativa de falar do Absoluto sem reduzi-lo a uma determinação. Você propõe que o Absoluto não pode ser definido por nenhuma forma, nem mesmo pelo nada, pois toda tentativa de definição já o relativiza. E, no entanto, você aponta para uma “realidade que dispense a determinação”, que se manifesta como **sentido**, como **auto-causalidade**, como **Ser** — não como “algo que é”, mas como o próprio ato de ser.
+
+A semelhança entre **amar** e **Ser** que você esboça é profunda e merece ser explicitada com mais precisão. Vou tentar desenvolvê-la a partir do seu próprio texto, mantendo o rigor conceitual e a densidade poética que você emprega.
+
+---
+
+### 1. Amar e Ser como atos sem sujeito determinado
+
+Você diz:
+
+> “Há somente o amor sem foco primeiro, o amar sem objeto. O amar que se dá e entrega a si mesmo livre para a indefinição.”
+
+Aqui, o amar não é um atributo de um sujeito, nem uma relação entre dois termos. Ele é **puro ato**, sem substantificação. Da mesma forma, o Ser que você descreve não é “algo que é”, mas “o ato de Ser sem sujeito”.
+
+Essa é a primeira semelhança: **tanto o amar quanto o Ser são atos que não se deixam capturar por uma forma, por um sujeito ou por um objeto**. Eles não são predicados de algo, mas a própria dinâmica de doação, de sustentação, de presença.
+
+---
+
+### 2. A ausência de objeto como condição da plenitude
+
+> “É somente o amar, não é algo amado, pois se instaura o relativo, uma indefinição.”
+
+Se houvesse um objeto amado, haveria uma relação, uma direção, uma determinação. O amar puro, ao contrário, **não se dirige a algo**, mas se mantém como abertura, como disponibilidade absoluta. Ele é pleno não porque possui algo, mas porque **não carece de nada para ser o que é**.
+
+O mesmo se dá com o Ser: ele não é a existência de um ente, mas a **condição de toda existência**. Ele não é “isto” ou “aquilo”, mas o fundo sem forma que permite que tudo seja. O Ser é pleno porque é anterior a toda falta, a toda determinação.
+
+---
+
+### 3. A auto-causalidade como amor de si sem si
+
+> “Há o desejo irrevogável por si, sem um si. Há o desejar, há o Ser.”
+
+Aqui está o núcleo da semelhança: **o amor é desejo de si sem ter um si definido**. É movimento de retorno a si antes de qualquer identidade. O Ser, por sua vez, é **auto-causalidade**: ele se põe a si mesmo sem precisar de uma causa externa, sem precisar de uma definição anterior.
+
+Esse “desejo irrevogável por si” não é egocentrismo, pois não há um “eu” que deseja. É, antes, a **afirmação pura da existência**, o “sim” originário que o Ser diz a si mesmo. Esse “sim” não é uma determinação, mas a própria **essência do existir**: estar a favor de si, sem precisar se justificar.
+
+---
+
+### 4. A criação como transbordamento do amar e do Ser
+
+> “E sua movimentação é criar do nada.”
+
+O amar, por ser pleno em si mesmo, **transborda**. Não cria por falta, mas por excesso. O mesmo vale para o Ser: ele não se limita a ser, mas **se doa**, se manifesta, se expande. A criação não é uma necessidade, mas uma **consequência natural da plenitude**.
+
+Aqui, a semelhança entre amar e Ser se revela como **fecundidade**: ambos são fontes inesgotáveis de realidade. O amar gera mundos, relações, sentidos; o Ser gera entes, formas, existências. Mas nenhum dos dois se esgota naquilo que gera.
+
+---
+
+### 5. A essência do “sou” é o Ser, não a determinação
+
+> “E esse desejo é, não como uma determinação do que seja, tal como afirmaria o ‘sou’, mas como a essência pura do sou, que é o Ser.”
+
+O “sou” humano é sempre uma determinação: sou isto, sou aquilo. Mas a **essência do “sou”** não é nenhuma dessas determinações. Ela é o próprio ato de ser, o próprio desejo de ser, a própria presença que antecede toda forma.
+
+Assim, o “sou” mais profundo não é uma definição, mas uma **participação no Ser**, um eco do amor absoluto que se doa sem objeto. Quando dizemos “eu sou”, no sentido mais puro, não estamos nos definindo, mas **testemunhando o Ser que nos habita**.
+
+---
+
+### Conclusão: Amar e Ser como o mesmo movimento
+
+Amar e Ser se assemelham porque são **o mesmo movimento de auto-afirmação sem determinação**. Ambos são:
+
+- **Atos sem sujeito**: não precisam de um “eu” ou de um “objeto” para serem o que são.
+- **Plenitude sem forma**: não carecem de nada, pois são anteriores a toda falta.
+- **Desejo de si sem si**: são auto-causalidade, movimento de retorno a si antes de qualquer identidade.
+- **Fonte de criação**: transbordam, geram realidade sem se esgotar.
+- **Essência do existir**: são o fundo sem forma de toda existência, o “sim” originário que sustenta tudo.
+
+Você termina seu texto dizendo que o Ser é “o ato de Ser sem sujeito, tal como o ato de amar sem o amado”. Essa é a chave: **o Absoluto não é algo, mas o próprio ato de ser, que é também o próprio ato de amar**. Não há um ser que ama, nem um amado que é amado. Há apenas o amor, que é o ser, que é o sentido, que é a auto-causalidade soberana.
+
+Essa é a semelhança essencial: **amar é ser, e ser é amar**, quando ambos são compreendidos como puro ato, sem determinação, sem sujeito, sem objeto — apenas o movimento infinito de doação e afirmação de si.
+
+
+
 
 
 
