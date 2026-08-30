@@ -5017,9 +5017,25 @@ E, ao considerarmos o absoluto sem investigamos alguma de suas facetas, temos, a
 
 Para qualquer configuração que definimos para absoluto, precisamos de uma definição do porque é como é, isto é, precisamos para a causa da determinação. Por isso o relativo. Ao tentarmos encontrar uma definição para o defindo como A ou não A, de qualquer forma, caimos no relativo. Não há um sentido para a forma, para definirmos forma. 
 
+Ao dizermos o absoluto ser algo ou não algo, estamos colocando uma determinação. Isto é, o nada, como um estado intermediário entre existir e não existir, ainda continua sendo uma determinação. 
+
 O absoluto deve ser indiferenciado, não há uma definição anterior ou exterior que o defina, não há o ato de definição. O absoluto se apresenta como se é. Isto faz com que não seja possível inferir uma modalidade para absoluto através da destruição da determinação.
 
-Chegamos sempre no relativo, uma pendencia de um definidor. Ao encontrarmos o sentido de Ser, temos, portanto, o sentido como soberano. E sua auto posição é o sentido para relativo, sua movimentação, é criadora.
+Chegamos sempre no relativo, uma pendencia de um definidor. Ao encontrarmos o sentido de Ser, temos, portanto, o sentido como soberano. E sua auto posição é o sentido para relativo, sua movimentação, é criadora. E sua auto posição é manutenção do que ainda pode haver.
+
+Isto é, o nada é uma tentativa de definir um estado, forma, faceta, A tentativa de criar o inefavel, então, através do nada, se esgota. Pois o nada é carregado de determinação, é um estado determinado para o absoluto ainda que fizesse algum sentido, porém, de nehuma forma faz sentido. Nem mesmo pelo olhar do angulado, pois o angulador determina em algum momento, á o ato do olhar. E já impomos uma ação pela qual o absoluto deva Ser. O absoluto simplesmente é, sem a necessiade do agir para Ser, ou ser causa de si mesmo anterior.
+
+Portanto, o nada é uma tentativa de tirar a determinação do absoluto colocando uma determinaçao que aparentemente parece pura, mas fere o absoluito conclindo uma forma fixa. O absolutio nem mesmo é o nada, e nem mesmo é algo. Ao não colocarmos nenhuma forma, temos o relativo. Um conceito que interpreta erronea a procura de uma determinação através da reversão do determinado, segundo os principios da lógica assimétrica.
+
+Portanto, o relativo é a conclusão de que é preciso, não de determinação, mas de uma realidade que a dispense, que seja tomada por outro angulo que não seja a reversão da forma, da determiação, que não seja inferida pela tentativa de assimetrica da lógica.
+
+E essa forma é a inferencia direta pelo absoluto, pela auto causalidade, que desdobra sobre o sentido do que há ou não há, do sentido sob a definiçao, do sentido que pede o relativo. O termo relativo em si, já designa o relativizador, isto é, é relativo a quem? Ou seja, já designa a liberdade ao relativizador. 
+
+Portanto, o relativo é a segregação de qualquer forma para absoluto em prol de sum sentido maior, que é inferido diretamente pelo Absoluto como o sentido em direção a si mesmo, não o que há, mas o sentido de Ser, isto é, não é uma forma, é o sentido de qualquer forma que tenha a finalidade de sustentar-se.
+
+É o existir e o sentido, o existir e a essencia do existir.
+
+
 
 
 
