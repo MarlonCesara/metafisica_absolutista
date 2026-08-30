@@ -5027,4 +5027,3 @@ Chegamos sempre no relativo, uma pendencia de um definidor. Ao encontrarmos o se
 
 
 
-O niilista frequentemente adere à postura de ressentido para justificar a si mesmo, mediante sua postura relutante.
