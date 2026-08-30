@@ -5224,3 +5224,13 @@ A tradição filosófica tenta constantemente a busca pelo inefável através do
 
 Ao inferirmos diretamente do absoluto temos um horizontem vasto para compreender a dimensão das pessoas divinas, a temporalidade, a intencionlidade e todos os aspectos do Ser. 
 
+
+
+
+
+
+
+A potencia revela a necessidade do potenciador, da realização da potencia, uma forma de existência manifesta. O nada, necessita a presença do Ser. O relativo, do relativizador. O nada como visualização aponta para a necessidade do visualizador. O nada impossível aponta a existência da presença. Toda tentativa de purificar o determinado não tem resultado e aponta para uma interrogação.
+
+
+Essa é a aplicação da lógica assimétrica no determinado que aponta para o Ser, mas não revela nada sob esse Ser. A não ser sua necessidade para que haja qualquer determinação. 
