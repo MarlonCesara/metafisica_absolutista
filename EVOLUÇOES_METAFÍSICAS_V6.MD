@@ -5324,6 +5324,15 @@ A maneira mais clara de apreender o pensamento sobre o nada é pela soberania do
 
 Pois não se pensa no nada nem se refere a um objeto sem sentido, mas se refere ao próprio Ser em sua imobilidade.
 
+A tentativa de se compreender o nada é uma tenativa de comrpeender a liberdade através da reversão do mundo determinado, que se constitui uma falsa tentativa do Ser.
+A purificação ontológica não produz o nada, passa ertermediaria do mundo contingente para um Ser falso, sem resvalar no nada.
+
+Isto é, não é possível produzir o nada referenciável. Mas é possível compreender que a não criação no nível absoluto é uma escolha que nega todas as outras. E é possível compreender, que não é possível supor nem mesmo o nada ontológico para absoluto, sendo assim, temos uma visão do absoluto livre para a ação do Ser. 
+
+Sendo essa ação não dependente de uma realidade ontológica chamada nada para ser transformada. Havendo a liberdade total, desaraigada até mesmo de realidades que deveriam ser performadas em algo. 
+
+Havendo o nada verdadeiro que nem é mesmo referenciavel, mas subentendido sendo referenciado pela própria inoperancia do Espírito. Não há o nada, a o periodo de não movimento do Ser.
+
 Se quiser, também posso fazer uma **segunda versão mais filosófica e rigorosa**, preservando suas ideias, mas deixando o texto com linguagem de tratado metafísico.
 
 
