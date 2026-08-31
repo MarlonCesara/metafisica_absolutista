@@ -5264,5 +5264,66 @@ Isto quer dizer que, embora o personalizador esteve sempre com o consumador, o f
 
 
 
+Claro. Mantive **o conteúdo e a linha filosófica das suas ideias**, apenas corrigi o português, organizei a pontuação e eliminei repetições/ruídos de digitação.
+
+Não funciona buscar o que há em absoluto.
+
+Para toda forma ou possibilidade, nega-se qualquer outra forma ou possibilidade que poderia haver. Para a opção que se aceita, negam-se todas as outras.
+
+Não funciona procurar o que há, mas a razão de haver: o sentido.
+
+Não mais o que existe, e sim o sentido de existir. Que é o Ser.
+
+E isso se faz diretamente a partir do absoluto, não em uma tentativa de purificar aquilo que conhecemos ou aquilo que deduzimos, mas em uma empreitada de inferir sobre o sentido.
+
+O niilista frequentemente adere a uma postura de ressentimento para justificar a si mesmo mediante sua postura relutante.
+
+Porém, ao dizer que o relativo existe, novamente estamos inferindo sobre um Ser falso.
+
+Quando inferimos ao máximo e retiramos a própria determinação, chegamos ao relativo: o ente necessitado de determinação.
+
+Um ser cuja determinação permanece pendente, por não se diluir em si mesmo.
+
+Para toda determinação, pergunta-se: por que A se determina e não B? Diante da infinitude de negações, o relativo colapsa sobre si.
+
+O absoluto é fundador de seu próprio estatuto, fundador de sua própria soberania.
+
+Portanto, sob o aspecto da liberdade, ele é soberano, pois a soberania é também uma negação da opção de não ser soberano.
+
+Pode-se negar a soberania.
+
+Não é possível produzir a pureza do inefável sob o reverso do mundo contingente, mas explorar os aspectos relacionais do absoluto.
+
+A soberania já é um estado involuntário de criação.
+
+Se há soberania, ela precisa ser determinada, tal como a não soberania.
+
+Então, o não ato se dá como determinação; ou seja, dá-se como soberania.
+
+Aqui, não se refere ao nada como aspecto ontológico, mas como soberania: criação da soberania.
+
+Para o absoluto, não há nem mesmo o nada.
+
+Portanto, o não haver é uma determinação que nega todas as outras.
+
+As provas de que o nada não existe são necessárias para que haja o entendimento de que o nada não existe naturalmente.
+
+A soberania é determinada.
+
+Para o absoluto, nem mesmo o nada pode ser projetado.
+
+O fato de eu estar parado é uma escolha, tal como o fato de me mover.
+
+A estaticidade desempenha a liberdade ao negar as opções de movimento, tal como no ato de criar.
+
+O não criar é uma escolha que nega todas as outras.
+
+O homem tenta entender o nada como uma tentativa de compreender a liberdade metafísica.
+
+A maneira mais clara de apreender o pensamento sobre o nada é pela soberania do espírito.
+
+Pois não se pensa no nada nem se refere a um objeto sem sentido, mas se refere ao próprio Ser em sua imobilidade.
+
+Se quiser, também posso fazer uma **segunda versão mais filosófica e rigorosa**, preservando suas ideias, mas deixando o texto com linguagem de tratado metafísico.
 
 
