@@ -11861,3 +11861,12 @@ O niilista busca por um falso messias, por um imitador como tentativa de segrega
 
 
 O traficante no alto do morro, mata, não por uma vontade passional, mas pela expressão da morte que sente infligir a si mesmo, mata pela angustia existencial acerca de sua liberdade e do uso antagonico desta.
+
+
+
+O niilista se levanta de manha se dispondo a ser um humano normal, a amar, até mesmo a ter uma prática religios, pois julga que sua postura interior é direito de sua liberdade,e que independente de suas ações. Opta pela forma mais facil de viver que é seguindo preceitos morais, se relacionando. Porém, a sua postura impede o desempenho social normaativo de seu corpo em sociedade. O individuo determinado a viver bem, colapsa num conflito interior, e desaba o peso de suas decisões na sociedade como forma de expressão.
+
+O niilismo não exige expressão, atos, práticas, a postura interior já remete o niilista, o niilista, por vezes, não deseja a dor, não deseja a punição social, nem mesmo ser visto de forma não normativa, somente desejaria se dado como expressão niilista, mas naturalemnte o corpo não deseja tais coisas. O niilista, se bem instruído socialmente e religiosamente, deseja preservar os sentimentos humanos, a vivencia normal humana, porém, o colpasar de sua racionalidade mediante a uma informação terrível, mediante a tomada de consceincia da própria postura espíritual, destroi a tendencia normatica de ser um colaborador social, de ter uma vivencia afetiva e Espíritual. De conceber o sentido da vida e compreender as normais sociais para uma boa convivencia. O niilismo distorce até o senso de empatia do individuo, o tornando um expressor de seu desespero tomando como primazia seu desespero em detrimento do sofrimento alheio. Considera-se prioritário, considera que o mal que o aflige é digno de atençao, ainda que está exija o sofrimimento do outro.
+
+
+
