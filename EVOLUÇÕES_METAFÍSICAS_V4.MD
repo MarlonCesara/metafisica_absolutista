@@ -11870,3 +11870,4 @@ O niilismo não exige expressão, atos, práticas, a postura interior já remete
 
 
 
+O niilista manifesta a descrença, o descrer como uma crença, como uma tentativa de desfigurar a esperança e o sentido. 
