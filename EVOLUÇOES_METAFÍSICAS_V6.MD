@@ -5234,3 +5234,35 @@ A potencia revela a necessidade do potenciador, da realização da potencia, uma
 
 
 Essa é a aplicação da lógica assimétrica no determinado que aponta para o Ser, mas não revela nada sob esse Ser. A não ser sua necessidade para que haja qualquer determinação. 
+
+
+
+
+
+### A assimetria e o colpaso da forma
+
+Para todo não ente, exige-se o ente. Pata toda potencial, o potenciavel. Para a observação, o ato determinado da visão.
+Para o impossível aceito, exige-se a explicação e a presença.
+
+Portanto, em toda a determinação pede-se o determiandor, o mundo determinado não se sustenta sozinho. É preciso de uma razão para o estar como das coisas. E toda inferencia lógica tentando desabar o mundo contingente se relativiza. Isto é, existiria em determinação, carece da causa determinante, ainda que tentemos arquitetar uma realidade pura, ela sempre carece de um ente ou razão determinante.
+
+
+
+### As pessoas do Espírito
+
+A ação da fundamentação, já se instaurou toda e se instaura a todo instante. É um puro direcionamento a total conhecimento de si num tempo total de si, um tempo consumado. A ação fundamentadora não exige a personalização, pois é o Ser orientado a si como Ser e orientado a plenitude. Sua criação, cria conforme a plenitude a si mesmo, constroem-se necessário e incorruptível. Isto é, o exercício da construção de si, de sua aceitação total, é o exercício da consumação, da totalidade do Ser como Ser, e como existente. Temos então, um exercício eterno e consumado, cuja pessoa é direcional a força, a sabedoria, a estabilidade, a calma perene de si como si.
+
+
+
+
+
+
+Porém, o personalizador não exerce seu estatuto sob a consumação, não o é necessário, não há escolhas bifurcadas para que o Ser seja Ser. Há o estar e a plenitude. Para escolhas bifurcadas exige-se uma ação diferente da ação perene, da ação da calmaria, da ação da extensão de si. Para a bifurcação se exige a atuação na presença atemporal, numa linha perpendicular.
+
+Isto quer dizer que, embora o personalizador esteve sempre com o consumador, o fundamentador. Sua ação é perpendicular. Enquanto o fundamento consuma, a personalização atua em linha perpendicular ao fundamento, atua não na consumação, mas no tempo presente do fundamento. São duas ações, uma em direção  a plenitude consumada e outra em direção a personalização temporal não consumada e atualizada a todo instante que acontecem ao mesmo tempo.
+
+
+
+
+
+
