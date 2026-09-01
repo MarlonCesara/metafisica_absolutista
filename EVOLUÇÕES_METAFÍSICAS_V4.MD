@@ -11874,3 +11874,8 @@ O niilista manifesta a descrença, o descrer como uma crença, como uma tentativ
 
 
 O niilismo é o pecado da consciencia de forma que, o estado de aprisionamento acompanha a consciencia humana, de forma a fazer com que o individuo não consiga desfarçar, mascarar, ou agir de forma normativa. Tendo sempre manifestações de histoeria, falta de paciencia e constante estado de histeria. 
+
+
+O mal funcionamento:
+
+O individuo niilista quando tenta atingir a normativa social, a forma normal de comportamento que considera ser orientado para o bem, porém, exise o mal funcionamento do corpo, o niilista se determina a conservar a norma social, pois sua intenção nada se refere ao mal comportamento ou ao atentado contra as normais, sociais e sim de uma postura interior relutante contra a vida. Porém, ao tentar exercer o bom funcionamento social, manifesta a sede, o defeito, a mania ou o escape, neste sentido, o bom funcionamenot é cortado quase que inperceptivelmente, ou seja, o individuo é orientado ao bem por uma decisão biológica, uma decisão automatica, porem o bem é cortado pela sintomatica, seu corpo, direcionado para a empatia, a norma social, tem seu objetivo desviado pela sintomatica. ???
