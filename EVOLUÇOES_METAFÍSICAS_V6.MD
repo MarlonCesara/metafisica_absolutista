@@ -5335,4 +5335,10 @@ Havendo o nada verdadeiro que nem é mesmo referenciavel, mas subentendido sendo
 
 Se quiser, também posso fazer uma **segunda versão mais filosófica e rigorosa**, preservando suas ideias, mas deixando o texto com linguagem de tratado metafísico.
 
+Há a causa transformadora e a causa direta.
 
+A causa transformadora transforma o nada. E os princípios assimétricos são aplicados. 
+
+A causa direta é a que se causa sem transformar algo.
+
+Uma realidade pura necessariamente tem sua identidade fundida à sua fundamentação.
