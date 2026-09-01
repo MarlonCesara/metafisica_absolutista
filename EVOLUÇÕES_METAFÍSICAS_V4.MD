@@ -11871,3 +11871,6 @@ O niilismo não exige expressão, atos, práticas, a postura interior já remete
 
 
 O niilista manifesta a descrença, o descrer como uma crença, como uma tentativa de desfigurar a esperança e o sentido. 
+
+
+O niilismo é o pecado da consciencia de forma que, o estado de aprisionamento acompanha a consciencia humana, de forma a fazer com que o individuo não consiga desfarçar, mascarar, ou agir de forma normativa. Tendo sempre manifestações de histoeria, falta de paciencia e constante estado de histeria. 
