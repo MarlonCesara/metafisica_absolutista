@@ -5342,3 +5342,8 @@ A causa transformadora transforma o nada. E os princípios assimétricos são ap
 A causa direta é a que se causa sem transformar algo.
 
 Uma realidade pura necessariamente tem sua identidade fundida à sua fundamentação.
+
+
+
+
+Porém, primeiramente vamos defininir os principios utilizados para inferir sobre estas categorias, e estes principios basicamente são uma reversão dos principios assimétricos, são principios que, a priori, desorganizam o mundo intuitivo, para tentar produzir uma substancia pura a partir do mundo determinado.
