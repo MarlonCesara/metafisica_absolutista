@@ -960,12 +960,12 @@ Esta postulação implica que, formalizada a hipótese do Nada Existente, podemo
 Contudo, ainda que permaneçamos provisoriamente cegos ao mecanismo pelo qual o nada possa de fato subsistir, cumpre averiguar as consequências metafísicas caso sua existência fosse validada por uma inferência lógica que esclarecesse este ínterim.
 
 ### A Aporia da Purificação e a Re-Ontologização do Nada
-revisado
+
 O Nada Existente, ao sucumbir por sua instabilidade intrínseca, faz emergir a Presença de forma natural. Todavia, se hipotetizarmos o Nada Existente como uma realidade perdurável, a estrutura da razão tentarará, de forma quase automática, abstrair o componente "existente" do "nada". Historicamente, diversos filósofos tentaram validar o impossível existente; contudo, essa manobra introduz a necessidade de uma nova purificação conceitual, visto que o termo "Nada Existente" inevitavelmente carrega consigo o poluente ontológico do ser.
 
 Portanto, por imperativo lógico, a razão nega o Nada Existente na tentativa de extirpar dele o seu teor de ser. Ocorre que, ao operar essa negação purificadora, o Nada Existente reitera-se e reaparece em sua configuração primeva. A negação do Nada Existente não gera o nada puro, livre de poluentes; antes, resulta na mesmíssima mentalização do Nada Existente — um construto mental que apenas recusa desabar sobre si mesmo, tal como ocorria no nada paradoxal.
-
-> **Demonstração do Erro II (O Paradoxo da Negação Purificadora):** O erro lógico situa-se na ilusão de que a negação da existência do nada purificaria o conceito. Na lógica formal, a negação de uma negação ($\neg(\neg A)$) retorna logicamente à afirmação ($A$). Ao tentar negar o "teor existente" do nada, a razão realiza um duplo movimento nulo: ela postula o nada e, ao tentar purificá-lo pela negação, restabelece a própria barreira que pretendia transpor. O "nada puro" torna-se inalcançável porque o próprio ato de pensar o nada o contamina com a existência da representação.
+revisado
+O erro lógico situa-se na ilusão de que a negação da existência do nada purificaria o conceito. Na lógica formal, a negação de uma negação ($\neg(\neg A)$) retorna logicamente à afirmação ($A$). Ao tentar negar o "teor existente" do nada, a razão realiza um duplo movimento nulo: ela postula o nada e, ao tentar purificá-lo pela negação, restabelece a própria barreira que pretendia transpor. O "nada puro" torna-se inalcançável porque o próprio ato de pensar o nada o contamina com a existência da representação.
 
 ### A Regressão ao Infinito da Nadificação Potencial
 
