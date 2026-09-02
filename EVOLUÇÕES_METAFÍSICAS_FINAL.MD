@@ -450,13 +450,7 @@ O Nada deixa, então, de ser o absolutamente inexistente e passa a ocupar o luga
 
 A questão torna-se ainda mais radical quando se pretende utilizar essa estrutura para explicar a realidade fenomênica. Se o mundo determinado surge como resultado da atualização ou determinação de um momento anterior de pura indeterminação, então é necessário perguntar qual é o estatuto ontológico desse momento anterior.
 
-Se ele é Nada, como pode ser atualizado?
-
-Se pode ser atualizado, em que sentido ainda é Nada?
-
-E se não é Nada, que realidade anterior está sendo pressuposta?
-
-Essas questões conduzem diretamente ao problema do fundamento. Se não podemos recorrer ao Nada como substrato, e se não podemos admitir uma cadeia infinita de realidades transformadoras, torna-se necessário investigar a possibilidade de um Ser que não receba sua existência de outro e cuja causalidade não seja meramente transformadora, mas **originária**.
+Se ele é Nada, como pode ser atualizado? Se pode ser atualizado, em que sentido ainda é Nada? E se não é Nada, que realidade anterior está sendo pressuposta? Essas questões conduzem diretamente ao problema do fundamento. Se não podemos recorrer ao Nada como substrato, e se não podemos admitir uma cadeia infinita de realidades transformadoras, torna-se necessário investigar a possibilidade de um Ser que não receba sua existência de outro e cuja causalidade não seja meramente transformadora, mas **originária**.
 
 A questão central passa, portanto, a ser esta:
 
@@ -809,26 +803,6 @@ Uma vez estabelecido o estatuto ontológico do nada como uma hipótese falsa par
 Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ## O Nada como Existência Relacional
 
 Ao concebermos o nada como algo representável — isto é, como uma existência potencialmente manifestável, uma nulidade ou uma neutralização do existente — permanecemos, inevitavelmente, dentro de um quadro existencial. Esse “nada” já não corresponde a uma ausência absoluta, mas a uma **negação determinada**, cuja definição depende necessariamente de um referencial.
@@ -845,7 +819,9 @@ O nada só pode ser concebido como contraparte de algo manifesto ou possível. O
 
 ### 2. Referencialidade Obrigatória
 
-Não há “nada” sem relação com um “algo”, seja esse algo previamente manifestado, seja apenas concebível como possibilidade. Da mesma maneira, não há potência sem relação com aquilo que pode vir a ser atualizado, nem “não ente” sem referência àquilo que ele nega: o ente.
+Não há “nada” sem relação com um “algo”, seja esse algo previamente manifestado, seja apenas concebível como possibilidade. Da mesma maneira, não há potência sem relação com aquilo que pode vir a ser atualizado, nem “não ente” sem referência àquilo que ele nega: o ente. Por conseguinte, também não há ausência sem a possibilidade de uma presença como referência, pois algo necessariamente precisa estar ausente para que se possa falar propriamente em ausência.
+
+3. **Um marcador de ausência:** uma forma de indicar que determinada manifestação não está presente.
 
 A negação somente pode existir enquanto negação de algo que já foi manifestado ou cuja manifestação seja possível. Portanto, não há “nada” em sentido absoluto sem uma referência positiva que determine aquilo que está sendo negado.
 
@@ -934,12 +910,12 @@ Todo nada concebido como negação pressupõe algo como referente. Quando elimin
 Ao destituir toda a determinação do determinado, não temos uma sopa ontológica disforme. A aniquilação da identidade do que existe determinado, não o transforma automaticamente no inefável, isto é, no Ser. Pois o Ser se identifica pela própria essência de ser, já o determinado se identifica pela própria distinção. E, se considerarmos que o retirar da determinação do determinado o aniquila, então não temos substrato restante para referenciar como um nada ontológico.
 
 # Criação sem Conversão do Nada
-revisado
-A existência criada, portanto, não precisa ser compreendida como resultado de uma transformação do nada em algo. Tampouco é necessário postular um processo no qual uma realidade chamada “nada” se autossuprima para produzir a existência.
 
-Se o nada não possui existência própria, não pode constituir um substrato a partir do qual algo seja produzido.
+A existência criada, portanto, não precisa ser compreendida como resultado de uma transformação do nada em algo. Tampouco é necessário postular um processo no qual uma realidade chamada “nada” se autossuprima para produzir a existência. Se o nada não possui existência própria, não pode constituir um substrato a partir do qual algo seja produzido.
 
-A criação, nesse contexto, deve ser compreendida sem a necessidade de uma conversão ontológica do nada em ser. O que existe é a manifestação de uma realidade determinada segundo suas próprias condições de possibilidade. O “nada” apenas nomeia, retrospectiva ou conceitualmente, a ausência da determinação que antecede essa manifestação.
+A criação, nesse contexto, deve ser compreendida sem a necessidade de uma conversão ontológica do nada em manifestação. O que existe é a manifestação de uma realidade determinada segundo suas próprias condições de possibilidade. O “nada” apenas nomeia, retrospectiva ou conceitualmente, a soberania do Ser que antecede essa manifestação.
+
+Quando nos referimos ao Ser soberano e absoluto, não é necessário recorrer à simbologia de uma ausência ontológica, pois a própria soberania do Ser exclui qualquer necessidade de postular um nada ontológico que persista paralelamente ou em competição com o Ser verdadeiro. Se o Ser é verdadeiramente absoluto e soberano, nada lhe é ontologicamente exterior como princípio, substância ou fundamento concorrente. A ausência de uma realidade prévia não exige, portanto, a existência de um “nada” que a represente; basta a própria soberania do Ser como fundamento da manifestação.
 
 Desse modo, a autossupressão não designa um processo real sofrido por uma entidade chamada nada. Ela apenas descreve, de maneira figurada, o desaparecimento conceitual de uma determinação negativa. O produto dessa suposta autossupressão não existe como entidade intermediária: não há um “nada autossuprimido” que posteriormente se transforme em existência.
 
@@ -951,9 +927,8 @@ Aquilo que chamamos de “nada” pode ser compreendido, em última instância, 
 
 1. **Um operador lógico:** uma negação relativa dentro de um campo no qual algo já é concebido como possível ou manifesto.
 2. **Um limite conceitual:** o ponto extremo alcançado quando retiramos de uma realidade todas as suas determinações.
-3. **Um marcador de ausência:** uma forma de indicar que determinada manifestação não está presente.
 4. **Uma miragem ontológica:** a projeção pela qual transformamos uma operação conceitual de negação em uma suposta realidade independente.
-
+revisado
 O nada, portanto, **não é um antecedente causal da existência**. Ele não constitui uma substância, um substrato ou uma potência anterior ao ser. É antes um efeito da própria atividade de determinação e negação exercida pelo pensamento.
 
 A manifestação não surge “do nada” porque não há um nada existente do qual ela possa surgir. O que existe é a própria manifestação, determinada segundo suas condições de possibilidade, enquanto o “nada” permanece apenas como o nome que atribuímos à ausência daquilo que poderia ser manifesto.
