@@ -5764,5 +5764,9 @@ O Mistério deixa de ser uma "falha provisória do conhecimento" para se tornar 
 
 
 
+O relativo nao e uma base ontologica, é um conceito que se permite inferir sob, de forma a nao concluir algo sob o absoluto
+Simplesmente se diz relativo a qualquer coisa tal como se diz o x em matematica
+Nem o nada ontologico, nem o nao haver que nao pode ser referenciado e nem o ente determiado
 
+Eleger o relativo como realidade ontológica implica em retornar ao marco zero, onde o nada existe novamente, indeterminado. Porém, o relativo não é uma realidade ontológica, é uma forma de inferencia onde elegemos um objeto virtual, para inferir sobre ele, objeto que pode designar qualquer realidade ou possibilidade.
 
