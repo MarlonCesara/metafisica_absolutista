@@ -601,21 +601,9 @@ A investigação dos princípios assimétricos conduz, portanto, a uma questão 
 
 **é legítimo transformar o Nada em uma categoria ontológica?**
 
-Se a resposta for negativa, então será necessário abandonar tanto a identificação entre o Nada e o Ser quanto sua utilização como substrato potencial da realidade.
+Se a resposta for negativa, então será necessário abandonar tanto a identificação entre o Nada e o Ser quanto sua utilização como substrato potencial da realidade. Nesse caso, a passagem do indeterminado ao determinado não poderá ser explicada como uma transformação do Nada. Deverá ser compreendida a partir de uma causalidade que não dependa de uma matéria ontológica anterior.
 
-Nesse caso, a passagem do indeterminado ao determinado não poderá ser explicada como uma transformação do Nada. Deverá ser compreendida a partir de uma causalidade que não dependa de uma matéria ontológica anterior.
-
-É nesse ponto que a distinção entre **causa direta** e **causa transformadora** torna-se fundamental para toda a investigação subsequente.
-
-A causa transformadora exige um substrato.
-
-A causa direta não.
-
-E se o Nada não pode ser substrato, então a produção da realidade determinada deverá ser investigada como uma ação causal direta do Ser, cuja liberdade não depende da transformação de uma realidade anterior.
-
-A investigação do Nada, portanto, não conduz inicialmente à descoberta de uma substância primordial, mas à necessidade de questionar se uma tal substância pode sequer existir sob o nome de Nada.
-
-O problema fundamental passa a ser:
+É nesse ponto que a distinção entre **causa direta** e **causa transformadora** torna-se fundamental para toda a investigação subsequente. A causa transformadora exige um substrato. A causa direta não. E se o Nada não pode ser substrato, então a produção da realidade determinada deverá ser investigada como uma ação causal direta do Ser, cuja liberdade não depende da transformação de uma realidade anterior. A investigação do Nada, portanto, não conduz inicialmente à descoberta de uma substância primordial, mas à necessidade de questionar se uma tal substância pode sequer existir sob o nome de Nada. O problema fundamental passa a ser:
 
 > **Quando retiramos do mundo todas as suas determinações para encontrar o fundamento absoluto, encontramos o Ser ou produzimos apenas o Nada?**
 
