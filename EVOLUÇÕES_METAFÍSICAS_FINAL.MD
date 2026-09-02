@@ -689,8 +689,6 @@ A lógica clássica define o impossível como aquilo que não pode ocorrer. A l�
 * O que vem do indeterminado pode irromper no determinado sem destruí-lo.
 * Experiências como a intuição criativa, o insight súbito ou a percepção estética são exemplos disso.
 
-**Exemplo:** Uma melodia nova não destrói as leis da acústica, mas as utiliza para expressar algo que não estava contido nelas. O novo não anula o velho, mas o eleva.
-
 ## Classificação Sistêmica dos Princípios da Lógica Assimétrica
 
 | Princípio | Formulação Simbólica | O que estabelece |
@@ -712,30 +710,6 @@ A lógica clássica define o impossível como aquilo que não pode ocorrer. A l�
 | **Função** | Organizar o pensamento sobre o definido | Abrir o pensamento ao que antecede a definição |
 
 **Diferença fundamental:** Enquanto a lógica aristotélica opera como um **mapa** que distingue e separa territórios, a lógica assimétrica opera como uma **bússola** que aponta para a direção do território comum do qual todos os mapas derivam.
-
-## Exemplos Práticos de Aplicação
-
-### Na linguagem cotidiana
-Quando dizemos "isto não tem nome", a lógica aristotélica não sabe o que fazer com essa afirmação, pois ela não se encaixa em "verdadeiro" ou "falso". A lógica assimétrica reconhece que esta frase aponta para algo real: a experiência de algo que escapa às classificações comuns.
-
-###  Na arte
-Uma pintura abstrata não representa "A" nem "não-A" — não representa coisa alguma definida. A lógica aristotélica, que exige definições, tem dificuldade com isso. A lógica assimétrica acolhe a pintura como manifestação do indeterminado que não destrói a tela nem as tintas, mas as utiliza para expressar algo anterior à representação.
-
-### Nas relações humanas
-Quando duas pessoas se entendem "sem palavras", há algo que escapa à lógica da comunicação definida. A lógica assimétrica reconhece que este entendimento silencioso não é um erro, mas uma manifestação do fundo comum que torna possível toda comunicação.
-
-## A Complementaridade das Duas Lógicas
-
-É essencial compreender que a lógica assimétrica **não substitui** a lógica aristotélica. Ambas são necessárias e se complementam:
-
-| Situação | Lógica adequada |
-| :--- | :--- |
-| Classificar objetos, fazer contas, construir argumentos | Lógica aristotélica |
-| Aproximar-se do que escapa à definição, acolher o novo, compreender o silêncio | Lógica assimétrica |
-| Lidar com o cotidiano e o prático | Lógica aristotélica |
-| Abrir-se à experiência estética, mística ou criativa | Lógica assimétrica |
-
-**Metáfora da casa:** A lógica aristotélica são as paredes, o teto, a fundação — tudo o que dá estrutura e forma à casa. A lógica assimétrica são as janelas — aquilo que, sem destruir as paredes, permite a entrada da luz e a visão do horizonte. Uma casa sem paredes desaba; uma casa sem janelas é uma prisão.
 
 ## Conclusão: A Dupla Face da Razão
 
@@ -759,17 +733,7 @@ A proposição aqui apresentada estabelece que:
 
 ---
 
-**Conclusão da Fundamentação**
-A **Lógica Assimétrica** aqui proposta não é uma invenção arbitrária, mas a formalização, em quatro princípios sistemáticos, de uma tradição filosófica e espiritual que sempre reconheceu os limites da razão discursiva diante daquilo que antecede toda determinação. Esta tradição — que atravessa culturas e milênios — ensina que o pensamento, para ser verdadeiro, precisa também aprender a calar-se diante do Mistério e, no silêncio, acolher uma Presença que nenhuma lógica simétrica pode encerrar.
-
-Os quatro princípios assimétricos — **Indiferenciação Fundamental, Inclusão do Paradoxo, Assimetria Fundacional e Manifestação Não Disruptiva** — são, portanto, a expressão lógica desta sabedoria perene, o instrumento pelo qual a razão pode, reconhecendo seus limites, abrir-se ao que os excede.
-
----
-
-
-
-
-
+REVISADO
 
 # DOS PRINCÍPIOS ASSIMÉTRICOS AOS PRINCÍPIOS CAUSAIS
 
