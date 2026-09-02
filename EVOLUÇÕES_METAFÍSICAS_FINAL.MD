@@ -928,15 +928,13 @@ A autossupressão torna-se, assim, um verbo sem sujeito ontológico: descreve um
 Dessa forma, o nada pode parecer um estado intermediário que permite imaginar a passagem para a existência. A mente introduz um intervalo conceitual entre aquilo que é nadificado e aquilo que passa a ser determinado, interpretando esse intervalo como um “nada” que posteriormente seria superado. Entretanto, esse intervalo não corresponde necessariamente a uma realidade metafísica. Não existe um vácuo ontológico entre a ausência de uma determinação e a própria determinação. A suposta “passagem pelo nada” é, portanto, uma **projeção epistemológica**: uma maneira de representar mentalmente a ausência de uma determinação, e não a descrição de uma entidade que efetivamente precede a existência.
 
 ### 5. Colapso por Autorreferência
-revisado
-Todo nada concebido como negação pressupõe algo como referente. Quando eliminamos completamente esse referente, eliminamos também a condição de inteligibilidade da própria negação.
 
-O nada puro, portanto, não consegue sustentar-se como entidade autônoma. Ele não é um estado estável do ser, mas o limite ao qual conduzimos o pensamento quando retiramos progressivamente todas as determinações de algo.
+Todo nada concebido como negação pressupõe algo como referente. Quando eliminamos completamente esse referente, eliminamos também a condição de inteligibilidade da própria negação. O nada, portanto, não consegue sustentar-se como entidade autônoma. Ele não é um estado estável do ser, mas o limite ao qual conduzimos o pensamento quando retiramos progressivamente todas as determinações do determinado. Sua pretensão de absolutez conduz, assim, ao próprio colapso conceitual: quanto mais tentamos isolá-lo como realidade, menos conteúdo resta para identificá-lo como algo.
 
-Sua pretensão de absolutez conduz, assim, ao próprio colapso conceitual: quanto mais tentamos isolá-lo como realidade, menos conteúdo resta para identificá-lo como algo.
+Ao destituir toda a determinação do determinado, não temos uma sopa ontológica disforme. A aniquilação da identidade do que existe determinado, não o transforma automaticamente no inefável, isto é, no Ser. Pois o Ser se identifica pela própria essência de ser, já o determinado se identifica pela própria distinção. E, se considerarmos que o retirar da determinação do determinado o aniquila, então não temos substrato restante para referenciar como um nada ontológico.
 
 # Criação sem Conversão do Nada
-
+revisado
 A existência criada, portanto, não precisa ser compreendida como resultado de uma transformação do nada em algo. Tampouco é necessário postular um processo no qual uma realidade chamada “nada” se autossuprima para produzir a existência.
 
 Se o nada não possui existência própria, não pode constituir um substrato a partir do qual algo seja produzido.
