@@ -1013,6 +1013,17 @@ Portanto, o nada inominável é um vazio linguístico: algo que se define como '
 
 revisado
 
+
+
+
+
+
+
+
+
+
+
+
 ---
 
 ## A Inferência sobre o Absoluto
@@ -1037,7 +1048,9 @@ Estamos, com isso, implicando uma regressão lógica contínua de negações, on
 
 ### A Superioridade Dialética do "Nada" sobre o "Indiferenciado"
 
-Começaremos a utilizar o conceito de "nada" não em sua acepção vulgar — como se fosse a mera "ausência de coisas" —, mas como a **representação ativa do irrepresentável**. Ele será o limite terminológico usado exclusivamente para expressar a recusa absoluta a qualquer nomenclatura sobre a substância autocausal deduzida no início da nossa investigação.
+
+REVISADO
+
 
 O conceito de *Indiferenciado* falha em sua missão de pureza porque é, secretamente, **positivo**. Ao ser invocado, ele se diferencia da sua própria ausência; ele supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém.
 
@@ -1045,7 +1058,10 @@ Em contrapartida, o conceito de *nada* colapsa de forma mais precisa e radical, 
 
 ### A TENTATIVA DE INDETERMINAR O DETERMINADO 
 
-Ao tentarmos supor duas propriedades diferentes, o determinado como um indeterminado, é mais uma tentativa de purificar o determinado. Está tentativa, destrói a forma, e não resulta nem no indiferenciado verdadeiro (Ser), e nem no nada, pois ainda tenta carregar um substancia ilógica, um mundo que só persiste determinado, porém é indeterminado ao mesmo tempo.
+Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado — realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro, isto é, no Ser, nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
+
+
+
 
 Ao concebermos a indiferenciação do Todo que se opõe ao nada como potencia — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
 
@@ -5911,3 +5927,10 @@ Ao considerarmos o nada como uma realidade potencial, temos o potenciado como fu
 
 
 Denominaremos, portanto, nossa substância bruta — o nada — como 'absoluto', avançando na investigação de propriedades que transcendam a mera potência dentro desse escopo. É preciso notar que a atribuição do termo 'absoluto' ao nada não se confunde com o conceito de 'nada absoluto' — o qual inviabilizaria a coexistência de outras propriedades —, mas qualifica o nada como a máxima expressão cognoscível do incausado que inferimos até o momento.
+
+
+
+Começaremos a utilizar o conceito de "nada" não em sua acepção vulgar — como se fosse a mera "ausência de coisas" —, mas como a **representação ativa do irrepresentável**. Ele será o limite terminológico usado exclusivamente para expressar a recusa absoluta a qualquer nomenclatura sobre a substância autocausal deduzida no início da nossa investigação.
+
+
+Ao tentarmos supor duas propriedades diferentes, o determinado como um indeterminado, é mais uma tentativa de purificar o determinado. Está tentativa, destrói a forma, e não resulta nem no indiferenciado verdadeiro (Ser), e nem no nada, pois ainda tenta carregar um substancia ilógica, um mundo que só persiste e é por definição determinado, porém é indeterminado ao mesmo tempo.
