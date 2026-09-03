@@ -964,7 +964,7 @@ Contudo, ainda que permaneçamos provisoriamente cegos ao mecanismo pelo qual o 
 O Nada Existente, ao sucumbir por sua instabilidade intrínseca, faz emergir a Presença de forma natural. Todavia, se hipotetizarmos o Nada Existente como uma realidade perdurável, a estrutura da razão tentarará, de forma quase automática, abstrair o componente "existente" do "nada". Historicamente, diversos filósofos tentaram validar o impossível existente; contudo, essa manobra introduz a necessidade de uma nova purificação conceitual, visto que o termo "Nada Existente" inevitavelmente carrega consigo o poluente ontológico do ser.
 
 Portanto, por imperativo lógico, a razão nega o Nada Existente na tentativa de extirpar dele o seu teor de ser. Ocorre que, ao operar essa negação purificadora, o Nada Existente reitera-se e reaparece em sua configuração primeva. A negação do Nada Existente não gera o nada puro, livre de poluentes; antes, resulta na mesmíssima mentalização do Nada Existente — um construto mental que apenas recusa desabar sobre si mesmo, tal como ocorria no nada paradoxal.
-revisado
+
 O erro lógico situa-se na ilusão de que a negação da existência do nada purificaria o conceito. Na lógica formal, a negação de uma negação ($\neg(\neg A)$) retorna logicamente à afirmação ($A$). Ao tentar negar o "teor existente" do nada, a razão realiza um duplo movimento nulo: ela postula o nada e, ao tentar purificá-lo pela negação, restabelece a própria barreira que pretendia transpor. O "nada puro" torna-se inalcançável porque o próprio ato de pensar o nada o contamina com a existência da representação.
 
 ### A Regressão ao Infinito da Nadificação Potencial
@@ -980,16 +980,11 @@ Como modelo exemplificativo, teríamos a negação sucessiva do nada potencial. 
 
 Afigura-se, pois, impossível extirpar a potência do nada se o considerarmos permanentemente como um existir que oculta uma eficácia causal. Cada ato de negação perpetrado pela razão atribui reflexivamente ao nada a potência de produzir o próprio nada que foi negado — o qual, por sua vez, já é portador de uma nova potência.
 
-> **Demonstração do Erro III (Regressio ad Infinitum da Nadificação):** Este mecanismo falha geometricamente por incorrer em uma regressão infinita de operadores lógicos (*infinite regress*). Ao introduzir a categoria de "potência oculta" no nada, transforma-se a vacuidade em um motor gerador infinito. A negação deixa de ser um termo resolutivo e passa a agir como um espelho posicionado frente a outro espelho: cada negação gera um novo invólucro potencial ($\neg N \rightarrow N_{pot1} \rightarrow \neg N_{pot1} \rightarrow N_{pot2}$). Esse processo esvazia o conceito de qualquer *ratio sufficiens* (razão suficiente), pois o fundamento da existência é indefinidamente postergado para o próximo "nada" da série infinita.
+> **Demonstração do Erro (Regressio ad Infinitum da Nadificação):** Este mecanismo falha geometricamente por incorrer em uma regressão infinita de operadores lógicos (*infinite regress*). Ao introduzir a categoria de "potência oculta" no nada, transforma-se a vacuidade em um motor gerador infinito. A negação deixa de ser um termo resolutivo e passa a agir como um espelho posicionado frente a outro espelho: cada negação gera um novo invólucro potencial ($\neg N \rightarrow N_{pot1} \rightarrow \neg N_{pot1} \rightarrow N_{pot2}$). Esse processo esvazia o conceito de qualquer *ratio sufficiens* (razão suficiente), pois o fundamento da existência é indefinidamente postergado para o próximo "nada" da série infinita.
 
+revisado
 
-### O potenciado como mancha no relativo
-
-Ao considerarmos o nada como uma realidade potencial, temos o potenciado como fundo para o potencial. Desta forma, a existência de uma potencia define o potencial. Ao considerarmos onde está essa potencia, novamente caímos num realidade negada, sob o pretexto de que agora está em potencia. 
-
-
-
-### TENTATIVA: A SINTESE DA TOTALIDADE PELA INDIFERENCIAÇÃO
+### A TENTATIVA DA SINTESE DA TOTALIDADE PELA INDIFERENCIAÇÃO
 
 Ao concebermos a indiferenciação do Todo que se opõe ao nada como potencia — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria possibilidade. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
 
@@ -5907,6 +5902,10 @@ A tentativa de conceber o nada como entidade metafísica paradoxal é **um exerc
 
 
 
+
+### O potenciado como mancha no relativo
+
+Ao considerarmos o nada como uma realidade potencial, temos o potenciado como fundo para o potencial. Desta forma, a existência de uma potencia define o potencial. Ao considerarmos onde está essa potencia, novamente caímos num realidade negada, sob o pretexto de que agora está em potencia. 
 
 
 
