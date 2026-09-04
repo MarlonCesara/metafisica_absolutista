@@ -1015,6 +1015,7 @@ Portanto, o nada inominável é um vazio linguístico: algo que se define como '
 ### O processo da indiferenciação e o nada nadificação
 REVISADO
 
+Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro processo pelo qual se tenta negar o diferenciado.
 
 A indiferenciação produzida da determinação, para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indiferenciação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado, como diluição do determinado, opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém.
 
