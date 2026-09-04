@@ -5950,7 +5950,7 @@ Simplesmente se diz “relativo a qualquer coisa”, tal como se diz o **x** na 
 O absoluto é direcional. E tomamos como base da direção o relativo.
 
 
-
+Antes de entender o Ser é necessario entender o nada, para inferir que, o nada não pode existir, desta forma, fica a aberta a intuição para a imaginação de uma criação a partir, não do nada, mas da liberdade absoluta que não se prende a um ideal de um nada ontológico, mas é um campo em que se extende a vontade livre, de forma que o querer crie com base em uma liberdaed total, liberdade que não se paraliza ou não friza nenhuma ontologia determinada.
 
 
 
@@ -5970,3 +5970,6 @@ O absoluto é direcional. E tomamos como base da direção o relativo.
 Ao concebermos a indiferenciação do todo que se opõe ao nada — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
 
 Logo, o estado indiferenciado atesta a sua própria existência. 
+
+
+
