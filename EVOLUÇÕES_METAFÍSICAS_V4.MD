@@ -11879,3 +11879,40 @@ O niilismo é o pecado da consciencia de forma que, o estado de aprisionamento a
 O mal funcionamento:
 
 O individuo niilista quando tenta atingir a normativa social, a forma normal de comportamento que considera ser orientado para o bem, porém, exise o mal funcionamento do corpo, o niilista se determina a conservar a norma social, pois sua intenção nada se refere ao mal comportamento ou ao atentado contra as normais, sociais e sim de uma postura interior relutante contra a vida. Porém, ao tentar exercer o bom funcionamento social, manifesta a sede, o defeito, a mania ou o escape, neste sentido, o bom funcionamenot é cortado quase que inperceptivelmente, ou seja, o individuo é orientado ao bem por uma decisão biológica, uma decisão automatica, porem o bem é cortado pela sintomatica, seu corpo, direcionado para a empatia, a norma social, tem seu objetivo desviado pela sintomatica. ??? O individuo narra não conseguir adentrar nas normais sociais ou ser diferente, abandonando seus habitos de auto sabotagem.
+
+
+
+
+
+
+
+
+
+
+Quebrados, descartáveis, lixo insolúvel... tudo isso é reflexo do sentimento.
+
+Querer transformar o nada em algo é uma procura apressada pelo sentido, que não pode ser inferido ou reduzido dessa forma.
+
+A crise no capitalismo, em que o indivíduo não consegue sua própria vantagem, não estaria na falta de subsistência, mas na ausência do sentido de não poder mais esboçar sua superioridade.
+
+Sentimento de baixa importância.
+
+Sentimento de não ser criança e se sentir feliz pela igualdade, pela semelhança com os outros.
+
+Querer ser superior é se achar Deus, querer existir em outro patamar.
+
+Pensar-se existente sem existir, porém numa existência ilusoriamente superior.
+
+Quem apoia Hitler ou Bolsonaro tem a índole pervertida, perversa.
+
+Participar de uma classe superior designa a nobreza, ao passo que a sensação de superioridade...
+
+Não é mais dinheiro; é a superioridade de ganhar sem fazer nada, de ser adorado.
+
+
+Como ultima tacada niilista, se quer eleger um falso messias, tentando desfigurar o sentido religioso.
+
+
+
+
+
