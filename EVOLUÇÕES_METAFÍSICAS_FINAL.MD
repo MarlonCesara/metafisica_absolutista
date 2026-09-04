@@ -1011,65 +1011,26 @@ Assim, delimitamos a diferença entre o nada nomeável e o **nada inominável** 
 
 Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Desta forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
 
-revisado
 
-
-
-
-
-
-
-
-
-
-
-
----
-
-## A Inferência sobre o Absoluto
-
-A inferência sob o absoluto se faz direcional, é necessário direcionar os aspectos causais, e para isto utilizaremos o relativo.
-
-Como exemplo, podemos citar a estabilidade do absoluto. Se o absoluto é o absoluto, temos um aspecto atemporal e um temporal para analisá-lo. O ato da nadificação, sendo este uma nulidade, exige, como ação, uma atemporalidade ou uma temporalidade. Isto significa que podemos atribuir aspectos determinísticos ao Absoluto, como a causa de sua estabilidade: é preciso que haja uma razão para que o Absoluto se mantenha como nulidade no tempo e na atemporalidade.
-
-O Absoluto supõe, como veremos adiante, intencionalidade, liberdade em nível metafísico, temporalidade, atemporalidade e diversos outros aspectos que despertam o pensamento sobre o Absoluto a partir de uma ótica espiritual, uma vez que tais aspectos permanecem subjacentes ao Absoluto, enquanto o Absoluto escapa a si mesmo.
-
-Isto é, podemos extrair aspectos positivos do Absoluto — aspectos positivos da completa absolutez —, de forma que a ontologia se justifique por si mesma, e não pela manifestação do mundo. Não se trata de uma negação do mundo, mas da identificação de elementos necessários para que ele exista. Esses elementos positivos podem ser definidos como a pureza ontológica que procuramos.
-
-A inferência sobre o Absoluto demonstrará que o Absoluto ontológico é, na verdade, relativo ao Espírito. O Absoluto mentalizado possui permanência, atemporalidade e estabilidade. O ato de imaginar o Absoluto sobressai à mera razão, projetando sobre o Absoluto aspectos espirituais; com isso, o Absoluto ganha novos contornos. Ele se torna espiritual, intencional e adquire liberdade. Portanto, ao investigarmos o Absoluto, perceberemos que ele não é isolado em si mesmo: ele necessariamente portaria uma positividade, ainda que se esvaziasse de tal positividade para se constituir como Absoluto. Em outras palavras, é do Absoluto que se sobressai o Espírito. Do próprio Absoluto, inferimos pessoalidade, intencionalidade, liberdade e a indistinção entre determinação e existência. Em suma, do Absoluto inferimos o Espírito: aquele que, embora exista indiferenciado, carrega em si a positividade.
-
-## A Aplicação da Causalidade sobre o Inominável
-
-Ao constatarmos a impossibilidade de isolar e fixar a substância do Absoluto — uma vez que qualquer tentativa de conceituá-la a torna imediatamente incapturável —, resta-nos apenas uma via investigativa: aplicar os princípios da causalidade sobre uma instância que não é determinada nem indeterminada, que não é potencial nem não-potencial, que não é substância nem vácuo. Ao aplicarmos os princípios causais, o faremos sobre o **relativo**.
-
-Para fins de sustentação do raciocínio discursivo, referenciar-nos-emos a esta instância de forma aproximada através do conceito de **"nada"**. Embora saibamos que este conceito seja intrinsecamente inadequado para esgotar o Absoluto, ele será mobilizado não como descrição ontológica, mas como o instrumento heurístico que busca representar a pureza total por meio de uma fuga infinita.
-
-Estamos, com isso, implicando uma regressão lógica contínua de negações, onde $A \neq A$, que por sua vez é diferente de $(A \neq A)$, e assim sucessivamente ao infinito: $A \neq A \neq (A \neq A) \dots \infty$. Portanto, devemos aplicar o princípio da causalidade de forma genérica e elástica, abarcando uma infinitude de conceitos que não se esgotam na vã tentativa de encontrar a definição exata de um "diferenciado" que seja verdadeiramente "não-determinado".
-
-### A Superioridade Dialética do "Nada" sobre o "Indiferenciado"
-
-
+### O processo da indiferenciação e o nada nadificação
 REVISADO
 
 
-O conceito de *Indiferenciado* falha em sua missão de pureza porque é, secretamente, **positivo**. Ao ser invocado, ele se diferencia da sua própria ausência; ele supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém.
+A indiferenciação produzida da determinação, para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indiferenciação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado, como diluição do determinado, opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém.
 
-Em contrapartida, o conceito de *nada* colapsa de forma mais precisa e radical, pois não pressupõe nenhuma positividade inicial. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pelo Indiferenciado. Do ponto de vista estritamente filosófico, o nada oferece um "desabar" muito mais cristalino: ele traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto o Indiferenciado tenta capturar a ausência de formas, o "nada" opera sobre o próprio potencial de positividade das formas, anulando-o.
+Em contrapartida, a nadificação direta, isto é, a negação, colapsa de forma mais precisa e radical, pois não pressupõe nenhuma positividade inicial. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pela indiferenciação do determinado. Do ponto de vista estritamente filosófico, a nadificação oferece um "desabar" muito mais cristalino: ela traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto o Indiferenciação do diferenciado tenta capturar a ausência de formas, a "nadificação" opera sobre o próprio potencial de positividade das formas, tentando anulá-lo.
 
 ### A TENTATIVA DE INDETERMINAR O DETERMINADO 
 
 Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado — realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro, isto é, no Ser, nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
 
+Ao concebermos a indiferenciação do todo que se opõe ao nada — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
 
+Logo, o estado indiferenciado atesta a sua própria existência. Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila a existência; resta, invariavelmente, o fundamento para sustentá-la. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como um substrato ilógico. O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
 
+Ao indiferenciarmos um ente de si mesmo, não temos uma realidade pura, o que chamaríamos de Ser. Mas ao indiferenciarmos o ente até mesmo em si, e não somente de si, temos, novamente, o  substrato ilógico, pois o indiferenciamento transgride o nível da fundamentação, ou seja, o indiferenciamento não pode ultrapassar para o nível da fundamentação daquilo que não é, por natureza, indiferenciado.
 
-Ao concebermos a indiferenciação do Todo que se opõe ao nada como potencia — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
-
-Logo, o estado indiferenciado atesta a sua própria existência. Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila a existência; resta, invariavelmente, o Fundamento para sustentá-la. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como pureza ontológica. O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
-
-Ao indiferenciarmos um ente de si mesmo, não temos uma realidade pura, o que chamaríamos de Ser. Mas ao indiferenciarmos o ente até mesmo em si, e não somente de si, temos, novamente, o nada. Pois, o indiferenciamento não pode ultrapassar o nível da fundamentação.
-
-Ao tentarmos igualar o **indiferenciado** com o próprio nada deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. É perfeitamente possível anular o todo, assim como é possível indiferenciar o indiferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
+Ao tentarmos igualar o **indiferenciado** com o próprio nada deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. É perfeitamente possível anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
 
 No entanto, a indiferenciação se refere a imparcialidade da identidade e não da extinção da fundamentação. Porém, ao pensarmos na indiferenciação total, ambos os modos - nada e indiferenciado - manifestam um paradoxo. Pensar o nada ou em uma indiferenciação total exige dar realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
 
@@ -5934,3 +5895,53 @@ Começaremos a utilizar o conceito de "nada" não em sua acepção vulgar — co
 
 
 Ao tentarmos supor duas propriedades diferentes, o determinado como um indeterminado, é mais uma tentativa de purificar o determinado. Está tentativa, destrói a forma, e não resulta nem no indiferenciado verdadeiro (Ser), e nem no nada, pois ainda tenta carregar um substancia ilógica, um mundo que só persiste e é por definição determinado, porém é indeterminado ao mesmo tempo.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## A Inferência sobre o Absoluto
+
+A inferência sob o absoluto se faz direcional, é necessário direcionar os aspectos causais, e para isto utilizaremos o relativo.
+
+Como exemplo, podemos citar a estabilidade do absoluto. Se o absoluto é o absoluto, temos um aspecto atemporal e um temporal para analisá-lo. O ato da nadificação, sendo este uma nulidade, exige, como ação, uma atemporalidade ou uma temporalidade. Isto significa que podemos atribuir aspectos determinísticos ao Absoluto, como a causa de sua estabilidade: é preciso que haja uma razão para que o Absoluto se mantenha como nulidade no tempo e na atemporalidade.
+
+O Absoluto supõe, como veremos adiante, intencionalidade, liberdade em nível metafísico, temporalidade, atemporalidade e diversos outros aspectos que despertam o pensamento sobre o Absoluto a partir de uma ótica espiritual, uma vez que tais aspectos permanecem subjacentes ao Absoluto, enquanto o Absoluto escapa a si mesmo.
+
+Isto é, podemos extrair aspectos positivos do Absoluto — aspectos positivos da completa absolutez —, de forma que a ontologia se justifique por si mesma, e não pela manifestação do mundo. Não se trata de uma negação do mundo, mas da identificação de elementos necessários para que ele exista. Esses elementos positivos podem ser definidos como a pureza ontológica que procuramos.
+
+A inferência sobre o Absoluto demonstrará que o Absoluto ontológico é, na verdade, relativo ao Espírito. O Absoluto mentalizado possui permanência, atemporalidade e estabilidade. O ato de imaginar o Absoluto sobressai à mera razão, projetando sobre o Absoluto aspectos espirituais; com isso, o Absoluto ganha novos contornos. Ele se torna espiritual, intencional e adquire liberdade. Portanto, ao investigarmos o Absoluto, perceberemos que ele não é isolado em si mesmo: ele necessariamente portaria uma positividade, ainda que se esvaziasse de tal positividade para se constituir como Absoluto. Em outras palavras, é do Absoluto que se sobressai o Espírito. Do próprio Absoluto, inferimos pessoalidade, intencionalidade, liberdade e a indistinção entre determinação e existência. Em suma, do Absoluto inferimos o Espírito: aquele que, embora exista indiferenciado, carrega em si a positividade.
+
+## A Aplicação da Causalidade sobre o Inominável
+
+Ao constatarmos a impossibilidade de isolar e fixar a substância do Absoluto — uma vez que qualquer tentativa de conceituá-la a torna imediatamente incapturável —, resta-nos apenas uma via investigativa: aplicar os princípios da causalidade sobre uma instância que não é determinada nem indeterminada, que não é potencial nem não-potencial, que não é substância nem vácuo. Ao aplicarmos os princípios causais, o faremos sobre o **relativo**.
+
+Para fins de sustentação do raciocínio discursivo, referenciar-nos-emos a esta instância de forma aproximada através do conceito de **"nada"**. Embora saibamos que este conceito seja intrinsecamente inadequado para esgotar o Absoluto, ele será mobilizado não como descrição ontológica, mas como o instrumento heurístico que busca representar a pureza total por meio de uma fuga infinita.
+
+Estamos, com isso, implicando uma regressão lógica contínua de negações, onde $A \neq A$, que por sua vez é diferente de $(A \neq A)$, e assim sucessivamente ao infinito: $A \neq A \neq (A \neq A) \dots \infty$. Portanto, devemos aplicar o princípio da causalidade de forma genérica e elástica, abarcando uma infinitude de conceitos que não se esgotam na vã tentativa de encontrar a definição exata de um "diferenciado" que seja verdadeiramente "não-determinado".
