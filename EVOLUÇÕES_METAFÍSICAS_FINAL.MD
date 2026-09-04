@@ -5946,3 +5946,15 @@ Ao constatarmos a impossibilidade de isolar e fixar a substância do Absoluto �
 Para fins de sustentação do raciocínio discursivo, referenciar-nos-emos a esta instância de forma aproximada através do conceito de **"nada"**. Embora saibamos que este conceito seja intrinsecamente inadequado para esgotar o Absoluto, ele será mobilizado não como descrição ontológica, mas como o instrumento heurístico que busca representar a pureza total por meio de uma fuga infinita.
 
 Estamos, com isso, implicando uma regressão lógica contínua de negações, onde $A \neq A$, que por sua vez é diferente de $(A \neq A)$, e assim sucessivamente ao infinito: $A \neq A \neq (A \neq A) \dots \infty$. Portanto, devemos aplicar o princípio da causalidade de forma genérica e elástica, abarcando uma infinitude de conceitos que não se esgotam na vã tentativa de encontrar a definição exata de um "diferenciado" que seja verdadeiramente "não-determinado".
+
+
+
+
+O relativo não é uma base ontológica; é um conceito que se permite inferir sobre algo, de forma a não concluir algo sobre o absoluto.
+
+Nem o nada ontológico, nem o “não haver”, que não pode ser referenciado, nem o ente determinado.
+
+Simplesmente se diz “relativo a qualquer coisa”, tal como se diz o **x** na matemática.
+
+O absoluto é direcional. E tomamos como base da direção o relativo.
+
