@@ -1009,7 +1009,6 @@ Portanto, o nada inominável é um vazio linguístico: algo que se define como '
 
 
 ### O processo da indiferenciação e nadificação do determinado
-REVISADO
 
 Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro processo pelo qual se tenta negar o diferenciado. Isto é, há um prcesso pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existencia e identidade das coisas na tentativa de alcançar a pureza ou ate mesmo o nada potencial.
 
@@ -1017,22 +1016,18 @@ A indiferenciação produzida da determinação, para justificar um nada potenci
 
 Em contrapartida, a nadificação direta, isto é, a negação, colapsa de forma mais precisa e radical, pois não pressupõe nenhuma sopa residual indiferenciada da diluição de formas. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pela indiferenciação do determinado. Do ponto de vista estritamente filosófico, ainda que tanto a indiferenciação do determinado quanto a nadificação do existente sejam do mesmo ponto de vista ilógicas, a nadificação, intuitivamente, oferece um "desabar" muito mais cristalino: ela traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto o Indiferenciação do diferenciado tenta capturar a ausência de formas, a "nadificação" opera sobre o próprio potencial de positividade das formas, tentando anulá-lo.
 
-revisado
-
 Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado — realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro, isto é, no Ser, nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
 
-Ao concebermos a indiferenciação do todo que se opõe ao nada — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
-
-Logo, o estado indiferenciado atesta a sua própria existência. Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila a existência; resta, invariavelmente, o fundamento para sustentá-la. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como um substrato ilógico. O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
+Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila a existência; resta, invariavelmente, o fundamento para sustentá-la. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como um substrato ilógico. O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
 
 Ao indiferenciarmos um ente de si mesmo, não temos uma realidade pura, o que chamaríamos de Ser. Mas ao indiferenciarmos o ente até mesmo em si, e não somente de si, temos, novamente, o  substrato ilógico, pois o indiferenciamento transgride o nível da fundamentação, ou seja, o indiferenciamento não pode ultrapassar para o nível da fundamentação daquilo que não é, por natureza, indiferenciado.
 
-Ao tentarmos igualar o **indiferenciado** com o próprio nada deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. É perfeitamente possível anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
+Ao tentarmos igualar o **indiferenciado** com o próprio nada deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. Através da lógica assimétrica é possível se anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
 
 No entanto, a indiferenciação se refere a imparcialidade da identidade e não da extinção da fundamentação. Porém, ao pensarmos na indiferenciação total, ambos os modos - nada e indiferenciado - manifestam um paradoxo. Pensar o nada ou em uma indiferenciação total exige dar realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
 
 ### O "Nada" como Singularidade Filosófica Dinâmica
-
+revisado
 Neste estágio da investigação, como a substância pura permanece inalcançada, somos compelidos a justificar a existência factual das coisas — afinal, se o mundo manifesto existe, ele deve derivar de alguma operação primordial. Buscamos, portanto, identificar o mecanismo que opera *sobre* esse nada, visando extrair, desse conteúdo que colapsa infinitamente, uma determinação, o "algo" que existe.
 
 É neste ponto que **ressignificamos o indiferenciado**. O indiferenciado deixa de ser uma categoria estática para tornar-se a **captura desse contorno em colapso**. Isso significa que o termo "nada" adquire um caráter estritamente **dinâmico**. A mente humana tenta resgatar um significado para ele, mas, no exato instante em que ele é pensado, esse significado esvai-se. É uma aproximação cognitiva de altíssima velocidade, mas cuja "velocidade do pensamento" jamais consegue alcançar ou estabilizar o seu produto final.
@@ -5954,3 +5949,24 @@ Simplesmente se diz “relativo a qualquer coisa”, tal como se diz o **x** na 
 
 O absoluto é direcional. E tomamos como base da direção o relativo.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Ao concebermos a indiferenciação do todo que se opõe ao nada — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
+
+Logo, o estado indiferenciado atesta a sua própria existência. 
