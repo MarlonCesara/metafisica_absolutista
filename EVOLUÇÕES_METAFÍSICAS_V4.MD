@@ -11913,6 +11913,19 @@ Não é mais dinheiro; é a superioridade de ganhar sem fazer nada, de ser adora
 Como ultima tacada niilista, se quer eleger um falso messias, tentando desfigurar o sentido religioso.
 
 
+## A transferência do peso do niilismo
+
+O niilista quando sucumbe em um choro retido sob seu niilismo, porem encontra uma barreira intarnsponível dentro de si, se aparenta implacavel, quando desaba no mundo seu desespero e o mundo pede que pare, ele salienta a barreira dentro de si na forma de uma barreira, uma impassividade uma frieza implacavel.
+
+Então é a mesma barreira dos braços cruzados de um feitor de enjeito que açoita ao ouvir para parar, ou a mesma barreira que transparece um empresário escravista.
+
+O niilista não suporta o peso de sua decisão, não assume a responsabilidade sob sua decisão e a desemboca como uma revolta social, de antemão se o interesse era só o niilismo, agora, com o desabe, seu interesse é colocar sua problematica no seio da humanidade, se expressar de forma que espelhe o trauma interior de forma que possa ser entendido e amparado.
+
+Ao se fazer niilista, ao desembocar para si mesmo a sua decisão, não pode segura-la, não comporta na sua natureza humana, tal decisão. O niilismo quer expressão, quer um exílio de si mesmo, quer se fazer compreendido. Precisa de um escape e escapa nas politicas, votando contrariamente as coisas boas como belezas naturais, a paz mundial. 
+
+Quer o ultimo desejo, como se fosse o ultimo desejo de um condenado.
+
+
 
 
 
