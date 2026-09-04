@@ -11929,3 +11929,6 @@ Quer o ultimo desejo, como se fosse o ultimo desejo de um condenado.
 
 
 
+O dinheiro, acumulo, é o que mais atiça os sentidos do niilsmo, é o que mais lhe engrandece os olhos, quando o individuo torna-se totalmente material, o valor somente lhe parece na materia, a privação maior do corpo quando niilista é a privação de auto valor, é a sensação de ser descarte, de ser um breve acontecimento no mundo. Portanto a sintomatica pela riqueza é a que se destaca entre todas. Onde há concentração de riquezas ou brechas para se alcançar, independente da emptia ao humano, o niilista avança furiosamente, incessantemente e insistentemente. O acumulo, a representação exterior de um valor que procura dentro é o que mais lhe apetece, ao que mais lhe tateia os pensamentos, como um vicio frenetico, como uma tendnecia incontrolavel que faz com que tonre-se até mesmo um comportamento de mania.
+
+O niilista torna-se um visualizador implacavel de brechas para obter a riqueza, de caminhos adversos, ilegais, maliciosos, pretensiosos e mesquinhos. Encontra brechas, tem seu penamento voltado para a obtenção de bens como um estado de mania. 
