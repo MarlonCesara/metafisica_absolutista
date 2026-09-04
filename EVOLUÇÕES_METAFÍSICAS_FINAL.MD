@@ -1001,7 +1001,7 @@ Para fins metodológicos, o foco desta análise restringe-se à primeira anulaç
 
 ### O Nada Potencial *versus* O Nada Absoluto
 
-O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**, e não como um nada absoluto. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
+O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
 
 O **nada absoluto**, por sua vez, é inalcançável, inominável e conceitualmente definido como o nada elevado à potência infinita. Sendo esse limite absoluto inacessível à apreensão direta, a investigação filosófica deve focar-se no território do nada potencial. Afinal, ao elevarmos o nada em sua latência, nunca se atinge a nulidade completa, mas apenas a renovação desse mesmo potencial.
 
@@ -1012,7 +1012,7 @@ Assim, delimitamos a diferença entre o nada nomeável e o **nada inominável** 
 Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Desta forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
 
 
-### O processo da indiferenciação e o nada nadificação
+### O processo da indiferenciação e o nadificação do determinado
 REVISADO
 
 Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro processo pelo qual se tenta negar o diferenciado.
@@ -1020,8 +1020,6 @@ Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro process
 A indiferenciação produzida da determinação, para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indiferenciação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado, como diluição do determinado, opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém.
 
 Em contrapartida, a nadificação direta, isto é, a negação, colapsa de forma mais precisa e radical, pois não pressupõe nenhuma positividade inicial. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pela indiferenciação do determinado. Do ponto de vista estritamente filosófico, a nadificação oferece um "desabar" muito mais cristalino: ela traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto o Indiferenciação do diferenciado tenta capturar a ausência de formas, a "nadificação" opera sobre o próprio potencial de positividade das formas, tentando anulá-lo.
-
-### A TENTATIVA DE INDETERMINAR O DETERMINADO 
 
 Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado — realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro, isto é, no Ser, nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
 
