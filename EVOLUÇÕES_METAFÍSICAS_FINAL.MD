@@ -5959,7 +5959,9 @@ A auto causalidade é o desejar puro em direção ao infinitude de si. É o ter-
 
 Antes de entender o Ser é necessario entender o nada, para inferir que, o nada não pode existir, desta forma, fica a aberta a intuição para a imaginação de uma criação a partir, não do nada, mas da liberdade absoluta que não se prende a um ideal de um nada ontológico, mas é um campo em que se extende a vontade livre, de forma que o querer crie com base em uma liberdaed total, liberdade que não se paraliza ou não friza nenhuma ontologia determinada.
 
+Ao se compreender que nem mesmo o nada existe, se compreende o potencial de liberdade do Espírito. É necessario testar o nada sob suas principais vertentes possíveis, para se compreender que até mesmo o nada para absoluto seria injustificavel.
 
+Ao se afirmar o auto ausar, o auto querer, se pergunta, auto querer de que? Não havendo barreira para se responder o de que, e nem para onde, simplesmente o querer não se esbarra num si e percorre a infinitude, sendo o amor infinito. O amor que se expande, e que não é unidirecional, não se depara com fronteira ontológica e nem se esvai ao nada.
 
 
 
