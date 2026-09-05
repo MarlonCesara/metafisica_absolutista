@@ -1096,19 +1096,19 @@ Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontoló
 
 Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada. Chamamos essa substância de Espírito.
 
-revisado
-
 ## O indiferenciado sob a existência fenomênica
 
 Ao aplicarmos o indiferenciado à existência fenomênica, resultamos novamente no nada, pois o indiferenciado esgota os entes determinados. Isto é, o indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
 
-Quando o indiferenciado é aplicado à infinitude, isto é, quando consideramos o indiferenciado infinitas formas possiveis em potencial, ele é relativizado, diluindo até mesmo seu fundamento. Pensar o Ser como uma identidade é, portanto, imbuí-lo de uma determinação que, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada.[
+Quando o indiferenciado é aplicado à infinitude, isto é, quando consideramos o indiferenciado infinitas formas possiveis em potencial, ele é relativizado, diluindo até mesmo seu fundamento. Pensar para o absoluto uma identidade é, escolher uma indentidade e negar outras infinitas possibilidades, portanto, imbuí-lo de uma determinação, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o absoluto como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada por requerer uma explicação do porque foi considerada em detrimento de todas as outras identidades. Por exemplo, ao elegermos A, então deverá um motivo para não termos eleito B. Se não houver justificativa, todas as formas entram em suspensão, ocasionando que, nenhuma forma é eleita e nem mesmo a infinitude de formas é eleita para absoluto, temos, portanto, uma relativização do absoluto.
 
-Como dito anteriormente, o indiferenciado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
+Como dito anteriormente, o indiferenciado forçado do determinado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
 
 Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+revisado
+O indiferenciado forçado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
 
-O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
+Quando tentamos manter uma indentidade relativa ao indiferenciado forçado, temos que, relativo não é nenhuma e nem todas as formas, mas é uma pendencia por forma. Temos, portanto, um substrato sem nome, que não é nem o diferenciado do qual foi formado e nem o Ser indiferenciado verdadeiro.
 
 Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade é existir, e este existir não se relaciona à existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
 
