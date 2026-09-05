@@ -11937,7 +11937,7 @@ O dinheiro acumulado atrai o niilista como sua religião, como algo que necessit
 
 O dinheiro, para o niilista, soa como uma religião falsa natural, o qual persegue com devoção. Soa como uma doutina auto evidente, na qual enxerga a materia brilhar, como se enxergasse a sua eternidade. O ser humano necessita de uma religião, necessita pensar em sua eternidade, e, se não objetiva a vida, é devoto da materia. Ve o reluzir de si num fulgaz brilho do ouro.
 
-
+O niilista elege o acumulo de riqueza como sua religião, ao ser informado de que o alcançara da saltos de alegria, como se tivesse a espera de um reencontro consigo mesmo. Como se projetasse nesse acumulo toda a sua expectativa de vida eterna, e depositasse nele sua possibilidade de sorrir, de ser feliz. Portanto, o niilista substitui a imagem da eternidade, o desejo mais profundo, a maior aspiração do ser humano que é a vida eterna, pela imagem figurativa de posses, luxos, e acumulo material. Não somente isso como categoriza as pessoas atraves desse acumulo e também a si mesmo tomando como verdade para si irrevogável que o sentido material é o único sentido que se pode extrair da vida. Força sua mente a duvidar de modo orgulhoso e soberbo de qualquer forma de aspiração de sentido ou de proposito maior para a vida.
 
 Querer transformar o nada em algo é uma procura apressada pelo sentido, que não pode ser inferido ou reduzido dessa forma.
 
