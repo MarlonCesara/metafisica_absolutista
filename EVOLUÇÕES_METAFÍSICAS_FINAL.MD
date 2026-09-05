@@ -5983,3 +5983,9 @@ Logo, o estado indiferenciado atesta a sua própria existência.
 A verdadeira singularidade do nada escapa à razão; o irrepresentável seria, de fato, o elemento com propriedade autocausal.
 
 Agora, a busca direciona-se ao **espectral**. Assumindo-se a impossibilidade de conceituar o nada absoluto, e reconhecendo que tal gesto é uma tentativa da razão de subjugar a realidade, utilizaremos o limite máximo do resultado dessa tentativa. Ainda que o nada seja irrepresentável ou logicamente contraditório por sua própria definição, ele permanece como a ferramenta sobressalente de que dispomos nessa jornada de dominar o real. Busquemos agora, através de princípios causais, rastrear *espectros no nada*, a fim de averiguar, em um âmbito relacional, o vácuo ontológico deixado por ele.
+
+
+
+
+
+Ao partirmos a investigação acerca do inefável a partir do mundo contingente, temos a inferência indireta, se há algo, esse algo partiu de uma pureza positiva que teria o poder de causar a realidade sem uma ontologia negativa como o nada como suporte. Porém, essa forma de inferência é indireta. Ao averiguarmos as propriedades do absoluto, podemos fazer tal inferencia de forma direta, e alem disto, podemos traçar, delinear melhor os traços do inefavel, como seu aspecto temporal, sua intencionalidade e liberdade.
