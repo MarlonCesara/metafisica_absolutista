@@ -5949,6 +5949,10 @@ Simplesmente se diz “relativo a qualquer coisa”, tal como se diz o **x** na 
 
 O absoluto é direcional. E tomamos como base da direção o relativo.
 
+A auto causalidade sob o nada não opera, pois é uma auto causalidade com direção a algo irreal. O auto querer, se dá em suspensão. É apenas o auto querer direcional, se não a si, ao relativo. É o auto querer que não se encerra. Não há um foco sob o qual intencione, não há um foco direcional fixo. Sua direção concorre para o infinito. É a infinitude do querer, da auto intenção. O produto desta auto intenção não se esbarra, ou acaba no nada, e nem se esbarra numa fonte ontológica, mas prosaegue sendo em si sua própria extensão imbarrável. 
+
+Portanto, a tentativa de elerger o relativo, um conceito vago para direcionar não funciona, pois não designa um objeto real da realidade e nem tem efeito sob a metafisica, sendo somente um polinomio sem relação com um ente ou realidade metafisica. Portanto, a ultima tentativa é eleger um conceito que nada designa, um conceito vazio para a superficie da inferencia, sem um referencial metafisico. Isto, no entanto, não resulta numa investigação precisa, pois não há um objeto metafisico que se relacione com outros. Só há um substantivo que nada ajuda na inferencia metafisica.
+
 
 Antes de entender o Ser é necessario entender o nada, para inferir que, o nada não pode existir, desta forma, fica a aberta a intuição para a imaginação de uma criação a partir, não do nada, mas da liberdade absoluta que não se prende a um ideal de um nada ontológico, mas é um campo em que se extende a vontade livre, de forma que o querer crie com base em uma liberdaed total, liberdade que não se paraliza ou não friza nenhuma ontologia determinada.
 
