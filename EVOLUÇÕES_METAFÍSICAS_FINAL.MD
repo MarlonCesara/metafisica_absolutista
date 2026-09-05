@@ -1130,23 +1130,13 @@ O indiferenciado só pode ser aplicado para além do contingente. Pois o indifer
 
 
 Qualquer ente angulado, recortado de uma infinitude de formas de forma a se definir uma forma e não todas as outras, possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir. O Espírito nao é um si, é o Ser, não é uma existência, é o existir.
-===============================================================
-revisado
+
+
 ## Propriedades Espirituais do Absoluto
 
-Até o momento, exploramos ao máximo o conceito do nada e do indiferenciado, retirando-lhes propriedades que não referenciam fatores relacionais ou espirituais. Concluímos que o nada é um potencial e que o completo nada, quando o nada é ausente de si mesmo, não é possível na linguagem nem inferível. Dessa forma, inferiremos sobre o nada cientes de seu potencial, seja como nada ou como indiferenciado. Ambas são potências ontológicas: o indiferenciado como indiferença do diferente, e o nada como nulidade do todo. Sendo o nada ainda nossa substância bruta inefável, lapidaremos mais essa substância na busca por fatores relacionais e espirituais que se sobressaiam ao conceito do nada. As seguintes conclusões demonstram que não faz sentido pensar no Absoluto até agora inferido sem pressupor um âmbito espectral e intencional.
-
-
-## Conclusão da Hipótese Especulativa
-
-Esgotadas todas as instâncias e tentativas de produzir um Nada Existente que seja logicamente inteligível e passível de abstração pura — sem que para isso tenhamos de capitular diante do paradoxo absoluto, da impossibilidade impensável, da potência espúria ou da elevação infinita da potência de nadificação —, a arquitetura da razão atinge seu limite de saturação nesta linha investigativa.
-
-Torna-se metodologicamente evidente que o Nada, enquanto substância ou antecedente, é uma via apócrifa. Impõe-se, portanto, a necessidade imperiosa de **arquitetar outro mecanismo causal**, transicionando definitivamente da ontologia do nada para a metafísica da pura atualidade do Ser.
-
-Isto é, procuraremos outro substrato para dar sentido ao nada, sendo que, o puro conceito de nada não faz sentido perante a si mesmo. 
+Até o momento, exploramos ao máximo o conceito do nada e do indiferenciamento do determinado, retirando-lhes propriedades que não referenciam fatores relacionais ou espirituais. Concluímos que o nada figurativo é um potencial ilógico e que o completo nada, quando o nada é ausente de si mesmo, não é possível na linguagem nem inferível. Dessa forma, inferiremos sobre o nada cientes de seu carater, seja como nada ou como indiferenciamento da forma. Ambas são potências ontológicas: o indiferenciado como indiferença do diferente, e o nada como nulidade do todo. Sendo o nada ainda nossa substância bruta inefável, lapidaremos mais essa substância na busca por fatores relacionais e espirituais que se sobressaiam ao conceito do nada. As seguintes conclusões demonstram que não faz sentido pensar no Absoluto até agora inferido sem pressupor um âmbito espectral e intencional.
 
 ---
-
 
 # Problemática do infinito
 
@@ -1161,9 +1151,9 @@ Nesse sentido, o ente infinito conteria não apenas aquilo que é, mas também a
 
 Chegamos, assim, a uma dificuldade fundamental: aquilo que ainda não existe não pode ser efetivamente acrescentado àquilo que existe. Se o nada não possui realidade própria, não pode constituir uma parcela adicional do ente. Consequentemente, não parece possível dizer que uma realidade possua, em si mesma, uma quantidade infinita já constituída.
 
-O infinito, nesse sentido, não seria uma propriedade efetivamente possuída pelo ente, mas a designação daquilo que jamais se encontra completamente atualizado. Ele corresponde à parte do ente que, por definição, ainda não pode ser apresentada como realidade atual. Por isso, nenhum ente propriamente dito possui o infinito, nem é infinito em sentido absoluto.
+O infinito, nesse sentido, não seria uma propriedade efetivamente possuída pelo ente, mas a designação daquilo que jamais se encontra completamente atualizado. Ele corresponde à parte do ente que, por definição, ainda não pode ser apresentada como realidade atual. Por isso, nenhum ente determimado propriamente dito possui o infinito, nem é infinito em sentido absoluto.
 
-A própria palavra **“infinidade”** revela essa dificuldade. Considerada isoladamente, ela não parece simbolizar uma realidade determinada, mas funcionar como uma atribuição feita a alguma coisa. Quando dizemos “infinidade”, estamos aparentemente acrescentando ao ente uma propriedade cuja realidade completa nunca pode ser apresentada. A infinidade seria, então, a realidade acrescida daquilo que não pode ser efetivamente determinado como realidade.
+A própria palavra **“infinidade”** revela essa dificuldade. Considerada isoladamente, ela não parece simbolizar uma realidade determinada, mas funcionar como uma atribuição feita a alguma coisa. Quando dizemos “infinidade”, estamos aparentemente acrescentando ao ente uma propriedade cuja realidade completa nunca pode ser apresentada. A infinidade seria, então, a uma realidade acrescida daquilo que não pode ser efetivamente determinado para essa realidade.
 
 Dizer que o universo possui um espaço infinito ou que uma singularidade possui uma massa infinita seria, sob essa perspectiva, problemático. Não porque a linguagem matemática não possa operar legitimamente com o conceito de infinito, mas porque, no plano ontológico, transformar o infinito em uma propriedade efetivamente existente pode produzir uma contradição conceitual. O infinito matemático pode funcionar como limite, relação ou estrutura formal; outra coisa é concebê-lo como uma determinação real integralmente presente em um ente.
 
@@ -1177,6 +1167,8 @@ No campo das sensações, poderíamos encontrar igualmente determinações finit
 
 Não seria possível atribuir simplesmente um espaço às sensações, pois o próprio espaço poderia ser compreendido como mais uma determinação sensível, e não como um recipiente absoluto no qual as sensações estariam dispostas. É possível, contudo, atribuir às sensações uma continuidade temporal: uma sucessão incessante de estados presentes, na qual cada estado é plenamente real enquanto ocorre, sem que seja necessário pressupor uma totalidade temporal infinita já existente.
 
+Para a sensação, intuição, desejo ou querer, é possível atribuir conteúdo qualitativo, é possível que exista um querer infinito. Pois o qualitativo se infinitiza, pois não é quantitativo. Uma amor infinito pode existir, enquanto uma realidade espacial infinita não. Portanto, realidades relacionais podem adquirir infinitude. 
+
 Temos, portanto, dois conceitos distintos:
 
 * **Um ente infinito** seria, em sentido absoluto, um ente acrescido daquilo que jamais pode ser integralmente atualizado; sua infinitude apontaria para uma totalidade que nunca se apresenta como realidade acabada.
@@ -1189,12 +1181,11 @@ Desse modo, a fluência contínua pode ser compreendida como uma propriedade da 
 A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
 
 
-
 ## O INFINITO E O NADA: A DUALIDADE PERSPECTÍVICA DO ENTE
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
-
-Para fins especulativos e práticos, faz-se imperativo introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela perfeitamente apta a sustentar uma integridade ontológica não colapsável: **o Infinito da Possibilidade**. Sob a égide deste conceito, a atualidade plena e a nulidade absoluta coexistem em perfeita equivalência e harmonia speculativa.
+revisado
+Para fins especulativos e práticos, faz-se imperativo introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela perfeitamente apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a égide deste conceito, a atualidade plena e a nulidade absoluta coexistem em perfeita equivalência e harmonia speculativa.
 
 Ao considerarmos a totalidade e o nada, conceitos exatamente iguais, então, temos que, não haverá mais dualidade entre ambos. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude em sua completude absoluta é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede a imposição de qualquer mensurabilidade ou predicação restritiva. O olhar direcionado à totalidade do infinito coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui a via metodológica para conceber um nada autêntica e rigorosamente ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
 
@@ -6003,3 +5994,23 @@ Ao partirmos a investigação acerca do inefável a partir do mundo contingente,
 
 
 A auto posição absoluta se dá pelo principio, isto é, o principio é definido pelo próprio absoluto. No principio está a soberania.
+
+
+
+
+
+
+
+
+
+
+
+
+
+## Conclusão da Hipótese Especulativa
+
+Esgotadas todas as instâncias e tentativas de produzir um Nada Existente que seja logicamente inteligível e passível de abstração pura — sem que para isso tenhamos de capitular diante do paradoxo absoluto, da impossibilidade impensável, da potência espúria ou da elevação infinita da potência de nadificação —, a arquitetura da razão atinge seu limite de saturação nesta linha investigativa.
+
+Torna-se metodologicamente evidente que o Nada, enquanto substância ou antecedente, é uma via apócrifa. Impõe-se, portanto, a necessidade imperiosa de **arquitetar outro mecanismo causal**, transicionando definitivamente da ontologia do nada para a metafísica da pura atualidade do Ser.
+
+Isto é, procuraremos outro substrato para dar sentido ao nada, sendo que, o puro conceito de nada não faz sentido perante a si mesmo. 
