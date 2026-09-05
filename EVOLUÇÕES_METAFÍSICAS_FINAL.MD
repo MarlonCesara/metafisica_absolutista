@@ -1102,7 +1102,7 @@ revisado
 
 Ao aplicarmos o indiferenciado à existência fenomênica, resultamos novamente no nada, pois o indiferenciado esgota os entes determinados. Isto é, o indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
 
-Quando o indiferenciado é aplicado à infinitude, ele a anula em prol do relativo, diluindo até mesmo a identidade do Ser. Pensar o Ser como uma identidade é, portanto, imbuí-lo de uma determinação que, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada.
+Quando o indiferenciado é aplicado à infinitude, isto é, quando consideramos o indiferenciado infinitas formas possiveis em potencial, ele é relativizado, diluindo até mesmo seu fundamento. Pensar o Ser como uma identidade é, portanto, imbuí-lo de uma determinação que, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada.[
 
 Como dito anteriormente, o indiferenciado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
 
