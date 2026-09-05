@@ -11939,6 +11939,11 @@ O dinheiro, para o niilista, soa como uma religião falsa natural, o qual perseg
 
 O niilista elege o acumulo de riqueza como sua religião, ao ser informado de que o alcançara da saltos de alegria, como se tivesse a espera de um reencontro consigo mesmo. Como se projetasse nesse acumulo toda a sua expectativa de vida eterna, e depositasse nele sua possibilidade de sorrir, de ser feliz. Portanto, o niilista substitui a imagem da eternidade, o desejo mais profundo, a maior aspiração do ser humano que é a vida eterna, pela imagem figurativa de posses, luxos, e acumulo material. Não somente isso como categoriza as pessoas atraves desse acumulo e também a si mesmo tomando como verdade para si irrevogável que o sentido material é o único sentido que se pode extrair da vida. Força sua mente a duvidar de modo orgulhoso e soberbo de qualquer forma de aspiração de sentido ou de proposito maior para a vida.
 
+A obsessão chega num ponto em que o individuo torna-se um membro social falido, insuportável para os outros, pois a frequência com que busca os bens materiais e o que é capaz de fazer assombra os demais membros da sociedade com tamanha altivez, ímpeto e coragem para executar até mesmo o mal afim de obter o objeto de desejo. Caracterizando, além de um desejo, mas um estado de mania, um estado vidrado, uma fuga que o corpo produz para eliminar o conteúdo horrível da consciência que é o niilismo.
+
+
+O niilismo é uma sombra da consciência, um mal estar que enraivece, encarcera, polui, intoxica a mente e o humor do individuo ao constatar tão pessimista noticia para si mesmo, tão infrutífero destino, tamanha escassez, tamanho infortuno para si mesmo.
+
 Querer transformar o nada em algo é uma procura apressada pelo sentido, que não pode ser inferido ou reduzido dessa forma.
 
 “Quebrados”, “descartáveis”, “lixo insolúvel” — tudo isso é reflexo do sentimento.
