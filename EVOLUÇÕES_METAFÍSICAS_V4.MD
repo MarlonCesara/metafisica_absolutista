@@ -11935,4 +11935,27 @@ O niilista torna-se um visualizador implacavel de brechas para obter a riqueza, 
 
 O dinheiro acumulado atrai o niilista como sua religião, como algo que necessita, como uma suadade imensa sanada, como a miragem do paraíso que necessita alcançar para encontrar a si mesmo. Soa lhe como uma canção de ninar distante, deixa-lhe frenetico.
 
-O dinheiro, para o niilista, soa como uma religião falsa natural, o qual persegue com devoção. Soa como uma doutina auto evidente, na qual enxerga a materia brilhar, como se enxergasse a sua eternidade. O ser humano necessita de uma religião, necessita pensar em sua eternidade, e, se não objetiva a vida, é devoto da materia. Ve o reluzir de si num fulgaz brilho do ouro. 
+O dinheiro, para o niilista, soa como uma religião falsa natural, o qual persegue com devoção. Soa como uma doutina auto evidente, na qual enxerga a materia brilhar, como se enxergasse a sua eternidade. O ser humano necessita de uma religião, necessita pensar em sua eternidade, e, se não objetiva a vida, é devoto da materia. Ve o reluzir de si num fulgaz brilho do ouro.
+
+
+
+Querer transformar o nada em algo é uma procura apressada pelo sentido, que não pode ser inferido ou reduzido dessa forma.
+
+“Quebrados”, “descartáveis”, “lixo insolúvel” — tudo isso é reflexo do sentimento.
+
+A crise no capitalismo, em que o indivíduo não consegue obter sua pretendida vantagem, talvez não esteja na falta de subsistência, mas na ausência de sentido diante da impossibilidade de mais esboçar sua superioridade.
+
+Sentimento de baixa importância.
+
+Sentimento de não ser criança e de se sentir feliz pela igualdade, pela semelhança com os outros.
+
+Querer ser superior é querer ser Deus; é querer existir em outro patamar.
+
+É pensar-se existente sem exigir, porém, uma existência ilusoriamente superior.
+
+Quem apoia Hitler ou Bolsonaro tem uma índole pervertida, perversa.
+
+Participar de uma classe superior designa a necessidade de não ser solitário, ao passo que a sensação de superioridade...
+
+Não é mais dinheiro: é a superioridade de ganhar sem fazer nada, de ser adorado.
+
