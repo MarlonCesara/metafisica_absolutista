@@ -5953,6 +5953,9 @@ A auto causalidade sob o nada não opera, pois é uma auto causalidade com dire�
 
 Portanto, a tentativa de elerger o relativo, um conceito vago para direcionar não funciona, pois não designa um objeto real da realidade e nem tem efeito sob a metafisica, sendo somente um polinomio sem relação com um ente ou realidade metafisica. Portanto, a ultima tentativa é eleger um conceito que nada designa, um conceito vazio para a superficie da inferencia, sem um referencial metafisico. Isto, no entanto, não resulta numa investigação precisa, pois não há um objeto metafisico que se relacione com outros. Só há um substantivo que nada ajuda na inferencia metafisica.
 
+Direcionar a auto causalidade a uma barreira que não existe, de forma a dizer que o nada é auto causal, a uma barreira conceitual como relativo é um erro lógico.
+A auto causalidade é o desejar puro em direção ao infinitude de si. É o ter-se desejar-se de forma absoluta sem uma fronteira conceitual ou ficticiamente ontológica.
+
 
 Antes de entender o Ser é necessario entender o nada, para inferir que, o nada não pode existir, desta forma, fica a aberta a intuição para a imaginação de uma criação a partir, não do nada, mas da liberdade absoluta que não se prende a um ideal de um nada ontológico, mas é um campo em que se extende a vontade livre, de forma que o querer crie com base em uma liberdaed total, liberdade que não se paraliza ou não friza nenhuma ontologia determinada.
 
