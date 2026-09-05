@@ -1105,24 +1105,33 @@ Quando o indiferenciado é aplicado à infinitude, isto é, quando consideramos 
 Como dito anteriormente, o indiferenciado forçado do determinado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
 
 Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+
+O indiferenciado forçado do determinado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado forçado existência, estamos tornando-o equivalente ao nada.
+
+Uma realidade relativa, é uma realidade que tem uma espera pela forma, não pode ser considerada nada, e por isso, quando extraímos a forma da determinação a espera de que sobre algo, estamos, na verdade, produzindo o relativo que é idêntico a coisa alguma.
+
+Quando tentamos manter uma indentidade relativa ao indiferenciado forçado, temos que, relativo não é nenhuma e nem todas as formas, mas é uma pendencia por forma. Temos, portanto, um substrato sem nome, que não é nem o diferenciado do qual foi formado e nem o Ser indiferenciado verdadeiro. 
+
+A realdidade relativa não tem sua essencia fundida a seu fundamento como o Ser verdadeiro, mas tem uma pendencia de forma, que a faz uma realidade relativa, puramente conceitual.
+
+Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria carência de identidade, que não é em si uma indentidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade não é seu próprio existir, é uma realidade que não se relaciona à existência ou ao nada, pois o ser verdadadeiro é inferido de forma relacional, isto é, auto causal. 
+
+O Ser é Incapturável pela determinação, mas existente. Isto quer dizer que o Ser se faz sem nada, sem existência determinada, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência determinada.
+
+
+Quando consideramos uma infinitude de formas, e angulamos essa infinitude, isto é, olhamos para uma infinitude de formas, não vemos coisa alguma, pois a infinitude de formas não elege uma forma, e é em si imensuravel, incapturavel como forma. Portanto está também é uma visão falsa do indiferenciado. O indiferenciado original, portanto, não é o existir angular da infinitude das infinitas possíveis formas da determinação. Mas está além da categoria do determinado.
+
+
+Portanto, ao pensarmos na indiferenciação da existência determinada, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado à existência determinada, com o mesmo efeito que a nadificação do determinado.
+
+Não devemos, portanto, aplicar a indiferenciação ao contingente. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis no mundo das formas.
+
+O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou uma forma falsa de angulação da infinitude da forma. Ao aplicarmos a indiferença a entes contingentes, eles não se tornam homogêneos ao indiferente. Não se tornam parte do Ser.
+
+
+Qualquer ente angulado, recortado de uma infinitude de formas de forma a se definir uma forma e não todas as outras, possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir. O Espírito nao é um si, é o Ser, não é uma existência, é o existir.
+
 revisado
-O indiferenciado forçado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
-
-Quando tentamos manter uma indentidade relativa ao indiferenciado forçado, temos que, relativo não é nenhuma e nem todas as formas, mas é uma pendencia por forma. Temos, portanto, um substrato sem nome, que não é nem o diferenciado do qual foi formado e nem o Ser indiferenciado verdadeiro.
-
-Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade é existir, e este existir não se relaciona à existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
-
-O indiferente, portanto, não é o existir angular da infinitude da possibilidade. Mas está além da categoria do existir. Aborda aspectos relacionais nesta categoria e pode ser inferido através dela. Porém, não se confunde com a mesma.
-
-Portanto, ao pensarmos na indiferenciação da existência, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado à existência, com o mesmo efeito que a nadificação.
-
-Não devemos, portanto, aplicar a indiferenciação ao contingente. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis.
-
-O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
-
-Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir.
-
-
 ## Propriedades Espirituais do Absoluto
 
 Até o momento, exploramos ao máximo o conceito do nada e do indiferenciado, retirando-lhes propriedades que não referenciam fatores relacionais ou espirituais. Concluímos que o nada é um potencial e que o completo nada, quando o nada é ausente de si mesmo, não é possível na linguagem nem inferível. Dessa forma, inferiremos sobre o nada cientes de seu potencial, seja como nada ou como indiferenciado. Ambas são potências ontológicas: o indiferenciado como indiferença do diferente, e o nada como nulidade do todo. Sendo o nada ainda nossa substância bruta inefável, lapidaremos mais essa substância na busca por fatores relacionais e espirituais que se sobressaiam ao conceito do nada. As seguintes conclusões demonstram que não faz sentido pensar no Absoluto até agora inferido sem pressupor um âmbito espectral e intencional.
