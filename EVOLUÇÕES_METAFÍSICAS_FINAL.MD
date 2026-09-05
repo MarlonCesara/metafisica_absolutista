@@ -5998,3 +5998,8 @@ Agora, a busca direciona-se ao **espectral**. Assumindo-se a impossibilidade de 
 
 
 Ao partirmos a investigação acerca do inefável a partir do mundo contingente, temos a inferência indireta, se há algo, esse algo partiu de uma pureza positiva que teria o poder de causar a realidade sem uma ontologia negativa como o nada como suporte. Porém, essa forma de inferência é indireta. Ao averiguarmos as propriedades do absoluto, podemos fazer tal inferencia de forma direta, e alem disto, podemos traçar, delinear melhor os traços do inefavel, como seu aspecto temporal, sua intencionalidade e liberdade.
+
+
+
+
+A auto posição absoluta se dá pelo principio, isto é, o principio é definido pelo próprio absoluto. No principio está a soberania.
