@@ -1089,9 +1089,6 @@ Se propomos que o "nada" é autocausal, incorremos em uma contradição linguís
 O nada absoluto, por definição, é a privação total de ser, de propriedades e de interioridade. Ele carece de "si mesmo" para poder referenciar-se. Ao lhe atribuirmos a propriedade magna da autocausalidade, nós o dotamos de positividade: nós o transformamos em um ente disfarçado. O conceito desaba porque a razão, ao tentar instrumentalizá-lo, o preenche com o peso da substância. Trata-se de uma **hipóstase ilusória** (a materialização de um conceito vazio). Dizer que "o nada é a causa" é um equívoco sintático que a mente confunde com uma possibilidade metafísica. O nada não opera, não atua, não fundamenta e não se relaciona. Conferir-lhe o *status* de agente autocausal não é descrever o nada, mas sim fantasiar uma realidade positiva e afirmativa com a máscara da ausência. Portanto, a substância autocausal, que chamaremos de Espírito ou indiferenciado, deve ser uma positividade radical — um "algo" primordial —, pois apenas a presença tem força para suportar a própria existência.
 
 O nada não pode nem mesmo portar o atributo de absolutez, pois não é um ente que dispensa anterioridade e exterioridade, não pode ter nem mesmo atributo de soberania pois nada é.
-revisado
-
-## A Rejeição do Nada e a Ontologia do Espírito (A Realidade Pura)
 
 O Absoluto é um conceito que designa uma existência ontológica que serve de base para toda a causalidade. Ele engloba a totalidade, o que tange à razão e o que lhe escapa: o impossível, o possível e o incognoscível. É a soma de todos os conceitos dentro de um resultado ontológico, a totalidade daquilo que é, ainda que irrepresentável.
 
@@ -1099,7 +1096,7 @@ Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontoló
 
 Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada. Chamamos essa substância de Espírito.
 
-
+revisado
 
 ## O indiferenciado sob a existência fenomênica
 
