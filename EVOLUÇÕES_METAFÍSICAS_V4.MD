@@ -11934,3 +11934,5 @@ O dinheiro, acumulo, é o que mais atiça os sentidos do niilsmo, é o que mais 
 O niilista torna-se um visualizador implacavel de brechas para obter a riqueza, de caminhos adversos, ilegais, maliciosos, pretensiosos e mesquinhos. Encontra brechas, tem seu penamento voltado para a obtenção de bens como um estado de mania. 
 
 O dinheiro acumulado atrai o niilista como sua religião, como algo que necessita, como uma suadade imensa sanada, como a miragem do paraíso que necessita alcançar para encontrar a si mesmo. Soa lhe como uma canção de ninar distante, deixa-lhe frenetico.
+
+O dinheiro, para o niilista, soa como uma religião falsa natural, o qual persegue com devoção. Soa como uma doutina auto evidente, na qual enxerga a materia brilhar, como se enxergasse a sua eternidade. 
