@@ -11935,4 +11935,4 @@ O niilista torna-se um visualizador implacavel de brechas para obter a riqueza, 
 
 O dinheiro acumulado atrai o niilista como sua religião, como algo que necessita, como uma suadade imensa sanada, como a miragem do paraíso que necessita alcançar para encontrar a si mesmo. Soa lhe como uma canção de ninar distante, deixa-lhe frenetico.
 
-O dinheiro, para o niilista, soa como uma religião falsa natural, o qual persegue com devoção. Soa como uma doutina auto evidente, na qual enxerga a materia brilhar, como se enxergasse a sua eternidade. 
+O dinheiro, para o niilista, soa como uma religião falsa natural, o qual persegue com devoção. Soa como uma doutina auto evidente, na qual enxerga a materia brilhar, como se enxergasse a sua eternidade. O ser humano necessita de uma religião, necessita pensar em sua eternidade, e, se não objetiva a vida, é devoto da materia. Ve o reluzir de si num fulgaz brilho do ouro. 
