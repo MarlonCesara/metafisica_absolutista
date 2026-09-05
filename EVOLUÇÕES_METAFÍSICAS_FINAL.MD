@@ -1006,7 +1006,7 @@ O nada potencial, no desabe sobre si, é inalcançável, está elevado à potên
 Assim, delimitamos a diferença entre o nada potencial nomeável e o **nada inominável** — este último sendo a ausência do próprio nada, destituído de qualquer propriedade e incapaz de ser até mesmo "absoluto". Portanto, para admitir o nada nomeável, é preciso conceber a ideia de uma **impossibilidade realizada**.
 
 Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Desta forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
-
+===============================
 ### O processo da indiferenciação e nadificação do determinado
 
 Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro processo pelo qual se tenta negar o diferenciado. Isto é, há um prcesso pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existencia e identidade das coisas na tentativa de alcançar a pureza ou ate mesmo o nada potencial.
@@ -1130,7 +1130,7 @@ O indiferenciado só pode ser aplicado para além do contingente. Pois o indifer
 
 
 Qualquer ente angulado, recortado de uma infinitude de formas de forma a se definir uma forma e não todas as outras, possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir. O Espírito nao é um si, é o Ser, não é uma existência, é o existir.
-
+===============================================================
 revisado
 ## Propriedades Espirituais do Absoluto
 
