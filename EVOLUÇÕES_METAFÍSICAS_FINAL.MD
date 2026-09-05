@@ -1184,19 +1184,25 @@ A diferença fundamental está, portanto, entre **infinitude** e **continuidade*
 ## O INFINITO E O NADA: A DUALIDADE PERSPECTÍVICA DO ENTE
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
-revisado
-Para fins especulativos e práticos, faz-se imperativo introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela perfeitamente apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a égide deste conceito, a atualidade plena e a nulidade absoluta coexistem em perfeita equivalência e harmonia speculativa.
 
-Ao considerarmos a totalidade e o nada, conceitos exatamente iguais, então, temos que, não haverá mais dualidade entre ambos. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude em sua completude absoluta é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede a imposição de qualquer mensurabilidade ou predicação restritiva. O olhar direcionado à totalidade do infinito coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui a via metodológica para conceber um nada autêntica e rigorosamente ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
+Para fins especulativos e práticos, faz-se necessário introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela quase apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a luz deste conceito, nulidade aparentemente passa a coexistir com seu oposto ontológico.
+
+
+Ao considerarmos a totalidade e o nada, conceitos exatamente iguais, então, temos que, não haverá mais dualidade entre ambos. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude do forma do determinado ou a infinitude de um conjunto incontável de determinações em sua completude é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede qualquer mensurabilidade ou predicação restritiva, havendo um numero de formas infindáveis ou até mesmo para uma forma de propriedades infinitas. O olhar direcionado à totalidade do infinito aparentemente coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui uma tentativa metodológica para conceber um nada ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
 
 Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre existência e nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma **variação de angulação**. Diante da completude irrestrita — a infinitude pura —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
+
+Porém está é uma visão infundada, visto que, o olhar sob a completude infinita não captura o nada, se nada é coisa alguma. E, a forma infinitizada, deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isto quer dizer que se infinitizarmos um numero, há o devir do numero que o faz perder seu contorno como numero, tal como seria ao infinitizarmos a identidade.
+
+Ao se olhar aquilo que não representa coisa alguma, nada se olha. Ao se olhar uma realidade de forma relativa, não se olha nem a forma, pois a forma já não existe para compor o ente determinado.
+
 
 ### O Modelo Analógico da Infinitude Espacial e Temporal
 
 Com o fito de conferir inteligibilidade a esta tese, cumpre analisar primeiramente a morfologia conceitual da própria infinitude através de modelos geométricos e temporais.
 
 Consideremos, hipoteticamente, uma régua linear cuja extensão seja fixada em 30 centímetros; seus limites inicial e final são perfeitamente demarcados e cognoscíveis no espaço. Se, todavia, expandirmos idealmente esse instrumento a uma extensão geométrica infinita, a tentativa de perscrutar o seu término resultará no encontro com o nada. O fim da infinitude é intrinsecamente inalcançável. conquanto a régua subsista na integridade de sua totalidade irrestrita, suas balizas limítrofes são absolutamente incapturáveis pelo aparato cognitivo. A tentativa de apreender o limite de uma extensão infinita traduz-se metafisicamente na equivalência ao nada, dada a radical impossibilidade de mensuração.
-
+revisado
 Ao tentarmos acrescentar a infinitude a um ente recortado, isto é, ao dizermos que uma régua de trinta centímetros é infinita, estamos num antagonismo, pois o que tem trinta centimentros não pode ser infinito, pois tem trinta centímetros, sua medida é angulada. Portanto, ou o ente esta angulado e mensurado ou é infinito, não existe meio termo. Portanto, uma regua infinita é uma régua não passível de ser visualizada. Portanto, o que é considerado infinito necessariamente desapareceria. 
 
 O Nada, por conseguinte, pode ser rigorosamente definido como a projeção analítica que resulta da tentativa da razão discursiva de predicar ou visualizar a **infinitude e totalidade do horizonte da possibilidade**. Ele deixa de ser uma ausência de ser para se tornar a consequência cognitiva do excesso do ser.
