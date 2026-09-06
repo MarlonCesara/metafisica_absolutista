@@ -1254,7 +1254,7 @@ Sem o observador não haveria o recorte, seja sob a forma ou seja sob a falsa in
 
 revisado
 
-Havendo uma dualidade entre a totalidade e a angulação, faz-se necessária uma determinação, um referencial obrigatório. Desta forma, existindo o nada, não temos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo.
+Havendo uma dualidade entre a totalidade infinita de formas e a angulação, faz-se necessária uma determinação, um referencial obrigatório. Desta forma, existindo o nada, não temos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo.
 
 Agora, resta-nos investigar acerca do observador: aquele que é quase homogêneo ao nada, mas que exerce a ação da inatividade ou da estabilidade a fim de estabelecer o próprio nada.
 
