@@ -11951,7 +11951,11 @@ Quanto maior a decisão, mais o individuo se sente desesperado, dianta de uma de
 
 O corpo não tendo força para bloquear a alma, pede um exilio, pede qualquer valor a sua existencia, pede que lhe atribua valor através dos bens materiais, a alma altoriza as ilsões, mas não autoriza a eternidade, o bem verdadeiro, o corpo, portanto se alimenta de ilusões, e desespera em comportamentos sociais desvaidos. Quanto mais desviados, maior é o desespero do indiiduo, que aparenta dentro de sua rebeldia, dentro de sua hostilidade social, uma postura de força, mas é movido pelo desespero existencial. Não pelos recursos ou vantagens que pode obter pelo seu comportamento, mas seu comportamento nada mais é do que o recurso tomado pelo seu corpo, a necessidade de qualquer alto valor que atribua uma breve eternidade, ou uma breve ilusão de eternidade mediante ao acumulo material.
 
-Os que oprimem pela ameaça de morte, pelo crime pesado, estão esboçando o desespero, ao passo que, aparentemente, estão amedrontando. 
+Os que oprimem pela ameaça de morte, pelo crime pesado, estão esboçando o desespero, ao passo que, aparentemente, estão amedrontando. Assim também como o agente que trafica entorpecentes, expressa seu entorpecimento anterior, seu estado de zumbificação, imobilidade, ausência de auto determiação.
+
+A ameaça de morte exterior de um individuo, é a ameaça que ele mesmo faz a si. O estado de apatia que ele provoca pela venda de entorpecente, é uma expressão da imobilidade interior, da falta de auto determinação, do mal estar interior nele. 
+
+O niilista, se expressa, como desespero, como uma derradeira tentativa pela sua vida, como um ultimo pedido.
 
 
 O niilismo é uma sombra da consciência, um mal estar que enraivece, encarcera, polui, intoxica a mente e o humor do individuo ao constatar tão pessimista noticia para si mesmo, tão infrutífero destino, tamanha escassez, tamanho infortuno para si mesmo.
