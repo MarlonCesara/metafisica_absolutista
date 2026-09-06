@@ -6036,3 +6036,5 @@ Deus não é uma pessoa determinada, é o puro amor em pessoa.
 
 
 O Ser não é uma pessoa com amor, é o amor em pessoa. Suas tres pessoas, s
+
+A auto causalidade opera sozinha, é o puro auto querer, sem haver o quem se quer, mas o quem é o próprio querer.
