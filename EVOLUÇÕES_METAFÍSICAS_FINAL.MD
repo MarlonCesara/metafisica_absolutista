@@ -1219,15 +1219,17 @@ Temos, portanto, a fundamentação de um **Nada Ontológico** — não como nega
 
 
 # O NADA, O ANGULADOR E A EMERGÊNCIA DOS FENÔMENOS
+
+## A tentativa do Angulador
+
+Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
+
+Até agora, o angulo da infinitude pareciau uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenomeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
+
+No entanto, poderíamos considerar que, o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e está visão seria a infinitude. 
+
+O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência humana enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação autodeterminada do Absoluto.
 revisado
-## A Descoberta do Angulador
-
-Se o Nada é pensado como a totalidade, ele é determinado por essa mesma totalidade. A totalidade é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um Todo imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
-
-Até agora, o Nada parecia a única opção para o Incausado. No entanto, para que ele mude de estado e dê origem ao Ser, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada é nada por si mesmo. Na verdade, o Nada é apenas um **ângulo de visão**.
-
-O Nada só é "nada" porque representa a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência humana enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação autodeterminada do Absoluto.
-
 Isso significa que o Nada só existe em função de um **Observador**, que chamaremos daqui em diante de **Angulador**. Para o Absoluto, todas as infinitas possibilidades já existem implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la.
 
 Descobrimos, assim, a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo Angulador, e o Angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a totalidade.
