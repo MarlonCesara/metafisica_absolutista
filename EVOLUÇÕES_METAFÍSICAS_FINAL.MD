@@ -1252,10 +1252,11 @@ Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma, poré
 
 Sem o observador não haveria o recorte, seja sob a forma ou seja sob a falsa infinitude ontológica, pois esta não consiste em uma ou mais determinações isoladas, mas sim em um referencial. Sem o observador, temos apenas as determinações isoladas, isto é, não temos o nada ótico. A infinitude só é o nada ao se adotar o referencial de sua totalidade; contudo, sem esse referencial, o que há é a totalidade imensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial considerando-se todas as opções sobrepostas ao absoluto e lançadas sobre ele.
 
+
+
+Havendo uma dualidade entre a totalidade infinita de formas e a necessidade da angulação de uma ou mais formas em determinadas, faz-se necessária uma angulação, um referencial obrigatório. Desta forma, havendo uma angulação para infinitude, não teriamos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo. Isto é, somente o angulador, no sentido lógico, deveria existir e não o nada focalizado. 
+
 revisado
-
-Havendo uma dualidade entre a totalidade infinita de formas e a angulação, faz-se necessária uma determinação, um referencial obrigatório. Desta forma, existindo o nada, não temos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo.
-
 Agora, resta-nos investigar acerca do observador: aquele que é quase homogêneo ao nada, mas que exerce a ação da inatividade ou da estabilidade a fim de estabelecer o próprio nada.
 
 Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da indiferenciação. Desse modo, tendo a totalidade — isto é, uma gama infinita de possibilidades —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da indiferenciação, dispensando, assim, a ação do angulador e produzindo o nada apenas pela perda de referência entre as possibilidades.
