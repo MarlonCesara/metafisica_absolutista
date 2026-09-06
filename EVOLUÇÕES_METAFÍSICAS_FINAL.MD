@@ -6033,3 +6033,6 @@ Isto é, procuraremos outro substrato para dar sentido ao nada, sendo que, o pur
 
 
 Deus não é uma pessoa determinada, é o puro amor em pessoa.
+
+
+O Ser não é uma pessoa com amor, é o amor em pessoa. Suas tres pessoas, s
