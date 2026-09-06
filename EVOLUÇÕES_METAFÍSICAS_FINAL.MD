@@ -1250,9 +1250,9 @@ Isto, sendo entendido de forma que, o caldeirão fosse o absoluto, que, sempre e
 
 Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma, porém, ao retirarmos uma colher de sopa, haveria uma ou mais letrinha. Desta forma, se é totalmente dependente de quem retira as formas. Se tem então a relativização da determinação que não é um nada ontológico, mas é mais uma ilusão do nada ontológico desta vez colocada sob um referencial que é a colher e o individuo que usa a colher.
 
+Sem o observador não haveria o recorte, seja sob a forma ou seja sob a falsa infinitude ontológica, pois esta não consiste em uma ou mais determinações isoladas, mas sim em um referencial. Sem o observador, temos apenas as determinações isoladas, isto é, não temos o nada ótico. A infinitude só é o nada ao se adotar o referencial de sua totalidade; contudo, sem esse referencial, o que há é a totalidade imensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial considerando-se todas as opções sobrepostas ao absoluto e lançadas sobre ele.
 
 revisado
-Sem o observador não há totalidade, pois esta não consiste em uma ou mais possibilidades isoladas, mas sim em um referencial. Sem o observador, temos apenas as possibilidades isoladas, isto é, não temos o nada. A totalidade só é o nada ao se adotar o referencial de sua infinitude; contudo, sem esse referencial, o que há é a totalidade mensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial.
 
 Havendo uma dualidade entre a totalidade e a angulação, faz-se necessária uma determinação, um referencial obrigatório. Desta forma, existindo o nada, não temos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo.
 
