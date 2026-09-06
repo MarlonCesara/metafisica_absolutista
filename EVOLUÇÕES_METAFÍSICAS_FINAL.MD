@@ -1256,10 +1256,11 @@ Sem o observador não haveria o recorte, seja sob a forma ou seja sob a falsa in
 
 Havendo uma dualidade entre a totalidade infinita de formas e a necessidade da angulação de uma ou mais formas em determinadas, faz-se necessária uma angulação, um referencial obrigatório. Desta forma, havendo uma angulação para infinitude, não teriamos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo. Isto é, somente o angulador, no sentido lógico, deveria existir e não o nada focalizado. 
 
-revisado
-Agora, resta-nos investigar acerca do observador: aquele que é quase homogêneo ao nada, mas que exerce a ação da inatividade ou da estabilidade a fim de estabelecer o próprio nada.
 
-Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da indiferenciação. Desse modo, tendo a totalidade — isto é, uma gama infinita de possibilidades —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da indiferenciação, dispensando, assim, a ação do angulador e produzindo o nada apenas pela perda de referência entre as possibilidades.
+Agora, resta-nos investigar acerca do observador: aquele que seria parte fundamental do nada advindo da angulação, mas que exerce a ação da inatividade ou da estabilidade do olhar angulador a fim de estabelecer o próprio nada.
+
+revisado
+Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da relativização, isto é, sem o angulador. Desse modo, tendo a totalidade — isto é, uma gama infinita de determinações —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da indiferenciação, dispensando, assim, a ação do angulador e produzindo o nada apenas pela perda de referência entre as possibilidades.
 
 Ao negarmos toda determinação pela liquidificação de todas as possibilidades em um substrato único, não obteríamos o nada, mas sim uma existência pura. Pois a perda da referencialidade não envolve a perda do subsistir, mas sim a purificação deste.
 
@@ -1280,11 +1281,6 @@ O nada exige uma bidimensionalidade em seu antro. Por si mesmo não atinge a pr�
 Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. Porem, a partir do momento que há o visualizador, a simples presença dele já subentende uma visualização, pois a inatividade a nível de consciência é uma escolha.
 
 Porém essa escolha não é programada, isto é, dada como tal, mas é um existir ainda sem ação para-  o que seria sem a presença do angulador - o relativo, pois o nada não exigiu nenhum movimento. O nada se instaura como a focalização sem escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da possibilidade. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria relativo.
-
-
-
-
-
 
 Poderia surgir o seguinte argumento: se o relativo é infinito em si, porque necessita de um recorte em sua totalidade? A resposta é que o relativo não designa algo, é um conceito ilógico. O relativo não é nem a si mesmo, pois nem mesmo é nada. O nada é uma forma determinada e angulada. 
 
@@ -6038,4 +6034,4 @@ Deus não é uma pessoa determinada, é o puro amor em pessoa.
 
 O Ser não é uma pessoa com amor, é o amor em pessoa. Suas tres pessoas, s
 
-A auto causalidade opera sozinha, é o puro auto querer, sem haver o quem se quer, mas o quem é o próprio querer.
+A auto causalidade opera sozinha, é o puro auto querer, sem haver o quem se quer, mas o quem é o próprio querer. O auto querer causal não tem o objeto do querer, somente tem o querer, é o puro querer.
