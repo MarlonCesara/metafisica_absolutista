@@ -1229,13 +1229,13 @@ Até agora, o angulo da infinitude pareciau uma opção para o nada ontológico.
 No entanto, poderíamos considerar que, o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e está visão seria a infinitude. 
 
 O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência humana enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação autodeterminada do Absoluto.
+
+Isso significa que o Nada só existiria em função de um **Observador**, que chamaremos daqui em diante de **Angulador**. Para o Absoluto, todas as infinitas possibilidades já existiriam implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la. Porém o nada não pode ser um estado determinado, pois nada é, e não poderia ser enxergado se fosse nada. Desta forma, a infinitude da determinação, sendo nada, não pode ser determinada infinitude.
+
+Porém, ao continuarmos simulando o angulador como argumento convincente, interpretariamos a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo angulador, e o angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a infinitude de formas ou para a infinitude da forma.
+
+Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a infinitude do tempo, temos a atemporalidade; da mesma forma, se contemplamos a infinitude da determinação, temos o nada — não a atemporalidade ou a não espacialidade, mas o próprio nada.
 revisado
-Isso significa que o Nada só existe em função de um **Observador**, que chamaremos daqui em diante de **Angulador**. Para o Absoluto, todas as infinitas possibilidades já existem implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la.
-
-Descobrimos, assim, a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo Angulador, e o Angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a totalidade.
-
-Ao contemplarmos a dimensão em sua totalidade, deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a totalidade do tempo, temos a atemporalidade; da mesma forma, se contemplamos a infinitude da possibilidade, temos o nada — não a atemporalidade ou a não espacialidade, mas o próprio nada.
-
 O nada, portanto, é produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma determinação, e não como uma necessidade ontológica. É determinado por aquilo que observa, e não por uma necessidade absoluta.
 
 A própria totalidade, por si mesma, sobressai em cada possibilidade. A possibilidade A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as possibilidades competindo pela sobressalência, e a escolha da infinitude envolve uma determinação de sobressalto, de angulação.
