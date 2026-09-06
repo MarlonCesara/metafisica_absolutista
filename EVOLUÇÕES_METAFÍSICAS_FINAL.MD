@@ -1239,11 +1239,19 @@ Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de 
 O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso recorte na totalidade que na verdade não pode ser recortada pois é infinita, existe não como uma necessidade ontológica. É capturado e tentado determinar-se por aquilo que observa, e não por uma necessidade absoluta.
 
 A própria infinitude, por si mesma, deveria sobressair em cada infinitude de forma, ou em cada parte da extensão da forma de atributos infinitos. A determinação A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as determinações ou o espaço de uma determinação infinita competindo pela sobressalência em um angular de uma forma ou do correspondente ao angulo de uma forma, e a escolha da infinitude envolve uma determinação de sobressalto, de angulação.
+
+Portanto, o sobressalto sobre a visão de fragmentos infinitos de formas precisa ser definido pelo observador, pois não possui definição ao ser delineado apenas pela totalidade infinita. Se a existência da forma A competisse em sobressalência com a existência da forma B, coexistindo ambas ao mesmo tempo para a infinitude, não teríamos a infinitude. Nem a forma A e nem a forma B. Pois a forma A e B, ao mesmo tempo apresentadas, não são nem A e B, nem A ou B. Isto é, não são uma infinitude e nem um recorte.
+
+Ao considerarmos A retrocendendo em forma infinitamente, e B avançando em forma infinitamente de forma que haja ...A e B..., temos então, a sobressalência de nenhuma forma, ao passo que nem mesmo temos também a infinitude apresentada, considerando uma ou mais determinações para absoluto. 
+
+Ao misturarmos todas as determinações em um caldeirão conceitual, não teríamos nem a infinitude, nem sequer um recorte de forma. Caso jogássemos infinitos números em um caldeirão, o infinito não permitiria a existência de números individuais: ao retirar algo com uma concha, não haveria número algum. Porém, ao colocarmos números finitos, haveria exatamente a quantidade de números inseridos.
+
+Isto, sendo entendido de forma que, o caldeirão fosse o absoluto, que, sempre evidencia uma forma, um grupo de formas delimitado. Porém, ao inserimos o disforme em decorrência do excesso de forma, não se apresenta forma alguma, ao passo que não se apresenta também uma forma determinada, sem um sentido para tal.
+
+Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma, porém, ao retirarmos uma colher de sopa, haveria uma ou mais letrinha. Desta forma, se é totalmente dependente de quem retira as formas. Se tem então a relativização da determinação que não é um nada ontológico, mas é mais uma ilusão do nada ontológico desta vez colocada sob um referencial que é a colher e o individuo que usa a colher.
+
+
 revisado
-Portanto, o sobressalto sobre a visão de fragmentos precisa ser definido pelo observador, pois não possui definição ao ser delineado apenas pela totalidade. Se a existência da possibilidade A competisse em sobressalência com a existência da possibilidade B, coexistindo ambas ao mesmo tempo para a totalidade, não teríamos a totalidade.
-
-Ao misturarmos todas as possibilidades em um caldeirão conceitual, não teríamos nem a totalidade, nem sequer um recorte de possibilidade. Caso jogássemos infinitos números em um caldeirão, o infinito não permitiria a existência de números individuais: ao retirar algo com uma concha, não haveria número algum. Porém, ao colocarmos números finitos, haveria exatamente a quantidade de números inseridos.
-
 Sem o observador não há totalidade, pois esta não consiste em uma ou mais possibilidades isoladas, mas sim em um referencial. Sem o observador, temos apenas as possibilidades isoladas, isto é, não temos o nada. A totalidade só é o nada ao se adotar o referencial de sua infinitude; contudo, sem esse referencial, o que há é a totalidade mensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial.
 
 Havendo uma dualidade entre a totalidade e a angulação, faz-se necessária uma determinação, um referencial obrigatório. Desta forma, existindo o nada, não temos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo.
