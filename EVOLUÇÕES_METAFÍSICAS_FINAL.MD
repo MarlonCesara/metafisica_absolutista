@@ -1235,9 +1235,10 @@ Isso significa que o Nada só existiria em função de um **Observador**, que ch
 Porém, ao continuarmos simulando o angulador como argumento convincente, interpretariamos a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo angulador, e o angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a infinitude de formas ou para a infinitude da forma.
 
 Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a infinitude do tempo, temos a atemporalidade; da mesma forma, se contemplamos a infinitude da determinação, temos o nada — não a atemporalidade ou a não espacialidade, mas o próprio nada.
-revisado
-O nada, portanto, é produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma determinação, e não como uma necessidade ontológica. É determinado por aquilo que observa, e não por uma necessidade absoluta.
 
+O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso recorte na totalidade que na verdade não pode ser recortada pois é infinita, existe não como uma necessidade ontológica. É capturado e tentado determinar-se por aquilo que observa, e não por uma necessidade absoluta.
+
+revisado
 A própria totalidade, por si mesma, sobressai em cada possibilidade. A possibilidade A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as possibilidades competindo pela sobressalência, e a escolha da infinitude envolve uma determinação de sobressalto, de angulação.
 
 Portanto, o sobressalto sobre a visão de fragmentos precisa ser definido pelo observador, pois não possui definição ao ser delineado apenas pela totalidade. Se a existência da possibilidade A competisse em sobressalência com a existência da possibilidade B, coexistindo ambas ao mesmo tempo para a totalidade, não teríamos a totalidade.
