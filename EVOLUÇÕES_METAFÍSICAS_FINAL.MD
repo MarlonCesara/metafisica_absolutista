@@ -1238,9 +1238,8 @@ Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de 
 
 O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso recorte na totalidade que na verdade não pode ser recortada pois é infinita, existe não como uma necessidade ontológica. É capturado e tentado determinar-se por aquilo que observa, e não por uma necessidade absoluta.
 
+A própria infinitude, por si mesma, deveria sobressair em cada infinitude de forma, ou em cada parte da extensão da forma de atributos infinitos. A determinação A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as determinações ou o espaço de uma determinação infinita competindo pela sobressalência em um angular de uma forma ou do correspondente ao angulo de uma forma, e a escolha da infinitude envolve uma determinação de sobressalto, de angulação.
 revisado
-A própria totalidade, por si mesma, sobressai em cada possibilidade. A possibilidade A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as possibilidades competindo pela sobressalência, e a escolha da infinitude envolve uma determinação de sobressalto, de angulação.
-
 Portanto, o sobressalto sobre a visão de fragmentos precisa ser definido pelo observador, pois não possui definição ao ser delineado apenas pela totalidade. Se a existência da possibilidade A competisse em sobressalência com a existência da possibilidade B, coexistindo ambas ao mesmo tempo para a totalidade, não teríamos a totalidade.
 
 Ao misturarmos todas as possibilidades em um caldeirão conceitual, não teríamos nem a totalidade, nem sequer um recorte de possibilidade. Caso jogássemos infinitos números em um caldeirão, o infinito não permitiria a existência de números individuais: ao retirar algo com uma concha, não haveria número algum. Porém, ao colocarmos números finitos, haveria exatamente a quantidade de números inseridos.
