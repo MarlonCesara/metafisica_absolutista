@@ -11947,6 +11947,12 @@ Retirar-lhe as riquezas é retirar-lhe o recurso necessario para transitar no pe
 
 Quanto mais a decisão se instaura, maior o desespero, pedido de socorro do invididuo, até que o individuo chega na notal desesperança, e desaba sob a sociedade, num estado de desespero que grita ajuda, e manifesta-o em forma de uma aparente revolta social, que na verdade, é um pedido de socorro da alma.
 
+Quanto maior a decisão, mais o individuo se sente desesperado, dianta de uma decisão aparentemente irrevogável, diante de um total endurecimento, uma imobilidade como pedra, o individuo se dedica a um pedido de socorro constante, manifestando comportamento social desviado.
+
+O corpo não tendo força para bloquear a alma, pede um exilio, pede qualquer valor a sua existencia, pede que lhe atribua valor através dos bens materiais, a alma altoriza as ilsões, mas não autoriza a eternidade, o bem verdadeiro, o corpo, portanto se alimenta de ilusões, e desespera em comportamentos sociais desvaidos. Quanto mais desviados, maior é o desespero do indiiduo, que aparenta dentro de sua rebeldia, dentro de sua hostilidade social, uma postura de força, mas é movido pelo desespero existencial. Não pelos recursos ou vantagens que pode obter pelo seu comportamento, mas seu comportamento nada mais é do que o recurso tomado pelo seu corpo, a necessidade de qualquer alto valor que atribua uma breve eternidade, ou uma breve ilusão de eternidade mediante ao acumulo material.
+
+Os que oprimem pela ameaça de morte, pelo crime pesado, estão esboçando o desespero, ao passo que, aparentemente, estão amedrontando. 
+
 
 O niilismo é uma sombra da consciência, um mal estar que enraivece, encarcera, polui, intoxica a mente e o humor do individuo ao constatar tão pessimista noticia para si mesmo, tão infrutífero destino, tamanha escassez, tamanho infortuno para si mesmo.
 
