@@ -1267,13 +1267,16 @@ Ao negarmos toda determinação pela liquidificação de todas as determinaçõe
 Temos que, pela perda da referencialidade, teríamos uma ontologia relativizada, que não é determinada e nem o Ser. Portanto, não obteríamos o nada de forma justificada, e sim uma ontológia falsa. O nada, desta forma, seria exclusividade do angulador. E o angulador deveria ser vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
 
 O nada, portanto, seria produto exclusivo da angulação. E, havendo a angulação como ato, temos um determinador para ela: um determinador que não se funde ao nada, pois o nada nada é. Trata-se de um angulador que sobressai ao nada pelo ato da observação.
-revisado
 
-O nada é nada e é autoexplicável do ponto de vista causal. Não importa se isso acarreta uma grande complexidade ou fatores espirituais: se o nada é concebido dessa forma, através da inferência do Ser — ou, de modo mais simplista, do angulador —, assim o é, dispensando maiores explicações. Pois o nada se autoexplica e, se o nada se autoexplica, a complexidade a ele inerente também está explicada por si mesma.
+O nada é nada e seria autoexplicável do ponto de vista causal. Não importa se isso acarretasse uma grande complexidade ou fatores relacionais: se o nada é concebido dessa forma, através do angulador —, assim o é, dispensando maiores explicações. Pois o nada se autoexplica e, se o nada se autoexplica, a complexidade a ele inerente também está explicada por si mesma.
 
 Se o angulador é necessário para que exista o nada, e se a existência do nada está associada a ele, não é necessária uma explicação para o angulador nem para tudo o que dele emana. Portanto, o nada existe de forma que, para isso, é indispensável a participação do referenciador.
 
-A existência do angulador, não é imediatamente inferível em função de sua necessidade, isto é, é necessário o angulador, logo existe para que haja nada. E, se nada existe, o angulador existe. 
+No entanto, como a existência do nada continua ilógica, o angulador não se justificaria por ele.
+
+A existência do angulador, não é imediatamente inferível em função de sua necessidade, isto é, é necessário o angulador, logo existe para que haja nada. E, se nada existe, o angulador existe. Porém o nada angulado não existe.
+
+revisado
 
 Esta proposição, é desfalcada por não explicar a natureza do angulador e como o angulador emerge naturalmente de forma indiferenciada e pura para absoluto. Porém, concluímos indubitavelmente que o nada é um ângulo, uma perspectiva.
 
