@@ -1259,12 +1259,14 @@ Havendo uma dualidade entre a totalidade infinita de formas e a necessidade da a
 
 Agora, resta-nos investigar acerca do observador: aquele que seria parte fundamental do nada advindo da angulação, mas que exerce a ação da inatividade ou da estabilidade do olhar angulador a fim de estabelecer o próprio nada.
 
+
+Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da relativização, isto é, sem o angulador. Desse modo, tendo a totalidade — isto é, uma gama infinita de determinações —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da relativização, dispensando, assim, a ação do angulador e produzindo o nada ontológico apenas pela perda de referência entre as determinações.
+
+Ao negarmos toda determinação pela liquidificação de todas as determinações em um substrato único, não obteríamos o nada, mas sim uma existência relativa. Pois a perda da referencialidade não envolve a perda do subsistir, mas sim a relativização da forma. Se não há A, B, nem A e B, temos portanto X, que seria o relativo.
+
+Temos que, pela perda da referencialidade, teríamos uma ontologia relativizada, que não é determinada e nem o Ser. Portanto, não obteríamos o nada de forma justificada, e sim uma ontológia falsa. O nada, desta forma, seria exclusividade do angulador. 
 revisado
-Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da relativização, isto é, sem o angulador. Desse modo, tendo a totalidade — isto é, uma gama infinita de determinações —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da indiferenciação, dispensando, assim, a ação do angulador e produzindo o nada apenas pela perda de referência entre as possibilidades.
-
-Ao negarmos toda determinação pela liquidificação de todas as possibilidades em um substrato único, não obteríamos o nada, mas sim uma existência pura. Pois a perda da referencialidade não envolve a perda do subsistir, mas sim a purificação deste.
-
-Temos que, pela perda da referencialidade, não teríamos a anulação do todo, mas sim uma ontologia sem anulação, purificada. Portanto, não obteríamos o nada. O nada, desta forma, é exclusividade do angulador. E o angulador é vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
+E o angulador é vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
 
 O nada, portanto, é produto exclusivo da angulação. E, havendo a angulação como ato, temos um determinador para ela: um determinador que não se funde ao nada, pois o nada nada é. Trata-se de um angulador que sobressai ao nada apenas pelo ato — um determinador puro.
 
