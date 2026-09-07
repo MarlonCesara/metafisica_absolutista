@@ -1396,14 +1396,18 @@ E devemos tentar evocar as propriedades do observador através da investigação
 Isto é, vamos extrair as propriedades necesarias a existencia de um absoluto para testarmos se é possível extrair um agulador para a completude. Pois, ate agora, inferimos o angulador como hipotese, de uma forma indireta.
 
 E até agora temos somente a completude existente ainda em seu marco zero. É necessário, portanto, extrair uma segunda dimensão do nada para extrairmos seu conceito para o pensamento. Ao pensar em nada, portanto, faz sentido pensar num angulo referencial, num angulador. Porém, ainda não temos ele. O que nos cabe agora é isolar o conceito de absoluto em suas minuncias para localizar o angulador.
-revisado
+
 Temos, portanto, somente o conceito de Absoluto para explorar. Já que, o nada se fez insuficiente para explicar a si mesmo de forma isolada. Consideremos portanto, ainda o conceito de nada, sob a perspectiva do nada absoluto. Isto é, consideremos a perspectiva do nada como angulador, de forma a aplicar sob o mesmo a necessariedade e o que se infere sob o absoluto para justificarmos o angulador.
 
 Iremos, então, explorar o Absoluto, o que existe realmente sob o nada, e consideremos este nada o campo de liberdade do Absoluto, do Ser, da pureza fundamental. Então, investigamos o nada,e concluimos que carece de uma segunda parte para justifica-los, agora vamos explorar o absoluto, o Ser, para que encontremos de novo o nada, de forma a complementa-lo.
 
 Isto é, exploramos o nada, agora exploraremos o angulador que vai de encontro ao nada e o angula para que o nada exista de fato.
 
-Iremos, portanto justificar o angulador e forma a inferir sobre suas propriedades. E o faremos em busca de aspectos relacionais para o relativo. Aspectos relacionais estes que sejam o nosso indiferenciado. Isto é, procuraremos por propriedades Espirituais, que emergem no nada por serem absolutas. Por se darem no contexto do nada, dispensarem explicações.
+Iremos, portanto justificar o angulador e forma a inferir sobre suas propriedades. E o faremos em busca de aspectos relacionais para o relativo. Aspectos relacionais estes que sejam o nossa infinitude. Isto é, procuraremos por propriedades Espirituais, que emergem no nada por serem absolutas. Por se darem no contexto do nada, dispensarem explicações.
+
+Porém, já é possível adiantar que o relativo não pode ser infinitzado, pois nem mesmo pode ser ontológico. Também, o angulador não é deduzido de inferência do absoluto alguma, é apenas uma forma de criar o nada imaginado, por esse nada não poder ser ontológico.
+
+revisado
 
 # O Nada e o relativo
 
