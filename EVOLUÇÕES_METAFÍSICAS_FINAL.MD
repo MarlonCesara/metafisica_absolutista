@@ -1354,7 +1354,7 @@ A arquitetura do início da realidade resolve-se através de uma simetria perfei
 
 O "Start" da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco: ele deixa de contemplar a totalidade indivisível (o Nada) e passa a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes.
 
-revisado
+
 # A VITALIDADE DO ANGULADOR
 
 Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
@@ -1366,7 +1366,7 @@ Isso significa que a visão sobre o Nada é uma propriedade **daquele que apreen
 A única forma de o Nada ter existido como o estado primordial da realidade é a presença prévia do Angulador nessa totalidade. O Angulador, portanto, **emerge antes de qualquer mundo fenomênico**. E ele é intrinsecamente vivo. Sua vitalidade não é deduzida porque o mundo fenomênico existe hoje, mas sim porque a própria ação de angular exige, por definição, o autor da visão.
 
 O elemento que gera o ângulo é vivo em si mesmo. Se o Angulador fosse um processo mecânico ou uma lei cega, o Absoluto ficaria perpetuamente travado na contemplação estática da totalidade, incapaz de qualquer movimento. A própria existência do dinamismo prova que o princípio gerador é dotado de uma visão ativa e intencional.
-
+revisado
 A justificativa para a ação do Angulador não pode residir em uma necessidade externa, uma vez que o Nada existe de forma natural e primordial; portanto, o Angulador contempla a totalidade por uma exigência de sua própria natureza. A razão pela qual o Angulador realiza essa contemplação inicial só pode ser encontrada **nele mesmo**. Afinal, no nível primordial, não existe nada exterior, nada anterior e nenhuma razão oculta pela qual o Absoluto deva ser como é, senão em si próprio. Assim, a causa da contemplação da totalidade habita exclusivamente no imo do Angulador.
 
 Se tentarmos explicar esse ato puramente pela necessidade mecânica — argumentando que o Nada exige a contemplação do Angulador para validar sua totalidade —, devemos reconhecer que, embora esse processo seja semanticamente necessário, a razão profunda dessa observação ainda emana do próprio Angulador.
