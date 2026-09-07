@@ -1407,13 +1407,15 @@ Iremos, portanto justificar o angulador e forma a inferir sobre suas propriedade
 
 Porém, já é possível adiantar que o relativo não pode ser infinitzado, pois nem mesmo pode ser ontológico. Também, o angulador não é deduzido de inferência do absoluto alguma, é apenas uma forma de criar o nada imaginado, por esse nada não poder ser ontológico.
 
-revisado
+
 
 # O Nada e o relativo
 
 Não havendo, até o momento, um embasamento para o nada, chamá-lo-emos de **relativo**, isto é, o nada enquanto portador de uma pendência referencial. O relativo, portanto, é aquilo que carece de um referenciador, algo cuja determinação somente pode ocorrer por meio de uma relação. Neste estágio da investigação, ele recebe a designação de relativo em razão do desconhecimento do angulador, encontrando-se ainda em um estado de não atualização.
 
 Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentido definitivo. É um estado de suspensão, uma espera ontológica que somente se atualiza mediante o referencial fornecido pelo angulador. O relativo é o nada enquanto carece de um referencial; é a completude ainda não atualizada.
+
+revisado
 
 O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto, que coabita com o nada.
 
