@@ -1291,7 +1291,7 @@ O nada seria um ângulo de visão, sem ser visto o relativo não é nem mesmo o 
 
 O nada seria obtido somente pela presença do angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
 
-revisado
+
 Sem a visão do angulador o relativo não seria nada e nem o recorte, não haveria o autor do processo decisório. Simplesmente seria relativo. Pois só é totalidade segundo o observador. O fato de que o nada deveria necessariamente existir não faz com que se dispense o observador da totalidade, tal como dizer que uma montanha deveria estar a nossa frente, não dispensa o fato de que deveríamos enxerga-la ao olhar para ela.
 
 Portanto, a totalidade é um ângulo no relativo, e não simplesmente a totalidade. O ângulo da totalidade não explora totalmente o relativo, por isto é necessariamente um angulo. Ao tirarmos o ângulo da totalidade o relativo deveria mostrar a totalidade e seus recortes ao mesmo tempo, tudo saltaria. Portanto não seria algo e nem mesmo o nada, seria o relativo.
@@ -1302,11 +1302,11 @@ Quando definimos o relativo sob a totalidade definimos um ângulo sob a totalida
 
 O presença do angulador trás contornos, trás uma determinação para a totalidade sob o foco de um olhar. Já não é nada, é um horizonte de ação.
 
-
+Porém, essa hipótese é ilógica, pois o nada torna-se um elemento imaginado para um angulador que não se é inferido do absoluto de forma alguma. 
 
 ---
 
-
+revisado
 ## A não virtualização da realidade
 
 A infinitude da totalidade fenomênica, tem as mesmas propriedades que o nada. Que se caracteriza em atemporalidade, não espacialidade.
