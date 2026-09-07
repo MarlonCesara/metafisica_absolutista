@@ -1366,8 +1366,8 @@ Isso significa que a visão sobre o Nada é uma propriedade **daquele que apreen
 A única forma de o Nada ter existido como o estado primordial da realidade é a presença prévia do Angulador nessa totalidade. O Angulador, portanto, **emerge antes de qualquer mundo fenomênico**. E ele é intrinsecamente vivo. Sua vitalidade não é deduzida porque o mundo fenomênico existe hoje, mas sim porque a própria ação de angular exige, por definição, o autor da visão.
 
 O elemento que gera o ângulo é vivo em si mesmo. Se o Angulador fosse um processo mecânico ou uma lei cega, o Absoluto ficaria perpetuamente travado na contemplação estática da totalidade, incapaz de qualquer movimento. A própria existência do dinamismo prova que o princípio gerador é dotado de uma visão ativa e intencional.
-revisado
-A justificativa para a ação do Angulador não pode residir em uma necessidade externa, uma vez que o Nada existe de forma natural e primordial; portanto, o Angulador contempla a totalidade por uma exigência de sua própria natureza. A razão pela qual o Angulador realiza essa contemplação inicial só pode ser encontrada **nele mesmo**. Afinal, no nível primordial, não existe nada exterior, nada anterior e nenhuma razão oculta pela qual o Absoluto deva ser como é, senão em si próprio. Assim, a causa da contemplação da totalidade habita exclusivamente no imo do Angulador.
+
+A justificativa para a ação do Angulador não pode residir em uma necessidade externa, uma vez que o Nada deve existir de forma natural e primordial; portanto, o Angulador deve contemplar a totalidade por uma exigência de sua própria natureza. A razão pela qual o Angulador realiza essa contemplação inicial só pode ser encontrada **nele mesmo**. Afinal, no nível primordial, não existe nada exterior, nada anterior e nenhuma razão oculta pela qual o Absoluto deva ser como é, senão em si próprio. Assim, a causa da contemplação da totalidade habita exclusivamente no imo do Angulador.
 
 Se tentarmos explicar esse ato puramente pela necessidade mecânica — argumentando que o Nada exige a contemplação do Angulador para validar sua totalidade —, devemos reconhecer que, embora esse processo seja semanticamente necessário, a razão profunda dessa observação ainda emana do próprio Angulador.
 
@@ -1383,6 +1383,7 @@ Encontramos, portanto, a trindade de propriedades que fundamenta o início de tu
 
 No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
 
+revisado
 
 # A EVOCAÇÃO DO ANGULADOR PARA A COMPLETUDE
 
