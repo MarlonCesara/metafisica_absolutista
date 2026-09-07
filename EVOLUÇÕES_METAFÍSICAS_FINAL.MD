@@ -1415,10 +1415,10 @@ Não havendo, até o momento, um embasamento para o nada, chamá-lo-emos de **re
 
 Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentido definitivo. É um estado de suspensão, uma espera ontológica que somente se atualiza mediante o referencial fornecido pelo angulador. O relativo é o nada enquanto carece de um referencial; é a completude ainda não atualizada.
 
+O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto.
+
+
 revisado
-
-O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto, que coabita com o nada.
-
 O relativo não é um indiferenciado. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
 
 Completa-se aqui a investigação sobre o nada. Porém, não se completa a investigação sobre o absoluto. Por agora, iremos inferir além do próprio conceito de nada ou de existência, isto é, pelo conceito do indiferenciado, o que poderia despertar toda a cadeia causal e que está além da existência ou na nulidade.
