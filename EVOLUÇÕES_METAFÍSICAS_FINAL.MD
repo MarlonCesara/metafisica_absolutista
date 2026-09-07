@@ -6024,3 +6024,6 @@ Deus não é uma pessoa determinada, é o puro amor em pessoa.
 O Ser não é uma pessoa com amor, é o amor em pessoa. Suas tres pessoas, s
 
 A auto causalidade opera sozinha, é o puro auto querer, sem haver o quem se quer, mas o quem é o próprio querer. O auto querer causal não tem o objeto do querer, somente tem o querer, é o puro querer.
+
+
+A exploração do nada confere ao leitor cada vez mais a ideia que se reforça de que o nada não existe, para que exista a liberdade.
