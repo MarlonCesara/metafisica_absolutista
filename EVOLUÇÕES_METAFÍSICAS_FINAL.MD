@@ -1252,13 +1252,9 @@ Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma, poré
 
 Sem o observador não haveria o recorte, seja sob a forma ou seja sob a falsa infinitude ontológica, pois esta não consiste em uma ou mais determinações isoladas, mas sim em um referencial. Sem o observador, temos apenas as determinações isoladas, isto é, não temos o nada ótico. A infinitude só é o nada ao se adotar o referencial de sua totalidade; contudo, sem esse referencial, o que há é a totalidade imensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial considerando-se todas as opções sobrepostas ao absoluto e lançadas sobre ele.
 
-
-
 Havendo uma dualidade entre a totalidade infinita de formas e a necessidade da angulação de uma ou mais formas em determinadas, faz-se necessária uma angulação, um referencial obrigatório. Desta forma, havendo uma angulação para infinitude, não teriamos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo. Isto é, somente o angulador, no sentido lógico, deveria existir e não o nada focalizado. 
 
-
 Agora, resta-nos investigar acerca do observador: aquele que seria parte fundamental do nada advindo da angulação, mas que exerce a ação da inatividade ou da estabilidade do olhar angulador a fim de estabelecer o próprio nada.
-
 
 Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da relativização, isto é, sem o angulador. Desse modo, tendo a totalidade — isto é, uma gama infinita de determinações —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da relativização, dispensando, assim, a ação do angulador e produzindo o nada ontológico apenas pela perda de referência entre as determinações.
 
@@ -1276,26 +1272,26 @@ No entanto, como a existência do nada continua ilógica, o angulador não se ju
 
 A existência do angulador, não é imediatamente inferível em função de sua necessidade, isto é, é necessário o angulador, logo existe para que haja nada. E, se nada existe, o angulador existe. Porém o nada angulado não existe.
 
-revisado
+Esta proposição, é desfalcada por não explicar a natureza do angulador e como o angulador emerge naturalmente de forma indiferenciada e pura para absoluto. Porém, concluímos erroneo que o nada é um ângulo, uma perspectiva.
 
-Esta proposição, é desfalcada por não explicar a natureza do angulador e como o angulador emerge naturalmente de forma indiferenciada e pura para absoluto. Porém, concluímos indubitavelmente que o nada é um ângulo, uma perspectiva.
+O nada angulado exige uma bidimensionalidade em seu antro. Por si mesmo não atinge a própria natureza, pois é lateral a uma perspectiva. É necessário achar seu outro lado, o angulador.
 
-O nada exige uma bidimensionalidade em seu antro. Por si mesmo não atinge a própria natureza, pois é lateral a uma perspectiva. É necessário achar seu outro lado, o angulador.
+Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. Porem, a partir do momento que há o visualizador, a simples presença dele já subentende uma visualização, e não uma inatividade. A inatividade a nível de consciência é uma escolha, porem, para a inatividade não haveria ação primordial. Para o simples estado de Ser, não haveria ação prévia.
 
-Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. Porem, a partir do momento que há o visualizador, a simples presença dele já subentende uma visualização, pois a inatividade a nível de consciência é uma escolha.
+Portanto a atividade de visualização se torna injustificada, não absoluta, pois necessita de um visualizador, de um intervalo entre o olho que vê e a decisão da visão. 
 
-Porém essa escolha não é programada, isto é, dada como tal, mas é um existir ainda sem ação para-  o que seria sem a presença do angulador - o relativo, pois o nada não exigiu nenhum movimento. O nada se instaura como a focalização sem escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da possibilidade. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria relativo.
+Porém essa escolha não deveria ser programada, deveria ser dada dada como tal, como um existir ainda sem ação para o relativo, pois o nada não exigiu nenhum movimento. O nada se instauraria sem a focalização, sem uma ação para a escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da determinação. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria relativo.
 
-Poderia surgir o seguinte argumento: se o relativo é infinito em si, porque necessita de um recorte em sua totalidade? A resposta é que o relativo não designa algo, é um conceito ilógico. O relativo não é nem a si mesmo, pois nem mesmo é nada. O nada é uma forma determinada e angulada. 
+Poderia surgir o seguinte argumento: se o relativo é infinito em si, porque necessita de um recorte em sua totalidade? A resposta é que o relativo não designa algo, é um conceito ilógico. O relativo não é nem a si mesmo, pois nem mesmo é nada. O nada lhe seria extraido como uma forma determinada e angulada. 
+
 
 Para um relativo absoluto necessariamente há determinação, o relativo é simplesmente a ausência de qualquer forma, até a forma de uma totalidade. O relativo têm dois ângulos possíveis, sua forma crua, isto é, sem recortes, e sua forma recortada. O relativo absoluto, portanto, não é um conceito que existe por si mesmo, o relativo desaparece pois não é forma de nada, nem de si mesmo, colapsa, e não se pode chama-lo nem mesmo de nada.
 
-O nada é um ângulo de visão, sem ser visto o relativo não é nem mesmo o nada.
+O nada seria um ângulo de visão, sem ser visto o relativo não é nem mesmo o nada. Imagine um observador que não olha nem a totalidade e nem olha o nada. Isto faria mais sentido, pois dispensaria uma ação prévia para que absoluto se instaurasse como nada. Se o nada angulado fosse obtido somente pela presença do angulador, isto faria melhor sentido.
 
-Imagine um observador que não olha nem a totalidade e nem olha o nada. 
+O nada seria obtido somente pela presença do angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
 
-O nada é obtido pela presença do angulador, o nada some completamente sem o angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
-
+revisado
 Sem a visão do angulador o relativo não seria nada e nem o recorte, não haveria o autor do processo decisório. Simplesmente seria relativo. Pois só é totalidade segundo o observador. O fato de que o nada deveria necessariamente existir não faz com que se dispense o observador da totalidade, tal como dizer que uma montanha deveria estar a nossa frente, não dispensa o fato de que deveríamos enxerga-la ao olhar para ela.
 
 Portanto, a totalidade é um ângulo no relativo, e não simplesmente a totalidade. O ângulo da totalidade não explora totalmente o relativo, por isto é necessariamente um angulo. Ao tirarmos o ângulo da totalidade o relativo deveria mostrar a totalidade e seus recortes ao mesmo tempo, tudo saltaria. Portanto não seria algo e nem mesmo o nada, seria o relativo.
