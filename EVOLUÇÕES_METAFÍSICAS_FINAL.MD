@@ -1264,11 +1264,10 @@ Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo
 
 Ao negarmos toda determinação pela liquidificação de todas as determinações em um substrato único, não obteríamos o nada, mas sim uma existência relativa. Pois a perda da referencialidade não envolve a perda do subsistir, mas sim a relativização da forma. Se não há A, B, nem A e B, temos portanto X, que seria o relativo.
 
-Temos que, pela perda da referencialidade, teríamos uma ontologia relativizada, que não é determinada e nem o Ser. Portanto, não obteríamos o nada de forma justificada, e sim uma ontológia falsa. O nada, desta forma, seria exclusividade do angulador. 
-revisado
-E o angulador é vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
+Temos que, pela perda da referencialidade, teríamos uma ontologia relativizada, que não é determinada e nem o Ser. Portanto, não obteríamos o nada de forma justificada, e sim uma ontológia falsa. O nada, desta forma, seria exclusividade do angulador. E o angulador deveria ser vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
 
-O nada, portanto, é produto exclusivo da angulação. E, havendo a angulação como ato, temos um determinador para ela: um determinador que não se funde ao nada, pois o nada nada é. Trata-se de um angulador que sobressai ao nada apenas pelo ato — um determinador puro.
+O nada, portanto, seria produto exclusivo da angulação. E, havendo a angulação como ato, temos um determinador para ela: um determinador que não se funde ao nada, pois o nada nada é. Trata-se de um angulador que sobressai ao nada pelo ato da observação.
+revisado
 
 O nada é nada e é autoexplicável do ponto de vista causal. Não importa se isso acarreta uma grande complexidade ou fatores espirituais: se o nada é concebido dessa forma, através da inferência do Ser — ou, de modo mais simplista, do angulador —, assim o é, dispensando maiores explicações. Pois o nada se autoexplica e, se o nada se autoexplica, a complexidade a ele inerente também está explicada por si mesma.
 
