@@ -1291,7 +1291,6 @@ O nada seria um ângulo de visão, sem ser visto o relativo não é nem mesmo o 
 
 O nada seria obtido somente pela presença do angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
 
-
 Sem a visão do angulador o relativo não seria nada e nem o recorte, não haveria o autor do processo decisório. Simplesmente seria relativo. Pois só é totalidade segundo o observador. O fato de que o nada deveria necessariamente existir não faz com que se dispense o observador da totalidade, tal como dizer que uma montanha deveria estar a nossa frente, não dispensa o fato de que deveríamos enxerga-la ao olhar para ela.
 
 Portanto, a totalidade é um ângulo no relativo, e não simplesmente a totalidade. O ângulo da totalidade não explora totalmente o relativo, por isto é necessariamente um angulo. Ao tirarmos o ângulo da totalidade o relativo deveria mostrar a totalidade e seus recortes ao mesmo tempo, tudo saltaria. Portanto não seria algo e nem mesmo o nada, seria o relativo.
@@ -1304,26 +1303,17 @@ O presença do angulador trás contornos, trás uma determinação para a totali
 
 Porém, essa hipótese é ilógica, pois o nada torna-se um elemento imaginado para um angulador que não se é inferido do absoluto de forma alguma. 
 
----
-
-revisado
-## A não virtualização da realidade
-
-A infinitude da totalidade fenomênica, tem as mesmas propriedades que o nada. Que se caracteriza em atemporalidade, não espacialidade.
-E a infinitude da possibilidade, é equivalente a não dimensionalidade da mesma, o que equivale a nada. Não somente a ausência do tempo ou espaço, mas a visão nula na possibilidade. Porém, isto não quer dizer que a existência esteja completamente nos olhos do observador e que se trate de uma existência imagina, sem teor de verdade em si e para si, porém, somente real para o angulador. 
+A infinitude da totalidade determinada, tem as mesmas propriedades que o nada. Porém, isto não quer dizer que a existência esteja completamente nos olhos do observador e que se trate de uma existência imagina, sem teor de verdade em si e para si, porém, somente real para o angulador. 
 
 O que se dispõe é uma existência em consonância com o visualizador. Uma existência que é real ao passo que obedece o angulador, uma existência que carrega a vivacidade consigo, pois, não é uma existência pronta, é uma existência ordenada. Que existe segundo um comando, uma mentalização. Portanto, é uma existência vívida. 
 
-O nada, portanto, é o pico da possibilidade, é a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas vivida em sua totalidade. Ao escolher a vida na infinitude, se tem a vida na ausência da determinação. Tal como ao se escolher viver em um tempo infinito, se tem a ausência concreta do tempo, um estado literalmente atemporal. Pois, o que concretamnte não possui medição, não é tangível. A infinitude não tem um nada para visualizador, mas tem um nada em si. Pois a vivencia da mesma representa também a forma com que foi visualizada. 
+O nada, portanto, é o pico da determinação, é a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas vivida em sua totalidade. Ao escolher a vida na infinitude da forma, se teria também na ausência da determinação, isto é, de qualquer escolha para a forma. Tal como ao se escolher viver em um tempo infinito, se tem a ausência concreta do tempo, um estado literalmente atemporal. Pois, o que concretamente não possui medição, não é tangível. A infinitude tem um nada imaginado para o visualizador, mas não tem um nada em si que seja concreto e ontológico. 
 
-Ao se segurar uma infinitude, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo inteiramente infinito, se vive tempo algum. Portanto, o nada, é a infinitude da possibilidade, é a vivencia simultânea do que é infindável e inesgotável.
+Ao se segurar uma infinitude, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo inteiramente infinito, se vive tempo algum. Portanto, o nada, é a infinitude da determinação.
 
+Para que a hipotese do angulador começasse a fazer sentido, o angulador não deveria necessitar da ação da angulação, e o nada não deveria ser chamado de relativo. O angulador deveria não necessitar de uma ação, a não ser simplesmente ser ele mesmo, e o nada não deveria existir, havendo somente a auto posição do angulador. Para isso, deveriamos explorar o angulador de outras vias que não designam mais o nada angulado.
 
-## A Natureza do Angulador: Liberdade, Propósito e Fundamento Vivo
-
-Uma vez demonstrada a necessidade do Angulador para que o próprio Nada faça sentido, precisamos investigar sua estrutura interna: **Ele possui liberdade? Sua angulação é proposital? Ele é um fundamento vivo?**
-
-A resposta lógica para todas essas perguntas é **sim**, e a justificativa divide-se em três pilares fundamentais:
+Cairiamos novamente na necessidade de inferir o Ser, precisamos investigar sua estrutura interna do absoluto: **Ele possui liberdade? Sua angulação é proposital? Ele é um fundamento vivo?**
 
 ### 1. A Justificativa Lógica para o Fundamento Vivo (Vitalidade)
 
@@ -1333,8 +1323,7 @@ Se o Absoluto fosse um mecanismo puramente estático ou uma lei matemática cega
 
 O Angulador opera no marco zero da realidade, onde não existe nenhuma lei anterior, nenhuma matéria preexistente e nenhuma força externa para coagi-lo.
 
-* Se a ação do Angulador fosse rigidamente programada ou necessária, o universo determinados seria apenas uma extensão mecânica dele, anulando a distinção entre a Causalidade Assimétrica (vertical) e a Simétrica (horizontal).
-* A liberdade do Angulador é uma necessidade lógica para evitar o determinismo cego. Ele possui a capacidade de escolher entre manter a totalidade em repouso (o ângulo do Nada) ou realizar recortes específicos (o ângulo dos fenômenos). A transição do Nada para o Ser é um ato de pura liberdade.
+* A liberdade do Angulador seria uma necessidade lógica. Ele possui a capacidade de escolher entre manter a totalidade em repouso (o ângulo do Nada) ou realizar recortes específicos (o ângulo dos fenômenos). A transição do Nada para algo é um ato de pura liberdade.
 
 ### 3. A Justificativa para a Proposicionalidade (Intencionalidade)
 
@@ -1358,14 +1347,14 @@ A arquitetura do início da realidade resolve-se através de uma simetria perfei
          │
          ▼
  ┌───────────────┐
- │ O RECORTE     │ ◄─── (Emergência dos Fenômenos / O Ser)
+ │ O RECORTE     │ ◄─── (Emergência dos Fenômenos)
  └───────────────┘
 
 ```
 
 O "Start" da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco: ele deixa de contemplar a totalidade indivisível (o Nada) e passa a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes.
 
-
+revisado
 # A VITALIDADE DO ANGULADOR
 
 Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
