@@ -6028,3 +6028,7 @@ A auto causalidade opera sozinha, é o puro auto querer, sem haver o quem se que
 
 
 A exploração do nada confere ao leitor cada vez mais a ideia que se reforça de que o nada não existe, para que exista a liberdade.
+
+Através da inferencia indireta da substancia incausada, temos que, só podemos inferir a pureza, o indifierenciamento. Não se extrai o que é essa substancia, porem, a partir não mais da incausalidade, mas da auto causalidade, se infere que é o puro desejar de si, é a pura auto causa, o puro desejo.
+
+A primeira pessoa é o desejo por si como existente, a segunda pessoa é desejar esse existente como pleno. E a terceira é desejar com uma referencia própria, uma pessoa gerada pelo auto querer, que escolhe entre duas opçoes semelhantes em direçao a sua plenitude.
