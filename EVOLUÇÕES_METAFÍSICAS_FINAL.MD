@@ -1387,10 +1387,13 @@ No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofi
 
 Sendo o nada, agora, existente em função da observação. O nada é sustentado pela visão, isto é, se mantem existente sendo referencial. Ao passo que o que é referenciado, se mantem uma totalidade em função do observador, caso contrário se desfaleraria em uma relativização. O nada, portanto, é uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existencia e observação. O nada se mantem existente para o referencial como existente, ao passo que o referencial se mantem integro e completo através do observador.
 
-revisado
 Portanto, a nada, é uma realidade dupla, que, abandona a si mesma e deixa somente o angulador. Somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento. Mas não há razão para considera-la imutavel, considerando a liberdade de angulação para o angulador.
+revisado
+A introdução de uma nova camada é necessaria ao nada. Ao adicionarmos a auto determinação da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciencia do nada, temos, portanto, uma angulação por um referencial de consciencia. E essa propriedade susntenta o nada através do observador. 
 
-A introdução de uma nova camada é necessaria ao nada. Ao adicionarmos a auto determinação da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciencia do nada, temos, portanto, uma angulação por um referencial de consciencia. E essa propriedade susntenta o nada através do observador. E podemos evocar essa propriedade através da investigação do próprio Absoluto.
+
+
+E podemos evocar essa propriedade através da investigação do próprio Absoluto.
 
 Passamos agora a extrair propriedades necessárias do Absoluto, não mais da substancia que foi definida, mais ainda não explicada, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgencia do angulador. Já que nossa substancia elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessarias que serão agregadas a nossa substancia elementar.
 
