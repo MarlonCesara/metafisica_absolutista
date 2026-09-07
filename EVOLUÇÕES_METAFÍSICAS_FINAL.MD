@@ -1383,12 +1383,11 @@ Encontramos, portanto, a trindade de propriedades que fundamenta o início de tu
 
 No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
 
-revisado
-
 # A EVOCAÇÃO DO ANGULADOR PARA A COMPLETUDE
 
-Sendo o nada, agora, existente em função da observação. O nada é sustentado pela visão, isto é, se mantem existente sendo referencial. Ao passo que o que é referenciado, se mantem uma totalidade em função do observador, caso contrário se desfaleraria em uma indiferenciação. O nada, portanto, é uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existencia e observação. O nada se mantem existente para o referencial como existente, ao passo que o referencial se mantem integro e completo através do observador.
+Sendo o nada, agora, existente em função da observação. O nada é sustentado pela visão, isto é, se mantem existente sendo referencial. Ao passo que o que é referenciado, se mantem uma totalidade em função do observador, caso contrário se desfaleraria em uma relativização. O nada, portanto, é uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existencia e observação. O nada se mantem existente para o referencial como existente, ao passo que o referencial se mantem integro e completo através do observador.
 
+revisado
 Portanto, a nada, é uma realidade dupla, que, abandona a si mesma e deixa somente o angulador. Somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento. Mas não há razão para considera-la imutavel, considerando a liberdade de angulação para o angulador.
 
 A introdução de uma nova camada é necessaria ao nada. Ao adicionarmos a auto determinação da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciencia do nada, temos, portanto, uma angulação por um referencial de consciencia. E essa propriedade susntenta o nada através do observador. E podemos evocar essa propriedade através da investigação do próprio Absoluto.
