@@ -1419,15 +1419,6 @@ O relativo é, portanto, um potencial que depende de um angulador. Trata-se de u
 
 O relativo não é o Ser, não é uma ontologia indiferenciada. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
 
-
-revisado
-
-
-
-
-
-
-
 O relativo, portanto, é um conceito que de certa forma nos aproxima a visão do que seria um nada ontológico, aconteceria na ausência de qualquer justificação para o angulador. Não existe de fato, porém, existe ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta fez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo nada ou um recorte deste nada em possibilidade. 
 
 O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontologia pura. Tão pura que seja sobressalente somente sua ação, que sirva para vivificar no nada. Que dê sentido, substancia e potencial ao nada no ato de sua angulação.
@@ -1449,6 +1440,7 @@ Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz ab
 O indiferenciado, longe de ser o existente, está para além do existência convencional. O nada, nada é, e a existência é determinada. Portanto, a categoria do indiferenciado está para alem da existência, e para além do nada. Não significa que não existe ou que é nada. Mas, aborda um aspecto que o exclui de ambas as categorias. Usaremos o termo Espírito, para exemplificar o não fenomenico, e aquilo que existe, e que se difere do nada. Espírito, portanto, será inferido através dos aspectos relacionais. 
 
 O indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
+revisado
 
 Pensar o Ser como uma identidade é, portanto, embuti-lo de uma determinação que, paradoxalmente, o anula como indiferenciado. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo uma existência e não o indiferenciado.
 
