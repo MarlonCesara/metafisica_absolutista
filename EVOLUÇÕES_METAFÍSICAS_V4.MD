@@ -11980,3 +11980,7 @@ Participar de uma classe superior designa a necessidade de não ser solitário, 
 
 Não é mais dinheiro: é a superioridade de ganhar sem fazer nada, de ser adorado.
 
+
+
+No nivel do querer, um querer infinito pela anulação é o mesmo que um querer que não quer, um querer estatico, alguém sem querer. Dessta forma, o querer infinito pela anulação, é o mesmo que a imobilidade. No nível do querer ambas as coisas se confundem. Um sentimento infinito de morte, é uma morte autentica. Um não movimentar-se infinito, é a impossibilidade de movimento no nivel da intenção.
+
