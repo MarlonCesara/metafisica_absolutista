@@ -6049,6 +6049,7 @@ Na auto causalidade absoluta não existe quem queira, o sujeito do querer, pois 
 
 Desta forma temos o puro auto querer, não temos a existência, temos o existir. Nao temos uma consciência com direcionamento, temos o próprio amor consciente. Não temos a existencia, temos a pureza que dilui a existencia determinada em um existir. 
 
+O auto querer, não envolve o quem ou o que se quer, e nem quem ou o que do querer, há o querer. O absoluto causa a si, isto é, deseja para absoluto.
 
 
 
