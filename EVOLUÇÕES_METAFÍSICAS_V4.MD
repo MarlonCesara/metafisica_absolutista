@@ -11989,4 +11989,4 @@ O rico é avarento, economiza ao máximo, deixa o outro com o mínimo na miséri
 O rico, portanto, enriquece forçando o trabalho forçado, negligenciando, fazendo tudo o que se pode fazer para extrair o valor máximo as custas de qualquer sofrimento. A avareza é um grito frio, um grito infantil, de querer salvar a própria criança que diz a sociedade e ao próprio niilista que o mesmo tem algum valor, que sua vida é mais do que um fugas momento no tempo.
 
 
-O mundo é um plano onde ja se adianta os murmurios, os sofrimentos do futuro, onde os individuos já se conscientizam de sua dimensão espíritual e temem a liberdade total.
+O mundo é um plano onde ja se adianta os murmurios, os sofrimentos do futuro, onde os niilistas já se conscientizam de sua dimensão espíritual e temem a liberdade total.
