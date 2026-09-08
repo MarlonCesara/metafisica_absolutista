@@ -1440,12 +1440,12 @@ Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz ab
 O indiferenciado, longe de ser o existente, está para além do existência convencional. O nada, nada é, e a existência é determinada. Portanto, a categoria do indiferenciado está para alem da existência, e para além do nada. Não significa que não existe ou que é nada. Mas, aborda um aspecto que o exclui de ambas as categorias. Usaremos o termo Espírito, para exemplificar o não fenomenico, e aquilo que existe, e que se difere do nada. Espírito, portanto, será inferido através dos aspectos relacionais. 
 
 O indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
-revisado
+
 
 Pensar o Ser como uma identidade é, portanto, embuti-lo de uma determinação que, paradoxalmente, o anula como indiferenciado. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo uma existência e não o indiferenciado.
 
-Ao considerar algo puro, consideremos aspectos relacionais do absoluto. Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
-
+Ao considerar algo puro, consideremos aspectos relacionais do absoluto. Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação do querer sob a ótica absoluta — procuramos o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+revisado
 O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada e a totalidade.
 
 Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade é existir, e este existir não se relaciona à existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
