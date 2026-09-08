@@ -11986,4 +11986,5 @@ No nivel do querer, um querer infinito pela anulação é o mesmo que um querer 
 
 O rico é avarento, economiza ao máximo, deixa o outro com o mínimo na miséria, pois julga o acumulo de bens poder aumentar o valor de sua vida, de forma que tem ciência da eternidade em que se encerrará, tem consciência da sua intenção. Portanto, o valor que coloca na meteria é um escapismo, um espelhamento da miséria que há dentro dele mediante sua decisão.
 
-O rico, portanto, enriquece forçando o trabalho forçado, negligenciando, fazendo tudo o que se pode fazer para extrair o valor máximo as custas de qualquer sofrimento.
+O rico, portanto, enriquece forçando o trabalho forçado, negligenciando, fazendo tudo o que se pode fazer para extrair o valor máximo as custas de qualquer sofrimento. A avareza é um grito frio, um grito infantil, de querer salvar a própria criança que diz a sociedade e ao próprio niilista que o mesmo tem algum valor, que sua vida é mais do que um fugas momento no tempo.
+
