@@ -11984,3 +11984,6 @@ Não é mais dinheiro: é a superioridade de ganhar sem fazer nada, de ser adora
 
 No nivel do querer, um querer infinito pela anulação é o mesmo que um querer que não quer, um querer estatico, alguém sem querer. Dessta forma, o querer infinito pela anulação, é o mesmo que a imobilidade. No nível do querer ambas as coisas se confundem. Um sentimento infinito de morte, é uma morte autentica. Um não movimentar-se infinito, é a impossibilidade de movimento no nivel da intenção.
 
+O rico é avarento, economiza ao máximo, deixa o outro com o mínimo na miséria, pois julga o acumulo de bens poder aumentar o valor de sua vida, de forma que tem ciência da eternidade em que se encerrará, tem consciência da sua intenção. Portanto, o valor que coloca na meteria é um escapismo, um espelhamento da miséria que há dentro dele mediante sua decisão.
+
+O rico, portanto, enriquece forçando o trabalho forçado, negligenciando, fazendo tudo o que se pode fazer para extrair o valor máximo as custas de qualquer sofrimento.
