@@ -1417,19 +1417,22 @@ Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentid
 
 O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto.
 
+O relativo não é o Ser, não é uma ontologia indiferenciada. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
+
 
 revisado
-O relativo não é um indiferenciado. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
 
-Completa-se aqui a investigação sobre o nada. Porém, não se completa a investigação sobre o absoluto. Por agora, iremos inferir além do próprio conceito de nada ou de existência, isto é, pelo conceito do indiferenciado, o que poderia despertar toda a cadeia causal e que está além da existência ou na nulidade.
 
-Se o conceito de nada tornou-se dependente de um angulador para se realizar, buscaremos esta possibilidade de angulação analisando as propriedades do inefável. Ao considera-lo que tem as propriedades necessarias para realizar a angulação, temos, portanto nada, e até mesmo o despertar deste nada em recortes.
 
-O relativo, portanto, é um conceito aproximado do nada, na ausência de qualquer justificação para o angulador. Não existe de fato, porém, existe ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta fez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo nada ou um recorte deste nada em possibilidade. 
+
+
+
+
+O relativo, portanto, é um conceito que de certa forma nos aproxima a visão do que seria um nada ontológico, aconteceria na ausência de qualquer justificação para o angulador. Não existe de fato, porém, existe ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta fez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo nada ou um recorte deste nada em possibilidade. 
 
 O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontologia pura. Tão pura que seja sobressalente somente sua ação, que sirva para vivificar no nada. Que dê sentido, substancia e potencial ao nada no ato de sua angulação.
 
-Em conclusão, não chegamos a resposta alguma sob um nada existente, a investigação do nada se esgota com um resquício de possibilidade de encontrar seu conceito. O nada, sem o angulador, portanto, é ilógico e inconcebível.
+Em conclusão, não chegamos a resposta alguma sob um nada existente. O nada, sem o angulador, portanto, é ilógico e inconcebível.
 
 O angulador, deve, necessariamente ser puro e existir. Portanto, resta-nos a investigação sobre o indiferenciado para ir de encontro a este angulador. Se, no indiferenciado houver um ente angulador, então, teremos, portanto, o nada, ou a existência, caso também consigamos inferir a liberdade para o angulador de ação.
 
@@ -6036,3 +6039,24 @@ A exploração do nada confere ao leitor cada vez mais a ideia que se reforça d
 Através da inferencia indireta da substancia incausada, temos que, só podemos inferir a pureza, o indifierenciamento. Não se extrai o que é essa substancia, porem, a partir não mais da incausalidade, mas da auto causalidade, se infere que é o puro desejar de si, é a pura auto causa, o puro desejo.
 
 A primeira pessoa é o desejo por si como existente, a segunda pessoa é desejar esse existente como pleno. E a terceira é desejar com uma referencia própria, uma pessoa gerada pelo auto querer, que escolhe entre duas opçoes semelhantes em direçao a sua plenitude.
+
+
+
+
+
+
+Na auto causalidade absoluta não existe quem queira, o sujeito do querer, pois o sujeito é uma determinação, não existe algo, no sentido comum da existencia, não há uma existencia, e nem mesmo a não existencia. O que há é a auto causalidade pura, sem ser despertada por um sujeito, e sem um direcionamento ontológico.
+
+Desta forma temos o puro auto querer, não temos a existência, temos o existir. Nao temos uma consciência com direcionamento, temos o próprio amor consciente. Não temos a existencia, temos a pureza que dilui a existencia determinada em um existir. 
+
+
+
+
+
+
+
+Completa-se aqui a investigação sobre o nada. Porém, não se completa a investigação sobre o absoluto. Por agora, iremos inferir além do próprio conceito de nada ou de existência, isto é, pelo conceito do indiferenciado, o que poderia despertar toda a cadeia causal e que está além da existência ou na nulidade.
+
+Se o conceito de nada tornou-se dependente de um angulador para se realizar, buscaremos esta possibilidade de angulação analisando as propriedades do inefável. Ao considera-lo que tem as propriedades necessarias para realizar a angulação, temos, portanto nada, e até mesmo o despertar deste nada em recortes
+
+
