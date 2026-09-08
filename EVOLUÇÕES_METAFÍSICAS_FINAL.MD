@@ -6046,6 +6046,13 @@ O auto querer, não envolve o quem ou o que se quer, e nem quem ou o que do quer
 
 O conceito Ser, indica uma existencia, sem sua identidade de una, isto é, uma existencia que é existir, é pura. Porém, não indica maiores detalhes sob o que é essa existencia, sob a ótica absoluta, essa existencia, é o auto causal. Isto é, o que se faz todo a si, o que se faz pleno de si, e o que segue sua persona. Porém, não existindo o objeto que recebe a auto causalidade, há apenas o causar-se, o fazer-se, o Ser.
 
+A auto causalidade é um puro querer sem o agente do querer e sem o objeto que se quer. O Ser é a ação efetiva do querer, se se materializa pelo próprio querer, e não pela formalização de sua existencia.
+
+
+Isto é, o próprio auto querer, um ato atemporal, infinito, se formaliza como ontológicamente positivo ao passo que dispensa o agente determinante e o produto determinado deste querer. Nao a há existencia, há a intenção, o sentido. E essa intenção se personaliza, se caracteriza por ser uma intenção.
+
+A intenção forma um agente para a intenção. Portanto, o Ser não é uma pessoa que ama, mas o amor que se faz pessoa. Não é uma existencia ou ente que ama, mas é o amor que cria o ente ou a existencia.
+
 
 
 
