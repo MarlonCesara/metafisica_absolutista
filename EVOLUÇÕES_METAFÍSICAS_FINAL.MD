@@ -6052,7 +6052,7 @@ Desta forma temos o puro auto querer, não temos a existência, temos o existir.
 O auto querer, não envolve o quem ou o que se quer, e nem quem ou o que do querer, há o querer. O absoluto causa a si, isto é, deseja para absoluto.
 
 
-
+O conceito Ser, indica uma existencia, sem sua identidade de una, isto é, uma existencia que é existir, é pura. Porém, não indica maiores detalhes sob o que é essa existencia, sob a ótica absoluta, essa existencia, é o auto causal. Isto é, o que se faz todo a si, o que se faz pleno de si, e o que segue sua persona. Porém, não existindo o objeto que recebe a auto causalidade, há apenas o causar-se, o fazer-se, o Ser.
 
 
 
