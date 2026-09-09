@@ -6107,3 +6107,35 @@ O sujeito é o querer de si, e não o objeto do querer.
 
 Isto é, o sujeito é o fazer-se sujeito. O sujeito não é o existente, é o Ser.
 
+Fiz apenas a limpeza ortográfica e de pontuação, preservando ao máximo suas ideias e formulações:
+
+A autoposição soberana do Espírito já é uma decisão soberana, uma determinação no nível absoluto.
+
+Pois o Absoluto é totalmente causa de si.
+
+Manteiga, óleo, carne moída, bolacha, farinha para empanar.
+
+Deus não é um ser que ama, mas o Amor que se faz Ser.
+
+É o ato de ser, de se fazer...
+
+*O ato de ser...*
+
+De se fazer.
+
+Que define o existir.
+
+Isto é: o ato de querer ser, de se fazer, é o próprio ato de existir.
+
+Havendo só o querer,
+
+com um existir cristalino.
+
+O niilista não precisa ser rico para fazer com que o outro seja miserável pelo voto, mas pela sensação de valor. Pois o sintoma não é aplacado pelo requinte, mas pela sensação de auto valor ampliada pelo privilégio, seja este privilégio um baixo requinte, mas o diferencial entre o que o niilista recebe e o que o outro recebe, ainda que seja ambos recebendo pouco, serve ao niilista em sua atribuição de valor, provando que o seu impeto não é realmente pelo luxo, mas pelo aplacar de seu sintoma de perca de valor.
+
+
+O membro de uma facção é acima de tudo alguém que compra a própria possibilidade ampliada de morte, isto é, aumenta a periculosidade de sua vida num jogo de mata mata, no qual, no menor erro, pode ser morto. Portanto, as facções nao só propiciam o niilista a sua expressão social quanto são o próprio expor ao suicídio. É como um jogo de mata a mata no qual o individuo sabe que corre grande risco de vida. O niilismo não necessariamente se expressa pelo antagonismo a vida em forma de tendencia ao suicídio, porem, como uma forma de concordancia o corpo, para aliviar-se, rende-se ao ideal da alma, de forma que o individuo nem mesmo tente recorrer ao tempo que lhe resta de vida para mudar sua postura.
+
+Qualquer ato humano é tirado do nada.
+
+
