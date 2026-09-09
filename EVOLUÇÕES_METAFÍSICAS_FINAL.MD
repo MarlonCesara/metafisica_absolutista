@@ -6105,3 +6105,5 @@ Isto é, é o sujeito como ato de construção de si, o sujeito é o ato. O suje
 
 O sujeito é o querer de si, e não o objeto do querer.
 
+Isto é, o sujeito é o fazer-se sujeito. O sujeito não é o existente, é o Ser.
+
