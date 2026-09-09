@@ -6062,3 +6062,46 @@ Completa-se aqui a investigação sobre o nada. Porém, não se completa a inves
 Se o conceito de nada tornou-se dependente de um angulador para se realizar, buscaremos esta possibilidade de angulação analisando as propriedades do inefável. Ao considera-lo que tem as propriedades necessarias para realizar a angulação, temos, portanto nada, e até mesmo o despertar deste nada em recortes
 
 
+
+
+
+
+
+
+
+
+Deus é puro sentido.
+
+Deus é a pura substância do amor.
+
+Ao se falar sobre o nada, obscurece-se a realidade criadora e limita-se a sua compreensão, criando um aspecto fixo.
+
+Quando se fala sobre o nada, sem se falar propriamente sobre o mesmo, fala-se sobre a justa posição absoluta do querer: um querer direcional, sem barreira ou foco, dado para o infinito.
+
+A alma constata o corpo, e o corpo, a alma?
+
+
+Não é apenas incausado; é autocausal.
+
+É o alto querer: a autoinclinação a ser inteiro, a existir e a se personalizar.
+
+
+A autoposição soberana do espírito já é uma decisão soberana, uma determinação no nível absoluto.
+
+Pois o absoluto é totalmente causa de si.
+
+Deus não é um ser que ama, mas o amor que se faz Ser.
+
+É o ato de se fazer, de se fazer enquanto Ser — o quanto de Ser de se fazer — que define o existir.
+
+Isto é: o ato de querer-se, de se fazer, é o próprio ato de existir.
+
+Havendo somente o querer, há um existir cristalino.
+
+A auto causalidade, é o auto querer sem sujeito formado. O querer é o próprio sujeito.
+
+O auto causado, causa-se sem o ente causado. É o puro intento de causar sem a necessidade de concretizar o causado.
+Isto é, é o sujeito como ato de construção de si, o sujeito é o ato. O sujeito é o ato da construção de si, e não o construído.
+
+O sujeito é o querer de si, e não o objeto do querer.
+
