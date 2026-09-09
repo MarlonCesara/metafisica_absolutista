@@ -11990,3 +11990,14 @@ O rico, portanto, enriquece forçando o trabalho forçado, negligenciando, fazen
 
 
 O mundo é um plano onde ja se adianta os murmurios, os sofrimentos do futuro, onde os niilistas já se conscientizam de sua dimensão espíritual e temem a liberdade total.
+
+
+
+
+
+
+Os Olhos: Estão abertos, mas não brilham. A lente foca exatamente no olhar, que está vidrado. Ele não está vendo o horizonte; seu olhar atravessa a paisagem, fixo em uma imagem interna de aniquilação. É o olhar da "criança aterrorizada" escondida sob a máscara do adulto, o olhar de quem se sente como um "resíduo existencial".
+
+A Boca: Os lábios estão secos e milimetricamente tensionados para baixo. Não há o sorriso cínico do momento de euforia, mas a expressão de uma amargura residual. É a tensão de quem faz um esforço colossal para não desabar em pranto, mascarando a dor com uma rigidez fria e apática.
+
+A Pele: A textura da pele parece fria, quase como o "barro" descrito em sua alegoria — uma matéria que existe, mas que parece já estar ensaiando a própria ausência de vida.
