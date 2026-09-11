@@ -1492,17 +1492,20 @@ O repousar do Espírito, ou seu simples existir, sub entende um referencial, ain
 
 > Exemplo dogmático: Se os olhos do Ser estão fechados, o produto desta inação é o nada. Porém, quando se abrem o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois é determinado, é angulado. E, do Ser, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, o Ser está em quem ama, e quem ama está Nele.
 
-revisado
+
 # A infinitude do indiferenciado
 
-Não digo que a infinitude do espirito é igual a nada, pois o espirito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada. Mas a infinitude do Espírito nao sucumbe a nadificação, pois é de aspecto relacional e não fenomenico. Por exemplo, ao citarmos um amor infinito, ele não sucumbe, mas se realiza por ser relacional. O indiferenciado já não é identificado como determinação, por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplica-lo rumo a uma infinitude. É infinito no sentido relacional de intensidade, constância, retidão, etc.
+Não digo que a infinitude do espirito é igual a nada, pois o espirito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada, pois não pode ser mais referida, torna-se um conceito ilógico tal como o relativo. Mas a infinitude do Espírito não sucumbe a nadificação, pois é de aspecto relacional e não fenomenico. Por exemplo, ao citarmos um amor infinito, ele não sucumbe, mas se realiza por ser relacional. O indiferenciado já não é identificado como determinação, por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplica-lo rumo a uma infinitude. É infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado pela sua dimensão. O amor não possui fronteiras, é puro.
 
 O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
 
 O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
-Ao considerarmos, por outro lado, um "Nada Absoluto", esse nada torna-se relacional, autocausado. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
+No entanto, ja se faz possível entender que, essa possibilidade não é viavel, a auto posição do Espírito como existente já se faz como dispensaria de haver o pronunciamento sobre qualquer otura coisa, portnato o verdadeiro nada é bem referenciado quando nem mesmo se pronuncia sobre ele.
 
+Ao considerarmos, por outro lado, a não possibilidade do nada ontológico, isto é, para absoluto não há o nada, há o absoluto ainda sem inferencia, sem possibilidade de ser determinado ou de ser um nada absoluto. O que poderiamos extrair desse estado onde não se haveria nada a se considerar é somente seu aspecto relaciona, este não haver de qualquer possibilidade inferivel torna-se relacional, autocausado. Sua permanência como absoluto necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
+
+revisado
 Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
 
 Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
