@@ -1008,17 +1008,17 @@ O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica rela
 
 Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada, pode ser pensado nada, e imaginado nada. 
 
-Não sendo nada, existe, se mentalizado, ou se não mentalizado, há o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo.
-
-
-revisado
-
+Não sendo nada, existe, se mentalizado, ou se não mentalizado, há o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do relativo em algo.
 
 ### Introdução ao Absoluto: A Dedução a partir do Fenômeno
 
 O conceito de Absoluto agregado ao fenômeno surge como tentativa de formalizar uma origem. A tentativa de estabelecer uma realidade ontológica para justificar os efeitos carece do testemunho de que algo existe para que haja uma realidade primeira.
 
 Desta forma, o Absoluto é um termo resultante do princípio causal aplicado à observação fenomenológica: sabemos que os fenômenos existem; logo, existe uma causa primeira. Não é o inverso (uma causa primeira existe e, por isso, deduzimos os fenômenos). Ao abordarmos o termo Absoluto sem que ele seja um mero efeito causal, buscamos a pureza ontológica. Como a Primeira Causa se dá por si mesma e é ontológica, ela reverbera na realidade através de efeitos. Deduz-se, então, o Espírito Absoluto: uma existência puríssima que se autojustifica por sua pureza, mas que causa efeitos na realidade devido à sua força ontológica.
+
+Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a partir do contingente. Porém, sempre é inferido, o Ser, a partir do contigente. E isto não revela os traços do Ser de forma delineada, como a intencionalidade, a dimensionalidade da liberdade divida entre pessoas, a temporalidade do Ser. Porém, só é possível deduzir indiretamente o Ser pela pureza, e é por isso dito Ser. Porém, não se encontra outras características deduzindo o Ser de forma indireta.
+
+revisado
 
 ## A Necessidade Ontológica do Absoluto
 
