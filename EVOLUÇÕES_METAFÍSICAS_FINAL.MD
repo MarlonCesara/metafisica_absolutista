@@ -1467,21 +1467,23 @@ Isto é, o Espírito indiferenciado é o ato de existir, e não se chama "o ato"
 Portanto, o Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de forma que o Ser não se aprópria de si mesmo e se nomeia como Ser, mas simplesmente é em doação total de si.
 
 Portanto, adiante, o foco de nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem existente, de forma que seja detectada somente sua ação de Ser, somente seu aspecto relacional. E faremos isso buscando aspectos relacionais no absoluto e não entes específicos em sua estrutura. 
-revisado
-O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica relacional, já subentende o indiferenciado, ou o Espírito.
+
+O próprio conceito de nada ontológico, sob a ótica do referencial, ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou o Espírito. Pois haveria o agente da angulação, seja essa uma ação ou uma determinação, no sentido de manifestação fenomênica. 
+
 Desta forma, estamos buscando, não uma substancia, mas o ato que é definido em essência por si mesmo. Não é o Espírito A ou B, mas é o Espírito do existir. É quem existe, é o Ser.
 
-Portanto, aspectos como a auto causalidade, podem nos levar a propriedades relacionais. Se há auto causalidade, se inferi uma ação em prol do existir, a ação do existente é existir, e o existente se nomeia por sua ação, e se existir é benéfico, o existente se nomeia por uma linguagem relacional, tal como o amor, a benevolência, a retidão em favor da vida. E o Ser é a própria benevolência, não a tem, mas a é. 
-
-Isto é, buscaremos, portanto, os aspectos relacionais para absoluto, de forma a definir o Ser.
+Portanto, aspectos como a auto causalidade, podem nos levar a propriedades relacionais. Se há auto causalidade, se inferi uma ação em prol do existir, a ação do existente é existir, e o existente se nomeia por sua ação, e se existir é benéfico, o existente se nomeia por uma linguagem relacional, tal como o amor, a benevolência, a retidão em favor da vida. E o Ser é a própria benevolência, não a tem, mas a é.  Buscaremos, portanto, os aspectos relacionais para absoluto, de forma a definir o Ser.
 
 
 # A ação do Ser no relativo
 
 Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada, pode ser pensado nada, e imaginado nada. 
 
-Não sendo nada, existe, se mentalizado, ou se não mentalizado, há o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo.
+Isto é, dessa forma a liberdade do Ser seria executada em sua visualização, considerando que tivesse capacidades visuais e imaginativas. Seria, portanto, uma realidade que se situa como o imaginário e que se faz real de forma imaginada, estaria, portanto, no próprio visualizador está realidade, e não existira para si mesma de fato, mas para o visualizador.
 
+Não sendo o nada o relativo existe se mentalizado. Se não mentalizado, haveria o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo. Porém, sem ser mentalizado o relativo não é nada, portanto, não haveria nem mesmo relativo para se defini-lo como nada ao ser angulado.
+
+revisado
 Se ao olhar para o nada, nada é, não se está olhando para o nada, mas está se olhando para a mentalização ou para o que se quer evocar do nada. Isto significa que não há uma conversão do nada em algo, mas a uma ação de liberdade somente. E isto significa que o Ser age livremente sem que tenha transformado uma substancia em algo. Pois o mentalizar do nada se faz o próprio ato de não mentalizar. O repouso do Espírito e a inação já justifica o nada por si mesmo. Portanto, o nada não exige esforço, caso exigisse uma ação do angulador, não seria nada, mas necessitaria de um efeito causal de uma ação. Portanto, o nada é equivalente ao estado de repouso, ou a inação do Espírito.
 
 Portanto, a própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de visualizar o nada que nada é, mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia relativo e constrói o nada. O nada, portanto, é ato da liberdade, e a liberdade expressa em forma de inação.
