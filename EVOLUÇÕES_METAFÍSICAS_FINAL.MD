@@ -1448,24 +1448,26 @@ Ao considerar algo puro, consideremos aspectos relacionais do absoluto. Buscamos
 
 Procuramos a pureza, no absoluto, por aspectos relacionais. O universo não pode ser puro, mas uma intenção, uma retidão pode ser pura ao ponto de ser quase indetectável. Isto é, procuramos os aspectos relacionais para compreender o que seja realmente o indiferenciado. Pois, de qualquer forma que trabalhamos com as coisas contingentes, elas não alcançam o nível de pureza necessário, ao forçar qualquer nível de pureza no contingente, ele torna-se uma ontologia completamente não subsistente. E o limite da nadificação é quando não podemos mais falar sobre a realidade em questão, portanto, ou se destroi totalmente o contigente a ponto de não poder mais falar sobre o mesmo por não ser mais referenciavel, ou se chega a realidades inconsistentes como as que estamos investigando agora.
 
+O relativo existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
 
-revisado
-O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada e a totalidade.
+Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo de si mesmo. É uma existência que nem mesmo é o nada, nem o existente. Pois não carrega a pureza ontológica necessária para ser algo, e nem é nada, pois o nada não é ontológico e não pode ser referenciado. A identidade do Ser é seu próprio existir, e este existir não se relaciona à existência determinada ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o Ser se faz sem nada, sem existência como A ou B, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
 
-Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria identidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade é existir, e este existir não se relaciona à existência ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o indiferenciado se faz sem nada, sem existência, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
+O indiferenciado, portanto, não é o existir angular da infinitude da possibilidade. Mas está além da categoria da existência projetada. O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
 
-O indiferente, portanto, não é o existir angular da infinitude da possibilidade. Mas está além da categoria do existir. Aborda aspectos relacionais nesta categoria e pode ser inferido através dela. Porém, não se confunde com a mesma.
 
-O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
 
-Qualquer ente angulado possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir.
+
+
+O relativo angulado possui uma identidade, é uma existência possível em detrimento de outras possíveis, é um olhar da totalidade em detrimento a outros olhares. Porém o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação de Ser, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir. Seu próprio ato de auto querer.
+
+
 
 Isto é, o Espírito indiferenciado é o ato de existir, e não se chama "o ato", mas é o próprio em si. Portanto, a palavra "Ser" não é o nome do indiferenciado, mas é sua forma de existencia. Ele é, e sua identidade é seu próprio ato de existir. Portanto, é o verbo, e não o substantivo.
 
-Portanto, o Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de forma que o Ser não se a própria de si mesmo e se nomeia como Ser, mas simplesmente é em doação total de si.
+Portanto, o Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de forma que o Ser não se aprópria de si mesmo e se nomeia como Ser, mas simplesmente é em doação total de si.
 
-Portanto, adiante, o foco de nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem existente, de forma que seja detectada somente sua ação. E faremos isso buscando aspectos relacionais no absoluto e não entes específicos em sua estrutura. 
-
+Portanto, adiante, o foco de nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem existente, de forma que seja detectada somente sua ação de Ser, somente seu aspecto relacional. E faremos isso buscando aspectos relacionais no absoluto e não entes específicos em sua estrutura. 
+revisado
 O próprio conceito de nada, sob a ótica do referencial, ou sob uma ótica relacional, já subentende o indiferenciado, ou o Espírito.
 Desta forma, estamos buscando, não uma substancia, mas o ato que é definido em essência por si mesmo. Não é o Espírito A ou B, mas é o Espírito do existir. É quem existe, é o Ser.
 
@@ -6154,4 +6156,4 @@ Qualquer ato humano é tirado do nada.
 
 
 
-Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a partir do contingente. Porém, sempre é inferido, o Ser, a partir do contigente. E isto não revela os traços do Ser de forma delineada, como a intencionalidade, a dimensionalidade da liberdade divida entre pessoas, a temporalidade do Ser. Porém, só é possível deduzir indiretamente o Ser pela pureza, e é por isso dito Ser. Porém, não se encontra outras características deduzindo o Ser de forma indireta.
+Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a partir do contingente. Porém, sempre é inferido, o Ser, a partir do contigente. E isto não revela os traços do Ser de forma delineada, como a intencionalidade, a dimensionalidade da liberdade divida entre pessoas, a temporalidade do Ser. Porém, só é possível deduzir indiretamente o Ser pela pureza, e é por isso dito Ser. Porém, não se encontra outras características deduzindo o Ser de forma indireta. O amor pode ser infinito, pode ser puro. Não necessita de determinação, por carregar, por si só, o teor de pureza. Pode ser a doação total.
