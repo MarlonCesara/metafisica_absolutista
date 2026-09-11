@@ -6139,3 +6139,15 @@ O membro de uma facção é acima de tudo alguém que compra a própria possibil
 Qualquer ato humano é tirado do nada.
 
 
+
+
+
+
+
+
+
+
+
+
+
+Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a partir do contingente. Porém, sempre é inferido, o Ser, a partir do contigente. E isto não revela os traços do Ser de forma delineada, como a intencionalidade, a dimensionalidade da liberdade divida entre pessoas, a temporalidade do Ser. Porém, só é possível deduzir indiretamente o Ser pela pureza, e é por isso dito Ser. Porém, não se encontra outras características deduzindo o Ser de forma indireta.
