@@ -12011,3 +12011,5 @@ O niilismo deve ser visto no patrao que maltrata e posterga seu interior no func
 
 
 O niilista se julga acima do bem e do mal, deixando-se levar pelos instintos, pensa ser puro ao ponto de ser nada, isto é, sua impassividade se confunde com o mais violento ímpeto por deixar-se levar pelo homem enquanto animal, não enquanto ser espiritual. Entra num estado de alienação de si mesmo, no qual o corpo o guia, e no qual, esse deixar-se guiar envolve um orgulho total, um querer ser como Deus, o achar-se acima da conduta, achar-se elevado tal como Deus. Pois julga poder existir tal como o Ser.
+
+O niilista sente um desespero introvertido, um choro engolido, uma grande impassividade as emoções normais, se congela ao viver segundo a carne, se torna impassível, insensível as emoções. Engole um choro de desespero que lhe tira o sono. A angustia que lhe assola, o corpo que vagueia só sem a paz, o corpo que se acostuma a enxergar sem fim, que se encerra sem amparo e que se permite agir conforme a vida animalesca. Não é possível nem mesmo assombrar o niilista, pois seus olhos já encaram o maior dos desesperos.
