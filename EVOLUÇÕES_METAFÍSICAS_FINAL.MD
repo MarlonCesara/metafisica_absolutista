@@ -1505,10 +1505,9 @@ No entanto, ja se faz possível entender que, essa possibilidade não é viavel,
 
 Ao considerarmos, por outro lado, a não possibilidade do nada ontológico, isto é, para absoluto não há o nada, há o absoluto ainda sem inferencia, sem possibilidade de ser determinado ou de ser um nada absoluto. O que poderiamos extrair desse estado onde não se haveria nada a se considerar é somente seu aspecto relaciona, este não haver de qualquer possibilidade inferivel torna-se relacional, autocausado. Sua permanência como absoluto necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
 
-revisado
 Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
 
-Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
+Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justificaria. Porém, considerando que o nada angulado não existe,  somente o aspecto relacional do nada impera, que é o Espírito.
 
 Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
 
@@ -1560,10 +1559,10 @@ Características para o Absoluto:
 
 Princípio: "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."
 
-Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal.
+Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal. Não por ser auto determinado, mas por expressar-se em sua liberdade de forma totalmente livre, independente de escolhas semelhantes voltadas para a plenitude, isto é, para o existir em plenitude, e totalidade, sem reservas de si, esboçando-se em totalidade, sem meio termos.
 
 
-
+revisado
 
 ## A infinitização do relativo 
 
