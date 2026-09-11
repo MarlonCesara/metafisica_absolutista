@@ -1483,16 +1483,16 @@ Isto é, dessa forma a liberdade do Ser seria executada em sua visualização, c
 
 Não sendo o nada o relativo existe se mentalizado. Se não mentalizado, haveria o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo. Porém, sem ser mentalizado o relativo não é nada, portanto, não haveria nem mesmo relativo para se defini-lo como nada ao ser angulado.
 
-revisado
+
 Se ao olhar para o nada, nada é, não se está olhando para o nada, mas está se olhando para a mentalização ou para o que se quer evocar do nada. Isto significa que não há uma conversão do nada em algo, mas a uma ação de liberdade somente. E isto significa que o Ser age livremente sem que tenha transformado uma substancia em algo. Pois o mentalizar do nada se faz o próprio ato de não mentalizar. O repouso do Espírito e a inação já justifica o nada por si mesmo. Portanto, o nada não exige esforço, caso exigisse uma ação do angulador, não seria nada, mas necessitaria de um efeito causal de uma ação. Portanto, o nada é equivalente ao estado de repouso, ou a inação do Espírito.
 
-Portanto, a própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de visualizar o nada que nada é, mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia relativo e constrói o nada. O nada, portanto, é ato da liberdade, e a liberdade expressa em forma de inação.
+A própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de visualizar o nada que nada é, mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia relativo e constrói o nada. O nada, portanto, é ato da liberdade, e a liberdade expressa em forma de inação.
 
 O repousar do Espírito, ou seu simples existir, sub entende um referencial, ainda que sem ação. A inatividade também é expressão da liberdade. E, se faz inativo consciente desta ação.
 
 > Exemplo dogmático: Se os olhos do Ser estão fechados, o produto desta inação é o nada. Porém, quando se abrem o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois é determinado, é angulado. E, do Ser, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, o Ser está em quem ama, e quem ama está Nele.
 
-
+revisado
 # A infinitude do indiferenciado
 
 Não digo que a infinitude do espirito é igual a nada, pois o espirito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada. Mas a infinitude do Espírito nao sucumbe a nadificação, pois é de aspecto relacional e não fenomenico. Por exemplo, ao citarmos um amor infinito, ele não sucumbe, mas se realiza por ser relacional. O indiferenciado já não é identificado como determinação, por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplica-lo rumo a uma infinitude. É infinito no sentido relacional de intensidade, constância, retidão, etc.
