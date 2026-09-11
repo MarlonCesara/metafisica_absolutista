@@ -1445,6 +1445,10 @@ O indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
 Pensar o Ser como uma identidade é, portanto, embuti-lo de uma determinação que, paradoxalmente, o anula como indiferenciado. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo uma existência e não o indiferenciado.
 
 Ao considerar algo puro, consideremos aspectos relacionais do absoluto. Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação do querer sob a ótica absoluta — procuramos o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+
+Procuramos a pureza, no absoluto, por aspectos relacionais. O universo não pode ser puro, mas uma intenção, uma retidão pode ser pura ao ponto de ser quase indetectável. Isto é, procuramos os aspectos relacionais para compreender o que seja realmente o indiferenciado. Pois, de qualquer forma que trabalhamos com as coisas contingentes, elas não alcançam o nível de pureza necessário, ao forçar qualquer nível de pureza no contingente, ele torna-se uma ontologia completamente não subsistente. E o limite da nadificação é quando não podemos mais falar sobre a realidade em questão, portanto, ou se destroi totalmente o contigente a ponto de não poder mais falar sobre o mesmo por não ser mais referenciavel, ou se chega a realidades inconsistentes como as que estamos investigando agora.
+
+
 revisado
 O indiferenciado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada e a totalidade.
 
