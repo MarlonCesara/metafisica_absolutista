@@ -1577,8 +1577,9 @@ Não pode ser manifesto em sua totalidade, pois necessita de escolha em sua inte
 
 Isto é, a partir do momento que não se determina, se faz um palco onde pode atuar vários atores, não havendo alguém para decidir qual atuará, o palco colapsa e torna-se a anulação. Portanto, o nada é o olhar sob essa anulação.
 
+Está é a maneira mais clara de referenciar um nada existente, isto é, que é algo por ser a anulação da totalidade. E não a própria ausência de si mesmo. Este nada, supostamente poderia ser pensado. Pois guarda em si, sua contraparte, aparentemente é potencial. Porém, nada mais é do que uma tentativa falha de reduzir uma realidade determinada a um estado de pureza que ela mesma não pode atingir, pois não pode abandonar sua determinação sem deixar de se definir como realidade determinada. Imediatamente, se deixasse de ser determinada, seria o próprio Ser. Isto é, quando desabamos uma realidade determinada sobre si mesma ou não pode ser mais pensada, pois torna-se equivalente a coisa alguma, ou a confundimos com o Ser, querendo fazer com que o Ser seja produto da purificação do contingente, e não o causador do contingente. 
+
 revisado
-Está é a maneira mais clara de referenciar um nada existente, isto é, que é algo por ser a anulação da totalidade. E não a própria ausência de si mesmo. Este nada, pode ser pensado. Pois guarda em si, sua contraparte, é potencial sem que isso seja uma referência ilógica. 
 
 O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
