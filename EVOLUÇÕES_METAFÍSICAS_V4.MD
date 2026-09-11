@@ -1016,7 +1016,7 @@ O conceito de Absoluto agregado ao fenômeno surge como tentativa de formalizar 
 
 Desta forma, o Absoluto é um termo resultante do princípio causal aplicado à observação fenomenológica: sabemos que os fenômenos existem; logo, existe uma causa primeira. Não é o inverso (uma causa primeira existe e, por isso, deduzimos os fenômenos). Ao abordarmos o termo Absoluto sem que ele seja um mero efeito causal, buscamos a pureza ontológica. Como a Primeira Causa se dá por si mesma e é ontológica, ela reverbera na realidade através de efeitos. Deduz-se, então, o Espírito Absoluto: uma existência puríssima que se autojustifica por sua pureza, mas que causa efeitos na realidade devido à sua força ontológica.
 
-Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a partir do contingente. Porém, sempre é inferido, o Ser, a partir do contigente. E isto não revela os traços do Ser de forma delineada, como a intencionalidade, a dimensionalidade da liberdade divida entre pessoas, a temporalidade do Ser. Porém, só é possível deduzir indiretamente o Ser pela pureza, e é por isso dito Ser. Porém, não se encontra outras características deduzindo o Ser de forma indireta.
+
 
 revisado
 
