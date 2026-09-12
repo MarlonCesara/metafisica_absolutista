@@ -1797,9 +1797,21 @@ Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E 
 
 A inclinação a vida, o bem querer, o bem é o desejo pela vida. Pelo existir. Pela luz. O Ser é o puro bem querer, é o puro amor. Este desejo é puramente Espiritual. Portanto, o fundamentador tem o puro desejo da fundamentação, o plenificador o puro desejo da plenitude, e o personalizador o puro desejo da personalização rumo a plenitude. Ambos são selados pelo Espírito, de forma que ambos manifestam o Espírito que é o dom da plenitude, do existir, do Ser por querer, e por não poder Não Ser, por não poder não amar. Sua rendição ao ser é perfeição e não prisão. 
 
-revisado
+Ao nos perguntar quem é o quem do querer, isto é, ao determinarmos o bem querer em um ângulo do bem querer, temos um recorte do querer. Formamos um ente do bem querer, um ente que tem bem querer, que tem querer por si. 
 
-Ao nos perguntar quem é o quem do querer, isto é, ao determinarmos o bem querer em um ângulo do bem querer, temos um recorte no querer. Uma angulação da liberdade. Ao angularmos a liberdade, não temos mais a pureza instaurada nesta angulação. Pois ao tornar a liberdade individual, isto é, ao estabelecer o quem do bem querer, o quem do puro amor, ao chamarmos o amor de um individuo, e não de apenas querer, temos uma liberdade criada. Não necessária, isto é, não ontologicamente feita em direção ao existir.
+E, se esse ente é angulado, ou determinado, temos o observador, para que haja a angulação no nada falso, isso é, para que haja uma angulação numa liberdade limitada que só pode ser operada sob uma forma falsa de Ser.
+
+Ao angularmos a liberdade falsa, isto é, ao elegermos a liberdade referente a uma existência determinada, temos que o angulador, além de determinado, tem uma liberdade limitada pela eleição de uma realidade e não de outra para ela.
+
+Uma angulação da liberdade, é uma limitação da liberdade. Ao angularmos a liberdade, não temos mais total liberdade instaurada nesta angulação. Pois há uma opção em detrimento de todas as outras.
+
+E, ao tornar a liberdade individual, isto é, ao estabelecer o quem do bem querer, o quem do puro amor, ao chamarmos o amor de um individuo, e não de apenas querer, temos um ente, e não mais o indiferenciado. Alem do mais, determinando a liberdade, a chamando de nada ontológico, temos a liberdade também limitada.
+
+A total liberdade não se concentra no poder de angular ou modificar uma realidade pré estabelecida como um nada ontológico, pois há o nada ontológico ao invés de qualquer outra coisa. Portanto, está não seria a total liberdade.
+
+O ente angulado não seria necessário, isto é, não ontologicamente feita em direção ao existir. Mas teria angulação e direcionamento ao nada ontológico, haveria uma barreira para a soberania do Ser, isto é, o Ser não seria para a infinitude, mas para uma barreira ontológica delimitada. O Ser deve estar em direção ao seu existir, e não ao nada. Não deve ser um observador do nada, mas deve ser soberano, sem que preciso agir para tal, sem que precise de um ato para estabelecer liberdade. Pois o ato sub entende causa, todo ato tem um agente. Portanto, para haver a soberania não deveria haver um ato prévio para tal. A soberania já deveria se instaurar como ato eterno, e não como pendencia de um ato de observação.
+
+revisado
 
 E, portanto, não pura, não para o todo, mas para si. Isto é, temos portanto o quem do amor, ou o quem do não amor. Pois acaba a necessidade de direcionamento necessário ao existir, e se da vazão a um recorte da liberdade, corruptível. 
 
