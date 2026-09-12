@@ -1745,11 +1745,13 @@ A, não resiste a perca da determinação para participar de um fundo de formas 
 Não há um meio termo entre A e não A, quando se elimina a identidade de A. Se tem uma existência X, e X não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isto é a infinitude da existência determinada, o que é existência alguma. Pois não existe segundo uma pureza total e sim mediante a uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
 
 O relativo não tem ordem, não tem permanencia, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o absoluto determinado e se encontra uma ausencia de referencial.
-revisado
-Ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos, a própria estadia do Espirito, sua própria inação configura o nada. O relativo, não seria nem mesmo o nada, sem um contorno, sem o olhar do angulador. O relativo é uma realidade a ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada.
 
-Isto é, o relativo é uma indefinição, nem mesmo o recorte, e nem mesmo a totalidade infinitizada e anulada. Já o nada é uma definição que possui complexidade, pois possui uma bi dimensão.
-A do Espírito e sua soberania mediante as possibilidades ainda infintizadas. 
+
+Em uma hipótese errônea, ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos, a própria estadia do Espirito dado pela auto causalidade, sua própria inação configura o relativo em nada. Porém o relativo, não seria nem mesmo o nada, sem um contorno, sem o olhar do angulador. O relativo é uma realidade a ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada. Para que essa hipótese fizesse sentido o relativo não precisaria de contornos, pois nada não necessita de atributos, e não necessitaria ser recortado ou visualizado pois isto é transformar uma substancia em visão, e o nada não se transforma. A única forma de fazer sentido é o absoluto em sobenaria sendo uma realidade relacional, e não havendo nenhum limite de ação ou nenhuma ontologia determinada como configuração inicial, teria sua auto posição como liberdade completa de ação, e não como geradora de uma materia determinada que pode ser transformada em algo através de um processo de reversão da nadificação.
+
+Isto é, o relativo é uma indefinição, nem mesmo o recorte, e nem mesmo a totalidade infinitizada e anulada. Já o nada em hipótese errônea seria uma definição que possui complexidade, pois possuiria uma bi dimensão. Necessitaria do Espírito e sua visão sob sua infintiização. O Espírito e sua soberania mediante as formas ainda infinitizadas não possuiria total liberdade, tendo um substrato ontológico no qual seria obrigado a operar necessariamente. 
+
+revisado
 
 O nada necessita de qualquer reação ou não reação. Simplesmente, em função do angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente se está lá. E, a inação deste, se faz nada Absoluto. O que quer dizer que, somente o angulador operando e existindo, já configura a posição do estado nadificado da possibilidade.
 
