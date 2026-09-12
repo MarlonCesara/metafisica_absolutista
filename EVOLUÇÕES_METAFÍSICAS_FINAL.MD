@@ -1656,7 +1656,9 @@ O Espírito da plenitude participa tanto da autofundamentação quanto da person
 
 Imaginar o Ser como uma realidade ontológica falsa que chamaremos de nada, ajuda a visualizado como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginar o Ser como nada Absoluto, temos uma realidade aparentemente determinada e pura para exercer a auto causalidade e depois, basta que extraímos essa realidade ilógica, e fiquemos somente com a pura substancia do Ser.
 
-revisado
+
+
+> A visão do amor, um homem sem olhos, sem um rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um eu. Mas o amor, sendo o próprio eu. O amor com olhos, sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor. 
 
 Porque os entes não resistem a infinitização? O ente determinado colapsa ao ser infinitizado, porém, ao deixarmos um fragmento fenomenico, isto ainda não fará sentido, pois até o fragmento sem determinação, é uma determinação de fragmento. É algo. Tudo que é algo é um algo, ou é formatado conforme a si mesmo. Para o ente ter sua essencia fundida a determinação, precisa ser completamente puro. Necessita que seu resquicio de fundamentação seja, não a parte que resta sem determinação, pois a parte da fundamentação sem sua determinação, na verdade, não existe.
 
@@ -1666,7 +1668,7 @@ Ao aplicarmos a causa de A ser A, e não B, ou de A existir A, para absoluto, te
 
 A infinitização dos entes determinados, portanto, se encerra na perca da determinação. E isto não conserva o ente, mas o colapsa. 
 
-Portanto, a nadificação é a retirada da determinação para entes causados. É a possibilidade elevada a sua máxima potencia, a sua disformidade. Se existe tudo ao mesmo tempo, isto provoca a competição de formas para se por, se forma A, se mostra A, porem existe a forma B, em seu lugar, até haver o X. Portanto, temos a nadificação. Que é a indefinição.
+Portanto, a relativização é a retirada da determinação para entes causados. É a determinação elevada a sua máxima potencia, a sua disformidade. Se existe tudo ao mesmo tempo, isto provoca a competição de formas para se por, se forma A, se mostra A, porem existe a forma B, em seu lugar, até haver o X. Portanto, temos a nadificação. Que é a indefinição.
 
 A infinitude de formas que se opõe resultando a não forma. Ou da forma indefinida (relativo).
 
@@ -1675,7 +1677,7 @@ Ao retirar a forma de A, A torna-se X, e X são todas as formas possíveis. Send
 
 O ente, portanto, ao sofrer a perca da identidade, entra numa indefinição, e está indefinição possibilita o ente estar para uma infinidade de formas. E isto o anula. Portanto, qualquer ente que perde seu contorno é infinitizado, torna-se relativo. Pois sua forma é relativa. Colapsa. 
 
-A infinitização ocorre em decorrência da forma relativizada, se não a a forma, então o ente tem forma X, todas as formas ao mesmo tempo e nenhuma forma. 
+A infinitização ocorre em decorrência da forma relativizada, se não ha a forma, então o ente tem forma X, todas as formas ao mesmo tempo e nenhuma forma. 
 
 
 Um objeto que perde os contornos, portanto, não tem um devir, mas torna-se o próprio devir inexistente. Pois o objeto desaparece. Torna-se inteiro o devir. Um objeto de crescimento continuo pode ser visualizado, mas caso seu crescimento seja infinito, caso tenha grandezas infinitas, o objeto é desfigurado. Um tamanho infinito é um não tamanho, uma velocidade infinita é uma não velocidade, uma densidade infinita é não densidade. 
@@ -1687,7 +1689,7 @@ Ex ilustrativo: Dentro do buraco negro, a matéria já não existe, mas o univer
 Ex: uma pessoalidade individualizada, isto é, um Espírito individualizado, ao perder sua identidade, seria relativo. 
 Somente um sentimento, um bem querer pode ser infinito. A forma, a unicidade, não pode ser infinita sem que colapse. A não ser que essa forma seja de todo o bem querer em pessoalidade. 
 
-(Coloque o exemplo do devir do nada e do Ser, de algum filosofo)
+revisado
 
 O nada tem seu em si e para si? Ou o para si existe isoladamente. Somente o Espírito. Pois o Espírito seria o para si do nada? O Espírito não é o para si do nada, pois o nada não existe para ter um para sí. E o si denomina uma determinação de uma unicidade. Para um. O amor, portanto pode ser infinito, pois o amor não é varios ou não é um. O amor como bem querer não necessidade de cerceamento, fronteiras ou numerações. O amor, angula o nada simplesmente sendo para o todo. E não para si. O amor é doação total. Portanto, o amor, é o ato de angulação que se doa para o todo. Não há um si a fim de doar-se para uma unicidade. O amor se doa para a totalidade.
 
