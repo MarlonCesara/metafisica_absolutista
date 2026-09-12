@@ -1699,7 +1699,7 @@ A existência de um objeto no mundo fenomênico depende de sua finitude. O "ser 
 
 
 Ex: Quando o Nada se torna Absoluto e incausado, ele cria uma necessidade autocausal de "Ser", fundamentada na incorruptibilidade de sua própria intenção.
-revisado
+
 
 
 
@@ -1730,23 +1730,23 @@ revisado
 
 ## 6. O Em-Si, o Para-Si e a Infinitude do Amor
 
-**Sua proposição:** O nada não tem um "para si". A individualidade, ao perder limites, colapsa. Somente um sentimento como o amor pode ser infinito sem se anular. O amor não é "um" nem "vários", não precisa de fronteiras. O amor é a doação total e, portanto, angula o nada não para si mesmo, mas para o todo.
+**Sua proposição:** O nada não tem um "para si". A individualidade, ao perder limites, colapsa. Somente um sentimento como o amor pode ser infinito sem se anular. O amor não é "um" nem "vários", não precisa de fronteiras. O amor é a doação total e, portanto, se direciona não para si mesmo, mas para o todo.
 
-**Desenvolvimento:** A forma impõe cerceamento. Uma "pessoa" geométrica ou conceitual que se torne infinita evapora no relativo. Contudo, o amor transcende a dimensão espacial e quantitativa. Ele é um verbo, um bem-querer fundacional. Como o amor não busca aprisionar a si mesmo numa casca, ele sobrevive à infinitização. O Espírito, atuando pelo amor, não é um "Eu" egoico isolado do nada, mas a ponte que doa a totalidade, transformando o vácuo absoluto num campo de sentido.
+**Desenvolvimento:** A forma impõe cerceamento. Uma "pessoa" geométrica ou conceitual que se torne infinita evapora quando perde sua identidade. Contudo, o amor transcende a dimensão espacial e quantitativa. Ele é um verbo, um bem-querer fundacional. Como o amor não busca aprisionar a si mesmo numa casca, ele sobrevive à infinitização. O Espírito, atuando pelo amor, não é um "Eu" egoico isolado do nada, mas a ponte que doa a totalidade, transformando o vácuo absoluto num campo de sentido.
 
 
 
 ---
 
+revisado
 
 
-
-O nada, portanto, é a perca da forma que não resiste, e colapsa, não se infinitiza realmente, mas colapsa antes disso, tornando-se, nada. Já, o relativo, é a forma, não vista nem mesmo pela sua infinitização. Só é possível infinitizar a pureza, a tentativa de infinitizar o mundo determinado, colapsa. Só é possível infinitizar aquilo que não tem forma, que é pura intenção. 
+O nada , portanto, é a negação da forma que não resiste, e colapsa, não se infinitiza realmente, mas colapsa antes disso, tornando-se, uma ontologia ilógica. Já, o relativo, é a forma, não vista nem mesmo pela sua infinitização, ou é equivalente a nada ou uma copia falsa do Ser. Só é possível infinitizar a pureza, a tentativa de infinitizar o mundo determinado, colapsa. Só é possível infinitizar aquilo que não tem forma, que é pura intenção. 
 
 Portanto, a infinitização que aniquila completamente a determinação, depende de um referencial. E esse referencial precisa subsistir como sentido, imperar mediante o nada, ou o próprio recorte. Necessita ser puro até mesmo mediante ao criado, e imperativo mediante ao não existente. 
 
-O nada, portanto, existe e nele impera um amor que se doa para a totalidade.
-
+O nada, portanto, sucumbe e deixa imperar um amor que se doa para a totalidade.
+revisado
 A infinitização do determinação é o mesmo que sua indeterminação, se A depende de identidade, e essa lhe é tirada, já não é mais A, é X. Pois a existência de A, ao ser retirada de sua determinação, torna-se X.
 
 A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa no indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito.
