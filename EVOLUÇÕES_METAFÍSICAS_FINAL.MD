@@ -1740,13 +1740,12 @@ O nada, portanto, sucumbe e deixa imperar um amor que se doa para a totalidade.
 
 A infinitização do determinação é o mesmo que uma tentativa de sua indeterminação, se A depende de identidade, e essa lhe é tirada, já não é mais A, é X. Pois a existência de A, ao ser retirada de sua determinação, torna-se X.
 
+A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa numa tentativa falha de indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito de forma erronea.
+
+Não há um meio termo entre A e não A, quando se elimina a identidade de A. Se tem uma existência X, e X não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isto é a infinitude da existência determinada, o que é existência alguma. Pois não existe segundo uma pureza total e sim mediante a uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
+
+O relativo não tem ordem, não tem permanencia, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o absoluto determinado e se encontra uma ausencia de referencial.
 revisado
-A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa numa tentativa falha de indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito.
-
-Não há um meio termo entre A e não A, quando se elimina a identidade de A. Se tem uma existência X, e X não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isto é a infinitude da existência, o que é existência alguma. Pois não existe segundo uma pureza total e sim mediante a uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
-
-O relativo não tem ordem, não tem permanencia, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada, é a recusa até do próprio nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o nada absoluto e se encontra o referencial através da causalidade.
-
 Ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos, a própria estadia do Espirito, sua própria inação configura o nada. O relativo, não seria nem mesmo o nada, sem um contorno, sem o olhar do angulador. O relativo é uma realidade a ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada.
 
 Isto é, o relativo é uma indefinição, nem mesmo o recorte, e nem mesmo a totalidade infinitizada e anulada. Já o nada é uma definição que possui complexidade, pois possui uma bi dimensão.
@@ -6124,3 +6123,7 @@ Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a pa
 
 
 O universo colapsado em pura possibilidade não possui sentido intrínseco até ser "observado" ou "recortado" por uma consciência relacional. Este "Espírito Angulador" não depende do nada; pelo contrário, ele dá sentido ao espaço infinito. No Absoluto, a existência não é um acidente mecânico, mas um imperativo: Ele é sua própria causa (autocausado), movido por uma retidão inabalável em direção à vida e à plenitude. O palco de cristal da realidade passa a ser governado puramente pelo aspecto relacional do Absoluto.
+
+
+
+Quando imagainamos o nada absoluto sob a causalidade temos uma visão mais clara do Ser, o Ser que se auto causa, se faz ser, não é um existente, mas é o processo de construção de si, sem determinar um si. É o auto querer por si e o auto se fazer através da substancia do próprio querer-se.
