@@ -1579,17 +1579,23 @@ Isto é, a partir do momento que não se determina, se faz um palco onde pode at
 
 Está é a maneira mais clara de referenciar um nada existente, isto é, que é algo por ser a anulação da totalidade. E não a própria ausência de si mesmo. Este nada, supostamente poderia ser pensado. Pois guarda em si, sua contraparte, aparentemente é potencial. Porém, nada mais é do que uma tentativa falha de reduzir uma realidade determinada a um estado de pureza que ela mesma não pode atingir, pois não pode abandonar sua determinação sem deixar de se definir como realidade determinada. Imediatamente, se deixasse de ser determinada, seria o próprio Ser. Isto é, quando desabamos uma realidade determinada sobre si mesma ou não pode ser mais pensada, pois torna-se equivalente a coisa alguma, ou a confundimos com o Ser, querendo fazer com que o Ser seja produto da purificação do contingente, e não o causador do contingente. 
 
-revisado
-
 O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
-Para encontrar este angulador basta que tornemos o nada absoluto, isto é o incausado. Ao faze-lo, surgem novas propriedades para o nada.
+Para encontrar este angulador basta que investiguemos o absoluto, isto é o incausado, sem considerar nenhum nada ontológico, e nem uma existencia determinada para este. Ao faze-lo, surgem novas propriedades para absoluto.
 
-Ao considerarmos, por outro lado, um "Nada Absoluto", esse nada torna-se relacional, autocausado. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
+Ao imaginarmos o nada para absoluto, de forma que não possamos pensar nesse nada, somente no absoluto. Temos, portanto unicamente, o remanescer do aspecto relacional, absoluto é apenas auto causado, só possui o aspecto relacional. 
 
-Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
 
-Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
+Ao considerarmos, o "Absoluto" sem que o nada o seja, o absoluto torna-se relacional, autocausado. Ao imaginarmos o nada, para absoluto, isto é, o não referenciado. A completa inexistência ou de pronuncia sobre algo que possa haver da vazão ao sentido. 
+
+Ex: imaginemos que o nada existe para que abordemos de foram mais clara o aspecto relacional do absoluto a partir de uma base determinada que neutralizaremos depois, e imagine que é um nada absoluto. Porém, para que exista esse nada, é necessário um sentido. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo. Ao retirarmos a existência do nada, para absoluto, é necessário só o sentido, isto é, só o auto querer. Somente a auto determinação que se fez nada absoluto e não outra coisa. Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
+
+
+
+revisado
+
+
+Quando imaginamos o absoluto como uma realidade determinada e que poderá ser neutralizada, poderíamos analisar o aspecto relacional de forma que a imaginação capture de forma mais clara seu teor.
 
 Isto é, o mundo determinado que não resistiu a infinitização, isto é, a totalidade colapsada, existe. E existe por ela mesma. Porém, essa existencia é um palco, um espaço cristalino onde impera somente seu aspecto relacional. Isto é, o nada existe e tem um sentido em si, este sentido não advem do nada, pois o nada, nada é. Este sentido impera sem que haja qualquer poluição ou contra parte. Restando apenas o sentido e as possibilidades colapsadas pela infinitude.
 
