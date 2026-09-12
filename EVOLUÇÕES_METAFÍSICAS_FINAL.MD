@@ -1811,9 +1811,9 @@ A total liberdade não se concentra no poder de angular ou modificar uma realida
 
 O ente angulado não seria necessário, isto é, não ontologicamente feita em direção ao existir. Mas teria angulação e direcionamento ao nada ontológico, haveria uma barreira para a soberania do Ser, isto é, o Ser não seria para a infinitude, mas para uma barreira ontológica delimitada. O Ser deve estar em direção ao seu existir, e não ao nada. Não deve ser um observador do nada, mas deve ser soberano, sem que preciso agir para tal, sem que precise de um ato para estabelecer liberdade. Pois o ato sub entende causa, todo ato tem um agente. Portanto, para haver a soberania não deveria haver um ato prévio para tal. A soberania já deveria se instaurar como ato eterno, e não como pendencia de um ato de observação.
 
-revisado
+Se o Ser fosse um ente, então seu auto querer não seria para o todo, não seria puro, pois seria para si. Não seria a entrega total de si como querer. O Ser, sendo determinado, teriamos portanto o quem do amor, ou o quem do não amor. Pois acaba a necessidade de direcionamento necessário ao existir, e se da vazão a um recorte da liberdade, corruptível. 
 
-E, portanto, não pura, não para o todo, mas para si. Isto é, temos portanto o quem do amor, ou o quem do não amor. Pois acaba a necessidade de direcionamento necessário ao existir, e se da vazão a um recorte da liberdade, corruptível. 
+revisado
 
 Portanto, o amor é o próprio quem. Ao criarmos a identidade para o amor, ela seria reduzida a nada, pois seria infinitizada. Porém, ao colocarmos uma identidade na liberdade sem que retiremos sua identidade temos um existir não necessário, e que se sobressai mediante a pureza.
 
