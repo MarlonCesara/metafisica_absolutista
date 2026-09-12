@@ -1751,15 +1751,17 @@ Em uma hipótese errônea, ao tornar o relativo Absoluto, imediatamente o relati
 
 Isto é, o relativo é uma indefinição, nem mesmo o recorte, e nem mesmo a totalidade infinitizada e anulada. Já o nada em hipótese errônea seria uma definição que possui complexidade, pois possuiria uma bi dimensão. Necessitaria do Espírito e sua visão sob sua infintiização. O Espírito e sua soberania mediante as formas ainda infinitizadas não possuiria total liberdade, tendo um substrato ontológico no qual seria obrigado a operar necessariamente. 
 
-revisado
+Em uma hipotese aina erronea, o nada ontológico necessita de qualquer reação ou não reação. Simplesmente, em função do angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente se está lá. E, a inação deste, se faz nada Absoluto. O que quer dizer que, somente o angulador operando e existindo, já configura a posição do estado nadificado da possibilidade.
 
-O nada necessita de qualquer reação ou não reação. Simplesmente, em função do angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente se está lá. E, a inação deste, se faz nada Absoluto. O que quer dizer que, somente o angulador operando e existindo, já configura a posição do estado nadificado da possibilidade.
+Esta visão ainda é errônea pois ao justificarmos o Ser pela auto posição ao absoluto, isto não qualifica um nada ontológico, pelo contrário, miramos o pensamento na auto posição do Espírito sem ser necessário o pensamento numa ontologia falsa. E distraímos o vicio do pensamento em conceber um nada existente como substituto do Ser. A auto posição do Ser não produz uma matéria escura que denominamos nada, mas produz o próprio estado absoluto, o qual, evidencia a liberdade, isto é, a Liberdade do Ser ser soberano, e a liberdade da não soberania. Pois o Ser é agente do estado de soberania, tal como nega, nesse estado o estado de não soberania. É portanto, livre para ser soberano, tanto quanto para não se-lo.
 
-Isto é, se antes o relativo imperava, ao ser absolutizado, temos a presença do angulador, que define a realidade pela sua escolha e até mesmo pela sua não escolha. 
+Isto é, se antes o relativo imperava, ao ser absolutizado, temos a presença do angulador, que define a realidade pela sua escolha e até mesmo pela sua não escolha. Ou seja, o relativo não existe mais e não é necessário para justificar a criação. E nem mesmo o angulador é necessário, sendo assim, a ação da angulação não é necessária. A pura estadia do Espírito, já sub entende sua liberdade total.
 
 Ex: Se há observador, existe o observado e até mesmo o não observado. Pois o observador, mesmo de olhos fechados, enxerga o escuro. Isto é, o escuro só depende da inação do observador, não necessita que ele abra os olhos. Agora, se não existir o observador, nem mesmo o escuro existiria, pois ninguém estaria de olhos fechados. Existido o observador, basta que ele abra os olhos e verá vida.
 
-Isto quer dizer que, a presença do angulador, isto é, de liberdade no relativo, faz com que haja uma decisão necessária, dentro da liberdade, não há opção de não escolha. É preciso escolher, então a inatividade (os olhos fechados), ainda é uma escolha.
+Essa visão acima trata a realidade como uma virtualidade da visão do observador, a realidade, portanto, jamais obteria um status independente da visão.
+
+Em uma hipotese erronea teriamos que, a presença do angulador, isto é, de liberdade no relativo, faz com que haja uma decisão necessária, dentro da liberdade, não há opção de não escolha. É preciso escolher, então a inatividade (os olhos fechados), ainda é uma escolha.
 
 Desta forma, com o angulador presente, até a inação provoca uma configuração para relativo, a não escolha de formas resulta na infinitização. Ao não optar por nada, isto é, ao não escolher, se faz uma escolha. A realidade se aglutina de tal forma que, as formas permanecem homogêneas, sem definição, infinitizadas.
 
@@ -1767,15 +1769,7 @@ Ex: ao não escolher um numero, todos os números estão em suspensão. Portanto
 
 
 
-
-
-
-
-
-
-
-
-
+revisado
 
 # EM BUSCA DO ESPÍRITO - ASPECTOS RELACIONAIS DO ABSOLUTO
 
