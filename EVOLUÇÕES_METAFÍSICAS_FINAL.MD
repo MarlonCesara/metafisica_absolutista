@@ -1688,12 +1688,13 @@ Ex 2: Imagine uma pessoalidade individualizada, isto é, um Espírito individual
 Ex 3: Imagine que o nada tivesse seu em si e para si. O para si existe isoladamente. Somente o Espírito. Pois o Espírito seria o para si do nada. O Espírito não é o para si do nada, pois o nada não existe para ter um para sí. E o si denomina uma determinação de uma unicidade. Para um. O amor, portanto pode ser infinito, pois o amor não é varios ou não é um. O amor como bem querer não necessidade de cerceamento, fronteiras ou numerações. O amor, angula o nada simplesmente sendo para o todo. E não para si. O amor é doação total. Portanto, o amor, é o ato que se doa para o todo. Não há um si a fim de doar-se para uma unicidade. O amor se doa para a totalidade.
 
 ---
+
+
+O relativo se qualifica pela infinitização da possibilidade. Quando um ente determinado perde seus contornos (como uma régua infinita), ele perde sua essência (colapsa) e torna-se um não-ente, um "nada". A relativização é a retirada da forma. Se "A" perde sua determinação, torna-se "X" (o absoluto das possibilidades, ou seja, nada).
+
+A existência de um objeto no mundo fenomênico depende de sua finitude. O "ser algo" exige recortes, fronteiras e limites. Se elevarmos qualquer dimensão física ou conceitual ao infinito — seja tamanho, densidade, numerabilidade ou velocidade —, a própria categoria perde o sentido. A infinitização de um ente determinado é a sua relativização, pois a coexistência simultânea de todas as formas possíveis (a possibilidade absoluta) resulta na anulação da forma específica. É uma disformidade gerada pela sobreposição total.
+
 revisado
-## 1. A Ontologia do Nada e o Colapso pela Infinitização
-
-**Sua proposição:** O nada se qualifica pela infinitização da possibilidade. Quando um ente determinado perde seus contornos (como uma régua infinita), ele perde sua essência (colapsa) e torna-se um não-ente, um "nada". A nadificação é a retirada da forma. Se "A" perde sua determinação, torna-se "X" (o absoluto das possibilidades, ou seja, nada).
-
-**Desenvolvimento:** A existência de um objeto no mundo fenomênico depende de sua finitude. O "ser algo" exige recortes, fronteiras e limites. Se elevarmos qualquer dimensão física ou conceitual ao infinito — seja tamanho, densidade ou velocidade —, a própria categoria perde o sentido. A infinitização de um ente determinado é a sua nadificação, pois a coexistência simultânea de todas as formas possíveis (a possibilidade absoluta) resulta na anulação da forma específica. É uma disformidade gerada pela sobreposição total.
 
 > **Referências Filosóficas:**
 > * **G.W.F. Hegel (*Ciência da Lógica*):** Hegel postula que o "Ser Puro" (totalmente indeterminado) e o "Nada Puro" são exatamente a mesma coisa. O que dá vida e realidade à existência é o *Devir* (o vir-a-ser).
