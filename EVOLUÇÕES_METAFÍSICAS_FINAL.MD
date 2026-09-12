@@ -1767,16 +1767,12 @@ Desta forma, com o angulador presente, até a inação provoca uma configuraçã
 
 Ex: ao não escolher um numero, todos os números estão em suspensão. Portanto, nenhum numero aparece. 
 
-
-
-revisado
-
 # EM BUSCA DO ESPÍRITO - ASPECTOS RELACIONAIS DO ABSOLUTO
 
-Agiram, inferiremos, não mais do relativo, ou do nada como angulação ainda sem o angulador justificado. Mas iremos inferir diretamente do Absoluto, para encontrarmos o indiferenciado. Não há ainda aspectos relacionais no nada, mas há um involucro para tais aspectos em seu conceito, precisamos portanto, preencher esse involucro. E, para faze-lo, investigaremos diretamente o conceito de absoluto para encontrarmos qualquer aspecto relacional no mesmo. Isto é, buscaremos o Espírito, o que é necessário para haver um absoluto. Ao encontrarmos, podemos encontrar o angulador para o nada. Isto é, podemos completar a hipótese da infinitude da possibilidade com a segunda parte que precisamos para justificar o nada e a criação: o angulador.
+Agora, inferiremos, não mais do relativo, ou do nada como angulação ainda sem o angulador justificado. Mas iremos inferir diretamente do Absoluto, para encontrarmos o indiferenciado. Não há ainda aspectos relacionais no nada, mas há um involucro para tais aspectos em seu conceito, precisamos portanto, preencher esse involucro. E, para faze-lo, investigaremos diretamente o conceito de absoluto para encontrarmos qualquer aspecto relacional no mesmo. Isto é, buscaremos o Espírito, o que é necessário para haver um absoluto. Ao encontrarmos, podemos encontrar o angulador para o nada. Isto é, podemos completar a hipótese da infinitude da possibilidade com a segunda parte que precisamos para justificar o nada e a criação: o angulador.
 
 Precisamos encontrar o Espírito do Absoluto, e, se antes exploramos pela escassez (nada), agora exploraremos pela abundancia. Vamos inferir diretamente sob tudo que há, sob a totalidade não somente do existente, mas do indiferenciado. Vamos abordar em via direta, através do Absoluto. Consideraremos todos os aspectos para que haja o absoluto, mesmo que ainda não formalizada sua substancia indiferenciada.
-
+revisado
 O Absoluto é o próprio indiferenciado. Não há outra forma de considerarmos o desencadear dos fenômenos se não por uma fonte pura, existente e Absoluta. Portanto, investigaremos diretamente pelo Absoluto, o considerando, desde já, uma investigação sob o indiferenciado, tendo como falha a investigação do nada como tentativa de explicar o incausado, pois o nada carece do indiferenciado atribuído de certas aspectos como o poder de angulação.
 
 No absoluto indiferenciado, lembremos que não a substancia nem não substancia para ser explorada. Não há nada mais, portanto, do que explorar seus aspectos relacionais. Em busca da presença, do Espírito ou da pureza.
@@ -1795,7 +1791,6 @@ Isto é, nada é o produto de um angulador, tal como a matéria. Ambos, se reite
 
 Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E dessas duas faces deduzimos o criador ou o angulador. Agora, exploraremos diretamente o indiferenciado a titulo de Espírito. Isto é, não exploraremos a matéria ou o nada, mas puramente o aspecto auto causal, a intencionalidade, pessoalidade, temporalidade do Espírito e outros fatores relacionais. Exploraremos o Espírito, de forma que, não seja algo que se detecte como o fenômeno, mas algo que se deduza.
 
-dddd
 
 ### **O quem do querer do Absoluto**
 
@@ -1829,11 +1824,6 @@ O amor doa sua observação, seu dominio, sua presença, pois são translucidas.
 
 
 
-
-
-
-
-investigar
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
