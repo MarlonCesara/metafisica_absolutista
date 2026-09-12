@@ -12022,3 +12022,6 @@ O niilista sente um desespero introvertido, um choro engolido, uma grande impass
 **Sua proposição:** O pecado é um ato contra a plenitude. Uma postura interior contrária à existência e à vida. Quando o desejo pela plenitude é reprimido, ele se distorce em obsessões ou no ódio contra o que é bom, tornando a própria felicidade dolorosa para o agente do pecado.
 
 **Desenvolvimento:** O pecado não é meramente uma infração moral, mas um colapso ontológico. É a vontade deliberada de nadificação. Quando um ser recusa o Espírito Fundamentador, ele se volta contra a sua própria estrutura vital. A repressão dessa intencionalidade fundamental não apaga a energia vital, mas a perverte (ex: materialismo obsessivo ou cinismo). A bondade exterior passa a ofender o indivíduo adoecido, provocando nele a necessidade de destruir ou ridicularizar o belo e o justo, pois estes espelham sua própria falência interior.
+
+
+O niilista nao aguentando o peso da própria decisão, não assume a responsabilidade por sua decisão e torna-se um pedinte de valor do outro, por isso provoca uma sociedade de trabalhos exaustivos e forçados.
