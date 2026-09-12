@@ -1776,19 +1776,21 @@ Precisamos encontrar o Espírito do Absoluto, e, se antes exploramos pela escass
 O Absoluto é o próprio indiferenciado. Não há outra forma de considerarmos o desencadear dos fenômenos se não por uma fonte pura, existente e Absoluta. Portanto, investigaremos diretamente pelo Absoluto, o considerando, desde já, uma investigação sob o indiferenciado, tendo como falha a investigação do nada como tentativa de explicar o incausado, pois o nada carece do indiferenciado atribuído de certas aspectos como o poder de angulação.
 
 No absoluto indiferenciado, lembremos que não a substancia nem não substancia para ser explorada. Não há nada mais, portanto, do que explorar seus aspectos relacionais. Em busca da presença, do Espírito ou da pureza. Pois ainda não conseguimos encontrar uma substancia valida que não seja determinada, portanto, por isto se justifica dizer que não há substancia e nem não substancia para absoluto, mas somente seus aspectos relacionais.
-revisado
-Não buscaremos uma pessoalidade, uma entidade, mas buscamos até mesmo algo mais puro que isso, como já referenciado antes. Buscamos a forma como o absoluto se relaciona consigo e com a própria possibilidade e sua infinitude.
+
+Não buscaremos um ente, uma entidade, mas buscamos até mesmo algo mais puro que isso, como já referenciado antes. Buscamos a forma como o absoluto se relaciona consigo e com a própria determinação e sua infinitude.
 
 Ainda não sabemos a substancia absoluta, embora sabemos que ela, de certa forma, pode preencher a lacuna do angulador. No entanto, consideremos a substancia sinônimo de Absoluto. E investiguemos essa substancia, ainda que não sabemos especificadamente sua natureza, a definamos sob a luz de causalidade. Sabemos, somente o que não é, não é o nada, e não é o fenômeno. Portanto, busquemos o Absoluto, que o que chamamos de Espírito, nomenclatura que é resultado da segregação do fenômeno e do nada em prol de um termo que designe uma realidade pura. Invisível, mas reativa, acionária e eficaz. 
 
-Isto é, buscaremos não pela fenomenologia, mas pela relacionalidade, deduzindo desde ja, que considerar a substancia para Espírito ou para Absoluto, é o mesmo que consideramos na totalidade e no nada. Isto é, já temos o relativo, agora precisamos, de aspectos relacionais para conclui-lo. O ato da angulação, portanto, pode ser um aspecto relacional. 
+Isto é, buscaremos não pela fenomenologia, mas pela relacionalidade, deduzindo desde ja, que considerar a substancia para Espírito ou para Absoluto, é o mesmo que consideramos na totalidade e no nada. Isto é, já temos o relativo, agora precisamos, de aspectos relacionais para conclui-lo. O ato da angulação, portanto, pode advir de um aspecto relacional do absoluto, que aciona a angulação. 
+
+Embora o conceito de angulação esteja errôneo, seguiremos por essa linha de raciocino para figurar o conceito relacional sem o agente, usando as tentativas mais próximas de conceber o nada como algo.
 
 Portanto, agora, buscaremos o que está para além do nada e da totalidade, buscamos uma substancia Espiritual, algo que a faça subsistir, um ângulo de visão, ou qualquer coisa que a de um aspecto de ângulo, qualquer coisa que a defina para longe de si mesma. Isto é, buscamos o sentido na totalidade, buscamos um propósito, consciência, visão ou presença na própria totalidade, para finalmente darmos sentido ao nada.
 
 Portanto, ao explorarmos o nada, até agora usamos a mesma forma de dedução através da fenomenologia, se há algo criado, logo, há uma realidade criadora e incausada. A analise do nada, não foi um argumento diferente, ainda, para o nada, é preciso um sentido, tal como para a matéria. O nada precisa do angulador, tal como a matéria precisa da ação do angulador. 
 
-Isto é, nada é o produto de um angulador, tal como a matéria. Ambos, se reiteram e afirmam de forma categórica a necessidade de um aspecto para além do mundo material para explanar, a criação e até mesmo a não criação.
-
+Isto é, nada é o produto de um angulador, tal como a matéria. Ambos, se reiteram e afirmam de forma categórica a necessidade de um aspecto para além do mundo material para explanar, a criação e até mesmo a não criação. Pois, segundo a hipotese da angulação, até a auto posição do Espírito necessita ser justificada, isto é, é um produto de sua angulação.
+revisado
 Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E dessas duas faces deduzimos o criador ou o angulador. Agora, exploraremos diretamente o indiferenciado a titulo de Espírito. Isto é, não exploraremos a matéria ou o nada, mas puramente o aspecto auto causal, a intencionalidade, pessoalidade, temporalidade do Espírito e outros fatores relacionais. Exploraremos o Espírito, de forma que, não seja algo que se detecte como o fenômeno, mas algo que se deduza.
 
 
