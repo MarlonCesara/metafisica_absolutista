@@ -1790,13 +1790,14 @@ Portanto, agora, buscaremos o que está para além do nada e da totalidade, busc
 Portanto, ao explorarmos o nada, até agora usamos a mesma forma de dedução através da fenomenologia, se há algo criado, logo, há uma realidade criadora e incausada. A analise do nada, não foi um argumento diferente, ainda, para o nada, é preciso um sentido, tal como para a matéria. O nada precisa do angulador, tal como a matéria precisa da ação do angulador. 
 
 Isto é, nada é o produto de um angulador, tal como a matéria. Ambos, se reiteram e afirmam de forma categórica a necessidade de um aspecto para além do mundo material para explanar, a criação e até mesmo a não criação. Pois, segundo a hipotese da angulação, até a auto posição do Espírito necessita ser justificada, isto é, é um produto de sua angulação.
-revisado
-Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E dessas duas faces deduzimos o criador ou o angulador. Agora, exploraremos diretamente o indiferenciado a titulo de Espírito. Isto é, não exploraremos a matéria ou o nada, mas puramente o aspecto auto causal, a intencionalidade, pessoalidade, temporalidade do Espírito e outros fatores relacionais. Exploraremos o Espírito, de forma que, não seja algo que se detecte como o fenômeno, mas algo que se deduza.
 
+Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E dessas duas faces deduzimos o criador ou o angulador. Agora, exploraremos diretamente o indiferenciado a titulo de Espírito. Isto é, não exploraremos a matéria ou o nada, mas puramente o aspecto auto causal, a intencionalidade, pessoalidade, temporalidade do Espírito e outros fatores relacionais. Exploraremos o Espírito, de forma que, não seja algo que se detecte como o fenômeno, mas algo que se deduza.
 
 ### **O quem do querer do Absoluto**
 
-A inclinação a vida, o bem querer, o bem é o desejo pela vida. Pelo existir. Pela luz. Deus é o puro bem querer, é o puro amor. Este desejo é puramente Espiritual. Portanto, o fundamentador tem o puro desejo da fundamentação, o plenificador o puro desejo da plenitude, e o personalizador o puro desejo da personalização rumo a plenitude. Ambos são selados pelo Espírito, de forma que ambos manifestam o Espírito que é o dom da plenitude, do existir, do Ser por querer, e por não poder Não Ser, por não poder não amar. Sua rendição ao ser é perfeição e não prisão. 
+A inclinação a vida, o bem querer, o bem é o desejo pela vida. Pelo existir. Pela luz. O Ser é o puro bem querer, é o puro amor. Este desejo é puramente Espiritual. Portanto, o fundamentador tem o puro desejo da fundamentação, o plenificador o puro desejo da plenitude, e o personalizador o puro desejo da personalização rumo a plenitude. Ambos são selados pelo Espírito, de forma que ambos manifestam o Espírito que é o dom da plenitude, do existir, do Ser por querer, e por não poder Não Ser, por não poder não amar. Sua rendição ao ser é perfeição e não prisão. 
+
+revisado
 
 Ao nos perguntar quem é o quem do querer, isto é, ao determinarmos o bem querer em um ângulo do bem querer, temos um recorte no querer. Uma angulação da liberdade. Ao angularmos a liberdade, não temos mais a pureza instaurada nesta angulação. Pois ao tornar a liberdade individual, isto é, ao estabelecer o quem do bem querer, o quem do puro amor, ao chamarmos o amor de um individuo, e não de apenas querer, temos uma liberdade criada. Não necessária, isto é, não ontologicamente feita em direção ao existir.
 
