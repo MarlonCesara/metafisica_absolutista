@@ -1007,6 +1007,8 @@ Assim, delimitamos a diferença entre o nada potencial nomeável e o **nada inom
 
 Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Desta forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
 ===============================
+
+revisar
 ### O processo da indiferenciação e nadificação do determinado
 
 Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro processo pelo qual se tenta negar o diferenciado. Isto é, há um prcesso pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existencia e identidade das coisas na tentativa de alcançar a pureza ou ate mesmo o nada potencial.
@@ -1825,24 +1827,46 @@ O Espírito do Absoluto não é determinado, não repousa num "Quem", ou em um s
 
 É o fundo de toda a realidade, é a infinitude do horizonte da vida. O Amor é para a totalidade infinita e para a totalidade determinada. O amor é para a totalidade, ou seja, vivo em si mesmo, e para o que é criado do nada. O bem querer não é de alguém, ou só para alguém, não é o para si de um ente, é o para si do nada. Isto é, o para si soberano, que não tem o si, mas é para tudo. Isto é o para si em si mesmo, sem um objeto, sem seu em si, mas em seu para si autonomo é operante no papel de seu em si. É o próprio amor desimpedido de si mesmo, livre de um si, para se doar ao todo.
 
-revisado
-
-É o amor que não se esbarra num quem no qual fica internizado. É a consciência que não se esbarra numa determinação, num ente contável, mas é a mas é a consciência que é bem querer translucido à qualquer determinação.
+É o amor que não se esbarra num quem no qual fica internizado. É a consciência que não se esbarra numa determinação, num ente contável, mas é a consciência que é bem querer translucido à qualquer determinação.
 
 Deus não está observando A, mas observa nada, no sentido de que o A se dissolveu e só sobrou o amor, não mais o observador. Isto é, se Deus é um ente que se auto domina, esta presente em si mesmo, e se conhece, este ente se dissolveu. Sobrou sua ação Espiritual, e essa ação espiritual reta agora o define, e este ente passa a se chamar amor.
 
-O amor não vê, é a visão. O amor não domina, é o domínio, o amor não tem presença, é a própria presença. Pelos olhos do amor se vê, pelo amor se auto domina, e pelo amor se está presente em si. 
-
-Portanto, os atributos da liberdade, são dissipados de um possuidor, são doados ao todo, de forma que, não se fazem o sujeito, mas se fazem a infinização da individualização que colapsou em forma, mas sobreviveu sendo tudo através da intenção. E por essa intenção de bem querer infinita, encontrou um nome para si: o amor.
-
-Os atributos, portanto, não há mais quem vê, quem domina e quem é presente, esses atributos se diluem e tornam-se substantivos. Tornam-se uma coisa só: o amor. 
-
-O amor observa, domina, e é presente de forma doada. Doa sua entrega ao todo, é transparente a todas as coisas determinadas devido a sua pureza, é instaurado no que é. É a pessoalidade pura, aquela que foi refinada ao ponto de transpassar qualquer coisa. 
-
-O amor doa sua observação, seu dominio, sua presença, pois são translucidas.
+O amor não vê, é a visão. O amor não domina, é o domínio, o amor não tem presença, é a própria presença. Pelos olhos do amor se vê, pelo amor se auto domina, e pelo amor se está presente em si. Portanto o agente deixa de agir para que a ação se faça agente, isto é, o Ser deixa de existir para que só reste o seu querer por si, que se faz sua substancia. O Ser é o ato de construção de si, é o querer por si, o fazer-se, e não o agente ou quem da construção de si, o quem do querer ou o algo do fazer-se.
 
 
-Ao  retiremos sua identidade temos um existir não necessário, e que se sobressai mediante a pureza.
+
+Portanto, os atributos do Ser, são dissipados de um possuidor, são doados ao todo, de forma que, não se fazem o sujeito, mas se fazem a infinização da individualização que colapsou em forma, mas sobreviveu sendo tudo através da intenção. E por essa intenção de bem querer infinita, encontrou um nome para si: o amor. O amor é o Ser que abandonou a si, e se fez seu abandono, e o nome desse abandono é o amor.
+
+
+Os atributos, portanto, não há mais quem vê, quem domina e quem é presente, o quem dos atributos se dilue e tornam-se vago. O Ser tornam-se uma coisa só: o amor. O amor observa, domina, e é presente de forma doada. Doa sua entrega ao todo, é transparente a todas as coisas determinadas devido a sua pureza, é instaurado como aquilo que é. É a pessoalidade pura, aquela que foi refinada ao ponto de transpassar qualquer coisa. O amor doa sua observação, seu dominio, sua presença, pois são translucidas.
+
+O amor não é mais consciente, mas se faz consciência do consciente. O amor não é mais dominante, mas se faz o próprio domínio. 
+
+revisado
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
@@ -2083,7 +2107,7 @@ Para que uma realidade se autodetermine, ela precisa, necessariamente:
 
 Somente uma realidade que reúne **autoconhecimento, autodomínio e autopresença total** pode verdadeiramente fundar-se a si mesma. Essa tríade de atributos é justamente o que caracteriza uma **pessoalidade plena** – um Espírito que é, ao mesmo tempo, sujeito, ato e fundamento de sua própria existência. Em vias mais claras, para que uma realidade se autogoverne, essa realidade necessariamente deve conhecer-se para eleger uma determinação, autodominar-se para realizar o movimento da determinação e ter autopresença para que seja uma realidade viva em si mesma, pois se não estivesse presente na totalidade de si, não poderia determinar-se por inteira.
 
-## 9.3 O Absoluto como Presença Autofundante
+##O Absoluto como Presença Autofundante
 O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico estático, mas uma **atividade autofundante** que contém em si os princípios de:
 
 1.  **Auto-manifestação** (existência por si mesma, não derivada).
@@ -2150,9 +2174,6 @@ A tentativa de fundamentar a realidade revela que o não fenômeno ou o campo fe
 Esta análise demonstra de forma inequívoca que a autocausalidade pura exige personalidade: não pode haver autocausalidade sem autoconhecimento, autodomínio e autopresença. O Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto). A noção de Espírito capta melhor esta realidade que conceitos impessoais, abstrações vazias ou metáforas físicas.
 
 Portanto, a autocausalidade nos conduz necessariamente à concepção do Absoluto como **Espírito Pessoal** - realidade viva, consciente e livre que fundamenta toda a existência.
-
-> *"Deus é Espírito; e importa que os que o adoram o adorem em espírito e em verdade."*
-> — João 4:24
 
 ---
 
