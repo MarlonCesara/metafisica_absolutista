@@ -1725,8 +1725,6 @@ Ex: Quando o Nada se torna Absoluto e incausado, ele cria uma necessidade autoca
 > **Referências Científicas (Física Teórica):**
 > * **O Princípio Holográfico (Gerard 't Hooft e Leonard Susskind):** Esta teoria postula exatamente a sua ideia. Quando a matéria cai num buraco negro (colapsando na singularidade infinita), a *informação* sobre essa matéria fica "impressa" ou "gravada" na superfície bidimensional do buraco negro (o Horizonte de Eventos).
 > * **O Paradoxo da Informação (Stephen Hawking):** Hawking sugeriu inicialmente que o buraco negro apagava a existência da matéria para sempre. Mais tarde, a física teórica concordou com a sua intuição: a massa e a informação do que colapsou não somem, mas permanecem como uma "memória" que o espaço-tempo continua a ler através da gravidade.
-> 
-> 
 
 ## 6. O Em-Si, o Para-Si e a Infinitude do Amor
 
@@ -1734,22 +1732,16 @@ Ex: Quando o Nada se torna Absoluto e incausado, ele cria uma necessidade autoca
 
 **Desenvolvimento:** A forma impõe cerceamento. Uma "pessoa" geométrica ou conceitual que se torne infinita evapora quando perde sua identidade. Contudo, o amor transcende a dimensão espacial e quantitativa. Ele é um verbo, um bem-querer fundacional. Como o amor não busca aprisionar a si mesmo numa casca, ele sobrevive à infinitização. O Espírito, atuando pelo amor, não é um "Eu" egoico isolado do nada, mas a ponte que doa a totalidade, transformando o vácuo absoluto num campo de sentido.
 
-
-
----
-
-revisado
-
-
 O nada , portanto, é a negação da forma que não resiste, e colapsa, não se infinitiza realmente, mas colapsa antes disso, tornando-se, uma ontologia ilógica. Já, o relativo, é a forma, não vista nem mesmo pela sua infinitização, ou é equivalente a nada ou uma copia falsa do Ser. Só é possível infinitizar a pureza, a tentativa de infinitizar o mundo determinado, colapsa. Só é possível infinitizar aquilo que não tem forma, que é pura intenção. 
 
 Portanto, a infinitização que aniquila completamente a determinação, depende de um referencial. E esse referencial precisa subsistir como sentido, imperar mediante o nada, ou o próprio recorte. Necessita ser puro até mesmo mediante ao criado, e imperativo mediante ao não existente. 
 
 O nada, portanto, sucumbe e deixa imperar um amor que se doa para a totalidade.
-revisado
-A infinitização do determinação é o mesmo que sua indeterminação, se A depende de identidade, e essa lhe é tirada, já não é mais A, é X. Pois a existência de A, ao ser retirada de sua determinação, torna-se X.
 
-A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa no indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito.
+A infinitização do determinação é o mesmo que uma tentativa de sua indeterminação, se A depende de identidade, e essa lhe é tirada, já não é mais A, é X. Pois a existência de A, ao ser retirada de sua determinação, torna-se X.
+
+revisado
+A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa numa tentativa falha de indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito.
 
 Não há um meio termo entre A e não A, quando se elimina a identidade de A. Se tem uma existência X, e X não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isto é a infinitude da existência, o que é existência alguma. Pois não existe segundo uma pureza total e sim mediante a uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
 
