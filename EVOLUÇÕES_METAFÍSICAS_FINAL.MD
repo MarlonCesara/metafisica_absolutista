@@ -1591,16 +1591,16 @@ Como exemplo, imaginemos que o nada existe para que abordemos de foram mais clar
 
 A auto causalidade no nível indiferenciado, já não distingue causa da identidade de causa da existência, a causa é a mesma para ambas as situações que estão unidas no ser. Isto é, na pureza. Portanto, temos que, ao retirar o nada absoluto que nos ajudou a pensar, sobra somente o absoluto com o aspecto relacional sem o objeto ao qual se relacionaria que seria o nada.
 
+O nada absoluto, auto causal, é um nada que causa o próprio existir, que é intenção de Ser, e ao eliminarmos o nada, que é uma realidade falsa, determinada, temos somente a intenção de Ser. Precisamos imaginar o nada ontológico, para imaginar de forma mais clara um aspecto relacional no nada, nada que, mais tarde, sucumbirá e deixará o puro amor para Absoluto.
 
-
-revisado
-
+Isto é, a auto causalidade aparece soberana, sem que seja portado por uma realidade determinada, sem que um ente se faça a si mesmo, pois alguém teria que determinar este ente antes que ele existisse. Portanto, só a a pureza do amor, que é consumação de todas as coisas. Que pode ser infinito.
 
 Quando imaginamos o absoluto como uma realidade determinada e que poderá ser neutralizada, poderíamos analisar o aspecto relacional de forma que a imaginação capture de forma mais clara seu teor.
 
 Isto é, o mundo determinado que não resistiu a infinitização, isto é, a totalidade colapsada, existe. E existe por ela mesma. Porém, essa existencia é um palco, um espaço cristalino onde impera somente seu aspecto relacional. Isto é, o nada existe e tem um sentido em si, este sentido não advem do nada, pois o nada, nada é. Este sentido impera sem que haja qualquer poluição ou contra parte. Restando apenas o sentido e as possibilidades colapsadas pela infinitude.
 
 Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
+
 
 Quando adentramos nos aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas.
 
@@ -1654,7 +1654,9 @@ Assim, a distinção entre essas três dimensões não seria uma simples divisã
 
 O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.  
 
+Imaginar o Ser como uma realidade ontológica falsa que chamaremos de nada, ajuda a visualizado como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginar o Ser como nada Absoluto, temos uma realidade aparentemente determinada e pura para exercer a auto causalidade e depois, basta que extraímos essa realidade ilógica, e fiquemos somente com a pura substancia do Ser.
 
+revisado
 
 Porque os entes não resistem a infinitização? O ente determinado colapsa ao ser infinitizado, porém, ao deixarmos um fragmento fenomenico, isto ainda não fará sentido, pois até o fragmento sem determinação, é uma determinação de fragmento. É algo. Tudo que é algo é um algo, ou é formatado conforme a si mesmo. Para o ente ter sua essencia fundida a determinação, precisa ser completamente puro. Necessita que seu resquicio de fundamentação seja, não a parte que resta sem determinação, pois a parte da fundamentação sem sua determinação, na verdade, não existe.
 
