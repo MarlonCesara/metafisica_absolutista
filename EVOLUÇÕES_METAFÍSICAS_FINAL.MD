@@ -1813,9 +1813,11 @@ O ente angulado não seria necessário, isto é, não ontologicamente feita em d
 
 Se o Ser fosse um ente, então seu auto querer não seria para o todo, não seria puro, pois seria para si. Não seria a entrega total de si como querer. O Ser, sendo determinado, teriamos portanto o quem do amor, ou o quem do não amor. Pois acaba a necessidade de direcionamento necessário ao existir, e se da vazão a um recorte da liberdade, corruptível. 
 
-revisado
+Portanto, o amor é o próprio quem. Ao criarmos a identidade para o amor, ela seria reduzida a nada, pois seria infinitizado. Podemos fazer a linha inversa, tentar transformar o amor em uma identidade única, porém, este recorte o tiraria os traços de pureza total. 
 
-Portanto, o amor é o próprio quem. Ao criarmos a identidade para o amor, ela seria reduzida a nada, pois seria infinitizada. Porém, ao colocarmos uma identidade na liberdade sem que retiremos sua identidade temos um existir não necessário, e que se sobressai mediante a pureza.
+E ao colocarmos uma identidade na liberdade, temos uma não liberdade. Isto é, qualquer coisa que se refira ao nada como liberdade, aprisiona essa liberdade num nada ontológico como campo de ação.
+revisado
+sem que retiremos sua identidade temos um existir não necessário, e que se sobressai mediante a pureza.
 
 Está liberdade tem um aspecto diagonal completo, pois o Espírito do Absoluto não pode não amar. Então se tem o homem. Uma determinação da liberdade. O que será estudado mais tarde, porém, aqui, serve como exemplificação da definição do Espírito. 
 
