@@ -306,153 +306,187 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 **Proposição demonstrada:** O horizonte metafísico total contém três domínios irredutíveis: o Possível (realidade estruturada e coerente), o Impossível (limite lógico interno) e o Incognoscível (transcendência radical). Esta estrutura não representa uma limitação, mas uma plenitude integral — o cognoscível revela o que pode ser conhecido racionalmente, enquanto o incognoscível mantém aberto o horizonte para o que só pode ser acessado por vias não-discursivas.
 
----
+### O FUNDAMENTO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL
 
-### A NECESSIDADE DE UM FUNDAMENTO ABSOLUTO
+#### A Necessidade Lógica de um Fundamento Absoluto
 
-A investigação metafísica, guiada pelos princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** – a categoria primordial que representa o limite último da razão e o horizonte final de todo conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não só unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais do que pode ser pensado.
+A investigação metafísica, guiada por princípios lógicos e causais, culmina necessariamente no conceito de **Absoluto** — a categoria primordial que representa o limite último da razão e o horizonte final de todo o conhecimento filosófico. Como instância suprema de inteligibilidade, o Absoluto não apenas unifica todos os níveis da realidade, desde suas raízes ontológicas até suas manifestações fenomenológicas, mas também define os próprios parâmetros transcendentais daquilo que pode ser pensado.
 
-A análise do Absoluto exige o mapeamento preciso dos domínios do pensável e do existente. Esses domínios são definidos por sua relação com os princípios lógicos estabelecidos, formando a estrutura básica de toda a realidade cognoscível. O Absoluto se sintetiza, mediante o pensamento filosófico, com base em duas vias de reflexão: a lógica e a ilógica. Por meio dessas vias, é possível inferir o Absoluto como a totalidade, englobando aquilo que há e o que não há. Ele refere-se ao que "está", ao estado — ou não-estado — primordial.
+A análise do Absoluto exige um mapeamento preciso dos domínios do pensável e do existente. Esses domínios, definidos por sua relação com os princípios lógicos, formam a estrutura básica de toda a realidade cognoscível. A apreensão filosófica do Absoluto consolida-se por meio de duas vias de reflexão: a lógica e a ilógica. Através delas, é possível inferir o Absoluto como a totalidade que engloba o que há e o que não há, referindo-se ao estado — ou não-estado — primordial.
 
-O Absoluto é inferido a partir dos princípios causais e da necessidade lógica de uma Primeira Causa. É neste ponto que a definição se consolida: **o incausado não pode ter uma causa anterior, não possui uma causa externa e não carece de um motivo ou razão pela qual devesse ser tal como é, senão em si mesmo. Essa autossuficiência radical é o que define o Absoluto, pois, nessa instância primordial, não existiria absolutamente nada mais além dele para determiná-lo ou originá-lo.**
+**O Absoluto é inferido a partir dos princípios causais e da necessidade lógica de uma Primeira Causa. É neste ponto que sua definição se estabelece: o incausado não pode derivar de uma causa anterior, não possui causa externa e não carece de um motivo ou de uma razão de ser que não resida em si mesmo. Essa autossuficiência radical é o que define o Absoluto, pois, nessa instância primordial, não há absolutamente nada além dele que o determine ou origine.**
 
-A aplicação regressiva destes princípios conduz necessariamente à postulação de um **Fundamento Absoluto** que:
-1.  **Existe por si mesmo** (satisfaz as causas existenciais sem exigir causa anterior)
-2.  **É identicamente si mesmo de modo necessário** (satisfaz as causas identitárias sem depender de determinação externa)
-3.  **É a causa sustentadora de toda existência e identidade contingente**
+A aplicação regressiva desses princípios conduz, necessariamente, à postulação de um **Fundamento Absoluto** que:
 
-Portanto, o Absoluto é o significado de uma realidade sem causa antecedente ou exterior. Esses são os atributos indissociáveis da última causa.
+1. **Existe por si mesmo** (satisfazendo as causas existenciais sem exigir uma causa antecedente).
+2. **É identicamente si mesmo de modo necessário** (satisfazendo as causas identitárias sem depender de determinações externas).
+3. **É a causa sustentadora de toda a existência e de toda identidade contingente.**
+4. **É indiferenciado, no sentido de que sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem absolutamente, de modo que não há em seu interior qualquer distinção que rompa sua pureza fundamental.**
+5. **É causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
 
----
+#### Síntese da Inferência Direta sobre a Natureza do Ser
 
-# A SUBSTÂNCIA ABSOLUTA
+Sendo o Absoluto causa de si mesmo — e dada a sua natureza indiferenciada —, ele não pode ser definido por uma substância determinada. Sua substância é, na verdade, a sua própria capacidade de se autocausar. Portanto, ao causar a si mesmo, o Absoluto torna-se a sua própria ação criadora: ele não é o "causado", mas o "causar". E o fim último dessa ação causal é uma substancia pura: o inefável. Na ausência de um ente previamente determinado, o que existe é a pura ação de causar. É isto que define o Ser.
 
-A tradição teológica frequentemente concebe a substância de uma realidade incausada por meio da pureza incausada ou, em termos mais rigorosos, através da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causa.
+Em outras palavras, o Absoluto se auto causa, não havendo substancia prévia determinada, há o ato de auto causar. O ato de se fazer Ser sem um ente que se faça determinado em uma forma pura por este ato. Isto é, há o "se fazer Ser", e não o "feito ser". Desta forma, o próprio fundamento é o ato de fundar-se. Auto causar-se, significa auto fazer-se, auto criar-se. Havendo, portanto, somente o ato de realizar-se sem o realizado. Sendo o ato de realizar-se já o realizado puro. 
 
-Para que o cosmos causado exista, exige-se uma realidade puríssima, que dispense propriedades contingentes e determinações prévias; ou seja, o incausado deve possuir primazia ontológica e eficácia causal, constituindo-se como o fundamento último sem o qual a explicação da realidade vigente permanece incompleta.
+À primeira vista, este raciocínio é simples: não havendo uma substância material prévia para o Absoluto, o próprio Ser se faz substância; isto é, o princípio autocausal assume o papel de substância. Desse raciocínio, infere-se também a intenção dessa substância, que se direciona de forma irremediável para o existir.
 
-Portanto, a este incausado ontológico — a realidade cuja existência é tão pura que sua determinação se funde à sua própria fundamentação — damos o nome de "Ser". Trata-se de uma realidade que não pode ser categorizada como "A" ou "B"; sua identidade é o seu próprio ato de existir. Nesse sentido, onde a identidade do existente coincide plenamente com a existência, o Ser emerge como o signo de sua própria auto-fundamentação. O incausado ontológico que justifica o causado é necessariamente simples e desprovido de delimitações conceituais: sua essência é o seu próprio fundamento, o *ipsum esse subsistens*.
+Dessa intenção primordial, desdobram-se três ações distintas:
+O Absoluto converge para a sua própria existência plena (pois é todo de si) e converge para a sua autoposição como uma escolha que nega todas as demais. Em um horizonte de infinitas escolhas igualmente convergentes para a plenitude, manifesta-se aquela que reflete a tendência pessoal do Absoluto. Podemos classificar essas ações da seguinte forma:
 
-O inefável, por definição, dispensa propriedades e transcende qualquer predicação. Se um princípio carece de delimitações qualitativas, acidentais ou essenciais, não há nele nenhuma "balança ontológica" que precise ser inclinada por um agente externo. Ele simplesmente é, imune à exigência de uma *ratio sufficiens* (razão suficiente) heterônoma.
+**Ação fundamentadora (Vertical):** Direciona-se ao simples fato de existir como Ser.
 
-Nesta etapa de nossa investigação, o objetivo consiste em dissecar a natureza exata desse estrato inefável, testando se os conceitos tradicionalmente invocados como absolutos podem, em última instância, sustentar e definir a arquitetura do incausado.
+**Ação plenificadora (Diagonal):** É o direcionamento constante para o Ser, envolvendo a decisão dualística fundamental entre o Ser e o não-Ser. Essa ação plenificadora está presente tanto no ato de Ser fundamental quanto no ato de personalização. Isso ocorre porque o Ser concorre sempre para o Ser (e não para o não-Ser), e a personalização, por sua vez, escolhe opções que estão invariavelmente alinhadas com o Ser, visto que é impossível agir a partir do não-Ser.
 
-Embora haja uma inferência direta que postula o incausado a partir do causado — revelando uma realidade pura onde determinação e fundamentação se diluem no "Ser" —, essa dedução imediata não elucida como essa realidade existe de maneira necessária e absoluta, tampouco de que modo ela opera como Gênese de toda a realidade vigente. A proposta desta obra é investigar a arquitetura metafísica proveniente do Ser, iniciando metodologicamente pela arqueologia do conceito de Nada e culminando na investigação de como o Ser absoluto desencadeia a totalidade dos fenômenos.
+**Ação personalizadora ou da liberdade (Horizontal):** Além de perpassar a diagonalidade, abre-se para uma vastidão de opções, garantindo a manifestação da liberdade de escolha.
 
-## A indistinção ontológica entre o Ser e o Nada na metafísica clássica
+Na esfera atemporal, o Ser atua como pura intenção que se faz substância, ente e ato (e não o mero resultado determinado do ato). Essa intenção não possui caráter espacial ou dimensional, desvinculando-se de qualquer limitação quantitativa.
+
+Para ilustrar: o amor pode ser infinito, mas uma realidade física e dimensional não pode, pois o devir dessa realidade deixaria de existir. Quando estendemos as dimensões de um objeto material ao infinito, ele perde seus contornos e deixa de ser concebido como objeto — ocorre um colapso de sua identidade. No entanto, para o "autoquerer" (o amor) do Absoluto, não há necessidade de colapso por infinitização.
+
+Isso significa que, se o amor possui todo o tempo, esse tempo está presente em toda a sua extensão infinita sem entrar em colapso. Se o amor fosse uma sequência (A, B, C...), nenhuma dessas letras colapsaria; todas estariam plenamente presentes para que a ação personalizadora atuasse em seu próprio tempo. 
+
+Em relação a questão da intencionalidade, a necessidade de existir do Ser não é um mecanismo cego ou obrigatório. Sendo intencional, ela é fruto da perfeição e da liberdade, não de uma imposição.
+
+Quanto à questão da criação, o Absoluto não cria a partir de uma matéria pré-existente, mas pelo fato de não possuir limitações ontológicas sobre o que pode ou deve existir. Não existe um "campo de ação" chamado nada no qual o Absoluto precise atuar para transformar algo em realidade. Ao estabelecer a autoposição do Espírito (causada por ele mesmo), essa mesma dinâmica lhe confere a capacidade de não permanecer em uma autoposição solitária. Ou seja, o Espírito é livre para abdicar da exclusividade de sua soberania absoluta, doando esse estatuto à criação.
+
+Por fim, podemos inferir da auto causalidade a auto presença, o auto domínio e o auto conhecimento, pois o causar-se envolve o conhecimento sobre o ato, a presença do conhecedor e o domínio absoluto para que haja o causar-se efetivo ou o causar de uma forma determinada.
+
+Para compreender esses conceitos de forma mais nítida e meticulosa, começaremos definindo o conceito de Ser em detalhes. Posteriormente, provaremos — por meio de todos os testes lógicos possíveis — que o nada não é uma realidade e não possui sustentação perante o Absoluto. Isso evidenciará que tudo se baseia na vontade do Espírito, sem qualquer predeterminação mecânica.
+
+Veremos que o nada não tem espaço ontológico perante o Absoluto; o único palco existente é o da soberania do Espírito. O "nada absoluto" é uma impossibilidade, pois não possui propriedades, não podendo ser incausado e nem autocausado.
+
+Embora a inferência direta realizada até aqui nos ofereça um vislumbre original da realização do Ser como Ser, ela não esclarece plenamente a forma como o Ser cria sem substâncias prévias, tampouco esclarece a inexistência de substâncias determinadas para o Absoluto. Percorreremos, portanto, os caminhos lógicos necessários para compreender essa mecânica da criação: primeiro, examinando o Ser e o Absoluto; em seguida, desmistificando o nada, a fim de demonstrar que ele não constitui uma barreira limitante. Assim, ficará claro que a soberania do Espírito opera em um estado de liberdade absoluta, sem qualquer realidade previamente definida que restrinja a sua atuação.
+
+Portanto, o conceito de Absoluto designa uma realidade totalmente desprovida de causa antecedente ou exterior, atributos estes indissociáveis da causa última.
+
+#### A Substância Absoluta e o Incausado
+
+A tradição teológica frequentemente concebe a substância de uma realidade incausada em termos de uma pureza originária ou, de maneira ainda mais rigorosa, através da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causas.
+
+Para que o cosmos causado exista, exige-se uma realidade puríssima, livre de propriedades contingentes e de determinações prévias. Ou seja, o incausado deve possuir primazia ontológica e eficácia causal, constituindo-se como o fundamento último sem o qual a explicação da realidade vigente permanece fatalmente incompleta.
+
+A esse incausado ontológico — a realidade cuja existência é tão pura que sua determinação se funde à sua própria fundamentação — damos o nome de "Ser". Trata-se de uma realidade que não pode ser categorizada como "A" ou "B"; sua identidade é o seu próprio ato de existir. Nesse contexto, em que a identidade do existente coincide plenamente com a sua existência, o Ser emerge como o signo de sua própria autofundamentação. O incausado ontológico que justifica o causado é, de forma necessária, simples e desprovido de delimitações conceituais: sua essência é o seu próprio fundamento, o *ipsum esse subsistens*.
+
+O inefável, por definição, dispensa propriedades e transcende qualquer predicação. Se um princípio carece de delimitações qualitativas, acidentais ou essenciais, não há nele nenhuma "balança ontológica" que precise ser inclinada por um agente externo. Ele simplesmente *é*, mantendo-se imune à exigência de uma *ratio sufficiens* (razão suficiente) heterônoma.
+
+Nesta etapa da investigação, o objetivo consiste em dissecar a natureza exata desse estrato inefável, testando se os conceitos tradicionalmente invocados como absolutos podem, em última instância, sustentar e definir a arquitetura do incausado.
+
+Embora exista uma inferência direta que postula o incausado a partir do causado — revelando uma realidade pura na qual determinação e fundamentação se diluem no "Ser" —, essa dedução imediata não elucida *como* essa realidade existe de maneira necessária e absoluta, tampouco *de que modo* ela opera como a gênese de toda a realidade vigente. A proposta desta obra é investigar a arquitetura metafísica proveniente do Ser, iniciando, metodologicamente, por uma arqueologia do conceito de Nada, para culminar na compreensão de como o Ser absoluto desencadeia a totalidade dos fenômenos.
+
+#### A Indistinção Ontológica entre o Ser e o Nada na Metafísica Clássica
 
 > **“O puro ser e o puro nada são, portanto, o mesmo.”**
 > — G. W. F. Hegel, *Ciência da Lógica*, Livro I, “Determinação (Qualidade)”, seção “Ser”.
 
 Por vezes, o nada é confundido com o Ser por aparentar ser igualmente indiferenciado, puro e desprovido de determinações. Essa aparência, contudo, exige uma investigação mais rigorosa: aquilo que, à primeira vista, parece não possuir qualquer determinação não deve, por isso, ser imediatamente identificado ao fundamento absoluto da realidade.
 
-Para que a investigação acerca do Incausado não se perca em abstrações vazias e para que se possa delimitar, tanto quanto possível, aquilo que se apresenta como inefável, propõe-se, inicialmente, um exame radical do conceito de **nada**. À primeira vista, o nada parece não conter propriedades, determinações ou relações e, justamente por isso, parece dispensar qualquer explicação que justificasse sua existência. Essa aparência pode levá-lo a ser associado ao Ser, não no sentido de uma simples negação niilista, mas como aquilo que, pela ausência de determinações, parece aproximar-se intuitivamente da ideia de um absoluto.
+Para que a investigação acerca do Incausado não se perca em abstrações vazias e para que se possa delimitar, tanto quanto possível, aquilo que se apresenta como inefável, propõe-se, preliminarmente, um exame radical do conceito de **nada**. Intuitivamente, o nada parece não conter propriedades, determinações ou relações, parecendo, assim, dispensar qualquer justificação para a sua existência. Essa característica pode levar a associá-lo ao Ser — não no sentido de uma simples negação niilista, mas como algo que, pela ausência de determinações, aproxima-se da ideia de um absoluto.
 
-Em termos estritamente epistemológicos, o nada pode então ser tomado como uma aproximação imediata e intuitiva do Absoluto: aquilo que, por não possuir determinações, parece não depender de nenhuma condição exterior e, portanto, não exigir uma fundamentação ulterior. Entretanto, essa aproximação é apenas aparente. O fato de o nada parecer indiferenciado, puro e não condicionado não significa que ele possua a mesma estrutura ontológica atribuída ao Ser.
+Em termos estritamente epistemológicos, o nada pode ser tomado como uma aproximação imediata e intuitiva do Absoluto: aquilo que, por não possuir determinações, parece não depender de nenhuma condição exterior, dispensando, por consequência, uma fundamentação ulterior. Entretanto, essa aproximação é ilusória. O fato de o nada parecer indiferenciado, puro e incondicionado não significa que ele possua a mesma estrutura ontológica do Ser.
 
-A investigação rigorosa deverá mostrar, ao contrário, que o nada não pode ser simplesmente aproximado do Ser nem confundido com ele. Mais do que isso, pretende-se demonstrar que a própria análise do nada pode conduzir à inteligibilidade da necessidade do Ser, sem que seja obrigatório tomar o mundo fenomênico como ponto de partida ou como evidência empírica dessa necessidade.
+Uma investigação rigorosa demonstrará que o nada não pode ser simplesmente aproximado do Ser, tampouco confundido com ele. Mais do que isso, pretende-se provar que a própria análise do nada conduz diretamente à inteligibilidade da necessidade do Ser, sem que seja obrigatório tomar o mundo fenomênico como ponto de partida ou como evidência empírica dessa necessidade.
 
-Com efeito, mesmo que se abstraísse inteiramente da existência da realidade fenomênica, ainda seria possível investigar se o conceito de nada é verdadeiramente sustentável em sua forma absoluta. Caso a própria noção de nada absoluto revele uma impossibilidade interna, sua análise poderá abrir caminho para a afirmação da necessidade de algo que não seja contingente, condicionado ou causado. É nesse ponto que se estabelece a proposta de uma via radicalmente distinta daquela que parte diretamente da contingência dos fenômenos para alcançar um fundamento necessário.
+Com efeito, mesmo que abstraíssemos inteiramente a existência da realidade fenomênica, ainda seria possível investigar se o conceito de nada é verdadeiramente sustentável em sua forma absoluta. Caso a própria noção de nada absoluto revele uma impossibilidade interna, sua análise abrirá caminho para a afirmação da necessidade de algo que não seja contingente, condicionado ou causado. É aqui que se estabelece uma via metodológica radicalmente distinta daquela que parte da contingência dos fenômenos para alcançar um fundamento necessário.
 
-O objetivo, portanto, é investigar a possibilidade de alcançar a necessidade do **Ser Incausado** sem tomar a contingência fenomênica como premissa fundamental. Em vez de partir do mundo determinado para remontar à sua causa, parte-se da investigação da própria possibilidade do nada. O problema deixa de ser simplesmente perguntar **“por que existe algo em vez de nada?”** e passa a assumir uma forma ainda mais radical: **“é possível que o nada absoluto seja sequer inteligível como possibilidade?”**
+O objetivo, portanto, é investigar a possibilidade de alcançar a necessidade do **Ser Incausado** sem tomar a contingência fenomênica como premissa fundamental. Em vez de partir do mundo determinado para remontar à sua causa, parte-se da investigação da própria possibilidade do nada. O problema deixa de ser a simples pergunta **“por que existe algo em vez de nada?”** e assume uma forma ainda mais radical: **“é possível que o nada absoluto seja sequer inteligível como possibilidade?”**
 
-Tomando, assim, o conceito de **nada** como ponto primordial da investigação — como a “substância bruta” da indeterminação, ou o marco zero do pensamento —, pretende-se submetê-lo às suas últimas consequências conceituais. A questão fundamental será verificar se o nada permanece sustentável quando pensado em sua absoluta radicalidade ou se, ao ser levado às últimas consequências, dissolve-se enquanto possibilidade.
+Tomando o conceito de **nada** como ponto primordial da investigação — como a "substância bruta" da indeterminação ou o marco zero do pensamento —, pretende-se submetê-lo às suas últimas consequências conceituais. A questão central será verificar se o nada permanece sustentável quando pensado em sua absoluta radicalidade ou se, levado ao limite, dissolve-se enquanto possibilidade.
 
-Se o nada absoluto não puder subsistir sequer como possibilidade conceitual, então sua própria análise poderá revelar, por contraste, a necessidade de um fundamento que não dependa de outro, que não seja determinado por algo exterior e que não esteja submetido à cadeia da causalidade.
+Se o nada absoluto não subsiste sequer como possibilidade conceitual, então sua própria análise revelará, por contraste, a necessidade de um fundamento que não dependa de outro, que não seja determinado por nada exterior e que seja completamente alheio à cadeia causal de contingências.
 
-**Diretriz de investigação:** tomar o Nada como o ponto zero da investigação filosófica, submetê-lo à análise em sua máxima radicalidade e verificar se ele resiste enquanto possibilidade absoluta ou se, ao contrário, sua própria dissolução conduz à necessidade do Ser Incausado e de uma pureza ontológica fundamental.
+**Diretriz de investigação:** tomar o Nada como o ponto zero da reflexão filosófica, submetê-lo a uma análise de máxima radicalidade e verificar se ele resiste enquanto possibilidade absoluta ou se, ao contrário, sua própria dissolução conduz irrevogavelmente à necessidade do Ser Incausado e de uma pureza ontológica fundamental.
 
-## O Nada tomado como substância que se converte no mundo determinado
+#### O Nada Tomado como Substância e as Duas Vias Causais
 
 Podemos distinguir dois tipos de causa: a **causa direta** e a **causa transformadora**.
 
-A **causa direta** é aquela em que o Ser causa sem pressupor uma substância ontológica anterior sobre a qual deva operar. Isto é, a causa soberana produz a partir de sua própria liberdade, sem depender de uma matéria ou realidade previamente existente. Nesse sentido, a criação não seria uma transformação de algo que já existe, mas a produção direta de uma realidade que anteriormente não existia. É justamente nesse sentido que a tradição religiosa compreende a criação *ex nihilo*. Tomás de Aquino, ao distinguir criação e transformação, afirma que **“criar é fazer algo a partir do nada”**, ressaltando que a criação não pressupõe uma matéria preexistente da mesma maneira que uma transformação pressupõe um substrato.
+A **causa direta** é aquela em que o Ser causa sem pressupor uma substância ontológica anterior sobre a qual deva operar. Ou seja, a causa soberana produz a partir de sua própria liberdade, sem depender de uma matéria ou realidade preexistente. Nesse sentido, a criação não consiste na transformação de algo já existente, mas na produção direta de uma realidade até então inexistente. É sob essa ótica que a tradição religiosa compreende a criação *ex nihilo*. Tomás de Aquino, ao distinguir criação de transformação, afirma categoricamente que **“criar é fazer algo a partir do nada”**, ressaltando que a criação não pressupõe uma matéria preexistente, da mesma maneira que a transformação pressupõe um substrato.
 
-A **causa transformadora**, por outro lado, seria aquela em que o Ser transforma uma substância ontológica previamente existente em alguma coisa determinada. Nesse caso, não temos propriamente uma produção absoluta, mas uma transformação: há algo que recebe uma nova determinação. A causa transformadora pressupõe, portanto, algum tipo de realidade anterior — seja uma substância, uma matéria, uma potência ou algum substrato ontológico.
+A **causa transformadora**, por outro lado, é aquela em que o Ser molda uma substância ontológica preexistente, convertendo-a em algo determinado. Nesse caso, não ocorre uma produção absoluta, mas uma alteração: há algo que recebe uma nova determinação. A causa transformadora pressupõe, inexoravelmente, alguma realidade anterior — seja ela uma substância, uma matéria, uma potência ou qualquer outro substrato ontológico.
 
-Essa distinção pode ser relacionada à estrutura aristotélica entre **potência e ato**. Aristóteles compreende a potência como um princípio relacionado à possibilidade de mudança e atualização. A potência não é simplesmente o nada, pois aquilo que está em potência possui alguma capacidade de vir a ser determinado de uma maneira específica. Por isso, quando Aristóteles afirma que **“o ato é anterior à potência”**, ele estabelece que a potência não constitui uma ausência absoluta de ser, mas algo que só pode ser compreendido em relação ao ato.
+Essa distinção encontra perfeito eco na estrutura aristotélica de **potência e ato**. Aristóteles compreende a potência como o princípio da possibilidade de mudança e atualização. A potência não é o simples nada, pois aquilo que está em potência possui a capacidade de vir a ser de uma maneira específica. Por isso, ao afirmar que **“o ato é anterior à potência”**, Aristóteles estabelece que a potência não constitui uma ausência absoluta de ser, mas sim algo que só ganha sentido e realidade em relação ao ato.
 
-É justamente nesse ponto que surge uma dificuldade fundamental. Frequentemente, o Nada é considerado como uma realidade potencial, não atualizada, ou como algo que pode ser transformado. O Nada seria, então, uma espécie de estado primordial a partir do qual a realidade determinada poderia surgir. Entretanto, se o Nada possui potencialidade, ele deixa de ser propriamente Nada. Afinal, uma potência já constitui uma capacidade ontológica: algo que pode ser atualizado, determinado ou convertido em outra realidade.
+É justamente nesse ponto que surge uma dificuldade fundamental. Frequentemente, o Nada é concebido como uma realidade potencial, não atualizada, ou como algo passível de transformação. O Nada funcionaria, então, como uma espécie de estado primordial a partir do qual a realidade determinada poderia emergir. Contudo, se o Nada possui potencialidade, ele deixa de ser, a rigor, Nada. Afinal, a potência já é uma capacidade ontológica: algo que pode ser atualizado, determinado ou convertido em outra realidade.
 
-Assim, quando o Nada é concebido como uma realidade potencial, ele passa a desempenhar a função de um **substrato ontológico**. Torna-se aquilo sobre o qual o Ser poderia operar e a partir do qual poderia produzir o mundo determinado. Porém, nesse caso, o termo “Nada” parece ocultar uma realidade que já possui alguma forma de ser. Se pode receber uma determinação, então existe algo que recebe essa determinação; se pode ser transformado, existe algo que sofre essa transformação; se possui potencialidade, existe algo que possui essa potencialidade.
+Assim, quando o Nada é tratado como uma realidade potencial, ele passa a assumir a função de um **substrato ontológico**. Torna-se aquilo sobre o qual o Ser poderia operar para produzir o mundo determinado. Porém, sob esse prisma, o termo “Nada” oculta uma realidade que já possui alguma forma de ser. Se pode receber uma determinação, existe algo que a recebe; se pode ser transformado, existe algo que sofre a transformação; se possui potencialidade, existe algo que detém essa capacidade.
 
-É precisamente aqui que aparece uma das grandes confusões acerca do Nada. Quando ele não é identificado diretamente ao Ser fundamental, tende-se a concebê-lo como uma espécie de matéria ontológica primordial, ainda não determinada, mas suscetível de determinação. O Nada passa, assim, a ocupar o lugar de um substrato anterior à realidade determinada.
+É precisamente aqui que reside uma das maiores confusões filosóficas acerca do Nada. Quando não é diretamente identificado ao Ser fundamental, o Nada tende a ser concebido como uma espécie de matéria ontológica primordial — ainda indeterminada, mas suscetível à determinação —, ocupando o lugar de um substrato anterior à realidade concreta.
 
-Temos, portanto, duas situações recorrentes: **ou o Nada é assimilado ao próprio fundamento do Ser, ou é convertido em um substrato sobre o qual o Ser exerce uma causalidade transformadora**.
+Temos, portanto, duas situações recorrentes: **ou o Nada é assimilado ao próprio fundamento do Ser, ou é convertido em um substrato sobre o qual o Ser exerce uma causalidade transformadora.**
 
-A primeira situação pode ser observada de maneira particularmente radical na filosofia de Hegel. Na *Ciência da Lógica*, Hegel caracteriza o Ser puro como **“pura indeterminação e vazio”** e afirma que o Nada puro consiste igualmente na ausência de toda determinação e conteúdo. É nesse sentido que chega à conhecida formulação:
+A primeira situação é observada de maneira particularmente radical na filosofia de Hegel. Na *Ciência da Lógica*, Hegel caracteriza o Ser puro como **“pura indeterminação e vazio”** e afirma que o Nada puro consiste, igualmente, na ausência de toda determinação e conteúdo. É por essa via que ele chega à célebre formulação:
 
 > **“O puro ser e o puro nada são, portanto, o mesmo.”**
 
-A aproximação hegeliana é especialmente relevante porque evidencia a dificuldade que pretendemos investigar. O Ser puro e o Nada puro são aproximados justamente pela ausência de determinações. Ambos, quando pensados em sua pureza absoluta, parecem não possuir qualquer conteúdo particular que permita distingui-los.
+A aproximação hegeliana é extremamente relevante porque ilustra perfeitamente a dificuldade que pretendemos investigar. O Ser puro e o Nada puro são igualados justamente pela ausência de determinações. Ambos, pensados em sua pureza absoluta, parecem desprovidos de qualquer conteúdo particular que permita distingui-los.
 
-É possível ver, nessa formulação, aquilo que aqui chamamos de **confusão entre o Ser e o Nada**. Hegel aproxima o Ser do Nada a partir de sua indeterminação: se o Ser é completamente desprovido de determinações, ele parece não possuir nenhuma característica pela qual possa ser distinguido do Nada. Entretanto, dessa ausência de determinações não se segue necessariamente uma identidade ontológica.
+Nessa formulação, evidencia-se o que chamamos aqui de **confusão entre o Ser e o Nada**. Hegel aproxima o Ser do Nada com base em sua indeterminação: se o Ser é completamente desprovido de propriedades, parece não haver nele característica alguma que o distinga do Nada. Entretanto, da ausência de determinações não se segue, obrigatoriamente, uma identidade ontológica.
 
-Há uma diferença fundamental entre **não possuir determinação** e **não possuir ser**. Uma coisa pode ser absolutamente simples, indeterminada ou não determinada por algo exterior sem, por isso, ser reduzida ao Nada. A ausência de propriedades determinadas não implica necessariamente a ausência do próprio Ser.
+Há uma diferença abismal entre **não possuir determinação** e **não possuir ser**. Uma realidade pode ser absolutamente simples, indeterminada ou imune a determinações externas sem que, por isso, seja reduzida ao Nada. A ausência de propriedades determinadas não implica a ausência do próprio Ser.
 
-Essa distinção é decisiva para a investigação aqui proposta. Se o Ser fundamental é concebido como aquilo que subsiste independentemente de qualquer determinação exterior, sua pureza não deveria conduzir necessariamente à sua identificação com o Nada. O Ser poderia ser absolutamente simples e indeterminado sem, por isso, deixar de possuir a propriedade fundamental de **ser**.
+Essa distinção é decisiva para a presente investigação. Se o Ser fundamental é concebido como aquilo que subsiste independentemente de qualquer determinação exterior, sua pureza não deveria conduzir à sua identificação com o Nada. O Ser pode ser absolutamente simples e indeterminado sem deixar de possuir a propriedade essencial de **ser**.
 
-A própria tradição eleata já havia colocado o problema em termos radicais. Parmênides afirma que **“o que é, é, e o que não é, não é”**, recusando ao não-ser qualquer estatuto equivalente ao do Ser. Em outra formulação, sustenta que **“não podes conhecer o que não é”**, indicando a dificuldade de transformar o Nada absoluto em objeto de pensamento ou conhecimento.
+A própria tradição eleata já havia colocado o problema em termos radicais. Parmênides afirma que **“o que é, é, e o que não é, não é”**, recusando ao não-ser qualquer estatuto equivalente ao do Ser. Em outra máxima, adverte que **“não podes conhecer o que não é”**, evidenciando a impossibilidade de transformar o Nada absoluto em objeto de pensamento ou conhecimento.
 
-Essa dificuldade é importante porque, se o Nada não possui qualquer determinação, propriedade ou realidade, não parece possível utilizá-lo como fundamento explicativo sem introduzir nele alguma característica que contradiga sua própria definição.
+Essa constatação é crucial: se o Nada não possui determinação, propriedade ou realidade, é impossível utilizá-lo como fundamento explicativo sem atribuir-lhe, de forma sub-reptícia, características que contradigam sua própria definição.
 
-É possível, então, perceber uma segunda função atribuída ao Nada: além de ser aproximado do Ser em razão de sua indeterminação, ele pode ser utilizado como explicação da passagem para a realidade determinada. Nesse segundo caso, o Nada não é simplesmente ausência, mas passa a funcionar como um **estado de potência**, como aquilo que pode ser atualizado ou convertido em alguma coisa.
+Percebe-se, então, uma segunda função frequentemente atribuída ao Nada: além de ser aproximado do Ser em razão de sua indeterminação, ele é utilizado para explicar a passagem para a realidade determinada. Nesse segundo cenário, o Nada não é mera ausência, mas atua como um **estado de potência**, como aquilo que pode ser atualizado ou convertido em algo.
 
-É justamente essa passagem que precisa ser examinada com maior rigor.
+É justamente essa transição que requer o mais rigoroso exame.
 
-Se o Nada é verdadeiramente absoluto, não parece possível atribuir-lhe potencialidade alguma. Uma potência é uma capacidade de ser ou de vir a ser de determinado modo. O Nada absoluto, porém, não poderia possuir sequer essa capacidade. Se possui potencialidade, então já não é Nada em sentido absoluto, mas alguma forma de realidade ainda não determinada.
+Se o Nada é verdadeiramente absoluto, é impossível atribuir-lhe qualquer potencialidade. A potência é a capacidade de ser ou de vir a ser de determinado modo. O Nada absoluto, porém, carece da mais ínfima capacidade. Se ele possuísse potência, já não seria Nada absoluto, mas sim uma forma latente de realidade.
 
-Nesse sentido, a estrutura aristotélica entre potência e ato torna-se particularmente importante. Se a potência é um princípio de mudança, ela já pertence ao domínio do ser e da possibilidade. O Nada, por sua vez, não poderia possuir uma capacidade de mudança, porque mudar significa passar de uma condição a outra, e isso pressupõe alguma realidade que sofre ou realiza a mudança.
+A estrutura aristotélica de potência e ato reafirma essa lógica. Sendo a potência um princípio de mudança, ela pertence, irrevogavelmente, ao domínio do ser e da possibilidade. O Nada, por sua vez, não pode possuir capacidade de mudança, pois mudar implica transitar de uma condição a outra, o que pressupõe uma realidade subjacente que sofre ou realiza tal mudança.
 
-Portanto, quando se chama de “Nada” o substrato a partir do qual a realidade determinada é retirada, atualizada ou produzida, corre-se o risco de converter o Nada em uma espécie de **matéria primordial**. O que era definido como ausência absoluta passa a desempenhar a função de algo que permanece enquanto recebe determinações.
+Portanto, ao denominar de “Nada” o substrato a partir do qual a realidade determinada é extraída, atualizada ou produzida, corre-se o risco iminente de convertê-lo em uma **matéria primordial**. O que era definido estritamente como ausência absoluta passa a atuar como um suporte permanente que recebe determinações.
 
-É precisamente nesse ponto que podemos observar uma tensão na estrutura hegeliana. De um lado, o Nada é identificado ao Ser puro pela ausência de determinações; de outro, o Nada aparece como momento necessário do movimento pelo qual se chega ao **devir**, isto é, à passagem entre Ser e Nada. Hegel escreve que **“o devir é a unidade do ser e do nada”**.
+É aqui que observamos uma profunda tensão na estrutura hegeliana. De um lado, o Nada é identificado ao Ser puro por sua falta de determinações; de outro, surge como o momento necessário do movimento que conduz ao **devir** — ou seja, à passagem entre o Ser e o Nada. Como escreve Hegel: **“o devir é a unidade do ser e do nada”**.
 
-A questão que aqui se coloca não é simplesmente negar a coerência interna da dialética hegeliana, mas perguntar se aquilo que Hegel chama de Nada pode conservar simultaneamente o estatuto de **pura ausência** e desempenhar uma função dentro da gênese conceitual da realidade determinada.
+A questão aqui colocada não é apenas negar a coerência interna da dialética hegeliana, mas indagar se aquilo que Hegel chama de Nada pode, simultaneamente, conservar o estatuto de **pura ausência** e desempenhar uma função ativa na gênese conceitual da realidade determinada.
 
-Se o Nada é absolutamente nada, ele não pode possuir função alguma. Se possui uma função no processo de determinação, então essa função precisa ser explicada sem transformar o Nada em uma realidade potencial.
+Se o Nada é absolutamente nada, ele não possui função alguma. Se possui uma função no processo de determinação, então essa função precisa ser explicada sem que se transforme o Nada em uma realidade potencial.
 
-É nesse sentido que podemos compreender a dupla função problemática atribuída ao Nada: **primeiro, sua ausência de propriedades é utilizada para aproximá-lo do Ser puro; segundo, sua indeterminação é utilizada como momento da passagem para aquilo que é determinado**.
+Isso explicita o duplo problema atrelado às funções do Nada: **primeiro, sua ausência de propriedades justifica sua aproximação ao Ser puro; segundo, sua indeterminação é usada como gatilho explicativo para a passagem à determinação**.
 
-O problema é que essas duas funções podem acabar produzindo uma contradição conceitual. A ausência absoluta de propriedades não parece poder funcionar como uma propriedade; e a ausência absoluta de realidade não parece poder funcionar como uma potência.
+O conflito gerado por essas duas funções é evidente e produz uma contradição conceitual incontornável: a ausência absoluta de propriedades não pode funcionar como uma propriedade, e a ausência absoluta de realidade não pode atuar como uma potência.
 
-Dessa maneira, a crítica não se dirige simplesmente à afirmação de que Ser e Nada possam ser pensados conjuntamente. O problema está em determinar **qual estatuto ontológico o Nada possui quando passa a desempenhar uma função explicativa**.
+Dessa maneira, a crítica não visa simplesmente contestar a afirmação de que Ser e Nada possam ser pensados em conjunto, mas busca determinar **qual estatuto ontológico o Nada assume quando passa a exercer uma função explicativa**.
 
-Se ele é Nada absoluto, não possui propriedades, potencialidade ou capacidade causal. Se possui propriedades, potencialidade ou capacidade causal, então não é Nada absoluto.
+Se ele é o Nada absoluto, carece de propriedades, potencialidade ou capacidade causal. Se detém propriedades, potencialidade ou capacidade causal, então, em definitivo, não é o Nada absoluto.
 
-Essa dificuldade também permite compreender a diferença entre **causa direta** e **causa transformadora**.
+Essa contradição ilumina com perfeição a diferença entre **causa direta** e **causa transformadora**.
 
-Na causa transformadora, existe algo anterior que recebe uma determinação posterior. Há um substrato que permanece enquanto sua forma ou determinação é modificada. Na causa direta, entretanto, não há uma matéria ou substância ontológica anterior que precise ser transformada. A causalidade procede diretamente do princípio causador.
+Na causa transformadora, há um substrato prévio que permanece enquanto sua forma ou determinação muda. Na causa direta, porém, não há matéria ou substância ontológica anterior que precise ser moldada; a causalidade flui diretamente do princípio originário.
 
-Por isso, se a criação for compreendida como causa transformadora, será necessário admitir alguma realidade anterior à realidade determinada. E, se essa realidade anterior for chamada de Nada, será necessário explicar como o Nada pode desempenhar a função de uma substância ou potência.
+Por isso, se a criação for compreendida como uma causa transformadora, será forçoso admitir uma realidade anterior à realidade determinada. E, se essa realidade anterior for chamada de Nada, será indispensável explicar como a ausência absoluta atua como substância ou potência.
 
-Se, ao contrário, a criação for compreendida como causa direta, então o Ser não transforma o Nada em alguma coisa. O Nada não é uma substância sobre a qual a causa opera. O Nada simplesmente designa a ausência de qualquer realidade anterior àquilo que é produzido.
+Por outro lado, se a criação for compreendida como causa direta, o Ser não transforma o Nada em coisa alguma. O Nada não é uma substância sobre a qual a causa opera. Nesse contexto, o Nada designa apenas a inexistência de qualquer realidade anterior àquilo que é produzido.
 
-Essa distinção é fundamental. **Criar a partir do nada não significa transformar o nada em alguma coisa.** Se fosse uma transformação, o nada teria de ser uma realidade capaz de sofrer transformação. Mas, se fosse uma realidade, já não seria nada.
+Essa distinção é fundamental. **Criar a partir do nada não significa moldar o nada.** Se a criação fosse uma transformação, o nada precisaria ser uma realidade suscetível a mudanças. Mas, se fosse uma realidade, já não seria nada.
 
-A dificuldade fundamental da criação está justamente em compreender como algo pode proceder do Ser sem que exista uma matéria anterior sobre a qual o Ser deva operar. A resposta, dentro da concepção da causa direta, não consiste em transformar o Nada, mas em negar que haja qualquer substrato anterior.
+O grande desafio da criação está, justamente, em compreender como algo procede do Ser sem a mediação de uma matéria prévia sobre a qual Ele devesse operar. Na doutrina da causa direta, a resposta não reside em transformar o Nada, mas em negar veementemente a existência de qualquer substrato anterior.
 
-Nessas duas situações recorrentes — a assimilação do Nada ao Ser e a transformação do Nada em substrato —, o Nada acaba funcionando como um elemento **apaziguador da complexidade metafísica**. Ele parece resolver, simultaneamente, dois problemas: explicar por que o fundamento não depende de algo anterior e explicar como a realidade determinada pode surgir.
+Nas duas abordagens recorrentes — a assimilação do Nada ao Ser e a conversão do Nada em substrato —, o conceito atua como um elemento **apaziguador da complexidade metafísica**. Ele parece resolver, de modo simultâneo, dois grandes problemas: a ausência de um fundamento anterior e a mecânica de como a realidade determinada surge.
 
-Quando assimilado ao Ser, o Nada parece fornecer uma resposta para a ausência de fundamento anterior. Quando convertido em substrato, fornece uma espécie de matéria primordial para explicar a passagem da indeterminação à determinação.
+Quando assimilado ao Ser, o Nada parece solucionar a ausência de um fundamento prévio. Quando convertido em substrato, fornece uma "matéria primordial" conveniente para explicar o trânsito da indeterminação à determinação.
 
-Entretanto, ambas as soluções exigem uma investigação mais rigorosa.
+Contudo, ambas as "soluções" falham e exigem um escrutínio mais rigoroso.
 
-Se o Nada é verdadeiramente nada, não pode possuir potencialidade, propriedades ou capacidade de transformação. Se, ao contrário, possui potencialidade e pode ser transformado, então já não estamos diante do Nada em sentido absoluto, mas diante de alguma forma de realidade ontológica.
+Se o Nada é verdadeiramente absoluto, não possui potência, propriedades ou capacidade de transformação. Se as possui, estamos diante de uma realidade ontológica, e não do Nada.
 
-A distinção entre **Nada absoluto** e **indeterminação** torna-se, portanto, fundamental. Uma coisa é afirmar que algo não possui determinações particulares; outra, completamente diferente, é afirmar que esse algo não possui ser algum.
+A distinção entre **Nada absoluto** e **indeterminação** revela-se, portanto, vital. Uma coisa é afirmar que algo não possui determinações particulares; outra, abissalmente diferente, é afirmar que esse algo não possui ser algum.
 
-A indeterminação pode ser uma característica de uma realidade. O Nada absoluto, porém, não poderia possuir característica alguma.
+A indeterminação é uma característica de uma realidade desprovida de contornos particulares; o Nada absoluto, ao revés, não comporta característica alguma.
 
-Assim, quando o Nada é utilizado para explicar a passagem da indeterminação à determinação, corre-se o risco de atribuir ao Nada precisamente aquilo que se havia negado a ele: uma estrutura, uma função e uma capacidade de transformação.
+Ao utilizar o Nada para explicar a passagem da indeterminação à determinação, corre-se o risco inevitável de atribuir a ele tudo o que lhe fora negado: estrutura, função e mutabilidade. Assim, o Nada perde seu status de absoluta inexistência e é rebaixado à condição de um **substrato ontológico indeterminado**.
 
-O Nada deixa, então, de ser o absolutamente inexistente e passa a ocupar o lugar de um **substrato ontológico indeterminado**.
+O dilema torna-se ainda mais agudo ao tentar explicar a realidade fenomênica. Se o mundo determinado surge da atualização de um momento prévio de pura indeterminação, é imperativo questionar o estatuto ontológico desse momento anterior.
 
-A questão torna-se ainda mais radical quando se pretende utilizar essa estrutura para explicar a realidade fenomênica. Se o mundo determinado surge como resultado da atualização ou determinação de um momento anterior de pura indeterminação, então é necessário perguntar qual é o estatuto ontológico desse momento anterior.
+Se ele é Nada, como pode ser atualizado? Se é atualizado, em que sentido ainda se pode chamá-lo de Nada? E se não é Nada, qual realidade prévia está sendo pressuposta? Essas indagações levam diretamente ao âmago do problema do fundamento. Sem poder recorrer ao Nada como substrato e rejeitando uma regressão infinita de causas transformadoras, impõe-se a necessidade de investigar um Ser que não receba sua existência de outro e cuja causalidade seja verdadeiramente **originária**, e não meramente transformadora.
 
-Se ele é Nada, como pode ser atualizado? Se pode ser atualizado, em que sentido ainda é Nada? E se não é Nada, que realidade anterior está sendo pressuposta? Essas questões conduzem diretamente ao problema do fundamento. Se não podemos recorrer ao Nada como substrato, e se não podemos admitir uma cadeia infinita de realidades transformadoras, torna-se necessário investigar a possibilidade de um Ser que não receba sua existência de outro e cuja causalidade não seja meramente transformadora, mas **originária**.
-
-A questão central passa, portanto, a ser esta:
+A questão central passa, portanto, a ser a seguinte:
 
 > **Pode o Nada absoluto constituir o substrato de uma transformação?**
 
@@ -460,22 +494,21 @@ Ou, inversamente:
 
 > **Se há um substrato capaz de ser transformado, não deveríamos reconhecer nele alguma forma de Ser?**
 
-A investigação do Nada, nesse sentido, não constitui uma digressão preliminar. Ela pode constituir justamente o ponto de partida para determinar se existe uma diferença fundamental entre **o Nada absoluto**, que não pode possuir qualquer propriedade, e **uma realidade indeterminada ou potencial**, que, justamente por possuir potencialidade, já pertence de algum modo ao domínio do Ser.
+Nesse sentido, a investigação do Nada transcende a mera digressão preliminar. Ela constitui o ponto de partida ideal para estabelecer a diferença fundamental entre o **Nada absoluto** — desprovido de qualquer propriedade — e uma **realidade indeterminada ou potencial** — que, por deter potência, já integra validamente o domínio do Ser.
 
-A hipótese que se apresenta é, portanto, que o Nada não constitui o fundamento da realidade determinada, nem como Ser indiferenciado, nem como substrato potencial. O Nada, levado à sua radicalidade, não possui sequer a capacidade de fundamentar.
+A hipótese que se sustenta é que o Nada não fundamenta a realidade determinada, nem como Ser indiferenciado, nem como substrato potencial. Levado à sua máxima radicalidade, o Nada não possui sequer a mais rudimentar capacidade de fundamentar.
 
-E justamente por não poder fundamentar coisa alguma, a análise do Nada pode conduzir, por contraste, à necessidade de um fundamento que não seja o Nada, mas o **Ser enquanto realidade incausada**, cuja capacidade produtiva não dependa da transformação de uma substância anterior.
+E, justamente por sua absoluta impotência fundacional, a análise do Nada evidencia, por contraste, a necessidade imperativa de um fundamento que não seja o vazio, mas o **Ser enquanto realidade incausada**, cuja produtividade independe completamente da transformação de uma substância prévia.
 
-A questão deixa, assim, de ser simplesmente **“como o Nada se transforma em alguma coisa?”** e passa a ser uma questão mais radical:
+A questão abandona, assim, a formulação ingênua — **“como o Nada se transforma em alguma coisa?”** — para atingir a sua forma mais rigorosa e definitiva:
 
 > **Se o Nada não pode possuir potencialidade, substrato ou causalidade, de onde procede a possibilidade de uma realidade determinada?**
 
-É nesse ponto que a investigação do Nada pode deixar de ser uma investigação sobre a ausência e tornar-se uma investigação sobre a **necessidade do Ser**.
+É neste exato limite que a investigação do Nada deixa de ser um mero estudo sobre a ausência e consagra-se como a demonstração lógica da **necessidade do Ser**.
 
----
+### A LÓGICA DO INDETERMINADO E A CAUSALIDADE ASSIMÉTRICA
 
-
-# AS TENTATIVAS DE DEFINIR E CATEGORIZAR O NADA
+#### As Tentativas de Definir e Categorizar o Nada
 
 Para investigar o Nada de forma rigorosa e exaurir suas possibilidades ontológicas e metafísicas, é necessário categorizar as diferentes abordagens e tentativas conceituais que a razão impõe sobre essa **“substância bruta”** da indeterminação. Antes, porém, é preciso estabelecer os princípios a partir dos quais essas categorias serão inferidas.
 
@@ -485,25 +518,25 @@ Isto é, mediante a reversão dos princípios da lógica clássica, torna-se pos
 
 Nesse movimento, os princípios da lógica assimétrica procuram delimitar o Ser por meio da retirada das determinações presentes no mundo contingente. Entretanto, segundo a hipótese aqui desenvolvida, esse procedimento falha justamente porque não alcança a essência do Ser determinado. Ao contrário, ele tende a destruir conceitualmente aquilo que pretende compreender: remove a forma do mundo determinado, elimina suas diferenças e suspende suas determinações, para então tentar reconstruir, a partir dessa negação, um suposto substrato ontológico puro e disforme.
 
-O resultado é uma espécie de **falso Ser**: algo que parece aproximar-se do absoluto justamente porque foi privado de todas as determinações que caracterizam os entes. Quanto mais determinações são retiradas, mais esse suposto fundamento parece puro; porém, ao final do processo, pode-se ter produzido não uma forma superior de Ser, mas simplesmente a ausência daquilo que tornava possível identificá-lo como Ser.
+O resultado é uma espécie de **falso Ser**: algo que parece aproximar-se do absoluto justamente porque foi privado de todas as determinações que caracterizam os entes. Quanto mais determinações são retiradas, mais esse suposto fundamento parece puro. Porém, ao final do processo, pode-se ter produzido não uma forma superior de Ser, mas simplesmente a ausência daquilo que tornava possível identificá-lo como Ser.
 
 Essa dificuldade já aparece de maneira particularmente expressiva na filosofia de Hegel. Ao tratar do começo da *Ciência da Lógica*, Hegel caracteriza o Ser puro como **“pura indeterminação e vazio”** e afirma que o Nada puro possui a mesma ausência de determinação. Daí sua célebre conclusão:
 
 > **“O puro ser e o puro nada são, portanto, o mesmo.”**
 
-É justamente essa aproximação entre Ser e Nada que deve ser submetida à investigação. A ausência de determinações pode tornar dois conceitos semelhantes sob determinado aspecto, mas não necessariamente os torna ontologicamente idênticos. Há uma diferença entre **um Ser que não possui determinações particulares** e **aquilo que não possui Ser algum**.
+É justamente essa aproximação entre Ser e Nada que deve ser submetida à investigação. A ausência de determinações pode tornar dois conceitos semelhantes sob determinado aspecto, mas não necessariamente os torna ontologicamente idênticos. Há uma diferença fundamental entre **um Ser que não possui determinações particulares** e **aquilo que não possui Ser algum**.
 
-A retirada das determinações do mundo fenomênico pode, portanto, produzir uma aparência de pureza sem produzir necessariamente uma realidade ontologicamente fundamental. O procedimento de purificação pode acabar confundindo a **indeterminação conceitual** com a **pureza ontológica**.
+A retirada das determinações do mundo fenomênico pode, portanto, produzir uma aparência de pureza sem gerar necessariamente uma realidade ontologicamente fundamental. O procedimento de purificação pode acabar confundindo a **indeterminação conceitual** com a **pureza ontológica**.
 
 Nesse sentido, os princípios da lógica assimétrica operam como instrumentos de desconstituição do mundo determinado. Eles partem das coisas que possuem forma, identidade, relação e determinação e procuram retirar sucessivamente essas características, até alcançar aquilo que supostamente permaneceria quando todas as determinações fossem eliminadas.
 
-O problema é que, ao retirar aquilo que determina uma coisa como aquilo que ela é, não necessariamente se descobre sua essência. Pode-se simplesmente ter destruído conceitualmente a própria coisa.
+O problema é que, ao retirar aquilo que determina uma coisa como aquilo que ela é, não se descobre necessariamente a sua essência. Pode-se simplesmente ter destruído conceitualmente a própria coisa.
 
-Assim, a operação não produz necessariamente o Ser puro, mas pode produzir um **substrato indeterminado**, uma construção conceitual que conserva apenas a ideia de que “algo deve permanecer” depois da eliminação de todas as determinações.
+Assim, a operação não produz necessariamente o Ser puro, mas pode produzir um **substrato indeterminado** — uma construção conceitual que conserva apenas a ideia de que “algo deve permanecer” depois da eliminação de todas as determinações.
 
 É justamente nesse ponto que a investigação do Nada se torna necessária. Pois, se esse substrato não possui determinação, forma ou propriedade, precisamos perguntar se ele ainda pode ser chamado de Ser ou se, levado às últimas consequências, aproxima-se precisamente do Nada.
 
-A questão torna-se ainda mais complexa quando introduzimos os **princípios causais assimétricos**. Esses princípios operam de maneira que a causa do mundo fenomênico seja concebida como uma substância nadificada, potencial, indeterminada, relativa, angulada ou mesmo impossível. Em vez de compreender o mundo determinado como diretamente produzido pela liberdade causal do Ser, esses princípios procuram estabelecer uma realidade ontológica anterior que funcionaria como condição de sua transformação.
+A questão torna-se ainda mais complexa quando introduzimos os **princípios causais assimétricos**. Esses princípios operam de modo que a causa do mundo fenomênico seja concebida como uma substância nadificada, potencial, indeterminada, relativa, angulada ou mesmo impossível. Em vez de compreender o mundo determinado como diretamente produzido pela liberdade causal do Ser, esses princípios procuram estabelecer uma realidade ontológica anterior que funcionaria como condição de sua transformação.
 
 Nesse modelo, a realidade fenomênica não seria causada diretamente pelo Ser. Ela seria o resultado da transformação de uma ontologia prévia, que aqui se pretende definir como Nada.
 
@@ -519,7 +552,7 @@ Nesse esquema, o mundo determinado é simultaneamente o ponto de partida e o pon
 
 É precisamente essa circularidade que precisa ser investigada.
 
-Os princípios da lógica assimétrica procuram **destruir o mundo contingente sem destruí-lo completamente**. Retiram suas determinações, mas procuram preservar algo que ainda possa ser considerado existente. Pretendem, assim, purificar o mundo determinado sem eliminá-lo, tornando-o indeterminado e, simultaneamente, mantendo-o ontologicamente subsistente.
+Os princípios da lógica assimétrica procuram **destruir o mundo contingente sem destruí-lo completamente**. Retiram suas determinações, mas tentam preservar algo que ainda possa ser considerado existente. Pretendem, assim, purificar o mundo determinado sem eliminá-lo, tornando-o indeterminado e, simultaneamente, mantendo-o ontologicamente subsistente.
 
 Essa operação produz uma tensão fundamental: se retiramos todas as determinações de uma realidade, o que resta? Se ainda resta alguma coisa, essa coisa possui alguma determinação mínima; se não resta determinação alguma, então torna-se necessário explicar em que sentido aquilo que resta ainda pode ser chamado de Ser.
 
@@ -551,7 +584,7 @@ Quando se afirma que o Ser transforma o Nada, atribui-se ao Nada uma função ca
 
 Por isso, o conceito de Nada deve ser distinguido rigorosamente do conceito de **indeterminação**.
 
-A indeterminação pode pertencer a algo que existe. Uma coisa pode ser indeterminada relativamente a determinado aspecto e, ainda assim, possuir realidade. O Nada absoluto, entretanto, não pode ser indeterminado no mesmo sentido, porque até mesmo a indeterminação seria uma característica que lhe atribuiríamos.
+A indeterminação pode pertencer a algo que existe. Uma coisa pode ser indeterminada relativamente a um aspecto específico e, ainda assim, possuir realidade. O Nada absoluto, entretanto, não pode ser indeterminado no mesmo sentido, porque até mesmo a indeterminação seria uma característica que lhe atribuiríamos.
 
 Dessa forma, a tentativa de construir uma substância pura pela retirada das determinações pode terminar produzindo justamente aquilo que pretendia evitar: uma abstração vazia.
 
@@ -572,7 +605,6 @@ Da mesma maneira, a causalidade assimétrica procura inverter a explicação cau
 Temos, então, dois movimentos complementares:
 
 **a lógica assimétrica desdetermina o mundo;**
-
 **a causalidade assimétrica transforma a desdeterminação novamente em mundo.**
 
 O primeiro movimento procura produzir o Nada a partir do mundo determinado; o segundo procura produzir o mundo determinado a partir desse Nada.
@@ -597,26 +629,30 @@ A investigação dos princípios assimétricos conduz, portanto, a uma questão 
 
 Se a resposta for negativa, então será necessário abandonar tanto a identificação entre o Nada e o Ser quanto sua utilização como substrato potencial da realidade. Nesse caso, a passagem do indeterminado ao determinado não poderá ser explicada como uma transformação do Nada. Deverá ser compreendida a partir de uma causalidade que não dependa de uma matéria ontológica anterior.
 
-É nesse ponto que a distinção entre **causa direta** e **causa transformadora** torna-se fundamental para toda a investigação subsequente. A causa transformadora exige um substrato. A causa direta não. E se o Nada não pode ser substrato, então a produção da realidade determinada deverá ser investigada como uma ação causal direta do Ser, cuja liberdade não depende da transformação de uma realidade anterior. A investigação do Nada, portanto, não conduz inicialmente à descoberta de uma substância primordial, mas à necessidade de questionar se uma tal substância pode sequer existir sob o nome de Nada. O problema fundamental passa a ser:
+É nesse ponto que a distinção entre **causa direta** e **causa transformadora** torna-se fundamental para toda a investigação subsequente. A causa transformadora exige um substrato. A causa direta, não. E se o Nada não pode ser substrato, então a produção da realidade determinada deverá ser investigada como uma ação causal direta do Ser, cuja liberdade não depende da transformação de uma realidade anterior.
+
+A investigação do Nada, portanto, não conduz inicialmente à descoberta de uma substância primordial, mas à necessidade de questionar se uma tal substância pode sequer existir sob o nome de Nada. O problema fundamental passa a ser:
 
 > **Quando retiramos do mundo todas as suas determinações para encontrar o fundamento absoluto, encontramos o Ser ou produzimos apenas o Nada?**
 
 É a resposta a essa questão que permitirá determinar se a purificação do mundo determinado realmente conduz ao fundamento ontológico ou se, ao contrário, produz apenas um **falso Ser**, isto é, uma abstração que parece absoluta justamente porque foi esvaziada de tudo aquilo que a tornava determinada.
 
-# A ARQUITETURA ASSIMÉTRICA DA RAZÃO
-*(Os Quatro Princípios da Lógica do Indeterminado)*
+---
 
-A lógica estabelecida por Aristóteles no *Organon* — com seus princípios de Identidade (A = A), Não-Contradição (¬(A ∧ ¬A)) e Terceiro Excluído (A ∨ ¬A) — constitui a ferramenta fundamental para o pensamento acerca do mundo dos entes, das coisas já definidas e das relações estáveis. Durante mais de dois milênios, esta estrutura serviu como base da racionalidade ocidental, permitindo o desenvolvimento da ciência, do direito e da filosofia.
+#### A Arquitetura Assimétrica da Razão (Os Quatro Princípios da Lógica do Indeterminado)
 
-No entanto, quando o pensamento se volta para aquilo que **retrocede a definição** — para um estado ficticio anterior à fixação de "A" ou "não-A", para aquilo que ainda não se determinou como coisa alguma —, a lógica aristotélica mostra-se insuficiente. Ela opera por exclusão, exige identidades fixas e não pode conceber, sem contradizer-se, um estado onde as distinções ainda não surgiram.
+A lógica estabelecida por Aristóteles no *Organon* — com seus princípios de Identidade (A = A), Não-Contradição (¬(A ∧ ¬A)) e Terceiro Excluído (A ∨ ¬A) — constitui a ferramenta fundamental para o pensamento acerca do mundo dos entes, das coisas já definidas e das relações estáveis. Durante mais de dois milênios, essa estrutura serviu como base da racionalidade ocidental, permitindo o desenvolvimento da ciência, do direito e da filosofia.
 
-Faz-se necessária uma estrutura que nega a lógica clássica, permitindo pensar no que estaria para além (ou aquém) da determinação. Esta nova lógica não operaria por oposições binárias, mas por relações de fundamento, inclusão e suspensão da individuação.
+No entanto, quando o pensamento se volta para aquilo que **retrocede à definição** — para um estado fictício anterior à fixação de "A" ou "não-A", para aquilo que ainda não se determinou como coisa alguma —, a lógica aristotélica mostra-se insuficiente. Ela opera por exclusão, exige identidades fixas e não pode conceber, sem contradizer-se, um estado onde as distinções ainda não surgiram.
 
-## A Sistematização dos Princípios da Lógica Assimétrica
+Faz-se necessária uma estrutura que negue a lógica clássica, permitindo pensar no que estaria para além (ou aquém) da determinação. Essa nova lógica não operaria por oposições binárias, mas por relações de fundamento, inclusão e suspensão da individuação.
+
+**A Sistematização dos Princípios da Lógica Assimétrica**
 
 Assim como Aristóteles estabeleceu três princípios fundamentais para a lógica clássica, a lógica fundamental estrutura-se em **quatro princípios** que descrevem o comportamento daquilo que ainda não se determinou em "A" ou "não-A".
 
-### Princípio da Indiferenciação Fundamental
+1. **Princípio da Indiferenciação Fundamental**
+
 > *"Antes de toda distinção, as coisas não estão separadas."*
 
 **Formulação simbólica:** Para quaisquer x e y no domínio do indeterminado, x e y não são distintos em sua origem.
@@ -624,11 +660,13 @@ Assim como Aristóteles estabeleceu três princípios fundamentais para a lógic
 Este princípio estabelece que, no nível mais básico — anterior a toda definição e individuação —, não há multiplicidade nem oposição. Os símbolos "x" e "y" não designam coisas diferentes, mas apontam para um **estado uno** onde toda diferenciação ainda não ocorreu.
 
 **O que este princípio afirma:**
+
 * Antes de haver "A" e "B", há um fundo comum que os causa.
 * As distinções que vemos no mundo não são originárias, mas surgem posteriormente.
 * A multiplicidade pressupõe uma unidade anterior que a torna possível.
 
-### Princípio da Inclusão do Paradoxo
+2. **Princípio da Inclusão do Paradoxo**
+
 > *"O que para nós é contraditório pode ser verdadeiro no nível do indeterminado."*
 
 **Formulação simbólica:** Existe um domínio onde afirmar e negar algo ao mesmo tempo não é um erro, mas uma tentativa de expressar o que escapa à lógica comum.
@@ -636,11 +674,13 @@ Este princípio estabelece que, no nível mais básico — anterior a toda defin
 A lógica clássica exclui a contradição como falha. A lógica assimétrica a inclui como **indicação de que algo transcende nossas categorias**. Não se trata de dizer que "A é não-A" no mesmo sentido da lógica proposicional, mas de reconhecer que, no nível do indeterminado, as categorias de "afirmação" e "negação" ainda não se separaram.
 
 **O que este princípio afirma:**
+
 * Quando encontramos um paradoxo, pode ser sinal de que estamos diante de algo que não cabe em nossos esquemas comuns.
 * A realidade do indeterminado não obedece às mesmas regras da realidade das coisas definidas.
 * Afirmações como "luz escura" ou "silêncio que fala" não são absurdos, mas tentativas de indicar algo que escapa à lógica binária.
 
-### Princípio da Assimetria Fundacional
+3. **Princípio da Assimetria Fundacional**
+
 > *"O fundamento funda as coisas, mas as coisas não fundam o fundamento."*
 
 **Formulação simbólica:** O fundamento (F) implica a manifestação (M), mas a manifestação não implica o fundamento.
@@ -648,13 +688,15 @@ A lógica clássica exclui a contradição como falha. A lógica assimétrica a 
 Este é o princípio que dá nome à lógica assimétrica: a relação entre o indeterminado (F) e o mundo determinado (M) não é de igualdade, nem de oposição, mas de **dependência unilateral**. O indeterminado é condição de possibilidade das coisas determinadas, mas as coisas determinadas não são condição do indeterminado.
 
 **O que este princípio afirma:**
+
 * O indeterminado não se esgota nas coisas que dele surgem.
 * As coisas dependem do indeterminado, mas o indeterminado não depende das coisas.
 * Não há reciprocidade: podemos conhecer algo do fundamento pelas coisas, mas as coisas não nos revelam completamente o fundamento.
 
 **Exemplo:** A tela branca sobre a qual se pinta um quadro é condição para a pintura, mas a pintura não esgota nem define a tela. A tela permanece mesmo sem o quadro, e o quadro nada é sem a tela.
 
-### Princípio da Manifestação Não Disruptiva
+4. **Princípio da Manifestação Não Disruptiva**
+
 > *"O que parece impossível pode manifestar-se sem destruir a realidade comum."*
 
 **Formulação simbólica:** A manifestação do impossível no real não destrói a coerência do real, mas mostra que ele é mais aberto do que supúnhamos.
@@ -662,22 +704,23 @@ Este é o princípio que dá nome à lógica assimétrica: a relação entre o i
 A lógica clássica define o impossível como aquilo que não pode ocorrer. A lógica assimétrica reconhece que aquilo que escapa às regras comuns pode, em certas circunstâncias, manifestar-se sem anular a consistência do mundo.
 
 **O que este princípio afirma:**
+
 * A realidade não é um sistema fechado e completamente previsível.
 * O que vem do indeterminado pode irromper no determinado sem destruí-lo.
 
-## Classificação Sistêmica dos Princípios da Lógica Assimétrica
+**Classificação Sistêmica dos Princípios da Lógica Assimétrica**
 
 | Princípio | Formulação Simbólica | O que estabelece |
-| :--- | :--- | :--- |
-| **Indiferenciação Fundamental** | ∀x, ∀y, x ≡ y | Antes da distinção, há unidade |
-| **Inclusão do Paradoxo** | ∃x (P(x) ∧ ¬P(x)) | O contraditório pode indicar algo real |
-| **Assimetria Fundacional** | F → M, M ↛ F | O fundamento não se reduz ao fundado |
-| **Manifestação Não Disruptiva** | M(Imp) não destrói R | O impossível pode aparecer sem caos |
+| --- | --- | --- |
+| **Indiferenciação Fundamental** | ∀x, ∀y, x ≡ y | Antes da distinção, há unidade. |
+| **Inclusão do Paradoxo** | ∃x (P(x) ∧ ¬P(x)) | O contraditório pode indicar algo real. |
+| **Assimetria Fundacional** | F → M, M ↛ F | O fundamento não se reduz ao fundado. |
+| **Manifestação Não Disruptiva** | M(Imp) não destrói R | O impossível pode aparecer sem caos. |
 
-## Comparação com a Lógica Aristotélica
+**Comparação com a Lógica Aristotélica**
 
 | Aspecto | Lógica Aristotélica | Lógica Assimétrica |
-| :--- | :--- | :--- |
+| --- | --- | --- |
 | **Objeto** | Coisas já definidas (A, B, C) | O que antecede a definição |
 | **Operação básica** | Distinguir, separar, excluir | Incluir, suspender, unificar |
 | **Tratamento da contradição** | Erro a ser evitado | Indicação de algo que transcende |
@@ -685,19 +728,19 @@ A lógica clássica define o impossível como aquilo que não pode ocorrer. A l�
 | **Domínio de aplicação** | Mundo dos entes determinados | Fundamento do qual os entes surgem |
 | **Função** | Organizar o pensamento sobre o definido | Abrir o pensamento ao que antecede a definição |
 
-## Conclusão: A Dupla Face da Razão
+**Conclusão: A Dupla Face da Razão**
 
 A proposição aqui apresentada estabelece que:
 
-1.  A lógica aristotélica lida perfeitamente com o mundo das coisas definidas, mas cala-se diante do que antecede a definição.
-2.  A lógica assimétrica emerge fornecendo os princípios pelos quais a razão pode, reconhecendo seus limites, abrir-se ao que os excede.
-3.  **Os quatro princípios assimétricos** — Indiferenciação, Inclusão do Paradoxo, Assimetria Fundacional e Manifestação Não Disruptiva — constituem a estrutura fundamental desta nova lógica.
-4.  **Ambas as lógicas são faces da mesma razão**: uma voltada para o definido, outra aberta ao que antecede toda definição; uma operando por distinção, outra por inclusão.
+1. A lógica aristotélica lida perfeitamente com o mundo das coisas definidas, mas cala-se diante do que antecede a definição.
+2. A lógica assimétrica emerge fornecendo os princípios pelos quais a razão pode, reconhecendo seus limites, abrir-se ao que os excede.
+3. **Os quatro princípios assimétricos** — Indiferenciação, Inclusão do Paradoxo, Assimetria Fundacional e Manifestação Não Disruptiva — constituem a estrutura fundamental desta nova lógica.
+4. **Ambas as lógicas são faces da mesma razão**: uma voltada para o definido, outra aberta ao que antecede toda definição; uma operando por distinção, outra por inclusão.
 
-## Síntese para Fixação
+**Síntese para Fixação**
 
 | Princípio | Em poucas palavras |
-| :--- | :--- |
+| --- | --- |
 | **Indiferenciação Fundamental** | Antes de serem diferentes, as coisas são uma |
 | **Inclusão do Paradoxo** | O contraditório pode apontar para o real |
 | **Assimetria Fundacional** | O fundo não se reduz às figuras |
@@ -705,11 +748,9 @@ A proposição aqui apresentada estabelece que:
 
 ---
 
-# DOS PRINCÍPIOS ASSIMÉTRICOS AOS PRINCÍPIOS CAUSAIS
+#### Dos Princípios Assimétricos aos Princípios Causais (A Causalidade do Indeterminado e a Sustentação do Ser)
 
-*(A Causalidade do Indeterminado e a Sustentação do Ser)*
-
-## Introdução: A Transição da Lógica Abstrata para a Causalidade Vertical
+**Introdução: A Transição da Lógica Abstrata para a Causalidade Vertical**
 
 Se a face simétrica da razão deságua em uma causalidade horizontal e diacrônica — que rege as relações entre os entes já individualizados no espaço-tempo —, a **face assimétrica da razão** exige um desdobramento metafísico radicalmente diferente. A lógica do indeterminado não pode ser projetada sobre uma causalidade de choques, forças equivalentes ou reações simétricas. Ela exige a formulação de uma **Causalidade Assimétrica**.
 
@@ -717,204 +758,168 @@ Esta não é uma causalidade que opera *entre* as coisas do mundo (como a bola d
 
 A correspondência necessária entre o *logos* do indeterminado e a estrutura profunda do real exige, portanto, a tradução dos quatro princípios lógicos assimétricos em **quatro princípios causais metafísicos**.
 
-Tais princípios podem servir para justificar a tentativa de conceber a causa transformadora em ação de duas maneiras. Na primeira, o Ser atuaria diretamente sobre o nada ou sobre o indiferenciado, transformando-o em algo determinado. Na segunda, o próprio indiferenciado seria concebido como capaz de transformar-se autonomamente em algo, atualizando-se progressivamente em uma realidade determinada.
+Tais princípios podem servir para justificar a tentativa de conceber a causa transformadora em ação de duas maneiras. Na primeira, o Ser atuaria diretamente sobre o Nada ou sobre o indiferenciado, transformando-o em algo determinado. Na segunda, o próprio indiferenciado seria concebido como capaz de transformar-se autonomamente em algo, atualizando-se progressivamente em uma realidade determinada.
 
 Nesse segundo caso, o indiferenciado poderia ser considerado um falso Ser: uma espécie de realidade originária que contém, de forma indiferenciada, as partes que posteriormente constituirão a realidade contingente. Assim, tratar-se-ia da própria realidade contingente reduzida à indiferenciação, que, ao atualizar-se, voltaria a constituir-se como realidade determinada.
 
-Entretanto, é importante recordar que tais construções constituem, em última instância, uma tentativa equivocada de reconstruir um pensamento que parte da equivalência entre o Ser e o nada. Elas pressupõem, ainda, que o nada possua algum tipo de existência efetiva e que, consequentemente, possa sofrer uma atualização ou transformação. É justamente essa pressuposição que precisa ser rejeitada: se o nada é verdadeiramente nada, não pode existir como algo, nem possuir partes, potencialidades ou qualquer capacidade de atualização.
+Entretanto, é importante recordar que tais construções constituem, em última instância, uma tentativa equivocada de reconstruir um pensamento que parte da equivalência entre o Ser e o Nada. Elas pressupõem, ainda, que o Nada possua algum tipo de existência efetiva e que, consequentemente, possa sofrer uma atualização ou transformação. É justamente essa pressuposição que precisa ser rejeitada: se o Nada é verdadeiramente nada, não pode existir como algo, nem possuir partes, potencialidades ou qualquer capacidade de atualização.
 
----
-
-## A Dinâmica Metafísica da Não-Reciprocidade
+**A Dinâmica Metafísica da Não-Reciprocidade**
 
 Ao transportarmos o eixo da assimetria para o plano ontológico, deparamo-nos com uma realidade que a física clássica ou a lógica puramente formal não conseguem isolar: a **unilateralidade pura**.
 
-No mundo determinado, toda causa sofre, de algum modo, o influxo de seu efeito (a terceira lei de Newton exemplifica essa simetria no âmbito físico). No entanto, na metafísica do indeterminado, a relação de fundação seria absolutamente unidirecional: o Fundamento ($F$) causaria a Manifestação ($M$), enquanto $M$ não alteraria, não limitaria nem reagiria sobre $F$.
+No mundo determinado, toda causa sofre, de algum modo, o influxo de seu efeito (a terceira lei de Newton exemplifica essa simetria no âmbito físico). No entanto, na metafísica do indeterminado, a relação de fundação seria absolutamente unidirecional: o Fundamento (F) causaria a Manifestação (M), enquanto M não alteraria, não limitaria nem reagiria sobre F.
 
 Essa assimetria causal impediria que o Absoluto fosse capturado ou dissolvido por suas próprias manifestações, preservando, assim, a possibilidade de uma novidade radical na realidade manifesta.
 
 Entretanto, essa formulação conduz a uma dificuldade fundamental. Ela pressupõe que um fundamento indiferenciado possa produzir, a partir de si mesmo, uma realidade diferenciada sem sofrer qualquer determinação ou esgotamento. O problema é que, levado às últimas consequências, esse fundamento indiferenciado não poderia ser propriamente um fundamento distinto daquilo que produz. Se ele contém, ainda que de maneira indiferenciada, aquilo que posteriormente constituirá o mundo determinado, então o agente causador nada mais seria do que o próprio mundo determinado reduzido a uma condição de indiferenciação.
 
-Nesse sentido, teríamos uma realidade ontologicamente insustentável: algo que não é efetivamente determinado, mas que também não pode ser identificado com o nada, pois lhe atribuímos a capacidade de produzir, atualizar e determinar a realidade. A tentativa de estabelecer uma causa indiferenciada, portanto, acaba por introduzir uma entidade intermediária que não possui uma determinação própria suficiente para existir como fundamento, mas que, ao mesmo tempo, precisa possuir determinações potenciais para explicar o surgimento do determinado.
+Nesse sentido, teríamos uma realidade ontologicamente insustentável: algo que não é efetivamente determinado, mas que também não pode ser identificado com o Nada, pois lhe atribuímos a capacidade de produzir, atualizar e determinar a realidade. A tentativa de estabelecer uma causa indiferenciada, portanto, acaba por introduzir uma entidade intermediária que não possui uma determinação própria suficiente para existir como fundamento, mas que, ao mesmo tempo, precisa possuir determinações potenciais para explicar o surgimento do determinado.
 
 A assimetria pretendida, desse modo, não resolve o problema: apenas desloca a dificuldade para um fundamento cuja própria natureza permanece indeterminada e cuja capacidade causal já pressupõe aquilo que deveria explicar.
 
----
-
-## Os Quatro Princípios Causais Assimétricos
+**Os Quatro Princípios Causais Assimétricos**
 
 Os quatro princípios da causalidade assimétrica constituem o sistema de fundamentação vertical que explica a emergência, a novidade e a transcendência do real a partir de seu suposto fundo inesgotável.
 
-### Princípio da Causa Emanativa (Originária)
+1. **Princípio da Causa Emanativa (Originária)**
 
 > **Todos os efeitos determinados emergem de uma única raiz causal que não se divide ao gerá-los.**
 
-* **Fundamento Lógico:** Princípio da Indiferenciação Fundamental ($\forall x, \forall y, x \equiv y$).
+* **Fundamento Lógico:** Princípio da Indiferenciação Fundamental (∀x, ∀y, x ≡ y).
 * **Articulação Metafísica:** Se no nível do indeterminado todas as distinções originais são suspensas, a causalidade primária não opera por fragmentação. A causa não se divide em pedaços para criar coisas diferentes; antes, ela permanece inteira em seu próprio plano, enquanto a multiplicidade de efeitos brota de sua unidade como ramificações de uma mesma raiz invisível. Todos os entes participam da mesma substância original.
 
-### Princípio da Causa Paradoxal (Suprareacional)
+2. **Princípio da Causa Paradoxal (Suprareacional)**
 
 > **A causa primeira opera por uma potência que unifica os opostos, gerando efeitos que transcendem a exclusão binária.**
 
-* **Fundamento Lógico:** Princípio da Inclusão do Paradoxo ($\exists x (P(x) \land \neg P(x))$).
+* **Fundamento Lógico:** Princípio da Inclusão do Paradoxo (∃x (P(x) ∧ ¬P(x))).
 * **Articulação Metafísica:** A causalidade do indeterminado não está submetida às travas da contradição sincrônica aplicável aos entes. Ela é capaz de produzir a *coincidentia oppositorum* (coincidência dos opostos): criar o tempo a partir da eternidade, gerar a extensão a partir do inextenso ou fazer brotar a consciência do silêncio da matéria. O efeito manifesta na história o que parecia logicamente impossível na teoria.
 
-### Princípio da Causa Unilateral (Não-Recíproca)
+3. **Princípio da Causa Unilateral (Não-Recíproca)**
 
 > **A causa absoluta sustenta e fundamenta o efeito contingente sem sofrer qualquer reação, desgaste ou diminuição por parte deste.**
 
-* **Fundamento Lógico:** Princípio da Assimetria Fundacional ($F \rightarrow M, M \not\rightarrow F$).
+* **Fundamento Lógico:** Princípio da Assimetria Fundacional (F → M, M ↛ F).
 * **Articulação Metafísica:** Este é o coração da causalidade vertical. A dependência é exclusiva do fundado em relação ao fundamento. O universo determinado consome a energia de suas próprias causas internas (causalidade simétrica), mas a força que o mantém suspenso sobre o nada não sofre entropia. O efeito não esgota a causa; a tela não é alterada pela tinta do quadro.
 
-### Princípio da Causa Irruptiva (Emergência Aberta)
+4. **Princípio da Causa Irruptiva (Emergência Aberta)**
 
 > **O indeterminado pode injetar novidade radical no mundo determinado sem violar as leis locais de consistência.**
 
-* **Fundamento Lógico:** Princípio da Manifestação Não Disruptiva ($M(\text{Imp})$ não destrói $R$).
+* **Fundamento Lógico:** Princípio da Manifestação Não Disruptiva (M(Imp) não destrói R).
 * **Articulação Metafísica:** A causalidade assimétrica não destrói as leis da física ou as regras da lógica simétrica; ela as expande. Quando a intuição criativa, o gênio estético ou um salto de complexidade ontológica irrompem no mundo determinado, eles não causam caos ou quebra mecânica das engrenagens do universo. A realidade recebe o "impossível" e o acomoda de forma harmoniosa, revelando-se um sistema aberto.
 
----
-
-## Síntese Sistemática dos Princípios Causais Assimétricos
+**Síntese Sistemática dos Princípios Causais Assimétricos**
 
 | Princípio Causal Assimétrico | Formulação Metafísica | Raiz Lógica | Modo de Ação | Efeito no Real |
 | --- | --- | --- | --- | --- |
-| **Causa Emanativa** | A multiplicidade de entes provém de uma unidade causal indivisível. | Indiferenciação Fundamental ($\forall x, \forall y, x \equiv y$) | Unificação na Origem | Garante o fundo comum e a interconexão de tudo o que existe. |
-| **Causa Paradoxal** | A causa primeira viabiliza a coexistência produtiva de opostos no mundo. | Inclusão do Paradoxo ($\exists x (P(x) \land \neg P(x))$) | Síntese Suprareacional | Permite fenômenos de fronteira, como a vida, a mente e o tempo. |
-| **Causa Unilateral** | O Fundamento gera o ser manifestado sem ser modificado ou esgotado por ele. | Assimetria Fundacional ($F \rightarrow M, M \not\rightarrow F$) | Dependência Vertical Unilateral | Explica a transcendência do absoluto e a contingência do cosmos. |
-| **Causa Irruptiva** | A novidade absoluta irrompe na história sem quebrar a ordem mecânica preexistente. | Manifestação Não Disruptiva ($M(\text{Imp})$ não destrói $R$) | Atualização de Potenciais ocultos | Fundamenta a liberdade, a criatividade artística e a evolução do ser. |
+| **Causa Emanativa** | A multiplicidade de entes provém de uma unidade causal indivisível. | Indiferenciação Fundamental (∀x, ∀y, x ≡ y) | Unificação na Origem | Garante o fundo comum e a interconexão de tudo o que existe. |
+| **Causa Paradoxal** | A causa primeira viabiliza a coexistência produtiva de opostos no mundo. | Inclusão do Paradoxo (∃x (P(x) ∧ ¬P(x))) | Síntese Suprareacional | Permite fenômenos de fronteira, como a vida, a mente e o tempo. |
+| **Causa Unilateral** | O Fundamento gera o ser manifestado sem ser modificado ou esgotado por ele. | Assimetria Fundacional (F → M, M ↛ F) | Dependência Vertical Unilateral | Explica a transcendência do absoluto e a contingência do cosmos. |
+| **Causa Irruptiva** | A novidade absoluta irrompe na história sem quebrar a ordem mecânica preexistente. | Manifestação Não Disruptiva (M(Imp) não destrói R) | Atualização de Potenciais ocultos | Fundamenta a liberdade, a criatividade artística e a evolução do ser. |
 
----
+### O NADA COMO SIGNO MENTAL E SUA INSUSTENTABILIDADE ONTOLÓGICA
 
-## O Nada como Signo Mental e a Imanência da Representação
+#### O Nada como Signo Mental e a Imanência da Representação
 
-Já é possível adiantar que o final desta investigação delineará o nada como uma tentativa falha de conceber um Ser falso. Isso porque, ao tentarmos apreender o nada como uma realidade pura, somos inevitavelmente conduzidos a um estado de indefinição, no qual qualquer determinação atribuída ao nada já o converte em algo.
+Já é possível adiantar que o final desta investigação delineará o nada como uma tentativa falha de conceber um falso Ser. Isso porque, ao tentarmos apreender o nada como uma realidade pura, somos inevitavelmente conduzidos a um estado de indefinição, no qual qualquer determinação atribuída ao nada já o converte em algo.
 
 A criação a partir do nada, portanto, não pressupõe uma categoria ontológica nova, oposta ao Ser, mas antes a condição de liberdade do Ser no campo do Absoluto. O problema deixa, assim, de ser a identificação de uma suposta realidade chamada “nada” e passa a ser a compreensão da própria possibilidade de criação sem a transformação de uma realidade ou substância prévia.
 
-A pergunta fundamental, portanto, não será **“o que é o nada?”**, mas **“como é possível criar sem transformar uma realidade ou substância prévia chamada nada?”**. Dessa forma, ao refutarmos sucessivamente as tentativas de constituir o nada como uma realidade, poderemos alcançar uma compreensão mais precisa da liberdade metafísica e, consequentemente, de como o Ser opera sobre essa liberdade.
+A pergunta fundamental, portanto, não será “o que é o nada?”, mas “como é possível criar sem transformar uma realidade ou substância prévia chamada nada?”. Dessa forma, ao refutarmos sucessivamente as tentativas de constituir o nada como uma realidade, poderemos alcançar uma compreensão mais precisa da liberdade metafísica e, consequentemente, de como o Ser opera sobre essa liberdade.
 
-A conclusão correta é de que, a forma de se falar sob o nada é nem mesmo se referindo a ele. Quando nos referimos, já delineamos uma realidade ontológica. Portanto, o conceito de "nada" designa uma categoria inteligível, ao passo que o mero silêncio — o não pronunciar-se sobre coisa alguma — abstém-se de referenciar tanto a realidade quanto a irrealidade. Todavia, a omissão deliberada acerca de um objeto não equivale à sua elucidação total. Desta forma, a insistência de certas vertentes filosóficas em afirmar que a ausência de discurso ou a suspensão do pensamento é a melhor forma de representar o nada constitui, em última análise, apesar de estaram corretas, renúnciam à produção de conteúdo ontológico autêntico. Essa postura frequentemente mascara uma tentativa de esquivar-se da complexidade inerente ao tema e das dificuldades lógico-formais de se inferir sobre ele.
+A conclusão correta é que a melhor forma de falar sobre o nada é, na verdade, não se referir a ele. Ao fazermos qualquer referência, já delineamos uma realidade ontológica. Portanto, o conceito de "nada" designa uma categoria inteligível, ao passo que o mero silêncio — o não pronunciar-se sobre coisa alguma — abstém-se de referenciar tanto a realidade quanto a irrealidade. Todavia, a omissão deliberada acerca de um objeto não equivale à sua elucidação total. Dessa forma, a insistência de certas vertentes filosóficas em afirmar que a ausência de discurso ou a suspensão do pensamento é a melhor forma de representar o nada constitui, em última análise, uma renúncia à produção de conteúdo ontológico autêntico — ainda que essas vertentes estejam corretas em seu pressuposto. Essa postura frequentemente mascara uma tentativa de esquivar-se da complexidade inerente ao tema e das dificuldades lógico-formais de inferir sobre ele.
 
-A cognição humana opera estritamente por meio de representações mentais, isto é, sobre signos que remetem a entidades ou dimensões da realidade. Por conseguinte, para que o nada escape ao esvaziamento discursivo e submeta-se ao aparato cognitivo, ele deve ser postulado sob uma perspectiva ontológica. Faz-se necessária uma demonstração argumentativa que fundamente a legitimidade do conceito de nada como infundado, permitindo que ele atue como um signo mental operante no pensamento lógico somente com o fim de refuta-lo como realidade ontológica.
+A cognição humana opera estritamente por meio de representações mentais, isto é, sobre signos que remetem a entidades ou dimensões da realidade. Por conseguinte, para que o nada escape ao esvaziamento discursivo e submeta-se ao aparato cognitivo, ele deve ser postulado sob uma perspectiva ontológica. Faz-se necessária uma demonstração argumentativa que fundamente a legitimidade do conceito de nada como algo infundado, permitindo que ele atue como um signo mental operante no pensamento lógico somente com o fim de refutá-lo como realidade ontológica.
 
-Uma vez estabelecido o estatuto ontológico do nada como uma hipótese falsa para fins de inferência podemos investigar as propriedades que testam a possibilidade de um nada absoluto, avaliando se há uma pureza ontológica subjacente a ele que sustente essa absolutez.
+Uma vez estabelecido o estatuto ontológico do nada como uma hipótese falsa para fins de inferência, podemos investigar as propriedades que testam a possibilidade de um nada absoluto, avaliando se há uma pureza ontológica subjacente a ele que sustente essa absolutez.
 
-Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
+Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não-ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
 
-O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não objetos". Portanto, o nada designado pela linguagem existe e não contém a total potencialidade ou a total nulidade. Ele possui uma certa referência à nulidade, mas não à sua totalidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável. O nada não pode sequer ser absoluto, pois, desprovido de fundamento próprio, não possui realidade na qual a absolutez possa se fundar ou da qual possa ser predicada.
+O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não-objetos". Portanto, o nada designado pela linguagem existe e não contém a total potencialidade ou a total nulidade. Ele possui uma certa referência à nulidade, mas não à sua totalidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável. O nada não pode sequer ser absoluto, pois, desprovido de fundamento próprio, não possui realidade na qual a absolutez possa se fundar ou da qual possa ser predicada.
 
-Com o propósito de encontrar o aspecto puro (Ser) no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se o Ser é necessário para Absoluto. 
+Com o propósito de encontrar o aspecto puro (Ser) no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se o Ser é necessário para o Absoluto.
 
-Isto quer dizer que testaremos, através dos princípios assimétricos e simétricos, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada. Exploraremos as várias vertentes do nada em suas internalidades. Exploraremos o que *seria* e como o nada funcionaria de fato.
+Isto quer dizer que testaremos, através dos princípios assimétricos e simétricos, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada. Exploraremos as várias vertentes do nada em suas internalidades. Exploraremos o que seria e como o nada funcionaria de fato.
 
-## O Nada como Existência Relacional
+#### O Nada como Existência Relacional
 
-Ao concebermos o nada como algo representável — isto é, como uma existência potencialmente manifestável, uma nulidade ou uma neutralização do existente — permanecemos, inevitavelmente, dentro de um quadro existencial. Esse “nada” já não corresponde a uma ausência absoluta, mas a uma **negação determinada**, cuja definição depende necessariamente de um referencial.
+Ao concebermos o nada como algo representável — isto é, como uma existência potencialmente manifestável, uma nulidade ou uma neutralização do existente —, permanecemos, inevitavelmente, dentro de um quadro existencial. Esse “nada” já não corresponde a uma ausência absoluta, mas a uma negação determinada, cuja definição depende necessariamente de um referencial.
 
-Nesse sentido, o nada poderia ser interpretado como uma possibilidade dentro do campo do Absoluto, mas jamais como uma realidade autossuficiente. Ele é determinado precisamente por aquilo que nega. Assim, o signo mental do Nada deixa de indicar uma vacuidade absoluta e passa a operar como um conceito relacional, definido a partir daquilo que lhe serve de contraparte.
+Nesse sentido, o nada poderia ser interpretado como uma possibilidade dentro do campo do Absoluto, mas jamais como uma realidade autossuficiente. Ele é determinado precisamente por aquilo que nega. Assim, o signo mental do nada deixa de indicar uma vacuidade absoluta e passa a operar como um conceito relacional, definido a partir daquilo que lhe serve de contraparte.
 
-### 1. Definição por Negação
-
+**1. Definição por Negação**
 O nada só pode ser concebido como contraparte de algo manifesto ou possível. O “nada” seria, nesse sentido, a não-expressão de A e, portanto, requer necessariamente A como referência para sua própria definição.
 
-**Exemplos:** a escuridão pode ser compreendida como ausência de luz; o silêncio, como ausência de manifestação sonora. Em ambos os casos, aquilo que é negado fornece o conteúdo referencial da negação.
+* *Exemplos:* a escuridão pode ser compreendida como ausência de luz; o silêncio, como ausência de manifestação sonora. Em ambos os casos, aquilo que é negado fornece o conteúdo referencial da negação.
+* *Demonstração do erro:* essa formulação falha quando se pretende elevar o nada relacional à condição de realidade absoluta. Se o nada depende daquilo que nega para ser determinado, então ele não pode ser anterior ou independente do próprio referente. Sua existência conceitual é derivada: ele não constitui o fundamento daquilo que nega, mas surge logicamente em função desse algo.
 
-**Demonstração do erro:** essa formulação falha quando se pretende elevar o nada relacional à condição de realidade absoluta. Se o nada depende daquilo que nega para ser determinado, então ele não pode ser anterior ou independente do próprio referente. Sua existência conceitual é derivada: ele não constitui o fundamento daquilo que nega, mas surge logicamente em função desse algo.
-
-### 2. Referencialidade Obrigatória
-
+**2. Referencialidade Obrigatória**
 Não há “nada” sem relação com um “algo”, seja esse algo previamente manifestado, seja apenas concebível como possibilidade. Da mesma maneira, não há potência sem relação com aquilo que pode vir a ser atualizado, nem “não ente” sem referência àquilo que ele nega: o ente. Por conseguinte, também não há ausência sem a possibilidade de uma presença como referência, pois algo necessariamente precisa estar ausente para que se possa falar propriamente em ausência.
 
-3. **Um marcador de ausência:** uma forma de indicar que determinada manifestação não está presente.
+**3. Um marcador de ausência**
+Uma forma de indicar que determinada manifestação não está presente. A negação só pode existir enquanto negação de algo que já foi manifestado ou cuja manifestação seja possível. Portanto, não há “nada” em sentido absoluto sem uma referência positiva que determine aquilo que está sendo negado.
 
-A negação somente pode existir enquanto negação de algo que já foi manifestado ou cuja manifestação seja possível. Portanto, não há “nada” em sentido absoluto sem uma referência positiva que determine aquilo que está sendo negado.
+* *Exemplo:* a ausência de luz solar só pode ser compreendida porque a luz solar constitui uma realidade ou, ao menos, uma possibilidade conceitualmente determinada. Sem o referente, não haveria propriamente uma “ausência de luz solar”, mas apenas a impossibilidade de estabelecer qualquer determinação.
+* *Demonstração do erro:* se o nada necessita de um “algo” para delimitar sua própria vacuidade, então sua definição é necessariamente relativa. Ele não pode reivindicar autofundação, pois sua inteligibilidade depende daquilo que pretende negar. O nada relacional é, portanto, ontologicamente derivado: é uma sombra conceitual projetada sobre uma realidade que lhe serve de referência.
 
-**Exemplo:** a ausência de luz solar só pode ser compreendida porque a luz solar constitui uma realidade ou, ao menos, uma possibilidade conceitualmente determinada. Sem o referente, não haveria propriamente uma “ausência de luz solar”, mas apenas a impossibilidade de estabelecer qualquer determinação.
-
-**Demonstração do erro:** se o nada necessita de um “algo” para delimitar sua própria vacuidade, então sua definição é necessariamente relativa. Ele não pode reivindicar autofundação, pois sua inteligibilidade depende daquilo que pretende negar. O nada relacional é, portanto, ontologicamente derivado: é uma sombra conceitual projetada sobre uma realidade que lhe serve de referência.
-
-### 3. Oposição Negativa e Potenciais Mútuos
-
+**4. Oposição Negativa e Potenciais Mútuos**
 Se a manifestação A e o nada B forem concebidos como potenciais opostos ou como potenciais mútuos, surgem dificuldades distintas.
 
-Se forem **potenciais mútuos**, então coexistem como diferentes modalidades de uma mesma realidade ou essência. Nesse caso, o nada deixa de ser nada em sentido absoluto e passa a constituir apenas uma modalidade de determinação do ser.
+Se forem potenciais mútuos, então coexistem como diferentes modalidades de uma mesma realidade ou essência. Nesse caso, o nada deixa de ser nada em sentido absoluto e passa a constituir apenas uma modalidade de determinação do ser.
 
-*Ex: Uma infinitude material que não pode ser apreendida enquanto totalidade, pois uma dimensão material verdadeiramente infinita não pode ser integralmente visualizada. Ao ser recortada ou delimitada pelo olhar, porém, ela se apresenta como uma dimensão material real. Nesse intervalo, ocorre o colapso da forma dotada da potência de recorte, pois aquilo que era concebido como uma totalidade indiferenciada passa a manifestar-se como uma determinação particular. Porém, uma infinitude que é nada, visível mediante a um recorte, não é nada.
+* *Exemplo:* Uma infinitude material que não pode ser apreendida enquanto totalidade, pois uma dimensão material verdadeiramente infinita não pode ser integralmente visualizada. Ao ser recortada ou delimitada pelo olhar, porém, ela se apresenta como uma dimensão material real. Nesse intervalo, ocorre o colapso da forma dotada da potência de recorte, pois aquilo que era concebido como uma totalidade indiferenciada passa a manifestar-se como uma determinação particular. Porém, uma infinitude que é considerada "nada", mas que se torna visível mediante um recorte, não é nada.
 
-Se forem **potenciais opostos**, então se excluem mutuamente. A presença de qualquer determinação em B faria com que B deixasse imediatamente de ser nada, pois um potencial já constitui alguma forma de determinação.
+Se forem potenciais opostos, então se excluem mutuamente. A presença de qualquer determinação em B faria com que B deixasse imediatamente de ser nada, pois um potencial já constitui alguma forma de determinação.
 
-*Ex: O indiferenciado, tomado como nada, teria como potência a própria manifestação. Aparentemente, ambos seriam opostos: de um lado, a ausência de determinação; de outro, a determinação manifesta. Contudo, são conceitualmente dependentes, pois só podemos definir o indiferenciado como “nada” em referência àquilo que pode manifestar-se a partir dele.
-
-**Demonstração do erro:** em ambos os casos, a noção de nada absoluto colapsa. Se o nada possui potencialidade, ele já contém alguma determinação e, portanto, não é nada. Se não possui potencialidade alguma, não pode funcionar como substrato, fundamento ou princípio de transição para a manifestação. 
+* *Exemplo:* O indiferenciado, tomado como nada, teria como potência a própria manifestação. Aparentemente, ambos seriam opostos: de um lado, a ausência de determinação; de outro, a determinação manifesta. Contudo, são conceitualmente dependentes, pois só podemos definir o indiferenciado como “nada” em referência àquilo que pode manifestar-se a partir dele.
+* *Demonstração do erro:* em ambos os casos, a noção de nada absoluto colapsa. Se o nada possui potencialidade, ele já contém alguma determinação e, portanto, não é nada. Se não possui potencialidade alguma, não pode funcionar como substrato, fundamento ou princípio de transição para a manifestação.
 
 Assim, o nada não pode ser simultaneamente uma ausência absoluta e uma realidade dotada de potência.
 
-# A Insustentabilidade Ontológica do Nada
+#### A Insustentabilidade Ontológica do Nada
 
-O nada, enquanto conceito, **não possui autonomia ontológica**. Sua definição é essencialmente **relacional e derivada**: ele só pode ser determinado como negação de algo, seja esse algo uma realidade manifesta, seja uma possibilidade inteligível. Nesse sentido, o nada não constitui uma substância anulada que permanece existindo em estado de nulidade. Trata-se, antes, de uma determinação negativa produzida pela própria atividade conceitual de negar uma realidade ou possibilidade. Isso revela a natureza paradoxal do Nada enquanto categoria inteligível: ele possui vigência como **signo mental**, mas não como substância autônoma. Sua existência conceitual consiste precisamente em indicar aquilo que não é.
+O nada, enquanto conceito, não possui autonomia ontológica. Sua definição é essencialmente relacional e derivada: ele só pode ser determinado como negação de algo, seja esse algo uma realidade manifesta, seja uma possibilidade inteligível. Nesse sentido, o nada não constitui uma substância anulada que permanece existindo em estado de nulidade. Trata-se, antes, de uma determinação negativa produzida pela própria atividade conceitual de negar uma realidade ou possibilidade. Isso revela a natureza paradoxal do nada enquanto categoria inteligível: ele possui vigência como signo mental, mas não como substância autônoma. Sua existência conceitual consiste precisamente em indicar aquilo que não é.
 
-### 1. Dependência Absoluta
-
-O nada não é um ente em si, mas um operador lógico de negação que pressupõe um referencial positivo. Ele depende daquilo que pretende negar.
-
-A ausência de som, por exemplo, somente possui sentido porque o som constitui uma categoria possível. Sem a possibilidade do som, não haveria propriamente “ausência de som”, mas apenas a inexistência de qualquer referência a partir da qual a ausência pudesse ser determinada.
-
+**1. Dependência Absoluta**
+O nada não é um ente em si, mas um operador lógico de negação que pressupõe um referencial positivo. Ele depende daquilo que pretende negar. A ausência de som, por exemplo, somente possui sentido porque o som constitui uma categoria possível. Sem a possibilidade do som, não haveria propriamente “ausência de som”, mas apenas a inexistência de qualquer referência a partir da qual a ausência pudesse ser determinada.
 Aquilo que depende integralmente de outro para sua própria determinação não possui *ipsum esse*, isto é, não possui ser próprio. O nada relacional é ontologicamente impotente: não pode gerar a realidade, pois sua própria inteligibilidade pressupõe uma realidade ou possibilidade que lhe sirva de referência.
 
-### 2. Impossibilidade de Autofundação
-
-Enquanto o Absoluto, se concebido como fundamento último, deve possuir em si a razão de sua própria realidade, o nada é, por definição, **heterodeterminado**. Ele somente pode ser concebido em função de algo que lhe forneça conteúdo referencial.
+**2. Impossibilidade de Autofundação**
+Enquanto o Absoluto, se concebido como fundamento último, deve possuir em si a razão de sua própria realidade, o nada é, por definição, heterodeterminado. Ele só pode ser concebido em função de algo que lhe forneça conteúdo referencial.
 
 Surge então um paradoxo decisivo: tentar afirmar o nada como realidade independente exige atribuir-lhe propriedades — autonomia, permanência, identidade, potência ou capacidade causal. Contudo, no momento em que tais propriedades lhe são atribuídas, o nada deixa de ser nada e passa a ser alguma coisa.
 
-A tentativa de autofundação do nada é, portanto, autodestrutiva. Para afirmar que o nada “é”, precisamos transformá-lo em um objeto dotado de propriedades; mas, ao fazê-lo, já abandonamos sua definição como nada.
+A tentativa de autofundação do nada é, portanto, autodestrutiva. Para afirmar que o nada “é”, precisamos transformá-lo em um objeto dotado de propriedades; mas, ao fazê-lo, já abandonamos sua definição como nada. O conceito se desfaz no próprio ato de sua ontologização. Quanto mais propriedades atribuímos ao nada para torná-lo uma realidade, mais nos afastamos daquilo que pretendíamos definir.
 
-O conceito se desfaz no próprio ato de sua ontologização. Quanto mais propriedades atribuímos ao nada para torná-lo uma realidade, mais nos afastamos daquilo que pretendíamos definir.
+**Função no Âmbito do Absoluto**
+O nada não explica a existência; ele a pressupõe. Sua função não é constituir a origem da realidade, mas operar como limite conceitual da determinação. É a maneira aparentemente mais próxima de purificar a determinação a fim de tentar inteligir uma realidade que dispensa a forma. Porém, é uma maneira errônea. Colocar o nada na base da metafísica significa transformar uma negação derivada em fundamento positivo. Trata-se, portanto, de um erro categorial: aquilo que somente pode ser definido pela ausência de algo não pode, simultaneamente, ser tomado como a causa primeira desse algo.
 
-### Função no Âmbito do Absoluto
-
-O nada não explica a existência; ele a pressupõe. Sua função não é constituir a origem da realidade, mas operar como **limite conceitual da determinação**. É a maneira aparentemente mais próxima de purificar a determinação afim de tentar inteligir uma realidade que dispensa a forma. Porém, é uma maneira erronea. Colocar o nada na base da metafísica significa transformar uma negação derivada em fundamento positivo. Trata-se, portanto, de um erro categorial: aquilo que somente pode ser definido pela ausência de algo não pode, simultaneamente, ser tomado como a causa primeira desse algo.
-
-# O Mecanismo da Autossupressão do Nada
+#### O Mecanismo da Autossupressão do Nada
 
 Mesmo que, por hipótese, consideremos o nada como uma realidade paradoxalmente possível, sua própria definição conduziria à impossibilidade de sua sustentação. Se retirarmos dele toda referência, determinação ou conteúdo, já não restará aquilo que poderia ser identificado como “nada”.
 
-### 1. O Nada Referencial não se Sustenta
+**1. O Nada Referencial não se Sustenta**
+Se o nada não possuir relação com nenhum “algo”, ele não poderá ser definido como negação de coisa alguma. Ao perder seu referente, perde também a própria condição que permitia identificá-lo como nada. A ausência, quando absolutamente desvinculada de qualquer presença, deixa de ser uma ausência determinada. Não há mais uma relação a ser estabelecida entre aquilo que é e aquilo que não é. Isolado de qualquer referencial, o nada não alcança uma condição ontológica estável; ele perde até mesmo a determinação negativa que lhe conferia inteligibilidade.
 
-Se o nada não possuir relação com nenhum “algo”, ele não poderá ser definido como negação de coisa alguma. Ao perder seu referente, perde também a própria condição que permitia identificá-lo como nada.
+**2. O Nada como Evidenciador, não como Substrato**
+O nada, nesse sentido, não deve ser concebido como um estado ontológico estável que persiste antes da manifestação. Ele funciona antes como um limite conceitual da determinação: permite-nos pensar aquilo que não está manifesto sem que, com isso, seja necessário postular uma substância chamada “nada”.
+Portanto, o nada não é um vazio que persiste até ser preenchido pelo ser. É uma forma de nossa própria apreensão da ausência ou da não-manifestação. Se o nada fosse apenas um limiar dinâmico que se autossuprime para dar lugar ao existente, então ele nunca teria efetivamente existência. Seria apenas uma ficção transitória introduzida para explicar uma passagem que, em última análise, não necessita desse intermediário.
 
-A ausência, quando absolutamente desvinculada de qualquer presença, deixa de ser uma ausência determinada. Não há mais uma relação a ser estabelecida entre aquilo que é e aquilo que não é.
-
-Isolado de qualquer referencial, o nada não alcança uma condição ontológica estável; ele perde até mesmo a determinação negativa que lhe conferia inteligibilidade.
-
-### 2. O Nada como Evidenciador, não como Substrato
-
-O nada, nesse sentido, não deve ser concebido como um estado ontológico estável que persiste antes da manifestação. Ele funciona antes como um **limite conceitual da determinação**: permite-nos pensar aquilo que não está manifesto sem que, com isso, seja necessário postular uma substância chamada “nada”.
-
-Portanto, o nada não é um vazio que persiste até ser preenchido pelo ser. É uma forma de nossa própria apreensão da ausência ou da não-manifestação.
-
-Se o nada fosse apenas um limiar dinâmico que se autossuprime para dar lugar ao existente, então ele nunca teria efetivamente existência. Seria apenas uma ficção transitória introduzida para explicar uma passagem que, em última análise, não necessita desse intermediário.
-
-### 3. A Inexistência do Produto Autossuprimido
-
+**3. A Inexistência do Produto Autossuprimido**
 Não havendo um nada existente, também não há uma transição efetiva entre um “nada” e a existência. Não existe um estado intermediário que primeiro seja nada, depois se autossuprima e, finalmente, produza o existente.
+A própria ideia de autossupressão pressupõe algo que possa sofrer a ação de suprimir-se. Mas, se o nada carece de qualquer substancialidade, não há sujeito nem objeto sobre o qual essa ação possa ocorrer. A autossupressão torna-se, assim, um verbo sem sujeito ontológico: descreve um processo que não possui entidade alguma capaz de realizá-lo.
 
-A própria ideia de autossupressão pressupõe algo que possa sofrer a ação de suprimir-se. Mas, se o nada carece de qualquer substancialidade, não há sujeito nem objeto sobre o qual essa ação possa ocorrer.
+**4. A Ilusão do Intervalo Nulificador**
+Dessa forma, o nada pode parecer um estado intermediário que permite imaginar a passagem para a existência. A mente introduz um intervalo conceitual entre aquilo que é nadificado e aquilo que passa a ser determinado, interpretando esse intervalo como um “nada” que posteriormente seria superado. Entretanto, esse intervalo não corresponde necessariamente a uma realidade metafísica. Não existe um vácuo ontológico entre a ausência de uma determinação e a própria determinação. A suposta “passagem pelo nada” é, portanto, uma projeção epistemológica: uma maneira de representar mentalmente a ausência de uma determinação, e não a descrição de uma entidade que efetivamente precede a existência.
 
-A autossupressão torna-se, assim, um verbo sem sujeito ontológico: descreve um processo que não possui entidade alguma capaz de realizá-lo.
-
-### 4. A Ilusão do Intervalo Nulificador
-
-Dessa forma, o nada pode parecer um estado intermediário que permite imaginar a passagem para a existência. A mente introduz um intervalo conceitual entre aquilo que é nadificado e aquilo que passa a ser determinado, interpretando esse intervalo como um “nada” que posteriormente seria superado. Entretanto, esse intervalo não corresponde necessariamente a uma realidade metafísica. Não existe um vácuo ontológico entre a ausência de uma determinação e a própria determinação. A suposta “passagem pelo nada” é, portanto, uma **projeção epistemológica**: uma maneira de representar mentalmente a ausência de uma determinação, e não a descrição de uma entidade que efetivamente precede a existência.
-
-### 5. Colapso por Autorreferência
-
+**5. Colapso por Autorreferência**
 Todo nada concebido como negação pressupõe algo como referente. Quando eliminamos completamente esse referente, eliminamos também a condição de inteligibilidade da própria negação. O nada, portanto, não consegue sustentar-se como entidade autônoma. Ele não é um estado estável do ser, mas o limite ao qual conduzimos o pensamento quando retiramos progressivamente todas as determinações do determinado. Sua pretensão de absolutez conduz, assim, ao próprio colapso conceitual: quanto mais tentamos isolá-lo como realidade, menos conteúdo resta para identificá-lo como algo.
 
-Ao destituir toda a determinação do determinado, não temos uma sopa ontológica disforme. A aniquilação da identidade do que existe determinado, não o transforma automaticamente no inefável, isto é, no Ser. Pois o Ser se identifica pela própria essência de ser, já o determinado se identifica pela própria distinção. E, se considerarmos que o retirar da determinação do determinado o aniquila, então não temos substrato restante para referenciar como um nada ontológico.
+Ao destituir toda a determinação do determinado, não obtemos uma sopa ontológica disforme. A aniquilação da identidade daquilo que existe de forma determinada não o transforma automaticamente no inefável, isto é, no Ser. Pois o Ser se identifica pela sua própria essência de ser, enquanto o determinado se identifica pela sua própria distinção. E, se considerarmos que retirar a determinação do determinado o aniquila, então não nos resta qualquer substrato para referenciar como um nada ontológico.
 
-# Criação sem Conversão do Nada
+#### Criação sem Conversão do Nada
 
 A existência criada, portanto, não precisa ser compreendida como resultado de uma transformação do nada em algo. Tampouco é necessário postular um processo no qual uma realidade chamada “nada” se autossuprima para produzir a existência. Se o nada não possui existência própria, não pode constituir um substrato a partir do qual algo seja produzido.
 
@@ -924,55 +929,59 @@ Quando nos referimos ao Ser soberano e absoluto, não é necessário recorrer à
 
 Desse modo, a autossupressão não designa um processo real sofrido por uma entidade chamada nada. Ela apenas descreve, de maneira figurada, o desaparecimento conceitual de uma determinação negativa. O produto dessa suposta autossupressão não existe como entidade intermediária: não há um “nada autossuprimido” que posteriormente se transforme em existência.
 
-# Implicações Radicais
+#### Implicações Radicais e a Criação Ex Nihilo
 
 A tentativa de conceber o nada como entidade metafísica paradoxal revela-se, portanto, um exercício de pensamento que se desfaz em suas próprias condições de formulação.
 
 Aquilo que chamamos de “nada” pode ser compreendido, em última instância, como:
 
-1. **Um operador lógico:** uma negação relativa dentro de um campo no qual algo já é concebido como possível ou manifesto.
-2. **Um limite conceitual:** o ponto extremo alcançado quando retiramos de uma realidade todas as suas determinações.
-4. **Uma miragem ontológica:** a projeção pela qual transformamos uma operação conceitual de negação em uma suposta realidade independente.
+* **Um operador lógico:** uma negação relativa dentro de um campo no qual algo já é concebido como possível ou manifesto.
+* **Um limite conceitual:** o ponto extremo alcançado quando retiramos de uma realidade todas as suas determinações.
+* **Uma miragem ontológica:** a projeção pela qual transformamos uma operação conceitual de negação em uma suposta realidade independente.
 
-O nada, portanto, **não é um antecedente causal da existência**. Ele não constitui uma substância, um substrato ou uma potência anterior ao ser. É antes um efeito da própria atividade de determinação e negação exercida pelo pensamento.
+O nada, portanto, não é um antecedente causal da existência. Ele não constitui uma substância, um substrato ou uma potência anterior ao ser. É antes um efeito da própria atividade de determinação e negação exercida pelo pensamento.
 
 A manifestação não surge “do nada” porque não há um nada existente do qual ela possa surgir. O que existe é a própria manifestação, determinada segundo suas condições de possibilidade, enquanto o “nada” permanece apenas como o nome que atribuímos à sombra daquilo que seria manifesto.
 
-Assim, a investigação não conduz à descoberta de uma realidade chamada Nada, mas à dissolução progressiva dessa hipótese. E é precisamente nessa dissolução que se torna possível deslocar a questão metafísica fundamental: em vez de perguntar **“como o ser surgiu do nada?”**, devemos perguntar **“como é possível a manifestação sem pressupor uma realidade anterior chamada nada?”**.
+Assim, a investigação não conduz à descoberta de uma realidade chamada Nada, mas à dissolução progressiva dessa hipótese. E é precisamente nessa dissolução que se torna possível deslocar a questão metafísica fundamental: em vez de perguntar “como o ser surgiu do nada?”, devemos perguntar “como é possível a manifestação sem pressupor uma realidade anterior chamada nada?”.
 
-### Implicações para a Criação *Ex Nihilo*
+**Implicações para a Criação Ex Nihilo**
 
 Esta compreensão abrangente do nada relacional revela que a criação *ex nihilo* não deve ser compreendida sob falsas premissas. A criação não é:
 
-* **Transformação do nada em algo** (pois o nada não existe para ser transformado).
-* **Superação de um estado de não-existência** (pois não há tal estado).
-* **Preenchimento de um vazio preexistente** (pois não há vazio independente).
+* Transformação do nada em algo (pois o nada não existe para ser transformado).
+* Superação de um estado de não-existência (pois não há tal estado).
+* Preenchimento de um vazio preexistente (pois não há vazio independente).
 
 Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e ontológicos claros:
 
-1. **Não é criação "do nada" material:** O *nihil* da criação não é uma "matéria-prima" preexistente, mas a **negação absoluta** que só existe como conceito em relação ao Ser. *"Criar do nada" significa criar sem meio-termo, sem material preexistente.* É a **posição absoluta do Ser**.
-2. **O Ser não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente.
-3. **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente do Ser (como no neoplatonismo), mas é chamado à existência por ato livre da vontade do Ser, como manifestação gratuita da plenitude do Ser. 
+* **Não é criação "do nada" material:** O *nihil* da criação não é uma "matéria-prima" preexistente, mas a negação absoluta que só existe como conceito em relação ao Ser. "Criar do nada" significa criar sem meio-termo, sem material preexistente. É a posição absoluta do Ser.
+* **O Ser não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente.
+* **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente do Ser (como no neoplatonismo), mas é chamado à existência por ato livre da vontade do Ser, como manifestação gratuita da plenitude do Ser.
 
-## O Nada Existente, a Aporia do Impossível e a Indiferenciação do Todo
+*(Nota sobre a continuidade: Aqui está a quarta parte. Ela aborda as teses do Nada Existente, os processos lógicos de indiferenciação e nadificação, o potencial ontológico e, finalmente, a complexa problemática do infinito em relação ao ente.)*
+
+### A APORIA DO IMPOSSÍVEL, A INDIFERENCIAÇÃO E A PROBLEMÁTICA DO INFINITO
+
+#### O Nada Existente e a Aporia do Impossível
 
 Em outra tentativa teoricamente viável, cumpre postular a própria impossibilidade radical: afirmaremos o **Nada Existente** como uma fratura ou abertura do impossível no seio do Absoluto. Ao admitirmos o impossível no horizonte metafísico do Absoluto, tornamo-nos capazes de suspender o colapso imediato do nada. Sob esta óptica, o nada subsistiria em virtude de ser uma *impossibilidade manifesta* — isto é, uma singularidade ontológica que rasga a razão tradicional de forma disruptiva, sustentando-se na realidade fenomênica.
 
-A contradição primordial desta tese reside na violação do Princípio do Terceiro Excluído ($A \lor \neg A$) e da Não-Disformidade ($\neg(A=B)$). Ao definir o nada como "impossibilidade manifesta que se sustenta", opera-se um contrabando conceitual: confere-se ao nada o atributo do *ato* (a sustentação na realidade), que é propriedade exclusiva do Ente. O impossível, por definição, é o que carece de consistência interna; dotá-lo de "sustentação" é transformá-lo secretamente em Ser, aniquilando sua natureza de nada.
+A contradição primordial desta tese reside na violação do Princípio do Terceiro Excluído ($A \lor \neg A$) e da Não-Disformidade ($\neg(A=B)$). Ao definir o nada como "impossibilidade manifesta que se sustenta", opera-se um contrabando conceitual: confere-se ao nada o atributo do *ato* (a sustentação na realidade), que é propriedade exclusiva do Ente. O impossível, por definição, é aquilo que carece de consistência interna; dotá-lo de "sustentação" é transformá-lo secretamente em Ser, aniquilando sua natureza de nada.
 
-Esta postulação implica que, formalizada a hipótese do Nada Existente, podemos sim admiti-lo no discurso; todavia, este próprio mecanismo obscurece sua inteligibilidade, impedindo-nos de decifrar seus nuances constitutivos. Faz-se imperativo que haja **cognoscibilidade estrita** para o conceito de nada, sob pena de esvaziamento filosófico. Do contrário, a metafísica carecerá da formulação mecânica que explique como é ontologicamente possível extrair o Ente (algo) a partir da vacuidade (nada).
+Esta postulação implica que, formalizada a hipótese do Nada Existente, podemos sim admiti-lo no discurso; todavia, esse próprio mecanismo obscurece sua inteligibilidade, impedindo-nos de decifrar suas nuances constitutivas. Faz-se imperativo que haja **cognoscibilidade estrita** para o conceito de nada, sob pena de esvaziamento filosófico. Do contrário, a metafísica carecerá da formulação mecânica que explique como é ontologicamente possível extrair o Ente (algo) a partir da vacuidade (nada).
 
-Contudo, ainda que permaneçamos provisoriamente cegos ao mecanismo pelo qual o nada possa de fato subsistir, cumpre averiguar as consequências metafísicas caso sua existência fosse validada por uma inferência lógica que esclarecesse este ínterim.
+Contudo, ainda que permaneçamos provisoriamente cegos ao mecanismo pelo qual o nada possa de fato subsistir, cumpre averiguar as consequências metafísicas caso sua existência fosse validada por uma inferência lógica que esclarecesse esse ínterim.
 
-### A Aporia da Purificação e a Re-Ontologização do Nada
+**A Aporia da Purificação e a Re-Ontologização do Nada**
 
-O Nada Existente, ao sucumbir por sua instabilidade intrínseca, faz emergir a Presença de forma natural. Todavia, se hipotetizarmos o Nada Existente como uma realidade perdurável, a estrutura da razão tentarará, de forma quase automática, abstrair o componente "existente" do "nada". Historicamente, diversos filósofos tentaram validar o impossível existente; contudo, essa manobra introduz a necessidade de uma nova purificação conceitual, visto que o termo "Nada Existente" inevitavelmente carrega consigo o poluente ontológico do ser.
+O Nada Existente, ao sucumbir por sua instabilidade intrínseca, faz emergir a Presença de forma natural. Todavia, se hipotetizarmos o Nada Existente como uma realidade perdurável, a estrutura da razão tentará, de forma quase automática, abstrair o componente "existente" do "nada". Historicamente, diversos filósofos tentaram validar o impossível existente; contudo, essa manobra introduz a necessidade de uma nova purificação conceitual, visto que o termo "Nada Existente" inevitavelmente carrega consigo o poluente ontológico do ser.
 
 Portanto, por imperativo lógico, a razão nega o Nada Existente na tentativa de extirpar dele o seu teor de ser. Ocorre que, ao operar essa negação purificadora, o Nada Existente reitera-se e reaparece em sua configuração primeva. A negação do Nada Existente não gera o nada puro, livre de poluentes; antes, resulta na mesmíssima mentalização do Nada Existente — um construto mental que apenas recusa desabar sobre si mesmo, tal como ocorria no nada paradoxal.
 
 O erro lógico situa-se na ilusão de que a negação da existência do nada purificaria o conceito. Na lógica formal, a negação de uma negação ($\neg(\neg A)$) retorna logicamente à afirmação ($A$). Ao tentar negar o "teor existente" do nada, a razão realiza um duplo movimento nulo: ela postula o nada e, ao tentar purificá-lo pela negação, restabelece a própria barreira que pretendia transpor. O "nada puro" torna-se inalcançável porque o próprio ato de pensar o nada o contamina com a existência da representação.
 
-### A Regressão ao Infinito da Nadificação Potencial
+**A Regressão ao Infinito da Nadificação Potencial**
 
 Avançando ainda mais na esteira desta hipótese, consideremos o Nada Existente como o portador de um **potencial não manifesto**, conjecturando que esta potência pode permanecer totalmente oculta no imo da vacuidade, por vias jamais explicadas ou compreendidas. Mesmo sob esta concessão teórica, no instante em que tentássemos negar o Nada Existente para extrair dele o seu potencial de existência, seríamos confrontados com um desdobramento aporético: obteríamos um *nada com potencial de ser um nada com potencial*. Ao negarmos este último, elevaríamos a potência sempre ao último estágio do nada negado.
 
@@ -987,7 +996,7 @@ Afigura-se, pois, impossível extirpar a potência do nada se o considerarmos pe
 
 > **Demonstração do Erro (Regressio ad Infinitum da Nadificação):** Este mecanismo falha geometricamente por incorrer em uma regressão infinita de operadores lógicos (*infinite regress*). Ao introduzir a categoria de "potência oculta" no nada, transforma-se a vacuidade em um motor gerador infinito. A negação deixa de ser um termo resolutivo e passa a agir como um espelho posicionado frente a outro espelho: cada negação gera um novo invólucro potencial ($\neg N \rightarrow N_{pot1} \rightarrow \neg N_{pot1} \rightarrow N_{pot2}$). Esse processo esvazia o conceito de qualquer *ratio sufficiens* (razão suficiente), pois o fundamento da existência é indefinidamente postergado para o próximo "nada" da série infinita.
 
-### O Problema da Inferência e a Propriedade da Infinitude
+**O Problema da Inferência e a Propriedade da Infinitude**
 
 Tentaremos, agora, compreender o "nada" como um conceito de nulidade dotado de um vetor dinâmico: um rumo potencial ao infinito. Para avançar nessa investigação, é necessário racionalizar o nada inicialmente em sua primeira potência.
 
@@ -997,45 +1006,43 @@ O nada possui potência, desdobrando-se em uma progressão lógica de graus:
 * **Segundo Grau:** A potência da não-potência. Isto é, a potência de anular a potência.
 * **... Terceiro Grau e Ad Infinitum:** A potência de anular a potência da potência gerada pela primeira nulidade do nada, estendendo-se infinitamente.
 
-Para fins metodológicos, o foco desta análise restringe-se à primeira anulação: **o nada no potencial primeiro elevado ao infinito**. Pois, ao considerarmos uma regressão infinita, retornamos à mesma substância. O nada de segundo grau é o mesmo que o do primeiro grau e assim sucessivamente. A nulidade é sempre a mesma, e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
+Para fins metodológicos, o foco desta análise restringe-se à primeira anulação: **o nada no potencial primeiro elevado ao infinito**. Pois, ao considerarmos uma regressão infinita, retornamos à mesma substância. O nada de segundo grau é o mesmo que o de primeiro grau, e assim sucessivamente. A nulidade é sempre a mesma e sempre carrega potência. Portanto, não temos mais o conceito elevado a uma infinitude.
 
 O **nada nomeável** caracteriza-se, fundamentalmente, como um **nada potencial**. Isso ocorre porque ele carrega um potencial latente que jamais se esvazia por completo; ele nunca se concretiza como uma ausência plena, pois está perenemente acompanhado de sua própria potência.
 
-O nada potencial, no desabe sobre si, é inalcançável, está elevado à potência infinita. Sendo esse limite absoluto inacessível à apreensão direta, a investigação filosófica deve focar-se no território do nada potencial. Afinal, ao elevarmos o nada em sua latência, nunca se atinge a nulidade completa, mas apenas a renovação desse mesmo potencial.
+O nada potencial, no seu desabar sobre si mesmo, é inalcançável, pois está elevado à potência infinita. Sendo esse limite absoluto inacessível à apreensão direta, a investigação filosófica deve focar-se no território do nada potencial. Afinal, ao elevarmos o nada em sua latência, nunca se atinge a nulidade completa, mas apenas a renovação desse mesmo potencial.
 
 Assim, delimitamos a diferença entre o nada potencial nomeável e o **nada inominável** — este último sendo a ausência do próprio nada, destituído de qualquer propriedade e incapaz de ser até mesmo "absoluto". Portanto, para admitir o nada nomeável, é preciso conceber a ideia de uma **impossibilidade realizada**.
 
-Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Desta forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
-===============================
+Portanto, o nada inominável é um vazio linguístico: algo que se define como 'escasso' não por conter em si uma escassez real, mas simplesmente por não ser falado ou por não constituir um conteúdo da mente. Dessa forma, o nada total equivale à ausência de referência na linguagem, à não-formalização de signos mentais e ao próprio ato de não se falar sobre algo.
 
-revisar
-### O processo da indiferenciação e nadificação do determinado
+#### O Processo da Indiferenciação e Nadificação do Determinado
 
-Há um processo pelo qual se tenta indiferenciar o diferenciado. E outro processo pelo qual se tenta negar o diferenciado. Isto é, há um prcesso pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existencia e identidade das coisas na tentativa de alcançar a pureza ou ate mesmo o nada potencial.
+Há um processo pelo qual se tenta indiferenciar o diferenciado, e outro processo pelo qual se tenta negar o diferenciado. Isto é, há um processo pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existência e a identidade das coisas na tentativa de alcançar a pureza, ou até mesmo o nada potencial.
 
-A indiferenciação produzida da determinação, para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indiferenciação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado, como diluição do determinado, opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém. Porém, as coisas pedem a forma em um estado de completa indiferenciação, extraindo-lhe as formas já não são as coisas que antes se identificavam.
+A indiferenciação, quando produzida a partir da determinação para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indiferenciação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado, como diluição do determinado, opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém. Porém, ao perderem a forma em um estado de completa indiferenciação, e ao se extrair delas essas formas, as coisas já não são aquilo que antes se identificava.
 
-Em contrapartida, a nadificação direta, isto é, a negação, colapsa de forma mais precisa e radical, pois não pressupõe nenhuma sopa residual indiferenciada da diluição de formas. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pela indiferenciação do determinado. Do ponto de vista estritamente filosófico, ainda que tanto a indiferenciação do determinado quanto a nadificação do existente sejam do mesmo ponto de vista ilógicas, a nadificação, intuitivamente, oferece um "desabar" muito mais cristalino: ela traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto o Indiferenciação do diferenciado tenta capturar a ausência de formas, a "nadificação" opera sobre o próprio potencial de positividade das formas, tentando anulá-lo.
+Em contrapartida, a nadificação direta — isto é, a negação — colapsa de forma mais precisa e radical, pois não pressupõe nenhuma sopa residual indiferenciada oriunda da diluição de formas. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pela indiferenciação do determinado. Do ponto de vista estritamente filosófico, ainda que tanto a indiferenciação do determinado quanto a nadificação do existente sejam, do mesmo ponto de vista, ilógicas, a nadificação oferece intuitivamente um "desabar" muito mais cristalino: ela traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto a indiferenciação do diferenciado tenta capturar a ausência de formas, a "nadificação" opera sobre o próprio potencial de positividade das formas, tentando anulá-lo.
 
-Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado — realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro, isto é, no Ser, nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
+Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado —, realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro (isto é, no Ser), nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
 
 Embora o ato de indiferenciar anule a determinação (os contornos específicos de cada possibilidade), ele não aniquila a existência; resta, invariavelmente, o fundamento para sustentá-la. A prevalência desse substrato primordial, homogêneo e anterior a qualquer recorte limitador, não pode ser categorizada como "Nada", mas sim como um substrato ilógico. O Nada, afinal, é incapaz de sustentar o atributo da pureza. Para ser puro, é preciso ter substância; e o Nada, por definição, simplesmente não é.
 
-Ao indiferenciarmos um ente de si mesmo, não temos uma realidade pura, o que chamaríamos de Ser. Mas ao indiferenciarmos o ente até mesmo em si, e não somente de si, temos, novamente, o  substrato ilógico, pois o indiferenciamento transgride o nível da fundamentação, ou seja, o indiferenciamento não pode ultrapassar para o nível da fundamentação daquilo que não é, por natureza, indiferenciado.
+Ao indiferenciarmos um ente de si mesmo, não temos uma realidade pura (o que chamaríamos de Ser). Mas, ao indiferenciarmos o ente até mesmo em si, e não somente de si, temos, novamente, o substrato ilógico. Isso porque o indiferenciamento transgride o nível da fundamentação, ou seja, o indiferenciamento não pode ultrapassar para o nível da fundamentação daquilo que não é, por sua própria natureza, indiferenciado.
 
-Ao tentarmos igualar o **indiferenciado** com o próprio nada deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. Através da lógica assimétrica é possível se anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
+Ao tentarmos igualar o **indiferenciado** com o próprio nada, deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. Através da lógica assimétrica, é possível anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
 
-No entanto, a indiferenciação se refere a imparcialidade da identidade e não da extinção da fundamentação. Porém, ao pensarmos na indiferenciação total, ambos os modos - nada e indiferenciado - manifestam um paradoxo. Pensar o nada ou em uma indiferenciação total exige dar realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
+No entanto, a indiferenciação refere-se à imparcialidade da identidade, e não à extinção da fundamentação. Porém, ao pensarmos em uma indiferenciação total, ambos os modos — nada e indiferenciado — manifestam um paradoxo. Pensar o nada ou pensar em uma indiferenciação total exige conferir realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
 
-Neste estágio da investigação, como a substância pura permanece inalcançada, somos compelidos a justificar a existência factual das coisas — afinal, se o mundo manifesto existe, ele deve derivar de alguma operação primordial. Buscamos, portanto, identificar o mecanismo que opera *sobre* esse nada, visando extrair, desse conteúdo que colapsa infinitamente, uma determinação, o "algo" que existe.
+Neste estágio da investigação, como a substância pura permanece inalcançada, somos compelidos a justificar a existência factual das coisas — afinal, se o mundo manifesto existe, ele deve derivar de alguma operação primordial. Buscamos, portanto, identificar o mecanismo que opera *sobre* esse nada, visando extrair desse conteúdo, que colapsa infinitamente, uma determinação: o "algo" que existe.
 
-É neste ponto que tentamos também singularizar o determinado o indeterminando em um colapso que desaba sem um fim. O indiferenciado retirado do determinado deixa de ser uma categoria estática para tornar-se a **captura desse contorno em colapso**. Isso significa que o termo "indiferenciado" adquire um caráter estritamente **dinâmico**. A mente humana tenta resgatar um significado para ele, mas, no exato instante em que ele é pensado, esse significado esvai-se. É uma aproximação cognitiva de altíssima velocidade, mas cuja "velocidade do pensamento" jamais consegue alcançar ou estabilizar o seu produto final.
+É neste ponto que tentamos também singularizar o determinado, indeterminando-o em um colapso que desaba sem um fim. O indiferenciado retirado do determinado deixa de ser uma categoria estática para tornar-se a **captura desse contorno em colapso**. Isso significa que o termo "indiferenciado" adquire um caráter estritamente **dinâmico**. A mente humana tenta resgatar um significado para ele, mas, no exato instante em que ele é pensado, esse significado esvai-se. É uma aproximação cognitiva de altíssima velocidade, mas cuja "velocidade do pensamento" jamais consegue alcançar ou estabilizar o seu produto final.
 
-Indiferenciamos o determinado, e o que sobra é o nada falseavel, ou uma indiferenciação não realizada, que identifica um ente mal indiferenciado, de forma que precise se reincindir a indiferenciação infinitas vezes, tal como se necessita nadificar o ente infinitas vezes.
+Indiferenciamos o determinado, e o que sobra é o nada falseável, ou uma indiferenciação não realizada, que identifica um ente mal indiferenciado, de forma que se precise reincidir a indiferenciação infinitas vezes, tal como se necessita nadificar o ente infinitas vezes.
 
-O "nada" torna-se, assim, uma **singularidade filosófica**. É um termo que tende assintoticamente ao infinito, estabelecendo um *loop* perpétuo na razão: uma busca incessante por um significado que, por definição estrutural, nunca poderá repousar em um conceito fixo. 
+O "nada" torna-se, assim, uma **singularidade filosófica**. É um termo que tende assintoticamente ao infinito, estabelecendo um *loop* perpétuo na razão: uma busca incessante por um significado que, por definição estrutural, nunca poderá repousar em um conceito fixo.
 
-### O Nada como Portador de Potencial Ontológico
+#### O Nada como Portador de Potencial Ontológico
 
 Embora tenhamos estabelecido o Indiferenciado como a matriz primordial afirmativa, a investigação lógica nos obriga a reconhecer uma simetria estrutural incontornável: **o "nada" também porta um potencial equivalente ao do indiferenciamento forçado do mundo determinado.**
 
@@ -1048,99 +1055,17 @@ Dessa forma, conclui-se que **ambos os conceitos guardam infinito potencial**. A
 * **O determinado Indiferenciado** é o potencial afirmativo: a totalidade em estado de suspensão ontológica, aguardando a determinação. É o Ser-em-potência, a matriz que possibilita a diferenciação.
 * **O Nada** é o potencial negativo: a totalidade em estado de supressão. É a força neutralizadora que contém, em seu próprio avesso, a exata proporção ontológica do Ser que ele anula.
 
-Portanto, o nada jamais é destituído de conteúdo latente. Se o Indiferenciado forçado guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do Ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado forçado são determinações, são estados ou potenciais do negado ou do indiferenciamento do diferenciado. São um estado de estabilidade para o todo ontológico. O indiferenciado tem o potencial da diferença, e é em si uma determinação. Tal como o nada tem o potencial do todo, e é em si uma determinação.
+Portanto, o nada jamais é destituído de conteúdo latente. Se o Indiferenciado forçado guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do Ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado forçado são determinações: são estados ou potenciais do negado ou do indiferenciamento do diferenciado. São um estado de estabilidade para o todo ontológico. O indiferenciado tem o potencial da diferença, e é em si uma determinação; tal como o nada tem o potencial do todo, e é em si uma determinação.
 
-O indiferenciamento do determinado é indiferente até a si mesmo, ao passo que assumir o nada significa saltar esse caminho intermediário. Trata-se de uma via direta para produzir o nada, degradando o ontológico por meio da conceituação. Porém, por ambas as vias alcança-se o mesmo resultado: a nulidade do que é. O indiferenciado conclui-se no nada ao negar o ente fragmentado, afirmando não ser nem uma coisa, nem outra, e nem a si próprio. Já o nada opera uma negação mais incisiva e cabal, pois dispensa a abordagem dos fragmentos.
+O indiferenciamento do determinado é indiferente até a si mesmo, ao passo que assumir o nada significa saltar esse caminho intermediário. Trata-se de uma via direta para produzir a nulidade, degradando o ontológico por meio da conceituação. Porém, por ambas as vias alcança-se o mesmo resultado: a nulidade do que é. O indiferenciado conclui-se no nada ao negar o ente fragmentado, afirmando não ser nem uma coisa, nem outra, e nem a si próprio. Já o nada opera uma negação mais incisiva e cabal, pois dispensa a abordagem dos fragmentos.
 
 Neste contexto, os termos "nada" e "indiferenciado" não se referem a um objeto finalizado, mas sim ao próprio **processo de nadificação** que nunca atinge o seu termo exato. Iremos explorar o absoluto sob a perspectiva da forma final: a cada potência explorada, o potencial do nada se expande.
 
-O potencial do indiferenciado, portanto, voltado a si mesmo, não atinge o potencial do não-indiferenciado — tal como o potencial do nada jamais alcança o não-nada. Desta forma, o incausado permanece aprisionado a determinações, nunca atingindo uma forma totalmente potente. Ao atribuirmos ao indiferenciado o potencial do não-indiferenciado, deparamo-nos com uma realidade cujo potencial consiste em ser potencial ou não; ao subtrairmos mais uma camada desse potencial, projetamos uma linha infinita que avança perpetuamente, sem jamais encontrar o seu verdadeiro potencial.
+O potencial do indiferenciado, portanto, ao voltar-se para si mesmo, não atinge o potencial do não-indiferenciado — tal como o potencial do nada jamais alcança o não-nada. Desta forma, o incausado permanece aprisionado a determinações, nunca atingindo uma forma totalmente potente. Ao atribuirmos ao indiferenciado o potencial do não-indiferenciado, deparamo-nos com uma realidade cujo potencial consiste em ser potencial ou não; ao subtrairmos mais uma camada desse potencial, projetamos uma linha infinita que avança perpetuamente, sem jamais encontrar o seu verdadeiro potencial.
 
 Em síntese, o indiferenciado busca a nulidade ao colocar-se como radicalmente diferente de qualquer coisa, enquanto o nada a persegue ao recusar-se a ser coisa alguma. Ambos os caminhos representam vias distintas que partem do mesmo intuito e desaguam no mesmo resultado: a tentativa de estabelecer uma substância incausada. O nada, ou o indiferenciado, são, portanto, conceitos dinâmicos, incapazes de sintetizar conceitualmente o seu verdadeiro significado.
 
-## A Causalidade e o Nada: Rumo à Pureza Ontológica do Absoluto
-
-Se considerarmos o "nada", aquele que não pode ser pensado, como um subproduto do Absoluto — uma matéria-prima ainda não lapidada —, percebemos que a auto causalidade atua sobre ele. Isto confere que se sobressai o teor auto causal sob o nada. Ao tomarmos o nada em relação ao Absoluto como uma autojustificação ou substância pura, podemos refinar a definição do Absoluto, delineando de forma aprimorada a sua substância.
-
-Porém, precisaríamos, para sermos exatos, não nos referir ao nada, mas a uma auto posição soberana do inefável, para que, ao não se pronunciar sobre o nada, possamos ser lógicos. Ao pensarmos no auto causal, pensamos de forma direcional, tal como pensamos na criação do mundo onde há causa e efeito. Porém, a auto causalidade não tem uma unidirecionalidade e nem um segundo ente para se esbarrar, ou mesmo o nada para se esvair.
-
-Do Absoluto deduz-se o "não causado": a fonte primária que dispensa qualquer regressão *ad infinitum*. Infere-se também que não há nada exterior, anterior ou qualquer razão subjacente que justifique o Absoluto, pois ele, por definição, justifica-se a si mesmo (*causa sui*). 
-
-Ao aplicarmos os princípios da causalidade sobre o nada, isto é, em outras palavras, ao deixarmos a auto causalidade soberana, sem objeto a qual ilumina, alcançamos respostas que agregam um novo teor à substância absoluta que buscamos — aquela capaz de justificar a realidade tal como ela é. A auto causalidade só encontra seu sentido quando pensamos na causalidade agindo como soberana, isto é, sob o nada - o qual não pode ser pensado.
-
-O nada dispensa causa porque não é um "ente"; não se pode aplicar uma cadeia causal ao nada, visto que, nele, quaisquer efeitos consecutivos diluem-se em uma única ausência. Onde não há efeito, também não se exige causa. E, desta forma, o nada dispensa a causa. Contudo, o nada *determinado* — aquele concebido pelo pensamento como uma oposição ou singularidade — exige uma causa, pois já é uma representação para o Absoluto. 
-
-Porém, o nada, não sendo capturado pela razão nem mesmo como conceito, não haveria como aplicar a causalidade estrita sobre aquilo que é inominável e do qual possuímos apenas uma conceitualização aproximada. Ainda assim, para fins explicativos, continuemos a tratar o nada como um conceito não refinado e provisório, mas não insuficiente. Aplicaremos a auto causalidade sobre esse conceito de nada com o objetivo de desvelar o conteúdo do Absoluto, sua substância final.
-
-Como o conceito de autocausalidade absoluta beira o colapso lógico quando preso ao nada, tomemos outro ponto de partida. Passaremos a explorar o Absoluto não apenas pelo seu conteúdo oculto, mas por sua relação, seu dinamismo interno e sua mobilidade autocausal. O que se podia extrair da substância do Absoluto à luz do nada já foi esgotado. A partir de agora, extrairemos seu sentido abandonando a negatividade do nada para focar exclusivamente na positividade do Absoluto. Exploraremos as consequências de uma realidade absoluta puramente sob a ótica da autocausalidade, buscando uma pureza positiva, isto é, uma *pureza ontológica*.
-
-A pureza puramente negativa não é plenamente conceituável, pois não é ontológica. A pureza não ontológica colapsa: torna-se incapturável e impensável, impossibilitando a aplicação de categorias causais àquilo que escapa ao próprio pensamento e à conceitualização. Resta-nos, contudo, o conceito de Absoluto para aplicar a autocausalidade, em busca de encontrar a pureza fundamental, que mais tarde definiremos como Espírito. Uma pureza positiva, afirmativa e nomeável. E partiremos nossa procura pela pureza ontológica aplicando de todas as formas possíveis a autocausalidade ao horizonte de nossa investigação que é o Absoluto.
-
-### A Aplicação da Auto causalidade ao Inominável e a Contradição Performativa
-
-Consideremos o desabar definitivo do conceito de "nada". Ainda que o submetêssemos hipoteticamente à lente da causalidade, ele jamais poderia assumir o papel de princípio autocausal, tampouco de agente causal transitivo. O nada é, em sua essência, estritamente *nada*. Ele não serve como fonte de onde algo emana, nem como elemento capaz de fundamentar a si próprio, pois não possui substrato. A aplicação da autocausalidade exige, irrevogavelmente, uma realidade ontológica — uma base existencial sobre a qual a ação de causar possa repousar e operar.
-
-Ao tentarmos postular o "nada" como uma propriedade autocausadora, alteramos violentamente a sua estrutura conceitual. Ele transmuta-se, de imediato, em uma positividade: torna-se uma determinação (a determinação inescapável de *ser* autocausal) e não pode ser, não autocausal. Ao assumir o imperativo de fundamentar a si mesmo, o nada perde a sua vacuidade primordial e polariza-se, convertendo-se em uma **positividade relacional**. Ele deixa de ser o inominável para agir como um ente.
-
-O nada nem mesmo é autocausal, é simplesmente nada. Se fosse autocausal, teria uma propriedade relacional para consigo mesmo, seria autor de sua própria configuração, desdobrando-se em um sujeito que causa e um objeto que é causado. Ao atribuirmos qualquer propriedade operacional ao nada — mesmo a suprema capacidade de causar a si próprio —, essa atribuição inevitavelmente colapsa. Ela recai como um peso determinante, destruindo a pureza do conceito e frustrando, mais uma vez, a busca pelo verdadeiro Indiferenciado. A relação *causa sui* (causa de si mesmo) exige um desdobramento, o que é impossível em um vácuo absoluto.
-
-Para que qualquer instância seja postulada como autocausal, ela exige, imperativamente, uma estrutura relacional interna e uma capacidade ativa. A autocausalidade não é um estado inerte; é um vetor de sustentação, um dinamismo onde o "causador" e o "causado" coincidem na mesma realidade. Causar a si mesmo implica agir sobre si mesmo, o que pressupõe, fundamentalmente, a posse de um "si".
-
-Se propomos que o "nada" é autocausal, incorremos em uma contradição linguística e ontológica fatal. O paradoxo central reside no próprio ato de **referenciação**. Para afirmar que o nada se autocausa, somos obrigados a posicioná-lo como o *sujeito lógico* da ação. No exato instante em que enunciamos que "o nada causa a si mesmo" (ou mesmo que "o nada existe por si"), estamos irrevogavelmente referenciando o nada como se ele fosse um "algo".
-
-O nada absoluto, por definição, é a privação total de ser, de propriedades e de interioridade. Ele carece de "si mesmo" para poder referenciar-se. Ao lhe atribuirmos a propriedade magna da autocausalidade, nós o dotamos de positividade: nós o transformamos em um ente disfarçado. O conceito desaba porque a razão, ao tentar instrumentalizá-lo, o preenche com o peso da substância. Trata-se de uma **hipóstase ilusória** (a materialização de um conceito vazio). Dizer que "o nada é a causa" é um equívoco sintático que a mente confunde com uma possibilidade metafísica. O nada não opera, não atua, não fundamenta e não se relaciona. Conferir-lhe o *status* de agente autocausal não é descrever o nada, mas sim fantasiar uma realidade positiva e afirmativa com a máscara da ausência. Portanto, a substância autocausal, que chamaremos de Espírito ou indiferenciado, deve ser uma positividade radical — um "algo" primordial —, pois apenas a presença tem força para suportar a própria existência.
-
-O nada não pode nem mesmo portar o atributo de absolutez, pois não é um ente que dispensa anterioridade e exterioridade, não pode ter nem mesmo atributo de soberania pois nada é.
-
-O Absoluto é um conceito que designa uma existência ontológica que serve de base para toda a causalidade. Ele engloba a totalidade, o que tange à razão e o que lhe escapa: o impossível, o possível e o incognoscível. É a soma de todos os conceitos dentro de um resultado ontológico, a totalidade daquilo que é, ainda que irrepresentável.
-
-Atribuir o "absoluto" ao "nada" é tentar conferir a ele uma propriedade ontológica de unicidade e elementarismo. Tratar do "nada absoluto" gera um problema lógico intransponível, pois o nada não possui propriedades, não podendo ser absoluto, isto é, o incausado. O nada não nos serve para justificar os fenômenos, nem mesmo como base para refletir sobre eles. Para existir uma pureza total, ela precisa ser ontológica; o nada não pode ser puro, pois a pureza é, em si, uma propriedade.
-
-Descartando o "nada", recorremos à ontologia do Espírito. O Espírito representa uma realidade puríssima, imaculada até mesmo pelo fenômeno, que carrega a representatividade ontológica que inicialmente poderíamos, de forma equivocada, buscar no nada. Chamamos essa substância de Espírito.
-
-## O indiferenciado sob a existência fenomênica
-
-Ao aplicarmos o indiferenciado à existência fenomênica, resultamos novamente no nada, pois o indiferenciado esgota os entes determinados. Isto é, o indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
-
-Quando o indiferenciado é aplicado à infinitude, isto é, quando consideramos o indiferenciado infinitas formas possiveis em potencial, ele é relativizado, diluindo até mesmo seu fundamento. Pensar para o absoluto uma identidade é, escolher uma indentidade e negar outras infinitas possibilidades, portanto, imbuí-lo de uma determinação, paradoxalmente, o anula. Do mesmo modo, ao pensarmos o absoluto como uma unicidade ou como algo numerável, estamos novamente construindo o nada, pois essa própria identidade será posteriormente anulada por requerer uma explicação do porque foi considerada em detrimento de todas as outras identidades. Por exemplo, ao elegermos A, então deverá um motivo para não termos eleito B. Se não houver justificativa, todas as formas entram em suspensão, ocasionando que, nenhuma forma é eleita e nem mesmo a infinitude de formas é eleita para absoluto, temos, portanto, uma relativização do absoluto.
-
-Como dito anteriormente, o indiferenciado forçado do determinado anula-se a si mesmo, tal como o nada, quando concebido até mesmo de forma identitária como indiferenciado. Portanto, não buscamos estabelecer um ente determinístico ao qual chamaremos de Ser, mas, por via de regra, investigar os aspectos relacionais do absoluto.
-
-Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação sob o real — o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
-
-O indiferenciado forçado do determinado existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado forçado existência, estamos tornando-o equivalente ao nada.
-
-Uma realidade relativa, é uma realidade que tem uma espera pela forma, não pode ser considerada nada, e por isso, quando extraímos a forma da determinação a espera de que sobre algo, estamos, na verdade, produzindo o relativo que é idêntico a coisa alguma.
-
-Quando tentamos manter uma indentidade relativa ao indiferenciado forçado, temos que, relativo não é nenhuma e nem todas as formas, mas é uma pendencia por forma. Temos, portanto, um substrato sem nome, que não é nem o diferenciado do qual foi formado e nem o Ser indiferenciado verdadeiro. 
-
-A realdidade relativa não tem sua essencia fundida a seu fundamento como o Ser verdadeiro, mas tem uma pendencia de forma, que a faz uma realidade relativa, puramente conceitual.
-
-Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo da própria carência de identidade, que não é em si uma indentidade. É uma existência que nem mesmo é o nada, nem o existente. Sua identidade não é seu próprio existir, é uma realidade que não se relaciona à existência ou ao nada, pois o ser verdadadeiro é inferido de forma relacional, isto é, auto causal. 
-
-O Ser é Incapturável pela determinação, mas existente. Isto quer dizer que o Ser se faz sem nada, sem existência determinada, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência determinada.
-
-
-Quando consideramos uma infinitude de formas, e angulamos essa infinitude, isto é, olhamos para uma infinitude de formas, não vemos coisa alguma, pois a infinitude de formas não elege uma forma, e é em si imensuravel, incapturavel como forma. Portanto está também é uma visão falsa do indiferenciado. O indiferenciado original, portanto, não é o existir angular da infinitude das infinitas possíveis formas da determinação. Mas está além da categoria do determinado.
-
-
-Portanto, ao pensarmos na indiferenciação da existência determinada, vamos alcançar inevitavelmente o nada. Temos, portanto, o indiferenciado aplicado à existência determinada, com o mesmo efeito que a nadificação do determinado.
-
-Não devemos, portanto, aplicar a indiferenciação ao contingente. Pois o indiferenciado se categoriza para além das categorias de existência reconhecíveis no mundo das formas.
-
-O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou uma forma falsa de angulação da infinitude da forma. Ao aplicarmos a indiferença a entes contingentes, eles não se tornam homogêneos ao indiferente. Não se tornam parte do Ser.
-
-
-Qualquer ente angulado, recortado de uma infinitude de formas de forma a se definir uma forma e não todas as outras, possui uma identidade. Ao passo que o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado até para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir. O Espírito nao é um si, é o Ser, não é uma existência, é o existir.
-
-
-## Propriedades Espirituais do Absoluto
-
-Até o momento, exploramos ao máximo o conceito do nada e do indiferenciamento do determinado, retirando-lhes propriedades que não referenciam fatores relacionais ou espirituais. Concluímos que o nada figurativo é um potencial ilógico e que o completo nada, quando o nada é ausente de si mesmo, não é possível na linguagem nem inferível. Dessa forma, inferiremos sobre o nada cientes de seu carater, seja como nada ou como indiferenciamento da forma. Ambas são potências ontológicas: o indiferenciado como indiferença do diferente, e o nada como nulidade do todo. Sendo o nada ainda nossa substância bruta inefável, lapidaremos mais essa substância na busca por fatores relacionais e espirituais que se sobressaiam ao conceito do nada. As seguintes conclusões demonstram que não faz sentido pensar no Absoluto até agora inferido sem pressupor um âmbito espectral e intencional.
-
----
-
-# Problemática do infinito
+#### A Problemática do Infinito e a Dualidade Perspectívica do Ente
 
 Quando atribuímos o conceito de infinito a determinadas coisas, elas parecem perder sua identidade enquanto determinações plenamente apresentáveis.
 
@@ -1153,188 +1078,177 @@ Nesse sentido, o ente infinito conteria não apenas aquilo que é, mas também a
 
 Chegamos, assim, a uma dificuldade fundamental: aquilo que ainda não existe não pode ser efetivamente acrescentado àquilo que existe. Se o nada não possui realidade própria, não pode constituir uma parcela adicional do ente. Consequentemente, não parece possível dizer que uma realidade possua, em si mesma, uma quantidade infinita já constituída.
 
-O infinito, nesse sentido, não seria uma propriedade efetivamente possuída pelo ente, mas a designação daquilo que jamais se encontra completamente atualizado. Ele corresponde à parte do ente que, por definição, ainda não pode ser apresentada como realidade atual. Por isso, nenhum ente determimado propriamente dito possui o infinito, nem é infinito em sentido absoluto.
+O infinito, nesse sentido, não seria uma propriedade efetivamente possuída pelo ente, mas a designação daquilo que jamais se encontra completamente atualizado. Ele corresponde à parte do ente que, por definição, ainda não pode ser apresentada como realidade atual. Por isso, nenhum ente determinado propriamente dito possui o infinito, nem é infinito em sentido absoluto.
 
-A própria palavra **“infinidade”** revela essa dificuldade. Considerada isoladamente, ela não parece simbolizar uma realidade determinada, mas funcionar como uma atribuição feita a alguma coisa. Quando dizemos “infinidade”, estamos aparentemente acrescentando ao ente uma propriedade cuja realidade completa nunca pode ser apresentada. A infinidade seria, então, a uma realidade acrescida daquilo que não pode ser efetivamente determinado para essa realidade.
+A própria palavra **“infinidade”** revela essa dificuldade. Considerada isoladamente, ela não parece simbolizar uma realidade determinada, mas funcionar como uma atribuição feita a alguma coisa. Quando dizemos “infinidade”, estamos aparentemente acrescentando ao ente uma propriedade cuja realidade completa nunca pode ser apresentada. A infinidade seria, então, uma realidade acrescida daquilo que não pode ser efetivamente determinado para essa realidade.
 
 Dizer que o universo possui um espaço infinito ou que uma singularidade possui uma massa infinita seria, sob essa perspectiva, problemático. Não porque a linguagem matemática não possa operar legitimamente com o conceito de infinito, mas porque, no plano ontológico, transformar o infinito em uma propriedade efetivamente existente pode produzir uma contradição conceitual. O infinito matemático pode funcionar como limite, relação ou estrutura formal; outra coisa é concebê-lo como uma determinação real integralmente presente em um ente.
 
-É importante, entretanto, distinguir **ser finito** de **ter um fim**. A finitude não implica necessariamente uma cessação. Algo pode ser finito em sua determinação atual e, ainda assim, permanecer suscetível de transformação, expansão ou duração indefinida.
+É importante, entretanto, distinguir **ser finito** de **ter um fim**. A finitude não implica necessariamente uma cessação. Algo pode ser finito em sua determinação atual e, ainda assim, permanecer suscetível de transformação, de expansão ou de duração indefinida.
 
 Assim, adicionar a um ente uma **fluência contínua** é conceitualmente diferente de atribuir-lhe infinitude. A fluência contínua não pressupõe a existência atual de uma realidade que ainda não existe. Ela apenas afirma que aquilo que existe permanece em processo de transformação ou duração. Cada estado presente é real enquanto presente, ainda que outros estados possam sucedê-lo indefinidamente.
 
 Por isso, talvez não seja adequado afirmar que o espaço do universo é infinito. Seria mais coerente dizer que o universo pode apresentar uma expansão contínua, caso essa expansão seja compreendida como um processo cuja atualização não exige a existência presente de uma totalidade espacial já realizada.
 
-No campo das sensações, poderíamos encontrar igualmente determinações finitas que se modificam, se ampliam ou se sucedem continuamente. Poderíamos conceber a delimitação de nosso universo particular como aquilo que constitui sua própria fronteira fenomênica, além da qual se iniciariam outros universos ou outras **h.c.s.**. Mas poderíamos também considerar que nosso universo particular não possui uma extensão previamente determinada e encerrada, mas permanece em expansão contínua.
+No campo das sensações, poderíamos encontrar igualmente determinações finitas que se modificam, se ampliam ou se sucedem continuamente. Poderíamos conceber a delimitação de nosso universo particular como aquilo que constitui sua própria fronteira fenomênica, além da qual se iniciariam outros universos ou outras **h.c.s.**. Mas poderíamos também considerar que nosso universo particular não possui uma extensão previamente determinada e encerrada, e que permanece em expansão contínua.
 
 Não seria possível atribuir simplesmente um espaço às sensações, pois o próprio espaço poderia ser compreendido como mais uma determinação sensível, e não como um recipiente absoluto no qual as sensações estariam dispostas. É possível, contudo, atribuir às sensações uma continuidade temporal: uma sucessão incessante de estados presentes, na qual cada estado é plenamente real enquanto ocorre, sem que seja necessário pressupor uma totalidade temporal infinita já existente.
 
-Para a sensação, intuição, desejo ou querer, é possível atribuir conteúdo qualitativo, é possível que exista um querer infinito. Pois o qualitativo se infinitiza, pois não é quantitativo. Uma amor infinito pode existir, enquanto uma realidade espacial infinita não. Portanto, realidades relacionais podem adquirir infinitude. 
+Para a sensação, a intuição, o desejo ou o querer, é possível atribuir conteúdo qualitativo; é possível que exista um querer infinito. Isso ocorre porque o qualitativo se infinitiza, pois não é quantitativo. Um amor infinito pode existir, enquanto uma realidade espacial infinita não. Portanto, realidades relacionais podem adquirir infinitude.
 
 Temos, portanto, dois conceitos distintos:
 
 * **Um ente infinito** seria, em sentido absoluto, um ente acrescido daquilo que jamais pode ser integralmente atualizado; sua infinitude apontaria para uma totalidade que nunca se apresenta como realidade acabada.
 * **Um ente de fluência contínua**, por outro lado, é um ente cuja realidade é inteiramente efetiva em cada atualização presente e que se acresce somente de propriedades que, quando atualizadas, tornam-se igualmente reais.
 
-A sensação, portanto, é real e inteira enquanto sensação. Ela não é uma realidade incompleta por ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe.
+A sensação, portanto, é real e inteira enquanto sensação. Ela não é uma realidade incompleta pelo fato de ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe.
 
 Desse modo, a fluência contínua pode ser compreendida como uma propriedade da realidade efetivamente existente em seu processo de atualização. Ela pode ser incessante sem ser infinita. Pode ser eterna enquanto continuidade sem constituir uma totalidade infinita já realizada.
 
 A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
 
-
-## O INFINITO E O NADA: A DUALIDADE PERSPECTÍVICA DO ENTE
+**O Infinito e o Nada: A Dualidade Perspectívica do Ente**
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
 
-Para fins especulativos e práticos, faz-se necessário introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela quase apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a luz deste conceito, nulidade aparentemente passa a coexistir com seu oposto ontológico.
+Para fins especulativos e práticos, faz-se necessário introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela quase apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a luz desse conceito, a nulidade aparentemente passa a coexistir com seu oposto ontológico.
 
+Ao considerarmos a totalidade e o nada como conceitos exatamente iguais, não haverá mais dualidade entre eles. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude da forma do determinado ou a infinitude de um conjunto incontável de determinações em sua completude é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede qualquer mensurabilidade ou predicação restritiva (havendo um número de formas infindáveis ou até mesmo uma forma de propriedades infinitas). O olhar direcionado à totalidade do infinito aparentemente coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui uma tentativa metodológica para conceber um nada ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
 
-Ao considerarmos a totalidade e o nada, conceitos exatamente iguais, então, temos que, não haverá mais dualidade entre ambos. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude do forma do determinado ou a infinitude de um conjunto incontável de determinações em sua completude é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede qualquer mensurabilidade ou predicação restritiva, havendo um numero de formas infindáveis ou até mesmo para uma forma de propriedades infinitas. O olhar direcionado à totalidade do infinito aparentemente coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui uma tentativa metodológica para conceber um nada ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
+Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre a existência e o nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma **variação de angulação**. Diante da completude irrestrita — a infinitude pura —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
 
-Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre existência e nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma **variação de angulação**. Diante da completude irrestrita — a infinitude pura —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
-
-Porém está é uma visão infundada, visto que, o olhar sob a completude infinita não captura o nada, se nada é coisa alguma. E, a forma infinitizada, deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isto quer dizer que se infinitizarmos um numero, há o devir do numero que o faz perder seu contorno como numero, tal como seria ao infinitizarmos a identidade.
+Porém, esta é uma visão infundada, visto que o olhar sobre a completude infinita não captura o nada, já que o nada não é coisa alguma. E a forma infinitizada deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza a sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isso quer dizer que, se infinitizarmos um número, há o devir do número que o faz perder seu contorno como número, tal como ocorreria ao infinitizarmos a identidade.
 
 Ao se olhar aquilo que não representa coisa alguma, nada se olha. Ao se olhar uma realidade de forma relativa, não se olha nem a forma, pois a forma já não existe para compor o ente determinado.
 
-
-### O Modelo Analógico da Infinitude Espacial e Temporal
+**O Modelo Analógico da Infinitude Espacial e Temporal**
 
 Com o fito de conferir inteligibilidade a esta tese, cumpre analisar primeiramente a morfologia conceitual da própria infinitude através de modelos geométricos e temporais.
 
-Consideremos, hipoteticamente, uma régua linear cuja extensão seja fixada em 30 centímetros; seus limites inicial e final são perfeitamente demarcados e cognoscíveis no espaço. Se, todavia, expandirmos idealmente esse instrumento a uma extensão geométrica infinita, a tentativa de perscrutar o seu término resultará no encontro com o nada. O fim da infinitude é intrinsecamente inalcançável. conquanto a régua subsista na integridade de sua totalidade irrestrita, suas balizas limítrofes são absolutamente incapturáveis pelo aparato cognitivo. A tentativa de apreender o limite de uma extensão infinita traduz-se metafisicamente na equivalência ao nada, dada a radical impossibilidade de mensuração.
+Consideremos, hipoteticamente, uma régua linear cuja extensão seja fixada em 30 centímetros; seus limites inicial e final são perfeitamente demarcados e cognoscíveis no espaço. Se, todavia, expandirmos idealmente esse instrumento a uma extensão geométrica infinita, a tentativa de perscrutar o seu término resultará no encontro com o nada. O fim da infinitude é intrinsecamente inalcançável. Conquanto a régua subsista na integridade de sua totalidade irrestrita, suas balizas limítrofes são absolutamente incapturáveis pelo aparato cognitivo. A tentativa de apreender o limite de uma extensão infinita traduz-se metafisicamente na equivalência ao nada, dada a radical impossibilidade de mensuração.
 
-Ao tentarmos acrescentar a infinitude a um ente recortado, isto é, ao dizermos que uma régua de trinta centímetros é infinita, estamos num antagonismo, pois o que tem trinta centimentros não pode ser infinito, pois tem trinta centímetros, sua medida é angulada. Portanto, ou o ente esta angulado e mensurado ou é infinito, não existe meio termo. Portanto, uma regua infinita é uma régua não passível de ser visualizada. Portanto, o que é considerado infinito necessariamente desapareceria. 
+Ao tentarmos acrescentar a infinitude a um ente recortado — isto é, ao dizermos que uma régua de trinta centímetros é infinita —, estamos diante de um antagonismo, pois o que tem trinta centímetros não pode ser infinito, uma vez que sua medida é angulada. Portanto, ou o ente está angulado e mensurado ou é infinito; não existe meio-termo. Sendo assim, uma régua infinita é uma régua não passível de ser visualizada. Consequentemente, aquilo que é considerado infinito necessariamente desapareceria.
 
-O Nada, por conseguinte, pode ser rigorosamente definido como a projeção analítica que resulta da tentativa da razão discursiva de predicar ou visualizar a **infinitude do horizonte da forma ou de um numero infinito de formas**. Ele deixa de ser uma ausência de ser para se tornar a consequência cognitiva do exceder da forma para além da visão.
+O Nada, por conseguinte, pode ser rigorosamente definido como a projeção analítica que resulta da tentativa da razão discursiva de predicar ou visualizar a **infinitude do horizonte da forma ou de um número infinito de formas**. Ele deixa de ser uma ausência de ser para se tornar a consequência cognitiva do exceder da forma para além da visão.
 
 Analogamente, se observarmos uma temporalidade cuja duração estende-se infinitamente, a dissolução de marcos cronológicos faz a infinitude temporal sintetizar-se no **Atemporal**. Do mesmo modo, a infinitude do espaço sideral anula a própria localidade, colapsando no **Não-Espacial**. O infinito cronoespacial traduz-se, necessariamente, na suspensão do tempo e do espaço — isto é, em tempo nenhum e em lugar nenhum.
 
-### A Expansão ao Horizonte Transcendental
+**A Expansão ao Horizonte Transcendental**
 
 Ao projetarmos o vetor da infinitude sobre o campo integral da determinação, contemplamos o Todo em sua plenitude contínua, perfeitamente isento de clivagens, fraturas ou recortes fenomênicos. Quando este Todo absoluto é mentalizado pela consciência humana, deparamo-nos com uma encruzilhada epistemológica: ou o intelecto realiza um recorte limitador, isolando um fragmento determinado que se configura como existência fenomênica, ou contempla a totalidade indeterminada — que, para a estrutura cognitiva finita, apresenta-se formal e ontologicamente idêntica ao Nada.
 
-> A determinação é uma fratura no Infinito. O Ser determinado surge quando o intelecto recorta a completude. Sem o recorte, a luz plena do Infinito cega a razão, manifestando-se parentemente como a vacuidade primordial.
+> A determinação é uma fratura no Infinito. O Ser determinado surge quando o intelecto recorta a completude. Sem o recorte, a luz plena do Infinito cega a razão, manifestando-se aparentemente como a vacuidade primordial.
 
-Temos, portanto, a fundamentação de um **Nada Ontológico** — não como negação privativa da realidade, mas como a própria face do Infinito Absoluto quando apreendido em sua totalidade indivisível. Porém, essa faceta é falsa, em vista que, a definição do nada ontológico está apenas no olhar do angulador da infinitude, isto é, é apenas uma miragem, uma realidade imaginada.
+Temos, portanto, a fundamentação de um **Nada Ontológico** — não como negação privativa da realidade, mas como a própria face do Infinito Absoluto quando apreendido em sua totalidade indivisível. Porém, essa faceta é falsa, uma vez que a definição do nada ontológico está apenas no olhar do angulador da infinitude, isto é, é apenas uma miragem, uma realidade imaginada.
 
+### O ANGULADOR, A EMERGÊNCIA DOS FENÔMENOS E O RELATIVO
 
-# O NADA, O ANGULADOR E A EMERGÊNCIA DOS FENÔMENOS
-
-## A tentativa do Angulador
+#### A Tentativa do Angulador
 
 Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
 
-Até agora, o angulo da infinitude pareciau uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenomeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
+Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo.
 
-No entanto, poderíamos considerar que, o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e está visão seria a infinitude. 
+No entanto, poderíamos considerar que o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e esta visão seria a infinitude.
 
-O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência humana enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação autodeterminada do Absoluto.
+O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência humana enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação autodeterminada do Absoluto. Isso significa que o Nada só existiria em função de um **Observador**, que chamaremos daqui em diante de **Angulador**.
 
-Isso significa que o Nada só existiria em função de um **Observador**, que chamaremos daqui em diante de **Angulador**. Para o Absoluto, todas as infinitas possibilidades já existiriam implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la. Porém o nada não pode ser um estado determinado, pois nada é, e não poderia ser enxergado se fosse nada. Desta forma, a infinitude da determinação, sendo nada, não pode ser determinada infinitude.
+Para o Absoluto, todas as infinitas possibilidades já existiriam implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la. Porém, o nada não pode ser um estado determinado, pois nada é, e não poderia ser enxergado se fosse nada. Dessa forma, a infinitude da determinação, sendo nada, não pode ser uma infinitude determinada.
 
-Porém, ao continuarmos simulando o angulador como argumento convincente, interpretariamos a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo angulador, e o angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a infinitude de formas ou para a infinitude da forma.
+Porém, ao continuarmos simulando o angulador como argumento convincente, interpretaríamos a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo angulador, e o angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a infinitude de formas ou para a infinitude da forma.
 
-Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a infinitude do tempo, temos a atemporalidade; da mesma forma, se contemplamos a infinitude da determinação, temos o nada — não a atemporalidade ou a não espacialidade, mas o próprio nada.
+Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a infinitude do tempo, temos a atemporalidade; da mesma forma, se contemplamos a infinitude da determinação, temos o nada — não a atemporalidade ou a não-espacialidade, mas o próprio nada.
 
-O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso recorte na totalidade que na verdade não pode ser recortada pois é infinita, existe não como uma necessidade ontológica. É capturado e tentado determinar-se por aquilo que observa, e não por uma necessidade absoluta.
+O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso recorte na totalidade que, na verdade, não pode ser recortada, pois é infinita; e existe não como uma necessidade ontológica. É capturado e tenta determinar-se por aquilo que observa, e não por uma necessidade absoluta.
 
-A própria infinitude, por si mesma, deveria sobressair em cada infinitude de forma, ou em cada parte da extensão da forma de atributos infinitos. A determinação A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as determinações ou o espaço de uma determinação infinita competindo pela sobressalência em um angular de uma forma ou do correspondente ao angulo de uma forma, e a escolha da infinitude envolve uma determinação de sobressalto, de angulação.
+A própria infinitude, por si mesma, deveria sobressair em cada infinitude de forma, ou em cada parte da extensão da forma de atributos infinitos. A determinação A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as determinações ou o espaço de uma determinação infinita competindo pela sobressalência em um ângulo de uma forma ou do correspondente ao ângulo de uma forma. A escolha da infinitude envolve uma determinação de sobressalência, de angulação.
 
-Portanto, o sobressalto sobre a visão de fragmentos infinitos de formas precisa ser definido pelo observador, pois não possui definição ao ser delineado apenas pela totalidade infinita. Se a existência da forma A competisse em sobressalência com a existência da forma B, coexistindo ambas ao mesmo tempo para a infinitude, não teríamos a infinitude. Nem a forma A e nem a forma B. Pois a forma A e B, ao mesmo tempo apresentadas, não são nem A e B, nem A ou B. Isto é, não são uma infinitude e nem um recorte.
+Portanto, a sobressalência sobre a visão de fragmentos infinitos de formas precisa ser definida pelo observador, pois não possui definição ao ser delineada apenas pela totalidade infinita. Se a existência da forma A competisse em sobressalência com a existência da forma B, coexistindo ambas ao mesmo tempo para a infinitude, não teríamos a infinitude. Nem a forma A, nem a forma B. Pois as formas A e B, apresentadas ao mesmo tempo, não são nem A e B, nem A ou B. Isto é, não são uma infinitude e nem um recorte.
 
-Ao considerarmos A retrocendendo em forma infinitamente, e B avançando em forma infinitamente de forma que haja ...A e B..., temos então, a sobressalência de nenhuma forma, ao passo que nem mesmo temos também a infinitude apresentada, considerando uma ou mais determinações para absoluto. 
+Ao considerarmos A retrocedendo em forma infinitamente e B avançando em forma infinitamente, de modo que haja ...A e B..., temos, então, a sobressalência de forma alguma, ao passo que também não temos a infinitude apresentada, considerando uma ou mais determinações para o absoluto.
 
 Ao misturarmos todas as determinações em um caldeirão conceitual, não teríamos nem a infinitude, nem sequer um recorte de forma. Caso jogássemos infinitos números em um caldeirão, o infinito não permitiria a existência de números individuais: ao retirar algo com uma concha, não haveria número algum. Porém, ao colocarmos números finitos, haveria exatamente a quantidade de números inseridos.
 
-Isto, sendo entendido de forma que, o caldeirão fosse o absoluto, que, sempre evidencia uma forma, um grupo de formas delimitado. Porém, ao inserimos o disforme em decorrência do excesso de forma, não se apresenta forma alguma, ao passo que não se apresenta também uma forma determinada, sem um sentido para tal.
+Isso deve ser entendido de tal modo que o caldeirão fosse o absoluto, que sempre evidencia uma forma, um grupo de formas delimitado. Porém, ao inserirmos o disforme em decorrência do excesso de forma, não se apresenta forma alguma, ao passo que também não se apresenta uma forma determinada, sem um sentido para tal.
 
-Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma, porém, ao retirarmos uma colher de sopa, haveria uma ou mais letrinha. Desta forma, se é totalmente dependente de quem retira as formas. Se tem então a relativização da determinação que não é um nada ontológico, mas é mais uma ilusão do nada ontológico desta vez colocada sob um referencial que é a colher e o individuo que usa a colher.
+*Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma; porém, ao retirarmos uma colher de sopa, haveria uma ou mais letrinhas. Dessa forma, tudo é totalmente dependente de quem retira as formas. Tem-se, então, a relativização da determinação que não é um nada ontológico, mas é mais uma ilusão do nada ontológico, desta vez colocada sob um referencial que é a colher e o indivíduo que a usa.*
 
-Sem o observador não haveria o recorte, seja sob a forma ou seja sob a falsa infinitude ontológica, pois esta não consiste em uma ou mais determinações isoladas, mas sim em um referencial. Sem o observador, temos apenas as determinações isoladas, isto é, não temos o nada ótico. A infinitude só é o nada ao se adotar o referencial de sua totalidade; contudo, sem esse referencial, o que há é a totalidade imensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial considerando-se todas as opções sobrepostas ao absoluto e lançadas sobre ele.
+Sem o observador não haveria o recorte, seja sob a forma, seja sob a falsa infinitude ontológica, pois esta não consiste em uma ou mais determinações isoladas, mas sim em um referencial. Sem o observador, temos apenas as determinações isoladas, isto é, não temos o nada ótico. A infinitude só é o nada ao se adotar o referencial de sua totalidade; contudo, sem esse referencial, o que há é a totalidade imensurável. Ainda assim, até mesmo para que exista a totalidade mensurável, exige-se o referencial, considerando-se todas as opções sobrepostas ao absoluto e lançadas sobre ele.
 
-Havendo uma dualidade entre a totalidade infinita de formas e a necessidade da angulação de uma ou mais formas em determinadas, faz-se necessária uma angulação, um referencial obrigatório. Desta forma, havendo uma angulação para infinitude, não teriamos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo. Isto é, somente o angulador, no sentido lógico, deveria existir e não o nada focalizado. 
+Havendo uma dualidade entre a totalidade infinita de formas e a necessidade da angulação de uma ou mais formas determinadas, faz-se necessária uma angulação, um referencial obrigatório. Dessa forma, havendo uma angulação para a infinitude, não teríamos o "nada com vida", mas sim uma "vida no nada", considerando que o nada faz com que essa vida se isole dele mesmo. Isto é, somente o angulador, no sentido lógico, deveria existir, e não o nada focalizado.
 
-Agora, resta-nos investigar acerca do observador: aquele que seria parte fundamental do nada advindo da angulação, mas que exerce a ação da inatividade ou da estabilidade do olhar angulador a fim de estabelecer o próprio nada.
+Agora, resta-nos investigar acerca do observador: aquele que seria a parte fundamental do nada advindo da angulação, mas que exerce a ação da inatividade ou da estabilidade do olhar angulador a fim de estabelecer o próprio nada.
 
 Poderíamos, por uma via inversa, tentar formalizar o nada através do mecanismo da relativização, isto é, sem o angulador. Desse modo, tendo a totalidade — isto é, uma gama infinita de determinações —, não consideraríamos nenhuma delas isoladamente, embora considerássemos todas ao mesmo tempo. Testaremos se realmente se pode chegar ao nada através da relativização, dispensando, assim, a ação do angulador e produzindo o nada ontológico apenas pela perda de referência entre as determinações.
 
-Ao negarmos toda determinação pela liquidificação de todas as determinações em um substrato único, não obteríamos o nada, mas sim uma existência relativa. Pois a perda da referencialidade não envolve a perda do subsistir, mas sim a relativização da forma. Se não há A, B, nem A e B, temos portanto X, que seria o relativo.
+Ao negarmos toda determinação pela liquidificação de todas as determinações em um substrato único, não obteríamos o nada, mas sim uma existência relativa. Pois a perda da referencialidade não envolve a perda do subsistir, mas sim a relativização da forma. Se não há A, B, nem A e B, temos, portanto, X, que seria o relativo.
 
-Temos que, pela perda da referencialidade, teríamos uma ontologia relativizada, que não é determinada e nem o Ser. Portanto, não obteríamos o nada de forma justificada, e sim uma ontológia falsa. O nada, desta forma, seria exclusividade do angulador. E o angulador deveria ser vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
+Temos que, pela perda da referencialidade, teríamos uma ontologia relativizada, que não é determinada e nem o Ser. Portanto, não obteríamos o nada de forma justificada, e sim uma ontologia falsa. O nada, dessa forma, seria exclusividade do angulador. E o angulador deveria ser vivo, no sentido de vivenciar, experimentar ou visualizar a totalidade; enfim, envolve a consciência do observador sobre a totalidade.
 
 O nada, portanto, seria produto exclusivo da angulação. E, havendo a angulação como ato, temos um determinador para ela: um determinador que não se funde ao nada, pois o nada nada é. Trata-se de um angulador que sobressai ao nada pelo ato da observação.
 
-O nada é nada e seria autoexplicável do ponto de vista causal. Não importa se isso acarretasse uma grande complexidade ou fatores relacionais: se o nada é concebido dessa forma, através do angulador —, assim o é, dispensando maiores explicações. Pois o nada se autoexplica e, se o nada se autoexplica, a complexidade a ele inerente também está explicada por si mesma.
+O nada é nada e seria autoexplicável do ponto de vista causal. Não importa se isso acarretasse uma grande complexidade ou fatores relacionais: se o nada é concebido dessa forma — através do angulador —, assim o é, dispensando maiores explicações. Pois o nada se autoexplica e, se o nada se autoexplica, a complexidade a ele inerente também está explicada por si mesma.
 
 Se o angulador é necessário para que exista o nada, e se a existência do nada está associada a ele, não é necessária uma explicação para o angulador nem para tudo o que dele emana. Portanto, o nada existe de forma que, para isso, é indispensável a participação do referenciador.
 
 No entanto, como a existência do nada continua ilógica, o angulador não se justificaria por ele.
 
-A existência do angulador, não é imediatamente inferível em função de sua necessidade, isto é, é necessário o angulador, logo existe para que haja nada. E, se nada existe, o angulador existe. Porém o nada angulado não existe.
+A existência do angulador não é imediatamente inferível em função de sua necessidade, isto é: o angulador é necessário, logo, existe para que haja nada. E, se o nada existe, o angulador existe. Porém, o nada angulado não existe.
 
-Esta proposição, é desfalcada por não explicar a natureza do angulador e como o angulador emerge naturalmente de forma indiferenciada e pura para absoluto. Porém, concluímos erroneo que o nada é um ângulo, uma perspectiva.
+Essa proposição é desfalcada por não explicar a natureza do angulador e como o angulador emerge naturalmente de forma indiferenciada e pura para o absoluto. Porém, concluímos erroneamente que o nada é um ângulo, uma perspectiva.
 
-O nada angulado exige uma bidimensionalidade em seu antro. Por si mesmo não atinge a própria natureza, pois é lateral a uma perspectiva. É necessário achar seu outro lado, o angulador.
+O nada angulado exige uma bidimensionalidade em seu antro. Por si mesmo, não atinge a própria natureza, pois é lateral a uma perspectiva. É necessário achar seu outro lado, o angulador.
 
-Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. Porem, a partir do momento que há o visualizador, a simples presença dele já subentende uma visualização, e não uma inatividade. A inatividade a nível de consciência é uma escolha, porem, para a inatividade não haveria ação primordial. Para o simples estado de Ser, não haveria ação prévia.
+Se o angulador nada visualizasse, não teríamos o nada, teríamos o relativo. Porém, a partir do momento em que há o visualizador, a simples presença dele já subentende uma visualização, e não uma inatividade. A inatividade em nível de consciência é uma escolha; porém, para a inatividade não haveria ação primordial. Para o simples estado de Ser, não haveria ação prévia.
 
-Portanto a atividade de visualização se torna injustificada, não absoluta, pois necessita de um visualizador, de um intervalo entre o olho que vê e a decisão da visão. 
+Portanto, a atividade de visualização se torna injustificada, não absoluta, pois necessita de um visualizador, de um intervalo entre o olho que vê e a decisão da visão.
 
-Porém essa escolha não deveria ser programada, deveria ser dada dada como tal, como um existir ainda sem ação para o relativo, pois o nada não exigiu nenhum movimento. O nada se instauraria sem a focalização, sem uma ação para a escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da determinação. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria relativo.
+Porém, essa escolha não deveria ser programada; deveria ser dada como tal, como um existir ainda sem ação para o relativo, pois o nada não exigiu nenhum movimento. O nada se instauraria sem a focalização, sem uma ação para a escolha. Quando as alternativas começam a saltar em relativo de forma a nenhuma ser sobreposta por outra, a visualização desse movimento é a infinitude da determinação. Sem a visualização, o relativo não saberia se deveria ser infinitude ou recorte, nada definiria o relativo.
 
-Poderia surgir o seguinte argumento: se o relativo é infinito em si, porque necessita de um recorte em sua totalidade? A resposta é que o relativo não designa algo, é um conceito ilógico. O relativo não é nem a si mesmo, pois nem mesmo é nada. O nada lhe seria extraido como uma forma determinada e angulada. 
+Poderia surgir o seguinte argumento: se o relativo é infinito em si, por que necessita de um recorte em sua totalidade? A resposta é que o relativo não designa algo, é um conceito ilógico. O relativo não é nem a si mesmo, pois nem mesmo é nada. O nada lhe seria extraído como uma forma determinada e angulada.
 
+Para um relativo absoluto, necessariamente há determinação; o relativo é simplesmente a ausência de qualquer forma, até a forma de uma totalidade. O relativo tem dois ângulos possíveis: sua forma crua, isto é, sem recortes, e sua forma recortada. O relativo absoluto, portanto, não é um conceito que existe por si mesmo; o relativo desaparece, pois não é forma de nada, nem de si mesmo, colapsa, e não se pode chamá-lo nem mesmo de nada.
 
-Para um relativo absoluto necessariamente há determinação, o relativo é simplesmente a ausência de qualquer forma, até a forma de uma totalidade. O relativo têm dois ângulos possíveis, sua forma crua, isto é, sem recortes, e sua forma recortada. O relativo absoluto, portanto, não é um conceito que existe por si mesmo, o relativo desaparece pois não é forma de nada, nem de si mesmo, colapsa, e não se pode chama-lo nem mesmo de nada.
+O nada seria um ângulo de visão; sem ser visto, o relativo não é nem mesmo o nada. Imagine um observador que não olha nem a totalidade e nem olha o nada. Isso faria mais sentido, pois dispensaria uma ação prévia para que o absoluto se instaurasse como nada. Se o nada angulado fosse obtido somente pela presença do angulador, isso faria melhor sentido.
 
-O nada seria um ângulo de visão, sem ser visto o relativo não é nem mesmo o nada. Imagine um observador que não olha nem a totalidade e nem olha o nada. Isto faria mais sentido, pois dispensaria uma ação prévia para que absoluto se instaurasse como nada. Se o nada angulado fosse obtido somente pela presença do angulador, isto faria melhor sentido.
+O nada seria obtido somente pela presença do angulador. Ao chamarmos o relativo de nada, estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se dê sem propriedades, porém não se dá sem a angulação. O nada é um ângulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte, e sim pela totalidade.
 
-O nada seria obtido somente pela presença do angulador. Ao chamarmos o relativo de nada estamos designando uma angulação, e não o relativo. É a única angulação que poderia surtir sem explicação, mas não deixa de ser uma angulação, pois do relativo não há somente a totalidade, há uma homogeneidade de recortes que podem ser visualizados tanto quanto a totalidade. Portanto, o visualizador existe ainda que o nada se de sem propriedades, porem não se dá sem a angulação. O nada é um angulo de visão e não a totalidade do relativo. O relativo se define por incontáveis formas, e a visão total é somente um contexto, uma forma de conceber tais formas que não é dada por recorte e sim pela totalidade.
+Sem a visão do angulador, o relativo não seria nada e nem o recorte, não haveria o autor do processo decisório. Simplesmente seria relativo. Pois só é totalidade segundo o observador. O fato de que o nada deveria necessariamente existir não faz com que se dispense o observador da totalidade, tal como dizer que uma montanha deveria estar à nossa frente não dispensa o fato de que deveríamos enxergá-la ao olhar para ela.
 
-Sem a visão do angulador o relativo não seria nada e nem o recorte, não haveria o autor do processo decisório. Simplesmente seria relativo. Pois só é totalidade segundo o observador. O fato de que o nada deveria necessariamente existir não faz com que se dispense o observador da totalidade, tal como dizer que uma montanha deveria estar a nossa frente, não dispensa o fato de que deveríamos enxerga-la ao olhar para ela.
+Portanto, a totalidade é um ângulo no relativo, e não simplesmente a totalidade. O ângulo da totalidade não explora totalmente o relativo, por isso é necessariamente um ângulo. Ao tirarmos o ângulo da totalidade, o relativo deveria mostrar a totalidade e seus recortes ao mesmo tempo, tudo saltaria. Portanto, não seria algo, nem mesmo o nada: seria o relativo.
 
-Portanto, a totalidade é um ângulo no relativo, e não simplesmente a totalidade. O ângulo da totalidade não explora totalmente o relativo, por isto é necessariamente um angulo. Ao tirarmos o ângulo da totalidade o relativo deveria mostrar a totalidade e seus recortes ao mesmo tempo, tudo saltaria. Portanto não seria algo e nem mesmo o nada, seria o relativo.
+O relativo é um erro lógico; é o mesmo que falar sobre algo, porém esse algo não indica nada e nem tem nome. Portanto, é o mesmo que não falar sobre nada. O relativo não indica uma realidade, é a expressão de que poderia haver uma realidade segundo uma escolha em nível metafísico.
 
-O relativo é um erro lógico, é o mesmo que falar sobre algo, porém esse algo não indica nada e nem tem nome. Portanto, é o mesmo que não falar sobre nada. O relativo não indica uma realidade, é a expressão de que poderia haver uma realidade segundo uma escolha a nivel metafísico.
+Quando definimos o relativo sobre a totalidade, definimos um ângulo sobre a totalidade, é uma definição do que estamos falando: sobre um olhar sobre a totalidade, não mais sobre a completa inexistência.
 
-Quando definimos o relativo sob a totalidade definimos um ângulo sob a totalidade, é uma definição do que, estamos falando sobre um olhar sob a totalidade, não mais sob a completa inexistência.
+A presença do angulador traz contornos, traz uma determinação para a totalidade sob o foco de um olhar. Já não é nada, é um horizonte de ação.
 
-O presença do angulador trás contornos, trás uma determinação para a totalidade sob o foco de um olhar. Já não é nada, é um horizonte de ação.
+Porém, essa hipótese é ilógica, pois o nada torna-se um elemento imaginado para um angulador que não é inferido do absoluto de forma alguma.
 
-Porém, essa hipótese é ilógica, pois o nada torna-se um elemento imaginado para um angulador que não se é inferido do absoluto de forma alguma. 
+A infinitude da totalidade determinada tem as mesmas propriedades que o nada. Porém, isso não quer dizer que a existência esteja completamente nos olhos do observador e que se trate de uma existência imaginada, sem teor de verdade em si e para si, porém somente real para o angulador.
 
-A infinitude da totalidade determinada, tem as mesmas propriedades que o nada. Porém, isto não quer dizer que a existência esteja completamente nos olhos do observador e que se trate de uma existência imagina, sem teor de verdade em si e para si, porém, somente real para o angulador. 
+O que se dispõe é uma existência em consonância com o visualizador. Uma existência que é real ao passo que obedece ao angulador, uma existência que carrega a vivacidade consigo, pois não é uma existência pronta, é uma existência ordenada. Que existe segundo um comando, uma mentalização. Portanto, é uma existência vívida.
 
-O que se dispõe é uma existência em consonância com o visualizador. Uma existência que é real ao passo que obedece o angulador, uma existência que carrega a vivacidade consigo, pois, não é uma existência pronta, é uma existência ordenada. Que existe segundo um comando, uma mentalização. Portanto, é uma existência vívida. 
+O nada, portanto, é o pico da determinação, é a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas vivida em sua totalidade. Ao escolher a vida na infinitude da forma, se teria também na ausência da determinação, isto é, de qualquer escolha para a forma. Tal como, ao se escolher viver em um tempo infinito, se tem a ausência concreta do tempo, um estado literalmente atemporal. Pois o que concretamente não possui medição não é tangível. A infinitude tem um nada imaginado para o visualizador, mas não tem um nada em si que seja concreto e ontológico.
 
-O nada, portanto, é o pico da determinação, é a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas vivida em sua totalidade. Ao escolher a vida na infinitude da forma, se teria também na ausência da determinação, isto é, de qualquer escolha para a forma. Tal como ao se escolher viver em um tempo infinito, se tem a ausência concreta do tempo, um estado literalmente atemporal. Pois, o que concretamente não possui medição, não é tangível. A infinitude tem um nada imaginado para o visualizador, mas não tem um nada em si que seja concreto e ontológico. 
+Ao se segurar uma infinitude, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo inteiramente infinito, se vive tempo algum. Portanto, o nada é a infinitude da determinação.
 
-Ao se segurar uma infinitude, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo inteiramente infinito, se vive tempo algum. Portanto, o nada, é a infinitude da determinação.
+Para que a hipótese do angulador começasse a fazer sentido, o angulador não deveria necessitar da ação da angulação, e o nada não deveria ser chamado de relativo. O angulador deveria não necessitar de uma ação, a não ser simplesmente ser ele mesmo, e o nada não deveria existir, havendo somente a autoposição do angulador. Para isso, deveríamos explorar o angulador por outras vias que não designem mais o nada angulado.
 
-Para que a hipotese do angulador começasse a fazer sentido, o angulador não deveria necessitar da ação da angulação, e o nada não deveria ser chamado de relativo. O angulador deveria não necessitar de uma ação, a não ser simplesmente ser ele mesmo, e o nada não deveria existir, havendo somente a auto posição do angulador. Para isso, deveriamos explorar o angulador de outras vias que não designam mais o nada angulado.
+Cairíamos novamente na necessidade de inferir o Ser. Precisamos investigar a estrutura interna do absoluto: **Ele possui liberdade? Sua angulação é proposital? Ele é um fundamento vivo?**
 
-Cairiamos novamente na necessidade de inferir o Ser, precisamos investigar sua estrutura interna do absoluto: **Ele possui liberdade? Sua angulação é proposital? Ele é um fundamento vivo?**
-
-### 1. A Justificativa Lógica para o Fundamento Vivo (Vitalidade)
-
+**1. A Justificativa Lógica para o Fundamento Vivo (Vitalidade)**
 Se o Absoluto fosse um mecanismo puramente estático ou uma lei matemática cega, ele estaria preso à sua própria imobilidade eterna. Uma lei mecânica não pode decidir mudar o seu próprio comportamento. O fato de existirem fenômenos dinâmicos (tempo, movimento, vida e consciência no universo) prova que a causa que os originou não pode ser inferior ao efeito. O Angulador é um fundamento vivo porque a inteligibilidade e o dinamismo do cosmos só podem emergir de uma fonte que já possua, em si mesma, o princípio da vida e da percepção.
 
-### 2. A Justificativa para a Liberdade Absoluta
-
+**2. A Justificativa para a Liberdade Absoluta**
 O Angulador opera no marco zero da realidade, onde não existe nenhuma lei anterior, nenhuma matéria preexistente e nenhuma força externa para coagi-lo.
 
 * A liberdade do Angulador seria uma necessidade lógica. Ele possui a capacidade de escolher entre manter a totalidade em repouso (o ângulo do Nada) ou realizar recortes específicos (o ângulo dos fenômenos). A transição do Nada para algo é um ato de pura liberdade.
 
-### 3. A Justificativa para a Proposicionalidade (Intencionalidade)
-
+**3. A Justificativa para a Proposicionalidade (Intencionalidade)**
 Toda angulação é, por definição, uma escolha de foco. Ao recortar a totalidade infinita e fazer emergir leis físicas coerentes, geometrias precisas e estruturas ordenadas, o Angulador demonstra que sua ação não é caótica ou aleatória. O acaso é a ausência de ordem; a criação é o excesso de ordem. Portanto, a passagem da totalidade imóvel para a criação fragmentada obedece a um propósito: o de manifestar as potências ocultas do Absoluto em uma narrativa temporal. A criação é um ato intencional de autorrevelação.
 
----
-
-## Síntese do Mecanismo do Start
-
+**Síntese do Mecanismo do Start**
 A arquitetura do início da realidade resolve-se através de uma simetria perfeita entre consciência e possibilidade:
 
 ```
@@ -1356,8 +1270,7 @@ A arquitetura do início da realidade resolve-se através de uma simetria perfei
 
 O "Start" da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco: ele deixa de contemplar a totalidade indivisível (o Nada) e passa a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes.
 
-
-# A VITALIDADE DO ANGULADOR
+#### A Vitalidade do Angulador
 
 Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
 
@@ -1373,7 +1286,7 @@ A justificativa para a ação do Angulador não pode residir em uma necessidade 
 
 Se tentarmos explicar esse ato puramente pela necessidade mecânica — argumentando que o Nada exige a contemplação do Angulador para validar sua totalidade —, devemos reconhecer que, embora esse processo seja semanticamente necessário, a razão profunda dessa observação ainda emana do próprio Angulador.
 
-O Angulador é, simultaneamente, **necessário e autodeteminante**. Ao mesmo tempo em que sua natureza o impele a contemplar a totalidade, ele é o senhor absoluto desse ato de contemplação. A necessidade não aniquila sua liberdade; pelo contrário, a razão pela qual ele direciona sua visão sobre o todo está inteiramente em si mesmo. A necessidade e a autodeterminação operam aqui como uma unidade indissociável.
+O Angulador é, simultaneamente, **necessário e autodeterminante**. Ao mesmo tempo em que sua natureza o impele a contemplar a totalidade, ele é o senhor absoluto desse ato de contemplação. A necessidade não aniquila sua liberdade; pelo contrário, a razão pela qual ele direciona sua visão sobre o todo está inteiramente em si mesmo. A necessidade e a autodeterminação operam aqui como uma unidade indissociável.
 
 Isso significa que, embora tudo comece inevitavelmente pela visão do Nada, o Observador retém em si mesmo a razão de ser de sua própria observação. Não há imposição: o ato de olhar é o próprio ser do Angulador em pleno exercício.
 
@@ -1385,487 +1298,345 @@ Encontramos, portanto, a trindade de propriedades que fundamenta o início de tu
 
 No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
 
-# A EVOCAÇÃO DO ANGULADOR PARA A COMPLETUDE
+#### A Evocação do Angulador para a Completude
 
-Sendo o nada, agora, existente em função da observação. O nada é sustentado pela visão, isto é, se mantem existente sendo referencial. Ao passo que o que é referenciado, se mantem uma totalidade em função do observador, caso contrário se desfaleraria em uma relativização. O nada, portanto, é uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existencia e observação. O nada se mantem existente para o referencial como existente, ao passo que o referencial se mantem integro e completo através do observador.
+Sendo o nada, agora, existente em função da observação, ele é sustentado pela visão, isto é, mantém-se existente enquanto referencial. Ao passo que aquilo que é referenciado se mantém como totalidade em função do observador; caso contrário, se desfaria em uma relativização. O nada, portanto, é uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existência e observação. O nada se mantém existente para o referencial como existente, ao passo que o referencial se mantém íntegro e completo através do observador.
 
-Portanto, a nada, é uma realidade dupla, que, abandona a si mesma e deixa somente o angulador. Somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento. Mas não há razão para considera-la imutavel, considerando a liberdade de angulação para o angulador.
+O nada, portanto, é uma realidade dupla que abandona a si mesma e deixa somente o angulador — somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento, não há razão para considerá-lo imutável, dada a liberdade de angulação do angulador.
 
-A introdução de uma nova camada é necessaria ao nada. Ao adicionarmos a auto visão da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciencia do nada, temos, portanto, uma angulação por um referencial de consciencia. E essa propriedade susntenta o nada através do observador. 
+A introdução de uma nova camada é necessária ao nada. Ao adicionarmos a autovisão da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciência do nada, temos, portanto, uma angulação por um referencial de consciência. E essa propriedade sustenta o nada através do observador.
 
-E devemos tentar evocar as propriedades do observador através da investigação do próprio Absoluto. Devemos agora a extrair propriedades necessárias do Absoluto, não mais do angulador que foi definida, mais ainda não explicado, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgencia do angulador. Já que nossa substancia elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessarias que serão agregadas a nossa substancia elementar.
+E devemos tentar evocar as propriedades do observador através da investigação do próprio Absoluto. Devemos agora extrair propriedades necessárias do Absoluto, não mais do angulador que foi definido, mas ainda não explicado, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgência do angulador. Já que nossa substância elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessárias que serão agregadas à nossa substância elementar.
 
-Isto é, vamos extrair as propriedades necesarias a existencia de um absoluto para testarmos se é possível extrair um agulador para a completude. Pois, ate agora, inferimos o angulador como hipotese, de uma forma indireta.
+Isto é, vamos extrair as propriedades necessárias à existência de um absoluto para testarmos se é possível extrair um angulador para a completude. Pois, até agora, inferimos o angulador como hipótese, de uma forma indireta.
 
-E até agora temos somente a completude existente ainda em seu marco zero. É necessário, portanto, extrair uma segunda dimensão do nada para extrairmos seu conceito para o pensamento. Ao pensar em nada, portanto, faz sentido pensar num angulo referencial, num angulador. Porém, ainda não temos ele. O que nos cabe agora é isolar o conceito de absoluto em suas minuncias para localizar o angulador.
+E até agora temos somente a completude existente ainda em seu marco zero. É necessário, portanto, extrair uma segunda dimensão do nada para extrairmos seu conceito para o pensamento. Ao pensar em nada, portanto, faz sentido pensar num ângulo referencial, num angulador. Porém, ainda não o temos. O que nos cabe agora é isolar o conceito de absoluto em suas minúcias para localizar o angulador.
 
-Temos, portanto, somente o conceito de Absoluto para explorar. Já que, o nada se fez insuficiente para explicar a si mesmo de forma isolada. Consideremos portanto, ainda o conceito de nada, sob a perspectiva do nada absoluto. Isto é, consideremos a perspectiva do nada como angulador, de forma a aplicar sob o mesmo a necessariedade e o que se infere sob o absoluto para justificarmos o angulador.
+Temos, portanto, somente o conceito de Absoluto para explorar, já que o nada se fez insuficiente para explicar a si mesmo de forma isolada. Consideremos, portanto, ainda o conceito de nada sob a perspectiva do nada absoluto. Isto é, consideremos a perspectiva do nada como angulador, de forma a aplicar sobre ele a necessariedade e o que se infere sobre o absoluto para justificarmos o angulador.
 
-Iremos, então, explorar o Absoluto, o que existe realmente sob o nada, e consideremos este nada o campo de liberdade do Absoluto, do Ser, da pureza fundamental. Então, investigamos o nada,e concluimos que carece de uma segunda parte para justifica-los, agora vamos explorar o absoluto, o Ser, para que encontremos de novo o nada, de forma a complementa-lo.
+Iremos, então, explorar o Absoluto — o que existe realmente sob o nada — e considerar esse nada como o campo de liberdade do Absoluto, do Ser, da pureza fundamental. Se investigamos o nada e concluímos que ele carece de uma segunda parte para justificá-lo, agora vamos explorar o absoluto, o Ser, para que encontremos de novo o nada, de forma a complementá-lo.
 
 Isto é, exploramos o nada, agora exploraremos o angulador que vai de encontro ao nada e o angula para que o nada exista de fato.
 
-Iremos, portanto justificar o angulador e forma a inferir sobre suas propriedades. E o faremos em busca de aspectos relacionais para o relativo. Aspectos relacionais estes que sejam o nossa infinitude. Isto é, procuraremos por propriedades Espirituais, que emergem no nada por serem absolutas. Por se darem no contexto do nada, dispensarem explicações.
+Iremos, portanto, justificar o angulador de forma a inferir suas propriedades. E o faremos em busca de aspectos relacionais para o relativo, aspectos relacionais estes que sejam a nossa infinitude. Isto é, procuraremos por propriedades espirituais que emergem no nada por serem absolutas e que, por se darem no contexto do nada, dispensam explicações.
 
-Porém, já é possível adiantar que o relativo não pode ser infinitzado, pois nem mesmo pode ser ontológico. Também, o angulador não é deduzido de inferência do absoluto alguma, é apenas uma forma de criar o nada imaginado, por esse nada não poder ser ontológico.
+Porém, já é possível adiantar que o relativo não pode ser infinitizado, pois nem mesmo pode ser ontológico. Além disso, o angulador não é deduzido de inferência alguma do absoluto; é apenas uma forma de criar o nada imaginado, pelo fato de esse nada não poder ser ontológico.
 
+#### O Nada e o Relativo
 
-
-# O Nada e o relativo
-
-Não havendo, até o momento, um embasamento para o nada, chamá-lo-emos de **relativo**, isto é, o nada enquanto portador de uma pendência referencial. O relativo, portanto, é aquilo que carece de um referenciador, algo cuja determinação somente pode ocorrer por meio de uma relação. Neste estágio da investigação, ele recebe a designação de relativo em razão do desconhecimento do angulador, encontrando-se ainda em um estado de não atualização.
+Não havendo, até o momento, um embasamento para o nada, chamá-lo-emos de **relativo**, isto é, o nada enquanto portador de uma pendência referencial. O relativo, portanto, é aquilo que carece de um referenciador, algo cuja determinação somente pode ocorrer por meio de uma relação. Neste estágio da investigação, ele recebe a designação de relativo em razão do desconhecimento do angulador, encontrando-se ainda em um estado de não-atualização.
 
 Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentido definitivo. É um estado de suspensão, uma espera ontológica que somente se atualiza mediante o referencial fornecido pelo angulador. O relativo é o nada enquanto carece de um referencial; é a completude ainda não atualizada.
 
-O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto.
+O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não-existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto.
 
 O relativo não é o Ser, não é uma ontologia indiferenciada. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
 
-O relativo, portanto, é um conceito que de certa forma nos aproxima a visão do que seria um nada ontológico, aconteceria na ausência de qualquer justificação para o angulador. Não existe de fato, porém, existe ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta fez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo nada ou um recorte deste nada em possibilidade. 
+O relativo, portanto, é um conceito que de certa forma nos aproxima da visão do que seria um nada ontológico, o qual aconteceria na ausência de qualquer justificação para o angulador. Ele não existe de fato; porém, passa a existir teoricamente ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta vez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo o nada ou um recorte deste nada em possibilidade.
 
-O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontologia pura. Tão pura que seja sobressalente somente sua ação, que sirva para vivificar no nada. Que dê sentido, substancia e potencial ao nada no ato de sua angulação.
+O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontologia pura, tão pura que sobressaia somente a sua ação, servindo para vivificar o nada e dando-lhe sentido, substância e potencial no ato de sua angulação.
 
-Em conclusão, não chegamos a resposta alguma sob um nada existente. O nada, sem o angulador, portanto, é ilógico e inconcebível.
+Em conclusão, não chegamos a resposta alguma sobre um nada existente. O nada, sem o angulador, portanto, é ilógico e inconcebível.
 
-O angulador, deve, necessariamente ser puro e existir. Portanto, resta-nos a investigação sobre o indiferenciado para ir de encontro a este angulador. Se, no indiferenciado houver um ente angulador, então, teremos, portanto, o nada, ou a existência, caso também consigamos inferir a liberdade para o angulador de ação.
+O angulador deve, necessariamente, ser puro e existir. Portanto, resta-nos a investigação sobre o indiferenciado para irmos ao encontro desse angulador. Se no indiferenciado houver um ente angulador, então teremos, portanto, o nada — ou a existência, caso também consigamos inferir a liberdade de ação para o angulador.
 
-Nossa busca, portanto, nos levou a necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada que é o nada. 
+Nossa busca, portanto, nos levou à necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada, que é o nada.
 
-Desta forma, busquemos uma maior complexidade para entendermos a existência do nada. E, não há outro conceito em que poderíamos buscar essa complexidade, se não, no indiferenciado considerado no âmbito absoluto.
+Dessa forma, busquemos uma maior complexidade para entendermos a existência do nada. E não há outro conceito em que poderíamos buscar essa complexidade, senão no indiferenciado considerado no âmbito absoluto.
 
-Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
-
-
-
-## A substancia do indiferenciado
-
-O indiferenciado, longe de ser o existente, está para além do existência convencional. O nada, nada é, e a existência é determinada. Portanto, a categoria do indiferenciado está para alem da existência, e para além do nada. Não significa que não existe ou que é nada. Mas, aborda um aspecto que o exclui de ambas as categorias. Usaremos o termo Espírito, para exemplificar o não fenomenico, e aquilo que existe, e que se difere do nada. Espírito, portanto, será inferido através dos aspectos relacionais. 
-
-O indiferenciado é Espírito, no sentido em que abarca os aspectos relacionais.
+Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida, ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
 
 
-Pensar o Ser como uma identidade é, portanto, embuti-lo de uma determinação que, paradoxalmente, o anula como indiferenciado. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo uma existência e não o indiferenciado.
+### PARTE VI: A SUBSTÂNCIA DO INDIFERENCIADO, A AÇÃO DO SER E A INFINITIZAÇÃO
 
-Ao considerar algo puro, consideremos aspectos relacionais do absoluto. Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação do querer sob a ótica absoluta — procuramos o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
+#### A Substância do Indiferenciado
 
-Procuramos a pureza, no absoluto, por aspectos relacionais. O universo não pode ser puro, mas uma intenção, uma retidão pode ser pura ao ponto de ser quase indetectável. Isto é, procuramos os aspectos relacionais para compreender o que seja realmente o indiferenciado. Pois, de qualquer forma que trabalhamos com as coisas contingentes, elas não alcançam o nível de pureza necessário, ao forçar qualquer nível de pureza no contingente, ele torna-se uma ontologia completamente não subsistente. E o limite da nadificação é quando não podemos mais falar sobre a realidade em questão, portanto, ou se destroi totalmente o contigente a ponto de não poder mais falar sobre o mesmo por não ser mais referenciavel, ou se chega a realidades inconsistentes como as que estamos investigando agora.
+O indiferenciado, longe de ser o existente, está para além da existência convencional. O nada, nada é; e a existência é determinada. Portanto, a categoria do indiferenciado está para além da existência e para além do nada. Isso não significa que ele não existe ou que é nada, mas aborda um aspecto que o exclui de ambas as categorias. Usaremos o termo "Espírito" para exemplificar o não-fenomênico e aquilo que existe de modo distinto do nada. O Espírito, portanto, será inferido através dos aspectos relacionais.
 
-O relativo existe de forma inalcançável pelo ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo existente ou como nada, estamos, de fato, determinando-o. Ao atribuir ao indiferenciado existência, estamos tornando-o equivalente ao nada.
+O indiferenciado é Espírito no sentido em que abarca os aspectos relacionais.
 
-Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo de si mesmo. É uma existência que nem mesmo é o nada, nem o existente. Pois não carrega a pureza ontológica necessária para ser algo, e nem é nada, pois o nada não é ontológico e não pode ser referenciado. A identidade do Ser é seu próprio existir, e este existir não se relaciona à existência determinada ou ao nada, mas é um existir que é inferido de forma relacional. Incapturável pela determinação, mas existente. Isto quer dizer que o Ser se faz sem nada, sem existência como A ou B, e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação e nem mesmo à existência tradicional ou angulada.
+Pensar o Ser como uma identidade é, portanto, embuti-lo de uma determinação que, paradoxalmente, o anula como indiferenciado. Do mesmo modo, ao pensarmos o Ser como uma unicidade ou como algo numerável, estamos novamente construindo uma existência, e não o indiferenciado.
 
-O indiferenciado, portanto, não é o existir angular da infinitude da possibilidade. Mas está além da categoria da existência projetada. O indiferenciado só pode ser aplicado para além do contingente. Pois o indiferenciado não representa o criado do nada, ou angulado do nada. Ao aplicarmos a indiferença a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
+Ao considerarmos algo puro, devemos considerar os aspectos relacionais do absoluto. Buscamos, assim, a pureza absoluta: aquilo de que não extrairemos um ente apontável ou uma determinação específica, mas somente a ação do querer sob a ótica absoluta — procuramos o modo pelo qual o absoluto se manifesta, relaciona-se e produz a própria possibilidade do fenomênico.
 
+Procuramos a pureza no absoluto por meio de seus aspectos relacionais. O universo não pode ser puro, mas uma intenção ou uma retidão pode ser pura a ponto de tornar-se quase indetectável. Isto é, procuramos os aspectos relacionais para compreender o que seja realmente o indiferenciado. De qualquer forma que trabalhemos com as coisas contingentes, elas não alcançam o nível de pureza necessário; ao forçarmos qualquer nível de pureza no contingente, ele torna-se uma ontologia completamente não-subsistente. E o limite da nadificação ocorre quando não podemos mais falar sobre a realidade em questão; portanto, ou se destrói totalmente o contingente a ponto de não podermos mais falar sobre ele (por não ser mais referenciável), ou se chega a realidades inconsistentes, como as que estamos investigando agora.
 
+O relativo existe de forma inalcançável do ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo como "existente" ou como "nada", estamos, de fato, determinando-o. Ao atribuirmos existência ao indiferenciado, estamos tornando-o equivalente ao nada.
 
+Portanto, temos que desprover o indiferenciado de qualquer identidade, até mesmo de si mesmo. Trata-se de uma existência que não é nem o nada, nem o existente. Não carrega a pureza ontológica necessária para ser algo, e tampouco é nada, pois o nada não é ontológico e não pode ser referenciado. A identidade do Ser é o seu próprio existir, e esse existir não se relaciona à existência determinada ou ao nada; é um existir que é inferido de forma relacional, incapturável pela determinação, mas existente. Isso quer dizer que o Ser se faz sem o nada, sem existência como "A" ou "B", e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação ou à existência tradicional (angulada).
 
+O indiferenciado, portanto, não é o existir angular da infinitude da possibilidade, mas está além da categoria da existência projetada. O indiferenciado só pode ser aplicado para além do contingente, pois não representa o criado do nada ou o angulado do nada. Ao aplicarmos a indiferenciação a entes contingentes, eles se tornam homogêneos ao indiferente. Tornar-se-iam parte do fundo existente comum.
 
-O relativo angulado possui uma identidade, é uma existência possível em detrimento de outras possíveis, é um olhar da totalidade em detrimento a outros olhares. Porém o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, unicidade ou singularidade, é para a pureza absoluta, que só existe em sua ação de Ser, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz seu próprio existir. Seu próprio ato de auto querer.
+O relativo angulado possui uma identidade; é uma existência possível em detrimento de outras possíveis, é um olhar da totalidade em detrimento de outros olhares. Porém, o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, sem unicidade ou singularidade é próprio da pureza absoluta, que só existe em sua ação de Ser, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz o seu próprio existir, o seu próprio ato de autoquerer.
 
+Isto é, o Espírito indiferenciado é o próprio ato de existir; ele não se chama "o ato", mas é o próprio em si. Portanto, a palavra "Ser" não é o nome do indiferenciado, mas a sua forma de existência. Ele é, e sua identidade é o seu próprio ato de existir. Ele é, portanto, o verbo, e não o substantivo.
 
+O Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de modo que o Ser não se apropria de si mesmo e se nomeia como "Ser", mas simplesmente "é" em doação total de si.
 
-Isto é, o Espírito indiferenciado é o ato de existir, e não se chama "o ato", mas é o próprio em si. Portanto, a palavra "Ser" não é o nome do indiferenciado, mas é sua forma de existencia. Ele é, e sua identidade é seu próprio ato de existir. Portanto, é o verbo, e não o substantivo.
+Portanto, adiante, o foco de nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem ser existente, de forma que seja detectada somente a sua ação de Ser, somente o seu aspecto relacional. Faremos isso buscando aspectos relacionais no absoluto, e não entes específicos em sua estrutura.
 
-Portanto, o Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de forma que o Ser não se aprópria de si mesmo e se nomeia como Ser, mas simplesmente é em doação total de si.
+O próprio conceito de nada ontológico, sob a ótica do referencial ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou do Espírito. Pois haveria o agente da angulação, seja ele uma ação ou uma determinação, no sentido de manifestação fenomênica.
 
-Portanto, adiante, o foco de nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem existente, de forma que seja detectada somente sua ação de Ser, somente seu aspecto relacional. E faremos isso buscando aspectos relacionais no absoluto e não entes específicos em sua estrutura. 
+Dessa forma, estamos buscando não uma substância, mas o ato que é definido em essência por si mesmo. Não é o Espírito "A" ou "B", mas é o Espírito do existir. É quem existe, é o Ser.
 
-O próprio conceito de nada ontológico, sob a ótica do referencial, ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou o Espírito. Pois haveria o agente da angulação, seja essa uma ação ou uma determinação, no sentido de manifestação fenomênica. 
+Aspectos como a autocausalidade podem nos levar a propriedades relacionais. Se há autocausalidade, infere-se uma ação em prol do existir: a ação do existente é existir, e o existente se nomeia por sua ação. Se existir é benéfico, o existente se nomeia por uma linguagem relacional, tal como o amor, a benevolência e a retidão em favor da vida. E o Ser é a própria benevolência; ele não a "tem", ele a "é". Buscaremos, portanto, os aspectos relacionais para o absoluto, a fim de definir o Ser.
 
-Desta forma, estamos buscando, não uma substancia, mas o ato que é definido em essência por si mesmo. Não é o Espírito A ou B, mas é o Espírito do existir. É quem existe, é o Ser.
+#### A Ação do Ser no Relativo
 
-Portanto, aspectos como a auto causalidade, podem nos levar a propriedades relacionais. Se há auto causalidade, se inferi uma ação em prol do existir, a ação do existente é existir, e o existente se nomeia por sua ação, e se existir é benéfico, o existente se nomeia por uma linguagem relacional, tal como o amor, a benevolência, a retidão em favor da vida. E o Ser é a própria benevolência, não a tem, mas a é.  Buscaremos, portanto, os aspectos relacionais para absoluto, de forma a definir o Ser.
+Se o nada é "nada" pela angulação da visão, então o Ser não cria do nada; cria a partir de sua liberdade de visão. Essa liberdade é a mesma que gera o nada e a mesma que cria do nada. Se o nada é relativo e, portanto, depende do referencial, isso faz com que o angulador não necessite de uma substância fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada pode ser pensado como nada e imaginado como nada.
 
+Dessa forma, a liberdade do Ser seria executada em sua visualização, considerando que ele tivesse capacidades visuais e imaginativas. Tratar-se-ia, portanto, de uma realidade que se situa como o imaginário e que se faz real de forma imaginada; essa realidade estaria, assim, no próprio visualizador e não existiria para si mesma de fato, mas para o visualizador.
 
-# A ação do Ser no relativo
+Não sendo o nada, o relativo existe se for mentalizado. Se não for mentalizado, haverá o relativo aguardando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada para algo. Porém, sem ser mentalizado, o relativo não é nada; portanto, não haveria nem mesmo relativo para ser definido como nada ao ser angulado.
 
-Se o nada, é nada pela angulação da visão, então o Ser não cria do nada, cria a partir de sua liberdade de visão. Está liberdade, é a mesma que gera o nada, e a mesma que cria do nada. Então se o nada é relativo, portanto, depende do referencial, isto faz com que o angulador não necessite de uma substancia fora de si, mas que crie por ato de sua liberdade. Para o angulador, o nada, pode ser pensado nada, e imaginado nada. 
+Se ao olharmos para o nada, nada existe, não estamos olhando para o nada, mas para a mentalização ou para o que se deseja evocar do nada. Isso significa que não há uma conversão do nada em algo, mas apenas uma ação de liberdade. E isso significa que o Ser age livremente sem que tenha transformado uma substância em algo. Pois o mentalizar o nada faz-se pelo próprio ato de não mentalizar. O repouso do Espírito e a sua inação já justificam o nada por si mesmo. Portanto, o nada não exige esforço; caso exigisse uma ação do angulador, não seria nada, mas o efeito causal de uma ação. O nada é, assim, equivalente ao estado de repouso ou à inação do Espírito.
 
-Isto é, dessa forma a liberdade do Ser seria executada em sua visualização, considerando que tivesse capacidades visuais e imaginativas. Seria, portanto, uma realidade que se situa como o imaginário e que se faz real de forma imaginada, estaria, portanto, no próprio visualizador está realidade, e não existira para si mesma de fato, mas para o visualizador.
+A própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de "visualizar o nada que nada é", mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia o relativo e constrói o nada. O nada, portanto, é o ato da liberdade, e a liberdade expressa-se em forma de inação.
 
-Não sendo o nada o relativo existe se mentalizado. Se não mentalizado, haveria o relativo esperando a definição do Ser, ou a ação do Ser. Isto é, a criação do nada seria um movimento de ação do Ser, e não um movimento de locomoção do nada em algo. Porém, sem ser mentalizado o relativo não é nada, portanto, não haveria nem mesmo relativo para se defini-lo como nada ao ser angulado.
+O repousar do Espírito, ou o seu simples existir, subentende um referencial, ainda que sem ação. A inatividade também é uma expressão da liberdade, e ele se faz inativo consciente dessa ação.
 
+*Exemplo dogmático:* Se os olhos do Ser estão fechados, o produto dessa inação é o nada. Porém, quando se abrem, o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sobre a relatividade de forma a construir o nada ou o ente. A sua imagem é tão altíssima para a razão que dela só enxergamos a ação do nada (que pode ser pensado porque é determinado e angulado) e, do Ser, enxergamos (com a visão humana que pensa em coisas determinadas) os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subsiste e mantém seu referencial de forma a existir soberano para o absoluto; e de forma que transcende todas as coisas, exceto aquelas que também possuem o amor. Por isso, o Ser está em quem ama, e quem ama está n'Ele.
 
-Se ao olhar para o nada, nada é, não se está olhando para o nada, mas está se olhando para a mentalização ou para o que se quer evocar do nada. Isto significa que não há uma conversão do nada em algo, mas a uma ação de liberdade somente. E isto significa que o Ser age livremente sem que tenha transformado uma substancia em algo. Pois o mentalizar do nada se faz o próprio ato de não mentalizar. O repouso do Espírito e a inação já justifica o nada por si mesmo. Portanto, o nada não exige esforço, caso exigisse uma ação do angulador, não seria nada, mas necessitaria de um efeito causal de uma ação. Portanto, o nada é equivalente ao estado de repouso, ou a inação do Espírito.
+#### A Infinitude do Indiferenciado
 
-A própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de visualizar o nada que nada é, mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia relativo e constrói o nada. O nada, portanto, é ato da liberdade, e a liberdade expressa em forma de inação.
+Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada (pois não pode mais ser referida e torna-se um conceito ilógico, tal como o relativo). A infinitude do Espírito não sucumbe à nadificação, pois é de aspecto relacional, e não fenomênico. Por exemplo, ao citarmos um "amor infinito", ele não sucumbe, mas se realiza justamente por ser relacional. O indiferenciado já não é identificado como determinação; por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplicá-lo rumo a uma infinitude. Ele é infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado por ela. O amor não possui fronteiras; é puro.
 
-O repousar do Espírito, ou seu simples existir, sub entende um referencial, ainda que sem ação. A inatividade também é expressão da liberdade. E, se faz inativo consciente desta ação.
+O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma "régua infinita", essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
 
-> Exemplo dogmático: Se os olhos do Ser estão fechados, o produto desta inação é o nada. Porém, quando se abrem o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sob a relatividade de forma a construir o nada ou o ente. E sua imagem é tão altíssima a razão que somente enxergamos dela a ação do nada, que pode ser pensado, pois é determinado, é angulado. E, do Ser, enxergamos, com a visão humana que pensa em coisas determinadas, os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subexiste e mantem seu referencial, de forma que exista soberano para absoluto. E de forma que transcenda toda as coisas, exceto àquelas que possuem também o amor. Por isto, o Ser está em quem ama, e quem ama está Nele.
+O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já não é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
+No entanto, já se faz possível entender que essa possibilidade não é viável; a autoposição do Espírito como existente já dispensaria o pronunciamento sobre qualquer outra coisa. Portanto, o verdadeiro nada é bem referenciado quando nem mesmo nos pronunciamos sobre ele.
 
-# A infinitude do indiferenciado
-
-Não digo que a infinitude do espirito é igual a nada, pois o espirito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada, pois não pode ser mais referida, torna-se um conceito ilógico tal como o relativo. Mas a infinitude do Espírito não sucumbe a nadificação, pois é de aspecto relacional e não fenomenico. Por exemplo, ao citarmos um amor infinito, ele não sucumbe, mas se realiza por ser relacional. O indiferenciado já não é identificado como determinação, por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplica-lo rumo a uma infinitude. É infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado pela sua dimensão. O amor não possui fronteiras, é puro.
-
-O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
-
-O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
-
-No entanto, ja se faz possível entender que, essa possibilidade não é viavel, a auto posição do Espírito como existente já se faz como dispensaria de haver o pronunciamento sobre qualquer otura coisa, portnato o verdadeiro nada é bem referenciado quando nem mesmo se pronuncia sobre ele.
-
-Ao considerarmos, por outro lado, a não possibilidade do nada ontológico, isto é, para absoluto não há o nada, há o absoluto ainda sem inferencia, sem possibilidade de ser determinado ou de ser um nada absoluto. O que poderiamos extrair desse estado onde não se haveria nada a se considerar é somente seu aspecto relaciona, este não haver de qualquer possibilidade inferivel torna-se relacional, autocausado. Sua permanência como absoluto necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo.
+Ao considerarmos, por outro lado, a não-possibilidade do nada ontológico — isto é, para o absoluto não há o nada, há o absoluto ainda sem inferência, sem a possibilidade de ser determinado ou de ser um nada absoluto —, o que poderíamos extrair desse estado (onde não haveria nada a se considerar) é somente o seu aspecto relacional. Este "não haver" de qualquer possibilidade inferível torna-se relacional e autocausado. A sua permanência como absoluto necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão n'Ele mesmo.
 
 Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade.
 
-Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justificaria. Porém, considerando que o nada angulado não existe,  somente o aspecto relacional do nada impera, que é o Espírito.
+Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justificaria. Porém, considerando que o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito.
 
 Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
 
-Quando adentramos nos aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas.
+Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas.
 
 Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação.
 
 O Espírito atua, portanto, em três dimensões ontológicas complementares:
 
-1. Autocausalidade Vertical — Espírito Fundamentador
+**1. Autocausalidade Vertical — Espírito Fundamentador**
 
-Definição: qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
+* *Definição:* qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
+* *Características para o Absoluto:*
+* **Incorruptibilidade:** o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+* **Fundamentação:** o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
 
-Características para o Absoluto:
 
-• Incorruptibilidade: o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+* *Princípio:* "Eu Existo."
+* Trata-se da pura afirmação ontológica do Absoluto.
 
-• Fundamentação: o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
+**2. Autocausalidade Diagonal — Espírito Plenificador**
 
-Princípio: "Eu Existo."
+* *Definição:* qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua própria existência e plenitude.
+* *Características para o Absoluto:*
+* **Despersonalização metafísica:** o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+* **Autodeterminação essencial:** o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
+* *Exemplo:* o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
 
-Trata-se da pura afirmação ontológica do Absoluto.
 
-2. Autocausalidade Diagonal — Espírito Plenificador
+* *Princípio:* "Escolho o que me realiza como Absoluto."
 
-Definição: qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua existência e plenitude.
+**3. Autodeterminação Horizontal — Espírito Personalizador**
 
-Características para o Absoluto:
+* *Definição:* qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+* *Características para o Absoluto:*
+* **Personalização:** manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
+* **Liberdade direcionada:** a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou de agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+* *Exemplo:* pode não ser o momento de ser poético, mas, como isso é um aspecto da personalidade, pode ser realizado pela Alma do Absoluto.
 
-• Despersonalização metafísica: o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
 
-• Autodeterminação essencial: o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
+* *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa a minha identidade."
 
-• Exemplo: o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
+Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal. Não por ser autodeterminado, mas por expressar-se em sua liberdade de forma totalmente livre, independente de escolhas semelhantes voltadas para a plenitude — isto é, para o existir em plenitude e totalidade, sem reservas de si, esboçando-se em totalidade e sem meios-termos.
 
-Princípio: "Escolho o que me realiza como Absoluto."
+O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.
 
-3. Autodeterminação Horizontal — Espírito Personalizador
+Imaginar o Ser como uma realidade ontológica falsa (que chamaremos de nada) ajuda a visualizá-lo como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginarmos o Ser como "nada Absoluto", temos uma realidade aparentemente determinada e pura para exercer a autocausalidade; depois, basta que extraiamos essa realidade ilógica, e ficamos somente com a pura substância do Ser.
 
-Definição: qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+*A visão do amor:* um homem sem olhos, sem rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um "eu", mas o amor sendo o próprio "eu". O amor com olhos e sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor.
 
-Características para o Absoluto:
+#### A Infinitização do Relativo
 
-• Personalização: manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
+A infinitização da possibilidade — ou, mais exatamente, da forma, ou da determinação — dá-se como o nada angulado. Isso ocorre porque a existência da forma depende de sua essência. Não pode haver uma forma infinita; a angulação dessa infinitização é, portanto, o nada. Ao enxergar o relativo, temos a visão da infinitização da forma, do colapso da forma numa existência nula.
 
-• Liberdade direcionada: a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+O nada é uma existência que não se sustenta em forma; isto é, não se visualiza mais A, B ou C. Na infinitização da forma, visualiza-se a nulidade ou o recorte, e não se vê a forma infinitizada de maneira exposta, mas sim a infinitude da forma colapsada.
 
-• Exemplo: não está no momento de ser poético, porém, como isto é um aspecto da personalidade, isso pode ser realizado pela Alma do Absoluto.
+Portanto, através da angulação da totalidade, não se vê o conteúdo do nada (que é a forma infinitizada), mas vê-se apenas o colapso. Ao passo que, para uma realidade indiferenciada, ver-se-ia a extensão infinita.
 
-Princípio: "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."
+Isso quer dizer que o relativo, por si só, não teria uma emergência (nem de sua totalidade, nem de um recorte). Pois ele não pode ser infinitizado para ser singular; é dependente de uma angulação. Isto é, podemos afirmar que a totalidade da forma não tem a sua emergência manifesta: ela depende de um referencial. O relativo não pode se apresentar como "...A, B, C...", mas apresenta-se apenas como "A, B, C" ou apresenta-se como seu colapso. Não pode apresentar-se com o seu devir.
 
-Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal. Não por ser auto determinado, mas por expressar-se em sua liberdade de forma totalmente livre, independente de escolhas semelhantes voltadas para a plenitude, isto é, para o existir em plenitude, e totalidade, sem reservas de si, esboçando-se em totalidade, sem meio termos.
+Não pode ser manifesto em sua totalidade pois necessita de escolha em sua interioridade. O "A" derruba a forma "B", que derruba a forma "C"; portanto, a determinação, ao pedir exclusividade, dá lugar para coisa alguma. A luta pela permanência do recorte dá lugar a recorte nenhum.
 
-## A infinitização do relativo 
+Isto é, a partir do momento em que não se determina, faz-se um palco onde podem atuar vários atores; não havendo alguém para decidir qual atuará, o palco colapsa e torna-se a anulação. Portanto, o nada é o olhar sobre essa anulação.
 
-O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma régua infinita, essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula.
+Esta é a maneira mais clara de referenciar um "nada existente", isto é, um nada que é algo por ser a anulação da totalidade, e não a própria ausência de si mesmo. Este nada, supostamente, poderia ser pensado, pois guarda em si a sua contraparte e, aparentemente, é potencial. Porém, ele nada mais é do que uma tentativa falha de reduzir uma realidade determinada a um estado de pureza que ela mesma não pode atingir; afinal, ela não pode abandonar a sua determinação sem deixar de se definir como realidade determinada. Imediatamente, se deixasse de ser determinada, seria o próprio Ser. Ou seja, quando fazemos uma realidade determinada desabar sobre si mesma (e ela não pode mais ser pensada pois torna-se equivalente a coisa alguma), ou a confundimos com o Ser (querendo fazer com que o Ser seja produto da purificação do contingente, e não o causador do contingente).
 
-A infinitização da possibilidade, ou mais exatamente da forma, ou da determinação se dá como nada angulado. Pois a existência da forma depende de sua essência. Não pode haver uma forma infinita. Pois então, a angulação dessa infinitização é o nada. Ao enxergar o relativo, temos, a visão da infinitização da forma, do colapso da forma numa existência nula. 
+O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já não é propriamente nada, mas algo que carece de um referenciador, de um angulador.
 
-O nada é uma existência que não sustenta-se em forma, isto é, não se visualiza mais A, B, C, mas na infinitização da forma, visualiza-se a nulidade ou o recorte, e não a forma infinitizada de forma exposta, mas se visualiza a infinitude da forma colapsada. 
+Para encontrar este angulador, basta que investiguemos o absoluto (o incausado), sem considerar nenhum nada ontológico e nenhuma existência determinada para ele. Ao fazê-lo, surgem novas propriedades para o absoluto.
 
-Portanto, através da angulação da totalidade, não se vê o conteúdo do nada, que é a forma infinitizada, mas se vê só o colapso. Ao passo que para uma realidade indiferenciada, se veria a extensão infinita. 
+Ao imaginarmos o nada para o absoluto de forma que não possamos pensar nesse nada, mas somente no absoluto, temos unicamente o remanescente do aspecto relacional: o absoluto é apenas autocausado, ele só possui o aspecto relacional.
 
-Isto quer dizer que o relativo por si só não teria uma emergência, nem de sua totalidade nem de um recorte. Pois, não pode ser infinitizado para ser singular, é dependente de uma angulação. Isto é, podemos afirmar que a totalidade da forma não tem sua emergência manifesta. Depende de um referencial. Isto é, o relativo não pode se apresentar como ...A, B, C...mas se apresenta com somente A, B, C ou se apresenta como seu colapso. Não pode se apresentar com seu devir. 
+Ao considerarmos o "Absoluto" sem que o nada o seja, o absoluto torna-se relacional, autocausado. Ao imaginarmos o nada para o absoluto — isto é, o não-referenciado, a completa inexistência, ou não nos pronunciarmos sobre algo que possa dar vazão ao sentido.
 
-Não pode ser manifesto em sua totalidade, pois necessita de escolha em sua interioridade. A derruba a forma B, que derruba a forma C, portanto, a determinação, pedindo exclusividade, dá lugar para coisa alguma. A luta pela permanência do recorte, dá lugar a recorte nenhum.
+Como exemplo, imaginemos que o nada existe para que abordemos de forma mais clara o aspecto relacional do absoluto a partir de uma base determinada (que neutralizaremos depois), e imaginemos que ele é um "nada absoluto". Porém, para que esse nada exista, é necessário um sentido. A sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão n'Ele mesmo. Ao retirarmos a existência do nada para o absoluto, resta como necessário apenas o sentido, isto é, só o autoquerer. Somente a autodeterminação que se fez "nada absoluto" e não outra coisa. Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Isto é, se o nada absoluto autodeterminou-se "nada absoluto", ele o faz por si mesmo, e não por uma obrigação mecânica. Ao retirarmos o produto autodeterminado, temos apenas a autodeterminação: a autocausalidade.
 
-Isto é, a partir do momento que não se determina, se faz um palco onde pode atuar vários atores, não havendo alguém para decidir qual atuará, o palco colapsa e torna-se a anulação. Portanto, o nada é o olhar sob essa anulação.
+A autocausalidade, no nível indiferenciado, já não distingue a causa da identidade da causa da existência; a causa é a mesma para ambas as situações, que estão unidas no ser — isto é, na pureza. Portanto, ao retirarmos o nada absoluto que nos ajudou a pensar, sobra somente o absoluto com o aspecto relacional (sem o objeto ao qual ele se relacionaria, que seria o nada).
 
-Está é a maneira mais clara de referenciar um nada existente, isto é, que é algo por ser a anulação da totalidade. E não a própria ausência de si mesmo. Este nada, supostamente poderia ser pensado. Pois guarda em si, sua contraparte, aparentemente é potencial. Porém, nada mais é do que uma tentativa falha de reduzir uma realidade determinada a um estado de pureza que ela mesma não pode atingir, pois não pode abandonar sua determinação sem deixar de se definir como realidade determinada. Imediatamente, se deixasse de ser determinada, seria o próprio Ser. Isto é, quando desabamos uma realidade determinada sobre si mesma ou não pode ser mais pensada, pois torna-se equivalente a coisa alguma, ou a confundimos com o Ser, querendo fazer com que o Ser seja produto da purificação do contingente, e não o causador do contingente. 
+O nada absoluto e autocausal é um nada que causa o seu próprio existir, que é intenção de Ser; e, ao eliminarmos o nada, que é uma realidade falsa e determinada, resta-nos somente a intenção de Ser. Precisamos imaginar o nada ontológico para conseguirmos imaginar de forma mais clara um aspecto relacional no nada — um nada que, mais tarde, sucumbirá e deixará apenas o puro amor para o Absoluto.
 
-O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já nem mesmo é propriamente nada, mas algo que carece de um referenciador, de um angulador.
+Isto é, a autocausalidade aparece soberana sem ser portada por uma realidade determinada e sem que um ente faça a si mesmo (pois alguém teria que determinar este ente antes que ele existisse). Resta, portanto, só a pureza do amor, que é a consumação de todas as coisas e que pode ser infinito.
 
-Para encontrar este angulador basta que investiguemos o absoluto, isto é o incausado, sem considerar nenhum nada ontológico, e nem uma existencia determinada para este. Ao faze-lo, surgem novas propriedades para absoluto.
+Quando imaginamos o absoluto como uma realidade determinada que poderá ser neutralizada, podemos analisar o aspecto relacional de forma que a imaginação capture mais claramente o seu teor.
 
-Ao imaginarmos o nada para absoluto, de forma que não possamos pensar nesse nada, somente no absoluto. Temos, portanto unicamente, o remanescer do aspecto relacional, absoluto é apenas auto causado, só possui o aspecto relacional. 
+Isto é, o mundo determinado que não resistiu à infinitização (a totalidade colapsada) existe. E existe por si mesmo. Porém, essa existência é um palco, um espaço cristalino onde impera somente o seu aspecto relacional. O nada existe e tem um sentido em si; este sentido não advém do nada, pois o nada, nada é. Este sentido impera sem que haja qualquer poluição ou contraparte, restando apenas o sentido e as possibilidades colapsadas pela infinitude.
 
-Ao considerarmos, o "Absoluto" sem que o nada o seja, o absoluto torna-se relacional, autocausado. Ao imaginarmos o nada, para absoluto, isto é, o não referenciado. A completa inexistência ou de pronuncia sobre algo que possa haver da vazão ao sentido. 
+Por que os entes não resistem à infinitização? O ente determinado colapsa ao ser infinitizado. Porém, ao deixarmos um fragmento fenomênico, isso ainda não fará sentido, pois até o fragmento sem determinação é uma determinação de fragmento. É algo. Tudo o que é algo é um "algo" ou é formatado conforme a si mesmo. Para que o ente tenha a sua essência fundida à determinação, ele precisa ser completamente puro. Ele necessita que o seu resquício de fundamentação não seja a parte que resta sem determinação, pois a parte da fundamentação sem a sua determinação, na verdade, não existe.
 
-Como exemplo, imaginemos que o nada existe para que abordemos de foram mais clara o aspecto relacional do absoluto a partir de uma base determinada que neutralizaremos depois, e imagine que é um nada absoluto. Porém, para que exista esse nada, é necessário um sentido. Sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão nele mesmo. Ao retirarmos a existência do nada, para absoluto, é necessário só o sentido, isto é, só o auto querer. Somente a auto determinação que se fez nada absoluto e não outra coisa. Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Isto é, se o nada absoluto é se auto determinado nada absoluto, o faz por si mesmo e não por uma obrigação mecanica. Ao retirarmos o produto auto determinado, temos, portanto, somente a autodeterminação. Isto é, a auto causalidade.
+Se "A" é "A", e retiramos o "A", obtemos o "X". Tiramos, portanto, a terminologia, as expressões e a numerabilidade; isto é, infinitizamos "A" e o que temos é "X". Ou seja, coisa alguma.
 
-A auto causalidade no nível indiferenciado, já não distingue causa da identidade de causa da existência, a causa é a mesma para ambas as situações que estão unidas no ser. Isto é, na pureza. Portanto, temos que, ao retirar o nada absoluto que nos ajudou a pensar, sobra somente o absoluto com o aspecto relacional sem o objeto ao qual se relacionaria que seria o nada.
+Ao aplicarmos a causa de "A ser A" e não "B", ou a causa de "A existir A" para o absoluto, temos, portanto, uma razão para "X", que se faz "X" segundo o angulador. Sendo X = Nada, temos somente o angulador.
 
-O nada absoluto, auto causal, é um nada que causa o próprio existir, que é intenção de Ser, e ao eliminarmos o nada, que é uma realidade falsa, determinada, temos somente a intenção de Ser. Precisamos imaginar o nada ontológico, para imaginar de forma mais clara um aspecto relacional no nada, nada que, mais tarde, sucumbirá e deixará o puro amor para Absoluto.
+A infinitização dos entes determinados, portanto, encerra-se na perda da determinação. E isso não conserva o ente, mas o colapsa.
 
-Isto é, a auto causalidade aparece soberana, sem que seja portado por uma realidade determinada, sem que um ente se faça a si mesmo, pois alguém teria que determinar este ente antes que ele existisse. Portanto, só a a pureza do amor, que é consumação de todas as coisas. Que pode ser infinito.
+Portanto, a relativização é a retirada da determinação para os entes causados. É a determinação elevada à sua máxima potência, à sua disformidade. Se existe tudo ao mesmo tempo, isso provoca a competição de formas para se impor: se a forma "A" se mostra "A", mas existe a forma "B" em seu lugar, até haver o "X". Portanto, temos a nadificação, que é a indefinição.
 
-Quando imaginamos o absoluto como uma realidade determinada e que poderá ser neutralizada, poderíamos analisar o aspecto relacional de forma que a imaginação capture de forma mais clara seu teor.
+É a infinitude de formas que se opõe, resultando na não-forma, ou na forma indefinida (o relativo).
 
-Isto é, o mundo determinado que não resistiu a infinitização, isto é, a totalidade colapsada, existe. E existe por ela mesma. Porém, essa existencia é um palco, um espaço cristalino onde impera somente seu aspecto relacional. Isto é, o nada existe e tem um sentido em si, este sentido não advem do nada, pois o nada, nada é. Este sentido impera sem que haja qualquer poluição ou contra parte. Restando apenas o sentido e as possibilidades colapsadas pela infinitude.
+Ao retirarmos a forma de "A", "A" torna-se "X", e "X" são todas as formas possíveis. Sendo todas as formas possíveis, "X" é a infinitização que colapsa. Essa infinitização existe angularmente: ao ser olhada pela totalidade é nada, e ao ser recortada em uma forma, é algo.
 
-Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
+O ente, portanto, ao sofrer a perda da identidade, entra numa indefinição, e esta indefinição possibilita que o ente esteja aberto a uma infinidade de formas. E isso o anula. Portanto, qualquer ente que perde o seu contorno é infinitizado e torna-se relativo, pois a sua forma é relativa. Colapsa.
 
+A infinitização ocorre em decorrência da forma relativizada; se não há a forma, então o ente tem a forma "X" — todas as formas ao mesmo tempo, e nenhuma forma.
 
-Quando adentramos nos aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas.
+Um objeto que perde os contornos não tem um devir, mas torna-se o próprio devir inexistente. Pois o objeto desaparece e torna-se inteiro o devir. Um objeto de crescimento contínuo pode ser visualizado, mas caso o seu crescimento seja infinito (caso tenha grandezas infinitas), o objeto é desfigurado. Um tamanho infinito é um não-tamanho, uma velocidade infinita é uma não-velocidade, uma densidade infinita é uma não-densidade.
 
-Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação.
+* *Exemplo 1:* Dentro do buraco negro, a matéria já não existe, mas o universo se comporta como se ela existisse. Um objeto infinitamente pequeno é um objeto inexistente. A matéria, ao perder os seus contornos, colapsa. Portanto, o buraco negro teria a memória da matéria que se anulou, de forma até mesmo a ejetar essa matéria anulada (se assim se comportasse conforme as leis físicas). Dessa forma, o peso do buraco negro seria causado pela memorização do universo, que continua o comportamento da matéria mesmo após o seu colapso. Isto é, o buraco negro interage com uma não-realidade. O universo grava a densidade da matéria antes de ser colapsada e o espaço que ela ocupava. Portanto, o buraco negro comporta-se tal como no momento antes de a matéria colapsar; porém, a própria matéria em si não existe mais. Temos, portanto, o comportamento da gravidade como memória, como informação da matéria colapsada, onde o universo "grava" como deveria ser o seu comportamento antes de a matéria colapsar. *(Referências Científicas: O Princípio Holográfico postula que a informação sobre a matéria fica "gravada" na superfície bidimensional do buraco negro. O Paradoxo da Informação sugere que a massa e a informação do que colapsou não somem, mas permanecem como uma "memória" que o espaço-tempo lê através da gravidade).*
+* *Exemplo 2:* Imagine uma pessoalidade individualizada, isto é, um Espírito individualizado; ao perder sua identidade, ele seria relativo. Somente um sentimento, um bem-querer pode ser infinito. Uma pessoa não pode perder os seus contornos de pessoa a fim de extravasar a forma. Porém, um sentimento que é puro e não tem forma pode representar uma pessoa. A forma (a unicidade) não pode ser infinita sem que colapse. A não ser que essa forma seja a de todo o bem-querer em pessoalidade.
+* *Exemplo 3:* Imagine que o nada tivesse o seu "em si" e "para si". O "para si" existe isoladamente. Somente o Espírito. O Espírito não é o "para si" do nada, pois o nada não existe para ter um "para si". E o "si" denomina uma determinação de uma unicidade. Para um. O amor, portanto, pode ser infinito, pois o amor não é "vários" ou não é "um". O amor como bem-querer não necessita de cerceamento, de fronteiras ou de numerações. O amor angula o nada simplesmente sendo para o todo. E não para "si". O amor é doação total. Portanto, o amor é o ato que se doa para o todo. Não há um "si" a fim de doar-se para uma unicidade. O amor se doa para a totalidade.
 
-O Espírito atua, portanto, em três dimensões ontológicas complementares:
+O Ser é uma característica que denomina uma ontologia pura; porém, há uma definição ainda mais direta do incausado dada pela autocausalidade.
 
-1. Autocausalidade Vertical — Espírito Fundamentador
+*(Nota sobre a continuidade: Aqui está a sétima e última parte do seu texto. Esta seção consolida a desconstrução final do "nada" e do "relativo", introduzindo a busca direta pelo Espírito através dos aspectos relacionais e culminando na bela definição da dissolução do "quem" no puro Amor.)*
 
-Definição: qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
 
-Características para o Absoluto:
 
-• Incorruptibilidade: o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+### PARTE VII: O COLAPSO DO NADA E A SOBERANIA DO ESPÍRITO (O QUEM DO QUERER)
 
-• Fundamentação: o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
+#### A Infinitização da Determinação e a Hipótese Errônea do Relativo
 
-Princípio: "Eu Existo."
+O nada, portanto, é a negação da forma que não resiste e colapsa; não se infinitiza realmente, mas colapsa antes disso, tornando-se uma ontologia ilógica. Já o relativo é a forma — não vista nem mesmo pela sua infinitização —, ou é equivalente a nada, ou a uma cópia falsa do Ser. Só é possível infinitizar a pureza; a tentativa de infinitizar o mundo determinado colapsa. Só é possível infinitizar aquilo que não tem forma, que é pura intenção.
 
-Trata-se da pura afirmação ontológica do Absoluto.
+Portanto, a infinitização que aniquila completamente a determinação depende de um referencial. E esse referencial precisa subsistir como sentido, imperar mediante o nada ou o próprio recorte. Necessita ser puro até mesmo mediante o criado, e imperativo mediante o não-existente. O nada, portanto, sucumbe e deixa imperar um amor que se doa para a totalidade.
 
-2. Autocausalidade Diagonal — Espírito Plenificador
+A infinitização da determinação é o mesmo que uma tentativa de sua indeterminação. Se "A" depende de identidade e essa lhe é tirada, já não é mais "A", é "X". Pois a existência de "A", ao ser desprovida de sua determinação, torna-se "X". "A" não resiste à perda da determinação para participar de um fundo de formas comuns. "A", portanto, deixa de ser "A". "A" somente sustenta a si mesmo se conservar sua identidade; do contrário, colapsa numa tentativa falha de indiferenciado (ao ter as suas diferenças retiradas), ou colapsa em nada, ou é considerado, de forma errônea, o inefável (o fundo infinito de forma).
 
-Definição: qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua existência e plenitude.
+Não há um meio-termo entre "A" e "não-A" quando se elimina a identidade de "A". Tem-se uma existência "X", e "X" não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isso é a infinitude da existência determinada — o que não é existência alguma. Pois não existe segundo uma pureza total, e sim mediante uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
 
-Características para o Absoluto:
+O relativo não tem ordem, não tem permanência, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o absoluto determinado e se encontra uma ausência de referencial.
 
-• Despersonalização metafísica: o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+Em uma hipótese errônea, ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos: a própria estadia do Espírito, dada pela autocausalidade (a sua própria inação), configura o relativo em nada. Porém, o relativo não seria nem mesmo o nada sem um contorno, sem o olhar do angulador. O relativo é uma realidade que deve ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada. Para que essa hipótese fizesse sentido, o relativo não precisaria de contornos (pois o nada não necessita de atributos) e não necessitaria ser recortado ou visualizado, pois isso é transformar uma substância em visão, e o nada não se transforma. A única forma de fazer sentido é o absoluto em soberania sendo uma realidade relacional; não havendo nenhum limite de ação ou nenhuma ontologia determinada como configuração inicial, ele teria a sua autoposição como liberdade completa de ação, e não como geradora de uma matéria determinada que pudesse ser transformada em algo através de um processo de reversão da nadificação.
 
-• Autodeterminação essencial: o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
+Isto é, o relativo é uma indefinição: nem mesmo é o recorte, nem mesmo é a totalidade infinitizada e anulada. Já o nada, na hipótese errônea, seria uma definição que possui complexidade, pois possuiria uma bidimensionalidade. Necessitaria do Espírito e da sua visão sobre a sua infinitização. O Espírito e a sua soberania mediante as formas (ainda infinitizadas) não possuiriam total liberdade, tendo um substrato ontológico no qual seriam obrigados a operar necessariamente.
 
-• Exemplo: o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
+Em uma hipótese ainda errônea, o nada ontológico necessita de qualquer reação ou da não-reação. Simplesmente, em função de o angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente já está lá. E a inação deste faz-se "nada Absoluto". O que quer dizer que somente o angulador operando e existindo já configura a posição do estado nadificado da possibilidade.
 
-Princípio: "Escolho o que me realiza como Absoluto."
+Esta visão ainda é errônea, pois ao justificarmos o Ser pela autoposição no absoluto, isso não qualifica um nada ontológico; pelo contrário, focamos o pensamento na autoposição do Espírito sem que seja necessário pensar numa ontologia falsa. E evitamos o vício do pensamento de conceber um nada existente como substituto do Ser. A autoposição do Ser não produz uma matéria escura que denominamos nada, mas produz o próprio estado absoluto, o qual evidencia a liberdade — isto é, a Liberdade de o Ser ser soberano, e a liberdade da não-soberania. Pois o Ser é agente do estado de soberania, da mesma forma que nega, nesse estado, o estado de não-soberania. Ele é, portanto, livre para ser soberano, tanto quanto para não sê-lo.
 
-3. Autodeterminação Horizontal — Espírito Personalizador
+Isto é, se antes o relativo imperava, ao ser absolutizado, temos a presença do angulador, que define a realidade pela sua escolha e até mesmo pela sua não-escolha. Ou seja, o relativo não existe mais e não é necessário para justificar a criação. E nem mesmo o angulador é necessário; sendo assim, a ação da angulação não é necessária. A pura estadia do Espírito já subentende a sua liberdade total.
 
-Definição: qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+*Exemplo: Se há um observador, existe o observado e até mesmo o não-observado. Pois o observador, mesmo de olhos fechados, enxerga o escuro. Isto é, o escuro só depende da inação do observador, não necessita que ele abra os olhos. Agora, se não existir o observador, nem mesmo o escuro existiria, pois ninguém estaria de olhos fechados. Existindo o observador, basta que ele abra os olhos e verá vida.*
 
-Características para o Absoluto:
+Essa visão acima trata a realidade como uma virtualidade da visão do observador; a realidade, portanto, jamais obteria um status independente da visão.
 
-• Personalização: manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
+Em uma hipótese errônea, teríamos que a presença do angulador — isto é, de liberdade no relativo — faz com que haja uma decisão necessária: dentro da liberdade, não há a opção da não-escolha. É preciso escolher; então a inatividade (os olhos fechados) ainda é uma escolha.
 
-• Liberdade direcionada: a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+Dessa forma, com o angulador presente, até a inação provoca uma configuração para o relativo; a não-escolha de formas resulta na infinitização. Ao não optar por nada — isto é, ao não escolher —, faz-se uma escolha. A realidade se aglutina de tal forma que as formas permanecem homogêneas, sem definição, infinitizadas.
 
-• Exemplo: não está no momento de ser poético, porém, como isto é um aspecto da personalidade, isso pode ser realizado pela Alma do Absoluto.
+*Exemplo: ao não se escolher um número, todos os números estão em suspensão. Portanto, nenhum número aparece.*
 
-Princípio: "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."
+#### Em Busca do Espírito: Aspectos Relacionais do Absoluto
 
-Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal.
+Agora, inferiremos não mais do relativo, ou do nada como angulação (ainda sem o angulador justificado), mas iremos inferir diretamente do Absoluto, para encontrarmos o indiferenciado. Ainda não há aspectos relacionais no nada, mas há um invólucro para tais aspectos em seu conceito; precisamos, portanto, preencher esse invólucro. E, para fazê-lo, investigaremos diretamente o conceito de absoluto para encontrarmos qualquer aspecto relacional nele. Isto é, buscaremos o Espírito, o que é necessário para haver um absoluto. Ao encontrá-lo, poderemos encontrar o angulador para o nada. Ou seja, poderemos completar a hipótese da infinitude da possibilidade com a segunda parte de que precisamos para justificar o nada e a criação: o angulador.
 
-O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.  
+Precisamos encontrar o Espírito do Absoluto e, se antes exploramos pela escassez (nada), agora exploraremos pela abundância. Vamos inferir diretamente sobre tudo o que há, sobre a totalidade não somente do existente, mas do indiferenciado. Vamos abordar por via direta, através do Absoluto. Consideraremos todos os aspectos para que haja o absoluto, mesmo que a sua substância indiferenciada ainda não esteja formalizada.
 
-Imaginar o Ser como uma realidade ontológica falsa que chamaremos de nada, ajuda a visualizado como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginar o Ser como nada Absoluto, temos uma realidade aparentemente determinada e pura para exercer a auto causalidade e depois, basta que extraímos essa realidade ilógica, e fiquemos somente com a pura substancia do Ser.
+O Absoluto é o próprio indiferenciado. Não há outra forma de considerarmos o desencadear dos fenômenos senão por uma fonte pura, existente e Absoluta. Portanto, investigaremos diretamente pelo Absoluto, considerando isso, desde já, uma investigação sobre o indiferenciado, tendo como falha a investigação do nada como tentativa de explicar o incausado (pois o nada carece do indiferenciado atribuído de certos aspectos, como o poder de angulação).
 
+No absoluto indiferenciado, lembremos que não há substância nem não-substância para ser explorada. Não há nada mais, portanto, do que explorar os seus aspectos relacionais. Em busca da presença, do Espírito ou da pureza. Pois ainda não conseguimos encontrar uma substância válida que não seja determinada; portanto, por isso se justifica dizer que não há substância e nem não-substância para o absoluto, mas somente os seus aspectos relacionais.
 
+Não buscaremos um ente, uma entidade, mas buscaremos algo até mesmo mais puro que isso, como já referenciado antes. Buscamos a forma como o absoluto se relaciona consigo mesmo, com a própria determinação e com a sua infinitude.
 
-> A visão do amor, um homem sem olhos, sem um rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um eu. Mas o amor, sendo o próprio eu. O amor com olhos, sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor. 
+Ainda não conhecemos a substância absoluta, embora saibamos que ela, de certa forma, pode preencher a lacuna do angulador. No entanto, consideremos a substância sinônimo de Absoluto. E investiguemos essa substância (ainda que não saibamos especificamente a sua natureza); definamo-la sob a luz da causalidade. Sabemos somente o que ela não é: não é o nada, e não é o fenômeno. Portanto, busquemos o Absoluto — aquilo que chamamos de Espírito, nomenclatura que é o resultado da segregação do fenômeno e do nada em prol de um termo que designe uma realidade pura. Invisível, mas reativa, acionária e eficaz.
 
-Porque os entes não resistem a infinitização? O ente determinado colapsa ao ser infinitizado, porém, ao deixarmos um fragmento fenomenico, isto ainda não fará sentido, pois até o fragmento sem determinação, é uma determinação de fragmento. É algo. Tudo que é algo é um algo, ou é formatado conforme a si mesmo. Para o ente ter sua essencia fundida a determinação, precisa ser completamente puro. Necessita que seu resquicio de fundamentação seja, não a parte que resta sem determinação, pois a parte da fundamentação sem sua determinação, na verdade, não existe.
+Isto é, buscaremos não pela fenomenologia, mas pela relacionalidade, deduzindo desde já que considerar a substância para o Espírito ou para o Absoluto é o mesmo que consideramos na totalidade e no nada. Isto é, já temos o relativo; agora precisamos de aspectos relacionais para concluí-lo. O ato da angulação, portanto, pode advir de um aspecto relacional do absoluto que aciona a angulação.
 
-Se A é A, e retiramos o A. Obtemos o X. Tiramos, portanto, a terminologia, as expressões, a numerabilidade, isto é, infintizamos A. E, o que temos é X. Isto é, coisa alguma.
+Embora o conceito de angulação esteja errôneo, seguiremos por essa linha de raciocínio para figurar o conceito relacional sem o agente, usando as tentativas mais próximas de conceber o nada como algo.
 
-Ao aplicarmos a causa de A ser A, e não B, ou de A existir A, para absoluto, temos, portanto, uma razão para X, que se faz X segundo o angulador. Sendo X = Nada, temos somente o angulador.
+Portanto, agora, buscaremos o que está para além do nada e da totalidade; buscamos uma substância Espiritual, algo que a faça subsistir, um ângulo de visão ou qualquer coisa que lhe dê um aspecto de ângulo, qualquer coisa que a defina para longe de si mesma. Isto é, buscamos o sentido na totalidade, buscamos um propósito, consciência, visão ou presença na própria totalidade, para finalmente darmos sentido ao nada.
 
-A infinitização dos entes determinados, portanto, se encerra na perca da determinação. E isto não conserva o ente, mas o colapsa. 
+Até agora, ao explorarmos o nada, usamos a mesma forma de dedução através da fenomenologia: se há algo criado, logo, há uma realidade criadora e incausada. A análise do nada não foi um argumento diferente; ainda, para o nada, é preciso um sentido, tal como para a matéria. O nada precisa do angulador, tal como a matéria precisa da ação do angulador.
 
-Portanto, a relativização é a retirada da determinação para entes causados. É a determinação elevada a sua máxima potencia, a sua disformidade. Se existe tudo ao mesmo tempo, isto provoca a competição de formas para se por, se forma A, se mostra A, porem existe a forma B, em seu lugar, até haver o X. Portanto, temos a nadificação. Que é a indefinição.
+Isto é, o nada é o produto de um angulador, assim como a matéria. Ambos reiteram e afirmam de forma categórica a necessidade de um aspecto para além do mundo material para explanar a criação e até mesmo a não-criação. Pois, segundo a hipótese da angulação, até a autoposição do Espírito necessita ser justificada; isto é, é um produto da sua angulação.
 
-A infinitude de formas que se opõe resultando a não forma. Ou da forma indefinida (relativo).
+Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E dessas duas faces deduzimos o criador ou o angulador. Agora, exploraremos diretamente o indiferenciado a título de Espírito. Isto é, não exploraremos a matéria ou o nada, mas puramente o aspecto autocausal, a intencionalidade, a pessoalidade, a temporalidade do Espírito e outros fatores relacionais. Exploraremos o Espírito de tal forma que ele não seja algo que se detecte como o fenômeno, mas algo que se deduza.
 
-Ao retirar a forma de A, A torna-se X, e X são todas as formas possíveis. Sendo todas as formas possíveis X é a infinitização que colapsa. Essa infinitização, existe angularmente, ao ser olhada pela totalidade é nada, ao ser recortada em uma forma, é algo.
+#### O Quem do Querer do Absoluto
 
+A inclinação à vida, o bem-querer, o bem é o desejo pela vida. Pelo existir. Pela luz. O Ser é o puro bem-querer, é o puro amor. Esse desejo é puramente Espiritual. Portanto, o fundamentador tem o puro desejo da fundamentação, o plenificador o puro desejo da plenitude, e o personalizador o puro desejo da personalização rumo à plenitude. Ambos são selados pelo Espírito, de forma que manifestam o Espírito, que é o dom da plenitude, do existir, do Ser por querer, e por não poder não Ser, por não poder não amar. A sua rendição ao ser é perfeição, e não prisão.
 
-O ente, portanto, ao sofrer a perca da identidade, entra numa indefinição, e está indefinição possibilita o ente estar para uma infinidade de formas. E isto o anula. Portanto, qualquer ente que perde seu contorno é infinitizado, torna-se relativo. Pois sua forma é relativa. Colapsa. 
+Ao nos perguntarmos quem é o "quem do querer" — isto é, ao determinarmos o bem-querer num ângulo do bem-querer —, temos um recorte do querer. Formamos um ente do bem-querer, um ente que tem bem-querer, que tem um querer por si.
 
-A infinitização ocorre em decorrência da forma relativizada, se não ha a forma, então o ente tem forma X, todas as formas ao mesmo tempo e nenhuma forma. 
+E, se esse ente é angulado (ou determinado), temos o observador, para que haja a angulação no nada falso, isso é, para que haja uma angulação numa liberdade limitada que só pode ser operada sob uma forma falsa de Ser.
 
-Um objeto que perde os contornos, portanto, não tem um devir, mas torna-se o próprio devir inexistente. Pois o objeto desaparece. Torna-se inteiro o devir. Um objeto de crescimento continuo pode ser visualizado, mas caso seu crescimento seja infinito, caso tenha grandezas infinitas, o objeto é desfigurado. Um tamanho infinito é um não tamanho, uma velocidade infinita é uma não velocidade, uma densidade infinita é não densidade. 
+Ao angularmos a liberdade falsa, isto é, ao elegermos a liberdade referente a uma existência determinada, concluímos que o angulador, além de ser determinado, tem uma liberdade limitada pela eleição de uma realidade e não de outra para si.
 
-Ex 1: Dentro do buraco negro, a matéria já não existe, mas o universo de comporta como se ela existisse? Um objeto infinitamente pequeno é um objeto inexistente. A matéria, ao perder seus contornos, colapsa? Portanto, o buraco negro teria a memoria da matéria que de anulou de forma ate mesmo a ejetar essa matéria anulada, se assim se comportasse conforme as leis físicas. Desta forma, o peso do buraco negro, seria causado pela memorização do universo que continua o comportamento da matéria mesmo em seu colapso. Isto é, o buraco negro interage com uma não realidade. O universo grava a densidade da matéria antes de ser colapsada e o espaço que ela ocupava. Portanto, o buraco se comporta tal como o momento antes da matéria colapsar, porem, a própria matéria em si, não existe mais. Temos portanto, o comportamento da gravidade como memória, como informação da matéria colapsada, onde o universo "Grava" como deveria ser seu comportamento antes da matéria colapsar. (coloque teorias que referenciam essa hipotese)
+Uma angulação da liberdade é uma limitação da liberdade. Ao angularmos a liberdade, já não temos a total liberdade instaurada nessa angulação. Pois há uma opção em detrimento de todas as outras.
 
-Ex 2: Imagine uma pessoalidade individualizada, isto é, um Espírito individualizado, ao perder sua identidade, seria relativo. Somente um sentimento, um bem querer pode ser infinito. Uma pessoa não pode perder seus contornos de pessoa afim de extravasar a forma. Porem, um sentimeneto que é puro e não tem forma, pode representar uma pessoa. A forma, a unicidade, não pode ser infinita sem que colapse. A não ser que essa forma seja de todo o bem querer em pessoalidade. 
+E, ao tornarmos a liberdade individual — isto é, ao estabelecermos o quem do bem-querer, o quem do puro amor, ao chamarmos o amor de um "indivíduo" e não de "apenas querer" —, temos um ente, e não mais o indiferenciado. Além disso, determinando a liberdade e a chamando de nada ontológico, temos uma liberdade também limitada.
 
-Ex 3: Imagine que o nada tivesse seu em si e para si. O para si existe isoladamente. Somente o Espírito. Pois o Espírito seria o para si do nada. O Espírito não é o para si do nada, pois o nada não existe para ter um para sí. E o si denomina uma determinação de uma unicidade. Para um. O amor, portanto pode ser infinito, pois o amor não é varios ou não é um. O amor como bem querer não necessidade de cerceamento, fronteiras ou numerações. O amor, angula o nada simplesmente sendo para o todo. E não para si. O amor é doação total. Portanto, o amor, é o ato que se doa para o todo. Não há um si a fim de doar-se para uma unicidade. O amor se doa para a totalidade.
+A total liberdade não se concentra no poder de angular ou modificar uma realidade preestabelecida como um nada ontológico, pois haveria o nada ontológico em vez de qualquer outra coisa. Portanto, essa não seria a total liberdade.
 
-O Ser é uma caracteristica que denomina uma ontologia pura, porém, há uma definição ainda mais direta do incausado dada pela auto causalidade.
+O ente angulado não seria necessário (isto é, não seria ontologicamente feito em direção ao existir), mas teria angulação e direcionamento ao nada ontológico; haveria uma barreira para a soberania do Ser, isto é, o Ser não seria para a infinitude, mas para uma barreira ontológica delimitada. O Ser deve estar em direção ao seu existir, e não ao nada. Não deve ser um observador do nada, mas deve ser soberano, sem que precise agir para tal, sem que precise de um ato para estabelecer liberdade. Pois o ato subentende causa; todo ato tem um agente. Portanto, para haver a soberania, não deveria haver um ato prévio para tal. A soberania já deveria instaurar-se como ato eterno, e não como pendência de um ato de observação.
 
----
+Se o Ser fosse um ente, então o seu autoquerer não seria para o todo, não seria puro, pois seria para si. Não seria a entrega total de si como querer. O Ser sendo determinado, teríamos, portanto, o quem do amor, ou o quem do não-amor. Pois acaba a necessidade de direcionamento necessário ao existir, e dá-se vazão a um recorte da liberdade, corruptível.
 
+Portanto, o amor é o próprio "quem". Ao criarmos a identidade para o amor, ela seria reduzida a nada, pois seria infinitizada. Podemos fazer o caminho inverso: tentar transformar o amor em uma identidade única; porém, esse recorte lhe tiraria os traços de pureza total.
 
-O relativo se qualifica pela infinitização da possibilidade. Quando um ente determinado perde seus contornos (como uma régua infinita), ele perde sua essência (colapsa) e torna-se um não-ente, um "nada". A relativização é a retirada da forma. Se "A" perde sua determinação, torna-se "X" (o absoluto das possibilidades, ou seja, nada).
+E, ao colocarmos uma identidade na liberdade, temos uma não-liberdade. Isto é, qualquer coisa que se refira ao nada como liberdade aprisiona essa liberdade num nada ontológico como campo de ação.
 
-A existência de um objeto no mundo fenomênico depende de sua finitude. O "ser algo" exige recortes, fronteiras e limites. Se elevarmos qualquer dimensão física ou conceitual ao infinito — seja tamanho, densidade, numerabilidade ou velocidade —, a própria categoria perde o sentido. A infinitização de um ente determinado é a sua relativização, pois a coexistência simultânea de todas as formas possíveis (a possibilidade absoluta) resulta na anulação da forma específica. É uma disformidade gerada pela sobreposição total.
+A liberdade do Ser tem um aspecto diagonal completo, pois o Espírito do Absoluto não pode não amar. Então se tem o homem. Uma determinação da liberdade. (Isso será estudado mais tarde, porém, aqui, serve como exemplificação da definição do Espírito).
 
+O Espírito tem total liberdade no contexto absoluto, e o corpo da liberdade do Ser é relacional; os aspectos do ente livre — do ente que se realiza, se plenifica e se personaliza — são espirituais. Possuem traços espirituais como autodomínio, autoconhecimento e autopresença.
 
+O Espírito do Absoluto não é determinado, não repousa num "Quem" ou num "si", não tem fronteiras, repartições ou unicidade. Não é segundo um ente, mas é segundo a si mesmo, é segundo a totalidade. É puro mediante tudo. É o amor que deixa Ser, que paira já no que é, que se deixa ser apenas no ato de amar, e não no quem ama.
 
-Ex: Quando o Nada se torna Absoluto e incausado, ele cria uma necessidade autocausal de "Ser", fundamentada na incorruptibilidade de sua própria intenção.
+É o fundo de toda a realidade, é a infinitude do horizonte da vida. O Amor é para a totalidade infinita e para a totalidade determinada. O amor é para a totalidade (ou seja, vivo em si mesmo) e para o que é criado do nada. O bem-querer não é de alguém ou só para alguém, não é o "para si" de um ente, é o "para si" do nada. Isto é, o "para si" soberano, que não tem o "si", mas é para tudo. Este é o "para si" em si mesmo — sem um objeto, sem o seu "em si" —, mas o seu "para si" autônomo é operante no papel de seu "em si". É o próprio amor desimpedido de si mesmo, livre de um "si", para se doar ao todo.
 
+#### A Dissolução do "Quem" no Puro Amor
 
+É o amor que não esbarra num "quem" no qual fica internalizado. É a consciência que não esbarra numa determinação, num ente contável, mas é a consciência que é um bem-querer translúcido a qualquer determinação.
 
+Deus não está observando "A", mas observa nada, no sentido de que o "A" se dissolveu e só sobrou o amor, não mais o observador. Isto é, se Deus é um ente que se autodomina, que está presente em si mesmo e se conhece, este ente se dissolveu. Sobrou a sua ação Espiritual, e essa ação espiritual reta agora o define, e este ente passa a se chamar amor.
 
-## 3. As Três Dimensões Ontológicas do Espírito
+O amor não vê, é a própria visão. O amor não domina, é o próprio domínio; o amor não tem presença, é a própria presença. Pelos olhos do amor se vê, pelo amor se autodomina, e pelo amor se está presente em si. Portanto, o agente deixa de agir para que a ação se faça agente; isto é, o Ser deixa de existir para que só reste o seu querer por si, que se faz a sua substância. O Ser é o ato de construção de si, é o querer por si, o fazer-se; e não o agente ou o "quem" da construção de si, o "quem" do querer ou o "algo" do fazer-se.
 
-**Sua proposição:** Ao adentrar a necessidade autocausal do Absoluto, o Espírito manifesta três níveis de liberdade e intencionalidade rumo à plenitude: Vertical (Fundamentador), Diagonal (Plenificador) e Horizontal (Personalizador).
+Quanto aos atributos, portanto, não há mais quem vê, quem domina e quem é presente; o "quem" dos atributos dilui-se e torna-se vago. O Ser torna-se uma coisa só: o amor. O amor observa, domina e é presente de forma doada. Doa a sua entrega ao todo, é transparente a todas as coisas determinadas devido à sua pureza, instaura-se como aquilo que é. É a pessoalidade pura, aquela que foi refinada ao ponto de transpassar qualquer coisa. O amor doa a sua observação, o seu domínio e a sua presença, pois eles são translúcidos.
 
-**Desenvolvimento:** Estas dimensões demonstram que a autodeterminação não é monolítica, mas tridimensional:
+O amor não é mais consciente, mas se faz a consciência do consciente. O amor não é mais dominante, mas se faz o próprio domínio.
 
-1. **Autocausalidade Vertical (Fundamentação):** O princípio do *"Eu Existo"*. A incorruptibilidade do Absoluto sustentando sua própria base ontológica. É a pura permanência do Ser.
-2. **Autocausalidade Diagonal (Plenificação):** O princípio de *"Escolho o que me realiza"*. É determinista e despersonalizado. A ação visa o Bem absoluto sem se prender a idiossincrasias. A "personalidade" aqui é a própria retidão.
-3. **Autodeterminação Horizontal (Personalização):** O princípio de *"Sigo o que expressa minha identidade"*. É o campo da Alma e das características individuais. Onde há equivalência de caminhos perfeitos, o Absoluto escolhe aquele que espelha seus acidentes e sua identidade estética ou poética.
+#### Conclusão: A Autoposição do Espírito
 
+Até a presente investigação, estabelecemos um passo a passo através do refinamento do conceito de nada. Primeiramente o apontamos como um conceito parasitário; sempre que se define uma forma negativa para a determinação — seja essa forma um potencial, o nada ou o relativo —, temos a contraparte positiva resguardando ou subentendida, inoculada e incutida no conceito negado. Portanto, para qualquer negação, há de existir o produto negado.
 
-
-
-## 5. A Física da Infinitização: O Colapso e a Memória (Analogia do Buraco Negro)
-
-**Sua proposição:** Assim como um objeto infinito perde sua forma, a matéria no buraco negro perde a existência, mas o universo se comporta como se ela estivesse lá. O universo grava a densidade pré-colapso, tornando o buraco negro a "memória da gravidade" de uma matéria que já foi anulada.
-
-**Desenvolvimento:** Um objeto infinitamente pequeno (uma singularidade) rompe as leis da determinação física; ele "sai" da realidade dimensional. No entanto, a força gravitacional que o buraco negro exerce continua atuando. O universo interage não com a matéria estruturada (pois o átomo colapsou), mas com a "informação" deixada no tecido espaço-tempo. A gravidade torna-se o rastro fóssil, a memória de um devir que se encerrou.
-
-> **Referências Científicas (Física Teórica):**
-> * **O Princípio Holográfico (Gerard 't Hooft e Leonard Susskind):** Esta teoria postula exatamente a sua ideia. Quando a matéria cai num buraco negro (colapsando na singularidade infinita), a *informação* sobre essa matéria fica "impressa" ou "gravada" na superfície bidimensional do buraco negro (o Horizonte de Eventos).
-> * **O Paradoxo da Informação (Stephen Hawking):** Hawking sugeriu inicialmente que o buraco negro apagava a existência da matéria para sempre. Mais tarde, a física teórica concordou com a sua intuição: a massa e a informação do que colapsou não somem, mas permanecem como uma "memória" que o espaço-tempo continua a ler através da gravidade.
-
-## 6. O Em-Si, o Para-Si e a Infinitude do Amor
-
-**Sua proposição:** O nada não tem um "para si". A individualidade, ao perder limites, colapsa. Somente um sentimento como o amor pode ser infinito sem se anular. O amor não é "um" nem "vários", não precisa de fronteiras. O amor é a doação total e, portanto, se direciona não para si mesmo, mas para o todo.
-
-**Desenvolvimento:** A forma impõe cerceamento. Uma "pessoa" geométrica ou conceitual que se torne infinita evapora quando perde sua identidade. Contudo, o amor transcende a dimensão espacial e quantitativa. Ele é um verbo, um bem-querer fundacional. Como o amor não busca aprisionar a si mesmo numa casca, ele sobrevive à infinitização. O Espírito, atuando pelo amor, não é um "Eu" egoico isolado do nada, mas a ponte que doa a totalidade, transformando o vácuo absoluto num campo de sentido.
-
-O nada , portanto, é a negação da forma que não resiste, e colapsa, não se infinitiza realmente, mas colapsa antes disso, tornando-se, uma ontologia ilógica. Já, o relativo, é a forma, não vista nem mesmo pela sua infinitização, ou é equivalente a nada ou uma copia falsa do Ser. Só é possível infinitizar a pureza, a tentativa de infinitizar o mundo determinado, colapsa. Só é possível infinitizar aquilo que não tem forma, que é pura intenção. 
-
-Portanto, a infinitização que aniquila completamente a determinação, depende de um referencial. E esse referencial precisa subsistir como sentido, imperar mediante o nada, ou o próprio recorte. Necessita ser puro até mesmo mediante ao criado, e imperativo mediante ao não existente. 
-
-O nada, portanto, sucumbe e deixa imperar um amor que se doa para a totalidade.
-
-A infinitização do determinação é o mesmo que uma tentativa de sua indeterminação, se A depende de identidade, e essa lhe é tirada, já não é mais A, é X. Pois a existência de A, ao ser retirada de sua determinação, torna-se X.
-
-A, não resiste a perca da determinação para participar de um fundo de formas comuns. A, portanto, deixa de se A. A somente sustenta a si mesmo se conservar sua identidade, se não, colapsa numa tentativa falha de indiferenciado, ao retirar suas diferenças, ou colapsa em nada, ou é considerado o inefável, o fundo infinito de forma erronea.
-
-Não há um meio termo entre A e não A, quando se elimina a identidade de A. Se tem uma existência X, e X não nega todas as outras existências possíveis, sendo todas ao mesmo tempo. E isto é a infinitude da existência determinada, o que é existência alguma. Pois não existe segundo uma pureza total e sim mediante a uma identidade, ou seja, uma unicidade, uma singularidade que nega todas as outras formas e assume uma delas.
-
-O relativo não tem ordem, não tem permanencia, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o absoluto determinado e se encontra uma ausencia de referencial.
-
-
-Em uma hipótese errônea, ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos, a própria estadia do Espirito dado pela auto causalidade, sua própria inação configura o relativo em nada. Porém o relativo, não seria nem mesmo o nada, sem um contorno, sem o olhar do angulador. O relativo é uma realidade a ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada. Para que essa hipótese fizesse sentido o relativo não precisaria de contornos, pois nada não necessita de atributos, e não necessitaria ser recortado ou visualizado pois isto é transformar uma substancia em visão, e o nada não se transforma. A única forma de fazer sentido é o absoluto em sobenaria sendo uma realidade relacional, e não havendo nenhum limite de ação ou nenhuma ontologia determinada como configuração inicial, teria sua auto posição como liberdade completa de ação, e não como geradora de uma materia determinada que pode ser transformada em algo através de um processo de reversão da nadificação.
-
-Isto é, o relativo é uma indefinição, nem mesmo o recorte, e nem mesmo a totalidade infinitizada e anulada. Já o nada em hipótese errônea seria uma definição que possui complexidade, pois possuiria uma bi dimensão. Necessitaria do Espírito e sua visão sob sua infintiização. O Espírito e sua soberania mediante as formas ainda infinitizadas não possuiria total liberdade, tendo um substrato ontológico no qual seria obrigado a operar necessariamente. 
-
-Em uma hipotese aina erronea, o nada ontológico necessita de qualquer reação ou não reação. Simplesmente, em função do angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente se está lá. E, a inação deste, se faz nada Absoluto. O que quer dizer que, somente o angulador operando e existindo, já configura a posição do estado nadificado da possibilidade.
-
-Esta visão ainda é errônea pois ao justificarmos o Ser pela auto posição ao absoluto, isto não qualifica um nada ontológico, pelo contrário, miramos o pensamento na auto posição do Espírito sem ser necessário o pensamento numa ontologia falsa. E distraímos o vicio do pensamento em conceber um nada existente como substituto do Ser. A auto posição do Ser não produz uma matéria escura que denominamos nada, mas produz o próprio estado absoluto, o qual, evidencia a liberdade, isto é, a Liberdade do Ser ser soberano, e a liberdade da não soberania. Pois o Ser é agente do estado de soberania, tal como nega, nesse estado o estado de não soberania. É portanto, livre para ser soberano, tanto quanto para não se-lo.
-
-Isto é, se antes o relativo imperava, ao ser absolutizado, temos a presença do angulador, que define a realidade pela sua escolha e até mesmo pela sua não escolha. Ou seja, o relativo não existe mais e não é necessário para justificar a criação. E nem mesmo o angulador é necessário, sendo assim, a ação da angulação não é necessária. A pura estadia do Espírito, já sub entende sua liberdade total.
-
-Ex: Se há observador, existe o observado e até mesmo o não observado. Pois o observador, mesmo de olhos fechados, enxerga o escuro. Isto é, o escuro só depende da inação do observador, não necessita que ele abra os olhos. Agora, se não existir o observador, nem mesmo o escuro existiria, pois ninguém estaria de olhos fechados. Existido o observador, basta que ele abra os olhos e verá vida.
-
-Essa visão acima trata a realidade como uma virtualidade da visão do observador, a realidade, portanto, jamais obteria um status independente da visão.
-
-Em uma hipotese erronea teriamos que, a presença do angulador, isto é, de liberdade no relativo, faz com que haja uma decisão necessária, dentro da liberdade, não há opção de não escolha. É preciso escolher, então a inatividade (os olhos fechados), ainda é uma escolha.
-
-Desta forma, com o angulador presente, até a inação provoca uma configuração para relativo, a não escolha de formas resulta na infinitização. Ao não optar por nada, isto é, ao não escolher, se faz uma escolha. A realidade se aglutina de tal forma que, as formas permanecem homogêneas, sem definição, infinitizadas.
-
-Ex: ao não escolher um numero, todos os números estão em suspensão. Portanto, nenhum numero aparece. 
-
-# EM BUSCA DO ESPÍRITO - ASPECTOS RELACIONAIS DO ABSOLUTO
-
-Agora, inferiremos, não mais do relativo, ou do nada como angulação ainda sem o angulador justificado. Mas iremos inferir diretamente do Absoluto, para encontrarmos o indiferenciado. Não há ainda aspectos relacionais no nada, mas há um involucro para tais aspectos em seu conceito, precisamos portanto, preencher esse involucro. E, para faze-lo, investigaremos diretamente o conceito de absoluto para encontrarmos qualquer aspecto relacional no mesmo. Isto é, buscaremos o Espírito, o que é necessário para haver um absoluto. Ao encontrarmos, podemos encontrar o angulador para o nada. Isto é, podemos completar a hipótese da infinitude da possibilidade com a segunda parte que precisamos para justificar o nada e a criação: o angulador.
-
-Precisamos encontrar o Espírito do Absoluto, e, se antes exploramos pela escassez (nada), agora exploraremos pela abundancia. Vamos inferir diretamente sob tudo que há, sob a totalidade não somente do existente, mas do indiferenciado. Vamos abordar em via direta, através do Absoluto. Consideraremos todos os aspectos para que haja o absoluto, mesmo que ainda não formalizada sua substancia indiferenciada.
-
-O Absoluto é o próprio indiferenciado. Não há outra forma de considerarmos o desencadear dos fenômenos se não por uma fonte pura, existente e Absoluta. Portanto, investigaremos diretamente pelo Absoluto, o considerando, desde já, uma investigação sob o indiferenciado, tendo como falha a investigação do nada como tentativa de explicar o incausado, pois o nada carece do indiferenciado atribuído de certas aspectos como o poder de angulação.
-
-No absoluto indiferenciado, lembremos que não a substancia nem não substancia para ser explorada. Não há nada mais, portanto, do que explorar seus aspectos relacionais. Em busca da presença, do Espírito ou da pureza. Pois ainda não conseguimos encontrar uma substancia valida que não seja determinada, portanto, por isto se justifica dizer que não há substancia e nem não substancia para absoluto, mas somente seus aspectos relacionais.
-
-Não buscaremos um ente, uma entidade, mas buscamos até mesmo algo mais puro que isso, como já referenciado antes. Buscamos a forma como o absoluto se relaciona consigo e com a própria determinação e sua infinitude.
-
-Ainda não sabemos a substancia absoluta, embora sabemos que ela, de certa forma, pode preencher a lacuna do angulador. No entanto, consideremos a substancia sinônimo de Absoluto. E investiguemos essa substancia, ainda que não sabemos especificadamente sua natureza, a definamos sob a luz de causalidade. Sabemos, somente o que não é, não é o nada, e não é o fenômeno. Portanto, busquemos o Absoluto, que o que chamamos de Espírito, nomenclatura que é resultado da segregação do fenômeno e do nada em prol de um termo que designe uma realidade pura. Invisível, mas reativa, acionária e eficaz. 
-
-Isto é, buscaremos não pela fenomenologia, mas pela relacionalidade, deduzindo desde ja, que considerar a substancia para Espírito ou para Absoluto, é o mesmo que consideramos na totalidade e no nada. Isto é, já temos o relativo, agora precisamos, de aspectos relacionais para conclui-lo. O ato da angulação, portanto, pode advir de um aspecto relacional do absoluto, que aciona a angulação. 
-
-Embora o conceito de angulação esteja errôneo, seguiremos por essa linha de raciocino para figurar o conceito relacional sem o agente, usando as tentativas mais próximas de conceber o nada como algo.
-
-Portanto, agora, buscaremos o que está para além do nada e da totalidade, buscamos uma substancia Espiritual, algo que a faça subsistir, um ângulo de visão, ou qualquer coisa que a de um aspecto de ângulo, qualquer coisa que a defina para longe de si mesma. Isto é, buscamos o sentido na totalidade, buscamos um propósito, consciência, visão ou presença na própria totalidade, para finalmente darmos sentido ao nada.
-
-Portanto, ao explorarmos o nada, até agora usamos a mesma forma de dedução através da fenomenologia, se há algo criado, logo, há uma realidade criadora e incausada. A analise do nada, não foi um argumento diferente, ainda, para o nada, é preciso um sentido, tal como para a matéria. O nada precisa do angulador, tal como a matéria precisa da ação do angulador. 
-
-Isto é, nada é o produto de um angulador, tal como a matéria. Ambos, se reiteram e afirmam de forma categórica a necessidade de um aspecto para além do mundo material para explanar, a criação e até mesmo a não criação. Pois, segundo a hipotese da angulação, até a auto posição do Espírito necessita ser justificada, isto é, é um produto de sua angulação.
-
-Até agora, exploramos apenas o fenômeno, apenas as duas faces do fenômeno. E dessas duas faces deduzimos o criador ou o angulador. Agora, exploraremos diretamente o indiferenciado a titulo de Espírito. Isto é, não exploraremos a matéria ou o nada, mas puramente o aspecto auto causal, a intencionalidade, pessoalidade, temporalidade do Espírito e outros fatores relacionais. Exploraremos o Espírito, de forma que, não seja algo que se detecte como o fenômeno, mas algo que se deduza.
-
-### **O quem do querer do Absoluto**
-
-A inclinação a vida, o bem querer, o bem é o desejo pela vida. Pelo existir. Pela luz. O Ser é o puro bem querer, é o puro amor. Este desejo é puramente Espiritual. Portanto, o fundamentador tem o puro desejo da fundamentação, o plenificador o puro desejo da plenitude, e o personalizador o puro desejo da personalização rumo a plenitude. Ambos são selados pelo Espírito, de forma que ambos manifestam o Espírito que é o dom da plenitude, do existir, do Ser por querer, e por não poder Não Ser, por não poder não amar. Sua rendição ao ser é perfeição e não prisão. 
-
-Ao nos perguntar quem é o quem do querer, isto é, ao determinarmos o bem querer em um ângulo do bem querer, temos um recorte do querer. Formamos um ente do bem querer, um ente que tem bem querer, que tem querer por si. 
-
-E, se esse ente é angulado, ou determinado, temos o observador, para que haja a angulação no nada falso, isso é, para que haja uma angulação numa liberdade limitada que só pode ser operada sob uma forma falsa de Ser.
-
-Ao angularmos a liberdade falsa, isto é, ao elegermos a liberdade referente a uma existência determinada, temos que o angulador, além de determinado, tem uma liberdade limitada pela eleição de uma realidade e não de outra para ela.
-
-Uma angulação da liberdade, é uma limitação da liberdade. Ao angularmos a liberdade, não temos mais total liberdade instaurada nesta angulação. Pois há uma opção em detrimento de todas as outras.
-
-E, ao tornar a liberdade individual, isto é, ao estabelecer o quem do bem querer, o quem do puro amor, ao chamarmos o amor de um individuo, e não de apenas querer, temos um ente, e não mais o indiferenciado. Alem do mais, determinando a liberdade, a chamando de nada ontológico, temos a liberdade também limitada.
-
-A total liberdade não se concentra no poder de angular ou modificar uma realidade pré estabelecida como um nada ontológico, pois há o nada ontológico ao invés de qualquer outra coisa. Portanto, está não seria a total liberdade.
-
-O ente angulado não seria necessário, isto é, não ontologicamente feita em direção ao existir. Mas teria angulação e direcionamento ao nada ontológico, haveria uma barreira para a soberania do Ser, isto é, o Ser não seria para a infinitude, mas para uma barreira ontológica delimitada. O Ser deve estar em direção ao seu existir, e não ao nada. Não deve ser um observador do nada, mas deve ser soberano, sem que preciso agir para tal, sem que precise de um ato para estabelecer liberdade. Pois o ato sub entende causa, todo ato tem um agente. Portanto, para haver a soberania não deveria haver um ato prévio para tal. A soberania já deveria se instaurar como ato eterno, e não como pendencia de um ato de observação.
-
-Se o Ser fosse um ente, então seu auto querer não seria para o todo, não seria puro, pois seria para si. Não seria a entrega total de si como querer. O Ser, sendo determinado, teriamos portanto o quem do amor, ou o quem do não amor. Pois acaba a necessidade de direcionamento necessário ao existir, e se da vazão a um recorte da liberdade, corruptível. 
-
-Portanto, o amor é o próprio quem. Ao criarmos a identidade para o amor, ela seria reduzida a nada, pois seria infinitizado. Podemos fazer a linha inversa, tentar transformar o amor em uma identidade única, porém, este recorte o tiraria os traços de pureza total. 
-
-E ao colocarmos uma identidade na liberdade, temos uma não liberdade. Isto é, qualquer coisa que se refira ao nada como liberdade, aprisiona essa liberdade num nada ontológico como campo de ação.
-
-A liberdade do Ser tem um aspecto diagonal completo, pois o Espírito do Absoluto não pode não amar. Então se tem o homem. Uma determinação da liberdade. O que será estudado mais tarde, porém, aqui, serve como exemplificação da definição do Espírito. 
-
-O Espírito tem total liberdade no contexto absoluto, e o corpo da liberdade do Ser é relacional, os aspectos do ente livre, do ente que se realiza, se plenifica e se personaliza, são espírituais. Tem traços espirituais como autodomínio, auto conhecimento e auto presença. 
-
-O Espírito do Absoluto não é determinado, não repousa num "Quem", ou em um si, não tem fronteiras, repartições ou unicidade. Não é segundo a um ente, mas é segundo a si mesmo, é segundo a totalidade. É puro mediante tudo. É o amor que deixa Ser, que paira já no que é, que se deixa ser apenas no ato de amar, e não no quem ama.
-
-É o fundo de toda a realidade, é a infinitude do horizonte da vida. O Amor é para a totalidade infinita e para a totalidade determinada. O amor é para a totalidade, ou seja, vivo em si mesmo, e para o que é criado do nada. O bem querer não é de alguém, ou só para alguém, não é o para si de um ente, é o para si do nada. Isto é, o para si soberano, que não tem o si, mas é para tudo. Isto é o para si em si mesmo, sem um objeto, sem seu em si, mas em seu para si autonomo é operante no papel de seu em si. É o próprio amor desimpedido de si mesmo, livre de um si, para se doar ao todo.
-
-É o amor que não se esbarra num quem no qual fica internizado. É a consciência que não se esbarra numa determinação, num ente contável, mas é a consciência que é bem querer translucido à qualquer determinação.
-
-Deus não está observando A, mas observa nada, no sentido de que o A se dissolveu e só sobrou o amor, não mais o observador. Isto é, se Deus é um ente que se auto domina, esta presente em si mesmo, e se conhece, este ente se dissolveu. Sobrou sua ação Espiritual, e essa ação espiritual reta agora o define, e este ente passa a se chamar amor.
-
-O amor não vê, é a visão. O amor não domina, é o domínio, o amor não tem presença, é a própria presença. Pelos olhos do amor se vê, pelo amor se auto domina, e pelo amor se está presente em si. Portanto o agente deixa de agir para que a ação se faça agente, isto é, o Ser deixa de existir para que só reste o seu querer por si, que se faz sua substancia. O Ser é o ato de construção de si, é o querer por si, o fazer-se, e não o agente ou quem da construção de si, o quem do querer ou o algo do fazer-se.
-
-
-
-Portanto, os atributos do Ser, são dissipados de um possuidor, são doados ao todo, de forma que, não se fazem o sujeito, mas se fazem a infinização da individualização que colapsou em forma, mas sobreviveu sendo tudo através da intenção. E por essa intenção de bem querer infinita, encontrou um nome para si: o amor. O amor é o Ser que abandonou a si, e se fez seu abandono, e o nome desse abandono é o amor.
-
-
-Os atributos, portanto, não há mais quem vê, quem domina e quem é presente, o quem dos atributos se dilue e tornam-se vago. O Ser tornam-se uma coisa só: o amor. O amor observa, domina, e é presente de forma doada. Doa sua entrega ao todo, é transparente a todas as coisas determinadas devido a sua pureza, é instaurado como aquilo que é. É a pessoalidade pura, aquela que foi refinada ao ponto de transpassar qualquer coisa. O amor doa sua observação, seu dominio, sua presença, pois são translucidas.
-
-O amor não é mais consciente, mas se faz consciência do consciente. O amor não é mais dominante, mas se faz o próprio domínio. 
-
-Ate a presente investigação, estabelecemos um passo a passo através do refinamento do conceito de nada. Primeiramente o apontamos como um conceito parasitário, sempre que se define uma forma negativa para a determinação, seja essa forma um potencial, o nada ou o relativo, temos a contraparte positiva resguardando ou subentendida, inoculada, incultida no conceito negado. Portanto, para qualque negação há de existir o produto negado.
-
-No entanto, o que se sugere para absoluto não é a negação de nenhum ente, mas a afirmação da auto posição do Espírito. E essa afirmação já subentende a não soberania. Isto é, o fato de não se produzir nada, ja faz com que seja necessario ser possível produzir. Pois para haver a simples estadia inativa, é preciso que haja a possibilidade de ação, que não esta resguardada como manifestação de nenhuma negatividade, mas é a liberdade. Liberdade que não é vivia em uma ontologia pobre, mas que é vivida em sua totalidade, não sendo definida por uma ontologia falsa.
-
-revisado
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+No entanto, o que se sugere para o absoluto não é a negação de nenhum ente, mas a afirmação da autoposição do Espírito. E essa afirmação já subentende a não-soberania. Isto é, o fato de não se produzir nada já faz com que seja necessário ser possível produzir. Pois, para haver a simples estadia inativa, é preciso que haja a possibilidade de ação, que não está resguardada como manifestação de nenhuma negatividade, mas é a própria liberdade. Uma liberdade que não é vivida em uma ontologia pobre, mas que é vivida em sua totalidade, não sendo definida por uma ontologia falsa.
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
