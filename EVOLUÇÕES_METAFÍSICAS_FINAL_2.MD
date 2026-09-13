@@ -328,7 +328,7 @@ A aplicação regressiva desses princípios conduz, necessariamente, à postula�
 
 Sendo o Absoluto causa de si mesmo — e dada a sua natureza indiferenciada —, ele não pode ser definido por uma substância determinada. Sua substância é, na verdade, a sua própria capacidade de se autocausar. Portanto, ao causar a si mesmo, o Absoluto torna-se a sua própria ação criadora: ele não é o "causado", mas o "causar". E o fim último dessa ação causal é uma substancia pura: o inefável. Na ausência de um ente previamente determinado, o que existe é a pura ação de causar. É isto que define o Ser.
 
-Em outras palavras, o Absoluto se auto causa, não havendo substancia prévia determinada, há o ato de auto causar. O ato de se fazer Ser sem um ente que se faça determinado em uma forma pura por este ato. Isto é, há o "se fazer Ser", e não o "feito ser". Desta forma, o próprio fundamento é o ato de fundar-se. Auto causar-se, significa auto fazer-se, auto criar-se. Havendo, portanto, somente o ato de realizar-se sem o realizado. Sendo o ato de realizar-se já o realizado puro. 
+Em outras palavras, o Absoluto se auto causa, não havendo substancia prévia determinada, há o ato de auto causar. O ato de se fazer Ser sem um ente que se faça determinado por este ato. Isto é, há o "se fazer Ser", e não o "feito ser". Desta forma, o próprio fundamento é o ato de fundar-se. Auto causar-se, significa auto fazer-se, auto criar-se. Havendo, portanto, somente o ato de realizar-se sem o realizado. Sendo o ato de realizar-se já o realizado puro. 
 
 À primeira vista, este raciocínio é simples: não havendo uma substância material prévia para o Absoluto, o próprio Ser se faz substância; isto é, o princípio autocausal assume o papel de substância. Desse raciocínio, infere-se também a intenção dessa substância, que se direciona de forma irremediável para o existir.
 
@@ -1349,23 +1349,7 @@ Até a presente investigação, estabelecemos um passo a passo através do refin
 
 No entanto, o que se sugere para o absoluto não é a negação de nenhum ente, mas a afirmação da autoposição do Espírito. E essa afirmação já subentende a não-soberania. Isto é, o fato de não se produzir nada já faz com que seja necessário ser possível produzir. Pois, para haver a simples estadia inativa, é preciso que haja a possibilidade de ação, que não está resguardada como manifestação de nenhuma negatividade, mas é a própria liberdade. Uma liberdade que não é vivida em uma ontologia pobre, mas que é vivida em sua totalidade, não sendo definida por uma ontologia falsa.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Portanto, agora que libertamos o Ser de toda ontologia falsa e clareamos o foco de nossa investigação, podemos aprofundar nossa busca, adentrando o próprio teor autocausal, a fim de investigar suas minúcias. Se antes permanecíamos perdidos em conceitos vagos, confundidos com a pureza absoluta, ou em realidades cuja existência era inferida a partir do mundo determinado, agora o campo de nossa investigação se encontra claro e nítido, permitindo-nos identificar os conflitos que ainda precisam ser resolvidos e os atributos que precisam ser esclarecidos.
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
@@ -1385,7 +1369,7 @@ Se aplicarmos essa estrutura ao Absoluto, imediatamente surgem problemas. O Abso
 * Não pode ter nada fora de si (portanto, não pode ter uma causa externa).
 * Não pode ter distinções internas (portanto, não pode ter uma relação entre aspectos distintos de si mesmo).
 * Não pode estar submetido a uma ordem de prioridade (pois isso introduziria tempo ou dependência lógica).
-
+revisado
 A questão que se coloca, então, é: **podemos falar em "causa" no Absoluto sem trair sua natureza?** A solução é a recorrencia a pureza. O indiferenciado é a solução, a total diluição interna que distingue as barreiras da auto causalidade. Não existe o causador e o causado, pois isto representaria uma distinção interna. O agente da causa é o próprio causado. isto significa que, independente do que o absoluto seja, a causa de ser está em si.
 
 ## Introdução: Da Estrutura à Atividade
