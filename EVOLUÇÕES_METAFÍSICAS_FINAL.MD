@@ -1842,13 +1842,11 @@ Os atributos, portanto, não há mais quem vê, quem domina e quem é presente, 
 
 O amor não é mais consciente, mas se faz consciência do consciente. O amor não é mais dominante, mas se faz o próprio domínio. 
 
+Ate a presente investigação, estabelecemos um passo a passo através do refinamento do conceito de nada. Primeiramente o apontamos como um conceito parasitário, sempre que se define uma forma negativa para a determinação, seja essa forma um potencial, o nada ou o relativo, temos a contraparte positiva resguardando ou subentendida, inoculada, incultida no conceito negado. Portanto, para qualque negação há de existir o produto negado.
+
+No entanto, o que se sugere para absoluto não é a negação de nenhum ente, mas a afirmação da auto posição do Espírito. E essa afirmação já subentende a não soberania. Isto é, o fato de não se produzir nada, ja faz com que seja necessario ser possível produzir. Pois para haver a simples estadia inativa, é preciso que haja a possibilidade de ação, que não esta resguardada como manifestação de nenhuma negatividade, mas é a liberdade. Liberdade que não é vivia em uma ontologia pobre, mas que é vivida em sua totalidade, não sendo definida por uma ontologia falsa.
+
 revisado
-
-
-
-
-
-
 
 
 
