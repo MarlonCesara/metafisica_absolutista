@@ -1438,7 +1438,7 @@ Ainda que não haja possibilidade de escolha para o Absoluto necessário, o Abso
 Ao considerarmos o nada como uma realidade fictícia, admitida apenas para fins investigativos, ao definir um nada para absoluto, este nada ganharia contornos, chegando, paradoxalmente, a assumir a propriedade de autocausalidade. Se há nada, o sentido de haver nada e não outra coisa só poderia estar no próprio Absoluto. Porém, sendo o nada uma necessariedade, ainda assim seu sentido estaria para Absoluto, no entanto, não no sentido de um agir mecânico, mas no sentido de uma retidão de intenção a favor do existir.
 
 Dizer que o sentido do que há para absoluto está fora de si, ou é causado por uma necessidade, é um erro. Não há necessidade pela qual o absoluto deva ser se não Nele mesmo. Não há razão ou fundamentação que parta de algo a não ser do próprio Absoluto. Não existe uma forma para que Ele seja, se não com razão inerente a ele mesmo. Se é nada, a razão está no próprio Nada, e se nada é nada, a razão paira livre absoluta. Então, desta forma, traçamos os primeiros contornos do Ser. Ainda que haja uma necessidade para o Absoluto — a necessidade de Ser —, essa necessidade é de autoria do próprio Absoluto, pois não há lugar ou princípio externo de onde pudesse provir qualquer obrigatoriedade, necessidade ou determinação, tampouco uma natureza à qual o Absoluto devesse submeter-se para ser.
-revisado
+
 ### O Argumento da Personalidade Necessária
 Para que uma realidade seja auto causada, ela necessariamente precisa:
 1. **Conhecer-se integralmente** – para que possa escolher conscientemente sua própria natureza.
@@ -1460,7 +1460,7 @@ Esta tríade é a definição mesma de uma pessoalidade plena. Um princípio imp
 | **Lei matemática** | Abstrata, não existe por si mesma | É realidade concreta e autoexistente |
 | **Substância indiferenciada** | Passiva, sem interioridade | É atividade pura e interioridade absoluta |
 | **Campo quântico** | Determinístico ou aleatório | É livre e autocausal |
-
+revisado
 ## A Autocausalidade Bifásica: Temporal e Atemporal
 A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**.
 
