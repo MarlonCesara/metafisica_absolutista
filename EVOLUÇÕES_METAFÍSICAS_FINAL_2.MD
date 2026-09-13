@@ -1369,8 +1369,10 @@ Se aplicarmos essa estrutura ao Absoluto, imediatamente surgem problemas. O Abso
 * Não pode ter nada fora de si (portanto, não pode ter uma causa externa).
 * Não pode ter distinções internas (portanto, não pode ter uma relação entre aspectos distintos de si mesmo).
 * Não pode estar submetido a uma ordem de prioridade (pois isso introduziria tempo ou dependência lógica).
-revisado
+
 A questão que se coloca, então, é: **podemos falar em "causa" no Absoluto sem trair sua natureza?** A solução é a recorrencia a pureza. O indiferenciado é a solução, a total diluição interna que distingue as barreiras da auto causalidade. Não existe o causador e o causado, pois isto representaria uma distinção interna. O agente da causa é o próprio causado. isto significa que, independente do que o absoluto seja, a causa de ser está em si.
+
+Não há, portanto, o causado; há o causar. Isto é, no Absoluto, o causar já é o próprio causado, de modo que o para-si do Absoluto constitui o seu próprio em-si, em uma diluição fundamental dessa distinção. Dessa forma, o Absoluto é o próprio causar. Contudo, por estarmos tratando de uma estrutura viva, o causar é o Ser. Auto causar é, nesse sentido, fazer Ser.
 
 ## Introdução: Da Estrutura à Atividade
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o **modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana**. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua **própria causalidade**?
@@ -1383,7 +1385,11 @@ Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua p
 * **O Solo Ontológico Integral:** Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível (limite intrínseco da realidade).
 * **O Fim da Regressão Causal:** Onde toda busca por fundamentação encontra seu termo final necessário.
 
-## A Autocausalidade do Absoluto: A Dupla Exigência
+
+revisado
+
+## A Autocausalidade do Absoluto: A Falsa Dupla Exigência
+
 A aplicação dos princípios causais ao próprio Absoluto revela uma exigência dupla e radical:
 
 ### A Exigência da Dupla Fundamentação
