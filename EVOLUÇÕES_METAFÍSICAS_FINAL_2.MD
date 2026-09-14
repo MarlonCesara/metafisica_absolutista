@@ -1496,9 +1496,6 @@ A aplicação dos princípios causais ao próprio Absoluto revela que sua autoca
 
 ---
 
-
-revisado
-
 ## O Paradoxo da Essência Indiferenciada: A Tensão entre Existência e Auto-Relação
 
 A formulação do Absoluto como Espírito Pessoal e Indiferenciado Estável conduz a investigação metafísica a um de seus conflitos mais profundos. Ao elevarmos a razão ao seu limite estrutural, deparamo-nos com uma tensão ontológica e linguística incontornável: o problema da **Indiferenciação como Essência** e o enigma da reflexividade não-dual.
@@ -1531,23 +1528,23 @@ Esta resolução permite avançar a arquitetura do tratado sem violar os princí
 2. **O Limite do *Logos*:** Aceita-se o silêncio da linguagem diante da auto-relação absoluta. A ausência de uma palavra exata para descrever a "reflexividade não-dual" confirma a transcendência da realidade tratada.
 3. **A Essência Revelada:** A indeterminação não é uma falha ontológica que precise ser preenchida por formas. A Indiferenciação é o ato máximo, a essência mesma do Fundamento. O Absoluto não carece de identidade; a sua Indiferenciação *é* a sua identidade invulnerável.
 
-Isto não quer dizer que o Absoluto se identifique mais como essência do que com fundamento. Quer dizer que, é necessário uma palavra mais adequada para nomear está fusão, pois dizer que o Ser é indiferenciado, quer dizer que não é como a forma ou o determinado, mas não diz respeito ao nome deste ato de não ser como o determinado. 
+Isto não quer dizer que o Absoluto se identifique mais com a essência do que com o fundamento. Quer dizer que é necessária uma palavra mais adequada para nomear essa fusão. Pois dizer que o Ser é indiferenciado significa dizer que ele não é como a forma ou como o determinado, mas isso ainda não diz respeito ao nome próprio desse ato de não ser como o determinado. O indiferenciado é uma tentativa de representar o Ser a partir da visão de uma forma determinada que foi destruída. Isto é, ele só é indiferenciado porque houve, anteriormente, o diferenciado. Equivale, portanto, a dizer que o Ser não é como um ente dotado de forma.
 
-O indiferenciado é uma tentativa de representar o Ser pela visão de uma forma determinada destruída. Isto é, só é indiferenciado por ter havido o diferenciado. Isto é, é equivalente a dizer que o Ser não é como um ente com forma.
+Dessa forma, o termo mais direto seria **Ser**, pois ele designa as duas realidades unidas. Porém, ainda não há uma palavra que nos permita compreender o Ser sem concebê-lo como uma união entre identidade e fundamento. Isto é, o Absoluto possui o ato de fazer, e esse ato é o próprio feito. Temos, então, a forma como ato de fazer e o fundamento como sendo também esse mesmo ato. Há, portanto, a ação como o próprio produto da ação.
 
-Desta forma, o termo mais direto, seria o Ser, que designa as duas realidades unidas, porém, não há uma palavra ainda que nos faça entender o Ser se não como uma união da identidade com o fundamento. Isto é, o Absoluto tem o ato de fazer, e esse ato é o próprio feito. Temos, então a forma como o ato de se fazer, e o fundamento como também o ato. Então há a ação como o próprio produto da ação.
+A palavra **Ser**, portanto, também denota o existente tendo como forma o próprio existir. Isto é, a identidade é o existir, e o fundamento também é o existir. Algo é identificado por existir e é fundamentado pela mesma identificação. Ainda assim, temos o Ser como uma palavra dotada de dois significados que se fundam em uma só palavra. A palavra **Ser** denota, para o nosso pensamento, a forma e a fundamentação conjuntamente, mas ainda não conseguimos conceber uma palavra que não nos faça pensar na união de duas coisas, e sim em uma única coisa, uma essência que não comporte qualquer dualidade.
 
-A palavra Ser, portanto denota também o existente tendo como forma o existir, isto é, a identidade é o existir, e o fundamento também. Algo é identificado por existir, e fundamentado pelo mesma identificação.
+O Ser é uma palavra que tenta representar essa união. Porém, como signo mental, ainda denota uma tentativa de reunir, em um som ou em uma imagem mental, dois significados. Deve haver, portanto, um processo pelo qual não seja necessário unir duas coisas em uma, ainda que continuemos imaginando duas coisas unidas. Deve haver uma palavra que designe uma coisa só, sem que sequer precisemos pensar que havia duas coisas separadas que posteriormente se uniram.
 
-Ainda assim, temos o Ser como uma palavra dotada de dois significados que se fundam numa só palavra. A palavra Ser denota ainda, para nosso pensamento, a forma e a fundamentação juntas, mas ainda não conseguimos pensar numa palavra que não nos faça pensar na união de duas coisas, mas em uma coisa somente: uma essência que não porte uma dualidade.
+Essa palavra poderia ser **amor**: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se, por não produzir um produto distinto de si, tem como produto mais imediato o próprio querer-se, a intenção por si mesma. E essa intenção...
 
-O Ser é uma palavra que tenta representar essa união, porém, como signo mental, denota uma tentativa de unir num som ou numa imagem mental, dois significados. Deve haver um processo em que, não se necessite unir duas coisas em uma ainda imaginando duas coisas unidas. Mas uma palavra que designe imaginar uma coisa só sem nem mesmo pensar que haviam duas coisas separadas que se uniram.
+O causar-se, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
 
-E essa palavra poderia ser o amor, um sentimento qualitativo de querer. Este sentimento representa uma unicidade sem que nos remetemos a uma dualidade no pensamento. 
+Em nível metafísico, não é necessária uma ação exercida sobre um objeto, pois não há transformação de um objeto. Não há ação sobre algo. Há **ação pura**. Essa ação não é o movimento de um membro, mas o movimento do querer. Se fosse o movimento de algo, existiria não a criação a partir do nada, mas a transformação do nada em algo. Portanto, trata-se de um movimento do querer. Sendo o movimento do querer, temos que a identidade do querer, concomitantemente à sua própria ação, deveria inevitavelmente chamar-se **amor**.
+
+O amor é a intenção, o querer, que não necessita de um mediador entre o querer e aquilo que é querido para ser compreendido. O amor designa simultaneamente a qualidade e o sujeito da qualidade, executando uma operação inversa àquela realizada pela palavra **Ser**. Na palavra **amor**, podemos identificar o autor da ação de querer junto à própria ação. O amor, visto como pessoa, é também fundamento. Dessa forma, **“o Amor”** não é um conceito que designa uma dualidade fundida, mas um conceito do qual uma dualidade pode ser extraída mediante a distinção de uma pessoa.
 
 revisado
-
-
 
 # A NATUREZA PESSOAL DO AUTOCAUSAL
 
