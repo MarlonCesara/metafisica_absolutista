@@ -12049,8 +12049,7 @@ Ainda que se aceite a miséria do niilista, e o deixe com suas riquezas, o niili
 
 
 
-
-
+O niilista desaba seu peso na forma de trabalhos pesados para o outro, na forma de diculdades, e o pesar da vida, impedindo que o outro veja a vida com leveza e naturalidade no quesito do serviço. O niilista gosta de induzir a apatia no outro, para espelhar o que sente, produzindo um mundo deprimido, de pouca festa.
 
 
 
