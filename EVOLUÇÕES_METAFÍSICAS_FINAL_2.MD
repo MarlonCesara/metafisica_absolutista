@@ -5656,3 +5656,16 @@ A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica ún
 * **A Unidade Bifásica: Eternidade e Tempo Integrados:** Solução do Paradoxo: O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**. 
 
 Metáfora Ilustrativa: Consumação do passado, presente e futuro num instante único, criando uma natureza atemporal a partir do temporal.
+
+
+
+
+
+Causar envolce um agente
+Pois exige propriedades
+Nao é um ato mecanico de efeito e consequencia
+Ao somar o causar ao agebte temos o caussr como ser. Entao não há mais o causar, há o causar e unido ao agente. Pois o autor da causa é o causar.
+
+
+Falar sob o impossível que não é disruptivel. 
+E falar sob a impossibilidade igual a nada, pois a possibilidade perde seus contornos. 
