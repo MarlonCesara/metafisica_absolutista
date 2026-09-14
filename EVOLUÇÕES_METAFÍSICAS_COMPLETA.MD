@@ -12029,9 +12029,13 @@ O niilista nao aguentando o peso da própria decisão, não assume a responsabil
 
 ### A dissimulação do niilismo por meio de argumentos
 
-Imatine que há uma mulher rica que ve seu parente dependente quimico, um parente próximo, o dinheiro desta mulher é abastado. Porém, tem o niilismo que a faz ser avarenta, e enxergar em seu acumulo sua salvação. Portanto, ao invés de propor uma internação com o que lhe sobra em abundancia, a mulher niilista argumenta que a dependente não pode ficar longe da familia, diz não ter recursos o suficiente, diz que toda internação é fraudulenta, tenta mascarar sua avareza com diversos argumentos que giram em prol da manutenção de seu acumulo. Essa é a dissimulação do niilismo.
+Imatine que há uma mulher rica que ve seu parente passa fome, um parente próximo que está adoentado, o dinheiro desta mulher é abastado. Porém, tem o niilismo que a faz ser avarenta, e enxergar em seu acumulo sua salvação. Portanto, ao invés de propor uma ajuda financeira com que sobra em abundancia, a mulher niilista argumenta que o individuo precisa aprender a trabalhar, ainda que esteja doente, diz não ter recursos o suficiente, diz que toda ajuda incite o individuo a não fazer nada, tenta mascarar sua avareza com diversos argumentos que giram em prol da manutenção de seu acumulo. Essa é a dissimulação do niilismo.
+
+O niilista precisa do acumulo, se não, precisa ver a miseria do outro, o padecimento do outro. O niilista precisa ver a tristeza da criança, para não rememorar que sua criança entristecerá.
 
 De tal forma acontece na politica, vamos tomar como exemplo a abolição de uma escala de trabalho abusiva como a seis por um, na qual o trabalhador vive um regime escravista de somente um dia de desncanso na semana. Para não abolir, se diz que isso irá malograr a economia, e o desenvolvimento e que não está na hora de faze-lo.
+
+Também acontece o mesmo no voto de direita que tenta abolir os direitos mais basicos do humano.
 
 Levando isto para uma macro escala estão os bilhonarios e trilhonarios, transmitem o pretexto que são de suma serventia para a huamnidade e que sem eles não haveria avanço, sendo que, o produzido como avanço vem dos trabalhadores, só fazem o serviço de terem ideias óbvias e colocam o trabalhadores para executa-las, tentando se fazerem de genios ou de fundamentais para o desenvolvimento social. Sendo que, o objetivo final, é a acumulação de fortunas.
 
