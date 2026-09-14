@@ -12041,7 +12041,10 @@ Levando isto para uma macro escala estão os bilhonarios e trilhonarios, transmi
 
 O niilista, portanto mascara sua intenção sob dois objetivos, o de acumular mais bens e o de não transparecer sua mazela interior, querendo preservar sua intimidade e seu auto conhecimento.
 
+O niilismo quer tirar a alegria do mundo, o aborrece o sentimento generalizado de alegria, quer tirar o encanto do mundo, o aborrece a exuberância da natureza. O agrada uma paisagem deturpada, transformada de tal forma que esboce a imagem do vazio que carrega quanto ao sentido de sua vida.
 
+
+Ainda que se aceite a miséria do niilista, e o deixe com suas riquezas, o niilista precisa de amparo, se revolta em emoções e não se conforma somente com sua expressão de ação, mas parte para a expressão emocional numa tentativa de colo e consolo, numa tentativa de revelar o ato falho de sua expressão, num pranto triste que quer desaguar, num entendimento que quer receber, numa expectativa infusa de que algo lhe desperte de seu sono, que o de o primeiro movimento. Porém, uma expectativa que vem de seu corpo cansado pelo assombro da alma, cansado de sustentar uma alma que o pesa, que o enche de duvidas, conflitos e reações descabidas para o convívio e funcionamento social. 
 
 
 
