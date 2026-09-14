@@ -5671,4 +5671,4 @@ Falar sob o impossível que não é disruptivel.
 E falar sob a impossibilidade igual a nada, pois a possibilidade perde seus contornos. 
 
 
-O niilista é como um individuo que olha de uma janela a festa do mundo, a alegria da vida, e precisa ser o senhor de engenho que cessa toda a alegria com trabalhos pesados, formando uma elite na qual imagina uma superioridade. Desta forma, o niiilista acaba com a festa aparente da vida, deixando com que a alegria do homem fique ocultada por seu rosto cansado, privado de seu lazer e dos bens disposníveis, belezas naturais, etc.
+O niilista é como um individuo que olha de uma janela a festa do mundo, a alegria da vida, e precisa ser o senhor de engenho que cessa toda a alegria com trabalhos pesados, formando uma elite na qual imagina uma superioridade. Desta forma, o niiilista acaba com a festa aparente da vida, deixando com que a alegria do homem fique ocultada por seu rosto cansado, privado de seu lazer e dos bens disposníveis, belezas naturais, etc. O niilista, por vezes, sente grande mal estar em ver o manifestar da alegria social, a alegria de infancia da sociedade ao simples proveito dos bens que a natureza oferece.
