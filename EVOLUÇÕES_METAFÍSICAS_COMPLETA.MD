@@ -12054,7 +12054,7 @@ O niilista desaba seu peso na forma de trabalhos pesados para o outro, na forma 
 
 
 
-
+O niilista tenta fazer do mmundo um ato funebre, um cenario desertico, qualquer manifestação de pura alegria o incomoda e o da trabalho distorcer o sentido das coisas, para fazer com que a alegria natural das cosias não mostre para ele o absurdo de sua postura.
 
 
 
