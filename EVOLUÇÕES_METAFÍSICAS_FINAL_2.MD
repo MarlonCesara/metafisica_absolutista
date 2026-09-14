@@ -1544,13 +1544,13 @@ Em nível metafísico, não é necessária uma ação exercida sobre um objeto, 
 
 O amor é a intenção, o querer, que não necessita de um mediador entre o querer e aquilo que é querido para ser compreendido. O amor designa simultaneamente a qualidade e o sujeito da qualidade, executando uma operação inversa àquela realizada pela palavra **Ser**. Na palavra **amor**, podemos identificar o autor da ação de querer junto à própria ação. O amor, visto como pessoa, é também fundamento. Dessa forma, **“o Amor”** não é um conceito que designa uma dualidade fundida, mas um conceito do qual uma dualidade pode ser extraída mediante a distinção de uma pessoa.
 
-revisado
+
 
 # A NATUREZA PESSOAL DO AUTOCAUSAL
 
 ## A Necessidade de Autoconsciência, Liberdade e Intencionalidade
-**Max Scheler**, em *A Ideia do Homem e do Eterno*, argumentou que a pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade. Neste contexto, Deus é a perfeição entregue ao Ser, ao seu próprio estatuto, não por aprisionamento, mas por um amor perfeito e indestrutível.
-
+A pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade. Neste contexto, o Ser é a perfeição entregue a sua necessidade como Absoluto, entregue ao seu próprio estatuto, não por aprisionamento, mas por um amor perfeito e indestrutível.
+revisado
 Vamos explorar primeiramente a autoconsciência, acrescentando também a necessidade de autodomínio, autoconhecimento, autopresença e liberdade.
 
 A autoconsciência é a presença viva. O autoconhecimento é conhecer-se totalmente para determinar-se totalmente. E a liberdade é a capacidade de fundar-se, plenificar-se e personalizar-se. A intencionalidade é o ato de ser necessário.
