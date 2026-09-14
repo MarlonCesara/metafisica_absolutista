@@ -1550,7 +1550,7 @@ O amor é a intenção, o querer, que não necessita de um mediador entre o quer
 
 ## A Necessidade de Autoconsciência, Liberdade e Intencionalidade
 A pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade. Neste contexto, o Ser é a perfeição entregue a sua necessidade como Absoluto, entregue ao seu próprio estatuto, não por aprisionamento, mas por um amor perfeito e indestrutível.
-revisado
+
 Vamos explorar primeiramente a autoconsciência, acrescentando também a necessidade de autodomínio, autoconhecimento, autopresença e liberdade.
 
 A autoconsciência é a presença viva. O autoconhecimento é conhecer-se totalmente para determinar-se totalmente. E a liberdade é a capacidade de fundar-se, plenificar-se e personalizar-se. A intencionalidade é o ato de ser necessário.
@@ -1562,7 +1562,7 @@ A autoconsciência é a presença viva. O autoconhecimento é conhecer-se totalm
 A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
 
 > *"Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."*
-
+revisado
 Ao contrário de concepções impessoais do Absoluto, a autocausalidade exige:
 * **Liberdade metafísica radical:** Capacidade de autodeterminação sem condicionamentos externos de qualquer natureza.
 * **Consciência integral:** Conhecimento imediato e completo de sua própria essência e atos.
