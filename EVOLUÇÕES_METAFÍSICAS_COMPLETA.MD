@@ -12025,3 +12025,33 @@ O niilista sente um desespero introvertido, um choro engolido, uma grande impass
 
 
 O niilista nao aguentando o peso da própria decisão, não assume a responsabilidade por sua decisão e torna-se um pedinte de valor do outro, por isso provoca uma sociedade de trabalhos exaustivos e forçados.
+
+
+### A dissimulação do niilismo por meio de argumentos
+
+Imatine que há uma mulher rica que ve seu parente dependente quimico, um parente próximo, o dinheiro desta mulher é abastado. Porém, tem o niilismo que a faz ser avarenta, e enxergar em seu acumulo sua salvação. Portanto, ao invés de propor uma internação com o que lhe sobra em abundancia, a mulher niilista argumenta que a dependente não pode ficar longe da familia, diz não ter recursos o suficiente, diz que toda internação é fraudulenta, tenta mascarar sua avareza com diversos argumentos que giram em prol da manutenção de seu acumulo. Essa é a dissimulação do niilismo.
+
+De tal forma acontece na politica, vamos tomar como exemplo a abolição de uma escala de trabalho abusiva como a seis por um, na qual o trabalhador vive um regime escravista de somente um dia de desncanso na semana. Para não abolir, se diz que isso irá malograr a economia, e o desenvolvimento e que não está na hora de faze-lo.
+
+Levando isto para uma macro escala estão os bilhonarios e trilhonarios, transmitem o pretexto que são de suma serventia para a huamnidade e que sem eles não haveria avanço, sendo que, o produzido como avanço vem dos trabalhadores, só fazem o serviço de terem ideias óbvias e colocam o trabalhadores para executa-las, tentando se fazerem de genios ou de fundamentais para o desenvolvimento social. Sendo que, o objetivo final, é a acumulação de fortunas.
+
+O niilista, portanto mascara sua intenção sob dois objetivos, o de acumular mais bens e o de não transparecer sua mazela interior, querendo preservar sua intimidade e seu auto conhecimento.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
