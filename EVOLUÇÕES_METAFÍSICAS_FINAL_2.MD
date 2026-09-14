@@ -1460,19 +1460,8 @@ Esta tríade é a definição mesma de uma pessoalidade plena. Um princípio imp
 | **Lei matemática** | Abstrata, não existe por si mesma | É realidade concreta e autoexistente |
 | **Substância indiferenciada** | Passiva, sem interioridade | É atividade pura e interioridade absoluta |
 | **Campo quântico** | Determinístico ou aleatório | É livre e autocausal |
-revisado
-## A Autocausalidade Bifásica: Temporal e Atemporal
-A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**.
 
-* **Autocausalidade Atemporal: A Causa Definitiva:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. Princípios Envolvidos: Causa essêncial (Atemporal) e Causa Existencial (Atemporal).
-
-* **Autocausalidade Temporal: O Ciclo Autossustentado:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada. Princípios Envolvidos: Causalidade Continuada (Temporal) e Causa Existencial Continuada (Temporal). 
-
-* **A Unidade Bifásica: Eternidade e Tempo Integrados:** Solução do Paradoxo: O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**. 
-
-Metáfora Ilustrativa: Consumação do passado, presente e futuro num instante único, criando uma natureza atemporal a partir do temporal.
-
-## 8.6 O Espírito Absoluto como Presença Autofundante
+## Espírito Absoluto como Presença Autofundante
 O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico estático, mas uma **atividade autofundante** que contém em si os princípios de:
 
 **A Tríade da Presença Autofundante:**
@@ -1485,12 +1474,12 @@ O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais co
 * **Contra o niilismo:** O Absoluto não é puro vazio ou ausência.
 * **Via Mediana:** O Absoluto é **Presença Pura** que existe por essência, é plenamente positiva e mantém-se em ato permanente.
 
-## 8.7 Implicações Metafísicas Radicais
-* **O Incognoscível é Pessoal:** O incognoscível não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, que excede toda conceitualização precisamente porque é **sujeito absoluto**.
-* **Possibilidade e Impossibilidade como Atos do Espírito:** Os domínios do possível e do impossível não são limites externos, mas **expressões da autodeterminação do Espírito**. O "impossível" (como a contradição) existe como **negação interna** que o Espírito supera em sua totalidade.
+## Implicações Metafísicas Radicais
+* **O Indifernciado é Pessoal:** O Indifernciado não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, precisamente porque é **sujeito absoluto**.
+* **Possibilidade e Impossibilidade como Atos do Espírito:** Os domínios do possível e do impossível não são limites externos, mas **expressões da soberania do Espírito**. O "impossível" (como a contradição) existe como **negação interna** que o Espírito supera em sua totalidade.
 * **A Realidade como Autocomunicação:** O mundo contingente não é uma emanação necessária, mas **ato livre de autodoação do Absoluto**. A criação é expressão de liberdade, não de necessidade.
 
-## 8.8 A Hierarquia dos Níveis de Causalidade e a Autodeterminação Absoluta
+## A Hierarquia dos Níveis de Causalidade e a Autodeterminação Absoluta
 
 | Nível de Realidade | Tipo de Causalidade | Exemplo | Relação com o Absoluto |
 | :--- | :--- | :--- | :--- |
@@ -1498,41 +1487,37 @@ O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais co
 | **Possível** | Causalidade Formal/Estrutural | Leis matemáticas, princípios lógicos | Derivada e sustentada |
 | **Físico** | Causalidade Eficiente | Fenômenos naturais, eventos temporais | Mediata e contingente |
 
-A causalidade no Absoluto manifesta-se como **autodeterminação radical**: O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua autodeterminação.
+A causalidade no Absoluto manifesta-se como **autodeterminação radical**: O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também **determina sua própria estrutura**, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua liberdade.
 
-## 8.9 Conclusão da Proposição VIII
-**Proposição VIII demonstrada:** A aplicação dos princípios causais ao próprio Absoluto revela que sua autocausalidade exige autoconhecimento, autodomínio e autopresença em grau máximo — atributos que constituem personalidade plena. Portanto, o Absoluto deve ser compreendido como **Espírito Pessoal**, não como princípio impessoal. Esta autocausalidade opera simultaneamente nos planos atemporal (autofundação definitiva) e temporal (autossustentação contínua), revelando o Absoluto como Presença Autofundante que transcende as dicotomias reducionistas.
-
-A análise demonstra de forma inequívoca que a autocausalidade pura exige personalidade, e que o Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto).
+## Conclusão
+A aplicação dos princípios causais ao próprio Absoluto revela que sua autocausalidade exige autoconhecimento, autodomínio e autopresença em grau máximo — atributos que constituem personalidade plena. Portanto, o Absoluto deve ser compreendido como **Espírito Pessoal**, não como princípio impessoal. A análise demonstra que a autocausalidade pura exige personalidade, e que o Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto).
 
 **Síntese da Fundamentação:** O resultado é uma **demonstração necessária**: se aceitamos os princípios lógicos e causais, e se aceitamos a estrutura do Absoluto, então somos **logicamente compelidos** a conceber este Absoluto como Espírito Pessoal.
 
 ---
+
+
+revisado
 
 ## O Paradoxo da Essência Indiferenciada: A Tensão entre Existência e Auto-Relação
 
 A formulação do Absoluto como Espírito Pessoal e Indiferenciado Estável conduz a investigação metafísica a um de seus conflitos mais profundos. Ao elevarmos a razão ao seu limite estrutural, deparamo-nos com uma tensão ontológica e linguística incontornável: o problema da **Indiferenciação como Essência** e o enigma da reflexividade não-dual.
 
 ### O Colapso entre Essência e Existência
-Se o Absoluto é o Indiferenciado (conforme a Proposição VII), ele carece de uma "identidade" no sentido comum do termo. A identidade fenomênica ou lógica constitui-se sempre pela demarcação e pela negação (A é A precisamente porque não é B). O Absoluto, contudo, não possui um "outro" em relação ao qual possa se diferenciar. Desprovido de contornos e limites que o definam por exclusão, o Absoluto não possui atributos separáveis.
+Se o Absoluto é o Indiferenciado, ele carece de uma "identidade" no sentido comum do termo. A identidade fenomênica ou lógica constitui-se sempre pela demarcação e pela negação (A é A precisamente porque não é B). O Absoluto, contudo, não possui um "outro" em relação ao qual possa se diferenciar. Desprovido de contornos e limites que o definam por exclusão, o Absoluto não possui atributos separáveis.
 
 Consequentemente, **a sua essência não se distingue da sua existência**. No mundo dos entes contingentes, *o que* algo é (essência) distingue-se do *fato de que* é (existência). No Absoluto, essa fronteira desmorona. O seu existir é o seu próprio ser; a sua presença absoluta é, de forma imanente e indistinta, a sua própria configuração.
 
 ### O Vazio Linguístico da Reflexividade Não-Dual
-O conflito agrava-se ao confrontarmos este colapso com a necessidade de autoexplicação. A Proposição VIII demonstrou que o Absoluto envolve uma explicação para si mesmo (a autofundamentação e a autodeterminação). Para purificar essa autoexplicação de qualquer traço de dualidade (causa vs. efeito), utilizamos o termo **Necessidade**. A Necessidade atesta que o Absoluto não poderia não ser.
 
-No entanto, o termo "Necessidade" lida primariamente com a modalidade do existir, mas deixa uma lacuna estrutural no que tange à interioridade do Absoluto. Existe um abismo linguístico insuperável: **não há uma palavra na linguagem humana que se refira à relação do Absoluto consigo mesmo sem insinuar uma dualidade.**
+O conflito agrava-se ao confrontarmos este colapso com a necessidade de autoexplicação. O Absoluto envolve uma explicação para si mesmo (a autofundamentação e a autodeterminação). Para purificar essa autoexplicação de qualquer traço de dualidade (causa vs. efeito), utilizamos o termo **Necessidade**. A Necessidade atesta que o Absoluto não poderia não ser. No entanto, o termo "Necessidade" lida primariamente com a modalidade do existir, mas deixa uma lacuna estrutural no que tange à interioridade do Absoluto. Existe um abismo linguístico insuperável: **não há uma palavra na linguagem humana que se refira à relação do Absoluto consigo mesmo sem insinuar uma dualidade.**
 
-Nossa linguagem e nossa lógica são intrinsecamente transitivas e relacionais. Para pensar em "relação", pressupomos um sujeito que se relaciona e um objeto com o qual se relaciona. Como pode o Absoluto relacionar-se consigo mesmo, conhecer-se ou fundamentar-se sem se bifurcar internamente num "eu que funda" e num "eu que é fundado"? 
-
-O Absoluto exige uma reflexividade pura, uma intimidade consigo mesmo que não crie divisões. A falta de um termo adequado não é uma mera falha de vocabulário, mas a evidência de que a razão discursiva (cognoscível) esbarra no domínio do Incognoscível (conforme estabelecido na Proposição VI).
+Nossa linguagem e nossa lógica são intrinsecamente transitivas e relacionais. Para pensar em "relação", pressupomos um sujeito que se relaciona e um objeto com o qual se relaciona. Como pode o Absoluto relacionar-se consigo mesmo, conhecer-se ou fundamentar-se sem se bifurcar internamente num "eu que funda" e num "eu que é fundado"? O Absoluto exige uma reflexividade pura, uma intimidade consigo mesmo que não crie divisões.
 
 ### A Resolução: A Indiferenciação como Essência Positiva
 A resolução deste impasse exige uma inversão da perspectiva habitual. A inclinação natural do pensamento é encarar a "indiferenciação" como uma negação — a mera ausência de diferenças, uma falta de atributos ou um vácuo de identidade. Contudo, para que o sistema se sustente sem contradição, a indiferenciação deve ser alçada a um novo patamar ontológico.
 
-A resposta ao conflito formula-se da seguinte maneira: **O Absoluto, ainda que radicalmente indiferenciado, tem na própria Indiferenciação a sua Essência.**
-
-A Indiferenciação não é o "nada" ou a perda de uma essência, mas a **Essência Positiva e Plena** do Absoluto. A sua identidade é exatamente a ausência de distinção. Quando perguntamos qual é a natureza que o Absoluto sustenta na sua relação não-dual consigo mesmo, a resposta é a permanência do seu estado não-dividido.
+A resposta ao conflito formula-se da seguinte maneira: **O Absoluto, ainda que radicalmente indiferenciado, tem na própria Indiferenciação a sua Essência.** A Indiferenciação não é o "nada" ou a perda de uma essência, mas a **Essência Positiva e Plena** do Absoluto. A sua identidade é exatamente a ausência de distinção. Quando perguntamos qual é a natureza que o Absoluto sustenta na sua relação não-dual consigo mesmo, a resposta é a permanência do seu estado não-dividido.
 
 Ao tomar a Indiferenciação como Essência:
 * A relação do Absoluto consigo mesmo não precisa de uma "ação" que conecte duas partes, pois a relação é a própria **coincidência imediata**.
@@ -1546,7 +1531,25 @@ Esta resolução permite avançar a arquitetura do tratado sem violar os princí
 2. **O Limite do *Logos*:** Aceita-se o silêncio da linguagem diante da auto-relação absoluta. A ausência de uma palavra exata para descrever a "reflexividade não-dual" confirma a transcendência da realidade tratada.
 3. **A Essência Revelada:** A indeterminação não é uma falha ontológica que precise ser preenchida por formas. A Indiferenciação é o ato máximo, a essência mesma do Fundamento. O Absoluto não carece de identidade; a sua Indiferenciação *é* a sua identidade invulnerável.
 
-# PROPOSIÇÃO: A NATUREZA PESSOAL DO AUTOCAUSAL
+Isto não quer dizer que o Absoluto se identifique mais como essência do que com fundamento. Quer dizer que, é necessário uma palavra mais adequada para nomear está fusão, pois dizer que o Ser é indiferenciado, quer dizer que não é como a forma ou o determinado, mas não diz respeito ao nome deste ato de não ser como o determinado. 
+
+O indiferenciado é uma tentativa de representar o Ser pela visão de uma forma determinada destruída. Isto é, só é indiferenciado por ter havido o diferenciado. Isto é, é equivalente a dizer que o Ser não é como um ente com forma.
+
+Desta forma, o termo mais direto, seria o Ser, que designa as duas realidades unidas, porém, não há uma palavra ainda que nos faça entender o Ser se não como uma união da identidade com o fundamento. Isto é, o Absoluto tem o ato de fazer, e esse ato é o próprio feito. Temos, então a forma como o ato de se fazer, e o fundamento como também o ato. Então há a ação como o próprio produto da ação.
+
+A palavra Ser, portanto denota também o existente tendo como forma o existir, isto é, a identidade é o existir, e o fundamento também. Algo é identificado por existir, e fundamentado pelo mesma identificação.
+
+Ainda assim, temos o Ser como uma palavra dotada de dois significados que se fundam numa só palavra. A palavra Ser denota ainda, para nosso pensamento, a forma e a fundamentação juntas, mas ainda não conseguimos pensar numa palavra que não nos faça pensar na união de duas coisas, mas em uma coisa somente: uma essência que não porte uma dualidade.
+
+O Ser é uma palavra que tenta representar essa união, porém, como signo mental, denota uma tentativa de unir num som ou numa imagem mental, dois significados. Deve haver um processo em que, não se necessite unir duas coisas em uma ainda imaginando duas coisas unidas. Mas uma palavra que designe imaginar uma coisa só sem nem mesmo pensar que haviam duas coisas separadas que se uniram.
+
+E essa palavra poderia ser o amor, um sentimento qualitativo de querer. Este sentimento representa uma unicidade sem que nos remetemos a uma dualidade no pensamento. 
+
+revisado
+
+
+
+# A NATUREZA PESSOAL DO AUTOCAUSAL
 
 ## A Necessidade de Autoconsciência, Liberdade e Intencionalidade
 **Max Scheler**, em *A Ideia do Homem e do Eterno*, argumentou que a pessoalidade é a forma mais alta de ser, caracterizada por autoconsciência, liberdade e intencionalidade. Neste contexto, Deus é a perfeição entregue ao Ser, ao seu próprio estatuto, não por aprisionamento, mas por um amor perfeito e indestrutível.
@@ -5628,3 +5631,31 @@ O universo colapsado em pura possibilidade não possui sentido intrínseco até 
 
 
 Quando imagainamos o nada absoluto sob a causalidade temos uma visão mais clara do Ser, o Ser que se auto causa, se faz ser, não é um existente, mas é o processo de construção de si, sem determinar um si. É o auto querer por si e o auto se fazer através da substancia do próprio querer-se.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Esta autocausalidade opera simultaneamente nos planos atemporal (autofundação definitiva) e temporal (autossustentação contínua), revelando o Absoluto como Presença Autofundante que transcende as dicotomias reducionistas.
+
+## A Autocausalidade Bifásica: Temporal e Atemporal
+A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**.
+
+* **Autocausalidade Atemporal: A Causa Definitiva:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. Princípios Envolvidos: Causa essêncial (Atemporal) e Causa Existencial (Atemporal).
+
+* **Autocausalidade Temporal: O Ciclo Autossustentado:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada. Princípios Envolvidos: Causalidade Continuada (Temporal) e Causa Existencial Continuada (Temporal). 
+
+* **A Unidade Bifásica: Eternidade e Tempo Integrados:** Solução do Paradoxo: O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**. 
+
+Metáfora Ilustrativa: Consumação do passado, presente e futuro num instante único, criando uma natureza atemporal a partir do temporal.
