@@ -12064,3 +12064,5 @@ O niilista assume uma dureza quanto a mudar seu comportameneto, ainda que este c
 O desespero do niilista, por vezes é conseguido ser aplacado, porém, dá lugar a uma atomesfera de consciencia estatica, um desespero incultido em forma de sarcasmo, sensação de aprisionamento, como se aguardasse em pé num involucro de morte, um ar de falsa paz, que é substituida pelo total cansaço do corpo, e falta de expressão, e não pela paz.
 
 
+O niilista assume um personagem que segundo ele é perspcaz, construtor de artimanhas, imagina ser o mais esperto, ser invisível perante os outros que julga não ter a mesma perspicácia, por vezes, usa de artimanhas para alcançar o dinheiro e não lança mão de fazer o mal para tal, e praticar más ações. O faz levado pela obsessão pelo valor material, imagina haver sempre uma via fácil para alcança-lo, e julga os outros como pessoas sem a mesma esperteza que a sua. Julga ter uma visão superior, ter sempre uma carta na manga. Associa isso como uma inteligência superior. 
+
