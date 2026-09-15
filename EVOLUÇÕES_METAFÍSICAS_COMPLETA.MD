@@ -12058,6 +12058,9 @@ O niilista tenta fazer do mmundo um ato funebre, um cenario desertico, qualquer 
 
 
 
+O niilista assume uma dureza quanto a mudar seu comportameneto, ainda que este comportamento seja nocivo, mantem intacto o seu modelo de ação ainda que ameaçado com a propria morte, o faz como expressão de sua impassividade interior, que não muda apensar de todas as reações inequivocas de seu corpo, e de seu desespero perante a tal estado.
 
+
+O desespero do niilista, por vezes é conseguido ser aplacado, porém, dá lugar a uma atomesfera de consciencia estatica, um desespero incultido em forma de sarcasmo, sensação de aprisionamento, como se aguardasse em pé num involucro de morte, um ar de falsa paz, que é substituida pelo total cansaço do corpo, e falta de expressão, e não pela paz.
 
 
