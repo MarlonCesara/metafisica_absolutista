@@ -1544,8 +1544,6 @@ Em nível metafísico, não é necessária uma ação exercida sobre um objeto, 
 
 O amor é a intenção, o querer, que não necessita de um mediador entre o querer e aquilo que é querido para ser compreendido. O amor designa simultaneamente a qualidade e o sujeito da qualidade, executando uma operação inversa àquela realizada pela palavra **Ser**. Na palavra **amor**, podemos identificar o autor da ação de querer junto à própria ação. O amor, visto como pessoa, é também fundamento. Dessa forma, **“o Amor”** não é um conceito que designa uma dualidade fundida, mas um conceito do qual uma dualidade pode ser extraída mediante a distinção de uma pessoa.
 
-
-
 # A NATUREZA PESSOAL DO AUTOCAUSAL
 
 ## A Necessidade de Autoconsciência, Liberdade e Intencionalidade
@@ -1562,7 +1560,7 @@ A autoconsciência é a presença viva. O autoconhecimento é conhecer-se totalm
 A análise das propriedades autocausais do Absoluto conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença em grau máximo. Estas propriedades, em sua plenitude, constituem precisamente o que reconhecemos como **personalidade** ou "Espírito do Absoluto".
 
 > *"Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para determiná-la — é ela que detém o poder de escolher a si própria."*
-revisado
+
 Ao contrário de concepções impessoais do Absoluto, a autocausalidade exige:
 * **Liberdade metafísica radical:** Capacidade de autodeterminação sem condicionamentos externos de qualquer natureza.
 * **Consciência integral:** Conhecimento imediato e completo de sua própria essência e atos.
@@ -1572,7 +1570,7 @@ Estes atributos diferenciam radicalmente o Absoluto de:
 1.  **Forças impessoais** (como energia cósmica ou campos quânticos).
 2.  **Princípios abstratos** (como leis matemáticas ou lógicas).
 3.  **Substâncias inertes** (como matéria bruta ou substância indiferenciada).
-
+revisado
 ## A Tríade da Autodeterminação: Conhecer, Dominar e Estar Presente
 Para que uma realidade se autodetermine, ela precisa, necessariamente:
 1. **Conhecer-se** – para que possa escolher conscientemente sua própria natureza;  
@@ -3948,7 +3946,7 @@ O absoluto supoe algumas propriedades:
 3- Se há o aspecto da intencionalidade, em contraponto, a intencionalidade deve encontrar liberdade. O amor. Isto é, se há o amor. O absoluto deve encontrar sua liberdade, a intencão designa o intencionado. A lomomoção rumo a sua manifestação, portanto, deve haver a liberdade no nível metafísico.
 
 Explorar os aspectos da liberdade. É o que erroneamente se intitula como exploração do nada. Pois o nada é sempre tido como uma tentativa de mentalizar o inefavel, mentalizar a pureza sem recorrer ao inefável. Não há busca metafisica, portanto numa realidade que se chama nada, a busca é pelo entendimento da liberdade ontológica do Ser.
-revisar
+
 
 
 
