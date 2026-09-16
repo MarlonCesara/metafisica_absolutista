@@ -12065,4 +12065,4 @@ O desespero do niilista, por vezes é conseguido ser aplacado, porém, dá lugar
 
 
 O niilista assume um personagem que segundo ele é perspcaz, construtor de artimanhas, imagina ser o mais esperto, ser invisível perante os outros que julga não ter a mesma perspicácia, por vezes, usa de artimanhas para alcançar o dinheiro e não lança mão de fazer o mal para tal, e praticar más ações. O faz levado pela obsessão pelo valor material, imagina haver sempre uma via fácil para alcança-lo, e julga os outros como pessoas sem a mesma esperteza que a sua. Julga ter uma visão superior, ter sempre uma carta na manga. Associa isso como uma inteligência superior. 
-
+O niilista acredita cegamente em seu plano, não analise realmente a inteligencia de seu plano, e nem mesmo as consequencias para sua vida de forma clara, mas se deixa levar pela ilusão, pelo caminho que em sua mente o leva necessarimente ao auto valor através de conquistas materiais.
