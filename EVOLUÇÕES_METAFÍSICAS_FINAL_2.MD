@@ -1749,22 +1749,20 @@ O absoluto naturalmente existe, e impõe o existir à completude, pois existe ta
 
 ## A Indiferenciação do Espírito
 O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, é necessário suspender o Espírito considerado criado e determinado sob um aspecto único. Ao suspendermos o Espírito determinado, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
-revisado
-Um espírito determinado sob um fator extrínseco, cuja liberdade poderia ser contrária ao que é, e não direcionado necessariamente ao existir. Portanto, não estaria rendido, de forma a ser indetectável, de forma que sua vontade seja tão pura que em nada possui dissonância no que é. De forma que não precise nem mesmo existir para que tenha sua ação instaurada; aproxima-se em pureza ao ato de inexistir, porém conserva seus efeitos, portanto existe, de forma pura.
 
-## 11.10 A Superação da Determinação Extrínseca
-Ao se determinar o fator autocausal (Espírito), temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si.
+Um espírito determinado sob um fator extrínseco, cuja liberdade poderia ser contrária ao que é, e não direcionado necessariamente ao existir. Portanto, não estaria rendido, de forma a ser indetectável, de forma que sua vontade seja tão pura que em nada possui dissonância no que é. De forma que não precise nem mesmo existir como ente determinado para que tenha sua ação instaurada; aproxima-se em pureza ao ato de inexistir, porém conserva seus efeitos, portanto existe, de forma pura.
 
-O Espírito, portanto, é o indiferenciado do Espírito. E sua ação é pura. Fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. É indetectável, porém tem sua ação sobre aquilo que é.
+## A Superação da Determinação Extrínseca
+Ao se determinar o fator auto causal (Espírito), temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si. O Espírito, portanto, é o indiferenciado do Espírito. E sua ação é pura. Fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. É indetectável, porém tem sua ação sobre aquilo que é.
 
-## 11.11 As Duas Faces do Absoluto
+## As Duas Faces do Absoluto
 O fator autocausal é na medida em que é por si mesmo. Portanto, temos a ação autocausal, que é dividida em três esferas distintas, e o campo de ação do autocausal, que é o próprio absoluto. São duas faces de uma mesma realidade: o absoluto é autocausal no sentido de ser espiritualmente ativo em si mesmo, ao passo que dispõe de si nessa autocausalidade, que é a liberdade no âmbito autocausal.
 
 Para justificar um Espírito autocausal, não se pode recorrer a um Espírito que nada é, pois o nada, apesar de primeiramente parecer não possuir atributos, não possui pessoalidade para realizar a autocausalidade. Temos, portanto, que há um Espírito puríssimo, aquele que dispensa qualquer determinação de si, no sentido de que o Espírito não é uma unidade mandante no absoluto, ou seja, não se identifica como um "Sou", mas se identifica como o "Ser", aquilo que paira sobre o absoluto em seu próprio ato de Ser. O Espírito que age sem precisar ordenar está adequado ao que é, e condizente com o que é.
 
-## 11.12 O Espírito sob o Fluxo da Existência
-O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como fundamentador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada).
-
+## O Espírito sob o Fluxo da Existência
+O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como fundamentador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada). Isto é, ao imaginarmos um nada ontológico para nos referir a soberania do Espírito, o Espírito existiria segundo o que é, isto é, soberano, considerando que o nada não existe. E se o que existe é a soberania, o Espírito simplesmente é soberano, existe segundo a soberania. 
+revisado
 A autocausalidade, portanto, incidindo sobre o nada, ou qualquer determinação para o absoluto possível — ou até mesmo incidindo sobre um absoluto indiferenciado, como será evidenciado a seguir —, está para o existir de forma a se determinar em prol do que existe. Se existe o absoluto, o Espírito é consistente com o que existe; e, se o que existe é necessário e não contingente, o Espírito segue essa lógica de necessidade.
 
 ## A Justificação do Espírito pelo Absoluto
