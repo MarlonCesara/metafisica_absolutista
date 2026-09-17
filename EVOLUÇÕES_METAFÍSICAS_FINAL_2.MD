@@ -1761,30 +1761,21 @@ O fator autocausal é na medida em que é por si mesmo. Portanto, temos a ação
 Para justificar um Espírito autocausal, não se pode recorrer a um Espírito que nada é, pois o nada, apesar de primeiramente parecer não possuir atributos, não possui pessoalidade para realizar a autocausalidade. Temos, portanto, que há um Espírito puríssimo, aquele que dispensa qualquer determinação de si, no sentido de que o Espírito não é uma unidade mandante no absoluto, ou seja, não se identifica como um "Sou", mas se identifica como o "Ser", aquilo que paira sobre o absoluto em seu próprio ato de Ser. O Espírito que age sem precisar ordenar está adequado ao que é, e condizente com o que é.
 
 ## O Espírito sob o Fluxo da Existência
-O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como fundamentador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada). Isto é, ao imaginarmos um nada ontológico para nos referir a soberania do Espírito, o Espírito existiria segundo o que é, isto é, soberano, considerando que o nada não existe. E se o que existe é a soberania, o Espírito simplesmente é soberano, existe segundo a soberania. 
-revisado
-A autocausalidade, portanto, incidindo sobre o nada, ou qualquer determinação para o absoluto possível — ou até mesmo incidindo sobre um absoluto indiferenciado, como será evidenciado a seguir —, está para o existir de forma a se determinar em prol do que existe. Se existe o absoluto, o Espírito é consistente com o que existe; e, se o que existe é necessário e não contingente, o Espírito segue essa lógica de necessidade.
+O Espírito determina-se sob o fluxo da existência, sem que interfira nesse fluxo. É um Espírito indiferenciado, no sentido de que existe naturalmente como fundamentador daquilo que também existe naturalmente, seja o que existe uma substância ou uma não substância (nada). Isto é, ao imaginarmos um nada ontológico para nos referir a soberania do Espírito, o Espírito existiria segundo o que é, isto é, soberano, considerando que o nada não existe. E se o que existe é a soberania, o Espírito simplesmente é soberano, existe segundo a soberania. A auto causalidade, portanto, incidindo sobre o nada (ontologicamente imaginado), ou qualquer determinação para o absoluto possível — ou até mesmo incidindo sobre um absoluto indiferenciado, como será evidenciado a seguir —, está para o existir de forma a se determinar em prol do que existe. Se existe o absoluto, o Espírito é consistente com o que existe; e, se o que existe é necessário e não contingente, o Espírito segue essa lógica de necessidade.
 
 ## A Justificação do Espírito pelo Absoluto
-Estando justificada a existência do absoluto, está justificada a existência do Espírito absoluto, pois, para tudo que existe, há uma causa de sua existência e sua fundamentação que, no caso do absoluto, só pode estar em si mesma.
-
-Sendo assim, o Espírito do absoluto é x, no sentido de que é indiferente a um condutor de si e rendido ao existir. É conforme o que o absoluto é. Sua vontade existe sob o ímpeto do que é, e não sob um ímpeto único. 
+Estando justificada a existência do absoluto, está justificada a existência do Espírito absoluto, pois, para tudo que existe, há uma causa de sua existência e sua fundamentação que, no caso do absoluto, só pode estar em si mesma, ainda que a identidade e fundamento sejam uma só realidade. Sendo assim, o Espírito do absoluto é indiferenciado, no sentido de que é indiferente a um condutor de si e rendido ao existir. É conforme o que o absoluto é. Sua vontade existe sob o ímpeto do que é, e não sob um ímpeto único. 
 
 ## Conclusão: O Espírito Indiferenciado
-Concluímos, portanto, a visão do que é autocausal: o Espírito indiferenciado, que repousa puríssimo sob a plenitude do que é. Em outras palavras, a ação do Espírito Absoluto é tão pura que age de forma indetectável; sua ação se dá sem que seja necessária sua existência determinada. Sua ação não depende de um determinador; sua ação é a própria determinação que se dá como se é.
-
-Se existe o todo, sua determinação é a realização do todo, imediata e incausada.
+Concluímos, portanto, a visão do que é auto causal: o Espírito indiferenciado, que repousa puríssimo sob a plenitude do que é. Em outras palavras, a ação do Espírito Absoluto é tão pura que age de forma indetectável; sua ação se dá sem que seja necessária sua existência determinada. Sua ação não depende de um determinador; sua ação se faz o próprio determinador que se dá como se é. Se existe o todo, sua determinação é a realização do todo, imediata e incausada.
 
 **Exemplo:** O rio flui; alguém precisa tê-lo mandado fluir. Porém, não é preciso que alguém mande, pois o fluir carrega consigo uma vontade. O fluir é a própria vontade.
 
-Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto conforme se é. Sendo o Espírito contraparte viva do que se dá em seu campo de liberdade. Espírito existe para o absoluto, ainda que sem definição do que está para o absoluto.
+Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto conforme se é. Sendo o Espírito a própria contraparte viva do que se dá em seu campo de liberdade. Espírito existe para o absoluto, ainda que sem definição do que está para o absoluto. Isto é, não existindo o nada, o Espírito é encontra-se como próprio fluxo de existência, se faz o fluxo do existir, não produz o existir determinado para que se diga existente, mas se instaura como fluxo de si mesmo em seu próprio sentido de Ser. Em outras palavras, o Ser é o sentido, e não o ente que explica a existência.
 
 ## O Espírito como Ato Puro
-O Espírito, portanto, paira sobre o absoluto e é o absoluto. Sua ação é ato puro de existir. Não incide sobre uma contraparte substancial, como um elemento que move outro elemento, mas é em si a própria elementação. É elemento de si mesmo. É um existir, e não o existente.
-
-É um Espírito sem determinação. Simplesmente é, e sua vontade carrega consigo seu ato de Ser, pois não é contingente. Isto é, é unicamente direcionado ao existir. E sua personalidade e tendência é o existir unidirecional.
-
-
+O Espírito, portanto, paira sobre o absoluto e é o absoluto. Sua ação é ato puro de existir. Não incide sobre uma contraparte substancial, como um elemento que move outro elemento, mas é em si a própria elementação. É elemento de si mesmo. É um existir, e não o existente. É um Espírito sem determinação. Simplesmente é, e sua vontade carrega consigo seu ato de Ser, pois não é contingente. Isto é, é unicamente direcionado ao existir. E sua personalidade e tendência é o existir unidirecional.
+revisado
 ## A Distinção entre Espírito Indiferenciado e Espírito Determinado
 Para entender melhor o conceito de Espírito indiferenciado, e sua diferença com o diferenciado, imaginemos que o Espírito determine um outro Espírito do nada. Este outro Espírito seria Ele mesmo e estaria suscetível ao campo da possibilidade e da impossibilidade. Este novo Ser seria determinado como uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espírito de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
 
