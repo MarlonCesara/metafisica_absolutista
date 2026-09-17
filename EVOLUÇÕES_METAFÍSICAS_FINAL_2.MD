@@ -1746,12 +1746,10 @@ O Espírito age de forma indetectável. Sua ação dá o que é, se doa como von
 **Exemplo:** A cachoeira cai inevitavelmente, ou seja, o absoluto existe inevitavelmente, e só pode ser por vontade do Espírito. E essa vontade emerge pura, pois age de forma a deixar ser o que já é.
 
 O absoluto naturalmente existe, e impõe o existir à completude, pois existe tal como é. O ato absoluto é o ato de ser necessário, não possuindo uma contraparte tal como o nada. O nada não é um evidenciador do absoluto, pois o nada é nada. O nada ontológico sendo um fator ilógico, há somente o absoluto. Há somente a soberania do Ser.
-revisado
+
 ## A Indiferenciação do Espírito
-O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, suspende o Espírito criado sob um aspecto único.
-
-Ao suspendermos o Espírito determinado, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
-
+O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, é necessário suspender o Espírito considerado criado e determinado sob um aspecto único. Ao suspendermos o Espírito determinado, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
+revisado
 Um espírito determinado sob um fator extrínseco, cuja liberdade poderia ser contrária ao que é, e não direcionado necessariamente ao existir. Portanto, não estaria rendido, de forma a ser indetectável, de forma que sua vontade seja tão pura que em nada possui dissonância no que é. De forma que não precise nem mesmo existir para que tenha sua ação instaurada; aproxima-se em pureza ao ato de inexistir, porém conserva seus efeitos, portanto existe, de forma pura.
 
 ## 11.10 A Superação da Determinação Extrínseca
