@@ -1570,14 +1570,14 @@ Estes atributos diferenciam radicalmente o Absoluto de:
 1.  **Forças impessoais** (como energia cósmica ou campos quânticos).
 2.  **Princípios abstratos** (como leis matemáticas ou lógicas).
 3.  **Substâncias inertes** (como matéria bruta ou substância indiferenciada).
-revisado
+
 ## A Tríade da Autodeterminação: Conhecer, Dominar e Estar Presente
 Para que uma realidade se autodetermine, ela precisa, necessariamente:
 1. **Conhecer-se** – para que possa escolher conscientemente sua própria natureza;  
 2. **Dominar-se** – para executar com pleno poder o ato de autodeterminação;  
 3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua determinação não seria integral, mas parcial e incompleta.
 
-Somente uma realidade que reúne **autoconhecimento, autodomínio e autopresença total** pode verdadeiramente fundar-se a si mesma. Essa tríade de atributos é justamente o que caracteriza uma **pessoalidade plena** – um Espírito que é, ao mesmo tempo, sujeito, ato e fundamento de sua própria existência. Em vias mais claras, para que uma realidade se autogoverne, essa realidade necessariamente deve conhecer-se para eleger uma determinação, autodominar-se para realizar o movimento da determinação e ter autopresença para que seja uma realidade viva em si mesma, pois se não estivesse presente na totalidade de si, não poderia determinar-se por inteira.
+Somente uma realidade que reúne **autoconhecimento, autodomínio e auto presença total** pode verdadeiramente fundar-se a si mesma. Essa tríade de atributos é justamente o que caracteriza uma **pessoalidade plena** – um Espírito que é, ao mesmo tempo, sujeito, ato e fundamento de sua própria existência. Em vias mais claras, para que uma realidade se autogoverne, essa realidade necessariamente deve conhecer-se para eleger-se soberana, autodominar-se para realizar a condição da soberania e ter auto presença para que seja uma realidade viva em si mesma, pois se não estivesse presente na totalidade de si, não poderia determinar-se por inteira.
 
 ##O Absoluto como Presença Autofundante
 O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como **Presença**. Esta presença não é um mero estado ontológico estático, mas uma **atividade autofundante** que contém em si os princípios de:
@@ -1616,7 +1616,7 @@ Através de uma terceira via radical: **a Presença Pura** que:
 Se a autocausalidade implica **autoconhecimento (onisciência)**, **autodomínio (onipotência)** e **autopresença (onipresença)**, então o Absoluto não é uma força impessoal, mas um **princípio pessoal** em seu nível mais radical. Definimos essa pessoalidade metafísica como **Espírito**:
 
 1.  **Espírito como Autoconsciência Causal:** O Absoluto não "tem" autoconsciência como um atributo acrescentado; **ele é autoconsciência em ato**. Sua autodeterminação é, simultaneamente, um **ato de conhecimento de si** — não no sentido discursivo, mas como **identidade pura entre ser e conhecer-se**.
-2.  **Espírito como Liberdade Metafísica:** A autodeterminação implica **capacidade de autoafirmação além da necessidade lógica**. O Absoluto não é obrigado a ser "A" ou "não-A"; **ele se define como A (ou como além de A) por ato livre de sua natureza autocausada**.
+2.  **Espírito como Liberdade Metafísica:** A autodeterminação implica **capacidade de autoafirmação além da determinação**. O Absoluto não é obrigado a ser "A" ou "não-A"; **ele se define como indiferenciado por ato livre de sua natureza autocausada**.
 3.  **Espírito como Unidade Dinâmica:** Enquanto os entes derivados estão sujeitos à distinção entre essência e existência, o Espírito Absoluto **é essência-existência em unidade indivisa**. Essa unidade não é estática, mas **ativa** — um eterno autoestabelecimento.
 
 **Por que "Espírito" e não "Substância" ou "Energia"?**
@@ -1632,24 +1632,26 @@ O Absoluto não é um "vazio que se preenche", mas uma **presença** que:
 
 **A Personalidade como Estrutura da Autocausalidade:**
 1.  **Autoconhecimento**: O Absoluto não "pensa" – ele **é** o ato de conhecer a si mesmo como fonte de todas as possibilidades.
-2.  **Autodomínio**: Sua liberdade não é escolha, mas **soberania ontológica** – a capacidade de ser, simultaneamente, o indiferenciado e o diferenciado.
-3.  **Autoexpressão**: As manifestações (formas, fenômenos) são **atos de sua autodeterminação contínua**.
+2.  **Autodomínio**: Sua necessariedade não é escolha, mas **perfeição e soberania ontológica** – a capacidade de ser o indiferenciado pela própria vontade.
+3.  **Autoexpressão**: As manifestações (formas, fenômenos) são **atos de sua auto causalidade contínua**.
 
-## Conclusão da Proposição IX: Do Nada ao Absoluto Autoconsciente
+## Conclusão: Do Nada ao Absoluto Autoconsciente
 A tentativa de fundamentar a realidade revela que o não fenômeno ou o campo fenomênico só fazem sentido **dentro do Absoluto**, como um de seus modos possíveis. O fundamento "criador" é **o Absoluto como autoconsciência indiferenciada** – não um "ser" entre outros, mas a **condição de possibilidade** de toda existência.
 
 **Em síntese:**
 * O campo fenomenológico e o não fenômeno são **ferramentas conceituais** que apontam para além de si mesmas.
-* O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto o não fenômeno**.
-* Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal** que transcende a dualidade forma/indiferenciação.
+* O Absoluto não é "explicado" por eles, mas **revela-se como o único princípio capaz de sustentar tanto o fenômeno quanto sua soberania (não fenômeno)**.
+* Sua natureza é **pessoalidade metafísica** – não no sentido antropomórfico, mas como **autopresença causal**.
 
 Esta análise demonstra de forma inequívoca que a autocausalidade pura exige personalidade: não pode haver autocausalidade sem autoconhecimento, autodomínio e autopresença. O Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto). A noção de Espírito capta melhor esta realidade que conceitos impessoais, abstrações vazias ou metáforas físicas.
 
 Portanto, a autocausalidade nos conduz necessariamente à concepção do Absoluto como **Espírito Pessoal** - realidade viva, consciente e livre que fundamenta toda a existência.
 
----
+> O Espírito é o agir do invisível, a pureza que é. O Espírito do Ser é a identidade do querer, e não o querer de uma identidade. O Espírito do absoluto é o querer sem identidade, que se faz idêntico a si mesmo, idêntico ao amor.
 
-# PROPOSIÇÃO X: O ESPÍRITO COMO AUTO-PRESENÇA
+---
+revisado
+# O ESPÍRITO COMO AUTO-PRESENÇA
 
 ## A Necessidade de um Conceito de Espírito
 **Intuição fundamental e seus riscos:** Uma das intuições mais persistentes em sua reflexão é que o Absoluto não pode ser uma realidade meramente mecânica, cega ou indiferente. Ele deve ter, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo é extremamente problemático. Na tradição filosófica e teológica, "espírito" geralmente evoca um sujeito consciente; alguém que pensa, quer e age; uma pessoa (no sentido forte) com vontade e deliberação; um agente causal que intervém no mundo.
