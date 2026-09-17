@@ -1793,7 +1793,18 @@ Diferenciemos então, portanto, a substância do Espírito, no sentido de que o 
 revisado
 # A TRANSCENDÊNCIA DO SER E A POSITIVIDADE INDIFERENCIADA
 
-> *"O absoluto não está somente no ser, mas foge a essa dicotomia do ser ou não ser, entao, ao afirmar que o absoluto é, isso é diferente de afirmar sua positivade. Se o absoluto é o ser e não ser, então esse ''ser'' o possível e o impossivel, ou seja, transgredir a lógica rumo a impossibilidade, o torna positivo, porem não ausente o seu ato de ''ser'', mas o torna indiferenciado, no sentido que seu ato de ser abarca o impossível. O Ser se livra da determinação sem abandonar sua essencia."*
+Se o Absoluto foge das dicotomias determinísticas, se não é A ou B, porque não foge da dicotomia fundamental do ente ou não ente? Existe, ao invés de não existir. Não foge à fundamentação, embora fuja da determinação. É uma existência que não é uma coisa ou outra, mas nem deixa de existir. É um existir que poderíamos ate dizer que escapa da própria existência através de sua pureza. Um existir que age, praticamente, sem existir.
+
+Escapa da sua determinação, porém, não escapa da existência. Porém, ao pensarmos que a existência é a própria determinação, então o Ser escapa da existência em prol da sua determinação. O ser abandona sua fundamentação, aquilo que deveria defini-lo como ente e não com não ente, para ser a identidade pura. Que não tem o peso da unicidade do ente, ou seja, não tem a mesma existência do ente.
+
+Pelo ponto de vistas do ente, poderia se dizer que o indiferenciado está até mesmo além da existência, porem, se referindo a existência do ente que se destrói ao retirar-lhe a identidade. Porem, nos referindo a existência como diferenciado, temos uma existência que não é dependente da determinação como o do ente, mas ainda se diz existência. 
+
+Temos, portanto, uma existência determinística, e uma existência essencial. O Ser, tem sua existência na essência. Não é uma existência determinística, mas ainda é existência, ainda é uma positividade.
+
+
+revisado
+
+> *"O absoluto não está somente no ser, mas foge a essa dicotomia do ser ou não ser determinístico, entao, ao afirmar que o absoluto é no sentido determinístico, isso é diferente de afirmar sua positividade. Se o absoluto é o ser e não ser, então esse ''ser'' o possível e o impossível, ou seja, transgredir a lógica rumo a impossibilidade, o torna positivo, porem não ausente o seu ato de ''ser'', mas o torna indiferenciado, no sentido que seu ato de ser abarca o impossível. O Ser se livra da determinação sem abandonar sua essência."*
 
 ## 14.1 O Rompimento da Dicotomia Ontológica Clássica
 Na tradição filosófica clássica, o conceito de "Ser" está invariavelmente aprisionado em uma dicotomia estrita: ou algo *é* (Ser, positividade, presença) ou algo *não é* (Não-Ser, negatividade, ausência). Contudo, ao aplicarmos essa lógica binária ao Absoluto, incorremos em uma redução indevida. O Absoluto não está confinado "somente no ser" tal qual a ontologia tradicional o define, pois sua magnitude escapa radicalmente à polaridade excludente entre o ser e o não-ser.
