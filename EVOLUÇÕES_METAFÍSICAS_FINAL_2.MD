@@ -1775,23 +1775,23 @@ Havendo, portanto, absoluto, há o Espírito do absoluto que repousa no absoluto
 
 ## O Espírito como Ato Puro
 O Espírito, portanto, paira sobre o absoluto e é o absoluto. Sua ação é ato puro de existir. Não incide sobre uma contraparte substancial, como um elemento que move outro elemento, mas é em si a própria elementação. É elemento de si mesmo. É um existir, e não o existente. É um Espírito sem determinação. Simplesmente é, e sua vontade carrega consigo seu ato de Ser, pois não é contingente. Isto é, é unicamente direcionado ao existir. E sua personalidade e tendência é o existir unidirecional.
-revisado
+
 ## A Distinção entre Espírito Indiferenciado e Espírito Determinado
-Para entender melhor o conceito de Espírito indiferenciado, e sua diferença com o diferenciado, imaginemos que o Espírito determine um outro Espírito do nada. Este outro Espírito seria Ele mesmo e estaria suscetível ao campo da possibilidade e da impossibilidade. Este novo Ser seria determinado como uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espírito de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
+Para entender melhor o conceito de Espírito indiferenciado, e sua diferença com o diferenciado, imaginemos que o Espírito indiferenciado determine um outro Espírito do nada. Este novo Espírito seria determinado como uma unidade, e isto já lhe escaparia do conceito de indiferenciado. A ação na completude indiferencia o Espírito de qualquer determinação. Portanto, o Espírito não é A ou B, pois sendo A, se diferencia de B, e ao se diferenciar, se faz unidade.
 
 Se o Espírito criar um ente que se diferencia essencialmente, porém que existe como A, o existir designado pela lógica de Aristóteles naturalmente possui diferenciação. A existe como A. O ato de existir de Aristóteles não é puríssimo, pois produz necessariamente um ente de essência determinada. O ato de existir como A já se diferencia de B, ou seja, o simples existir ou não existir de Aristóteles já reduz o absoluto a uma essência única, isto é, já o determina. E o que é determinado não pode ser autocausal, pois exige um determinador.
 
 ## O Existir Puríssimo
-O Ser é puríssimo ao ponto de não necessitar se concretizar como A. Apesar de ser positivo, dispensa existir sob a lógica aristotélica, no sentido de que não está preso ao existir de Aristóteles, que é uma dualidade entre existir e não existir. O existir puríssimo tem sua ação, ainda que seja indetectável. Se age, existe, sem que seja formalizado como A. Atua na realidade, e é positivo porque atua, e não porque é formalizado como A.
+O Ser é puríssimo ao ponto de não necessitar se concretizar como A. Apesar de ser positivo, dispensa existir sob a lógica aristotélica, no sentido de que não está preso ao existir de Aristóteles. O existir puríssimo tem sua ação, ainda que seja indetectável. Se age, existe, sem que seja formalizado como A. Atua na realidade, e é positivo porque atua, e não porque é formalizado como A.
 
 ## O Espírito Indiferenciado e Sua Ação Indiferenciada 
 Como, portanto, o espírito sendo puro tem propriedades como atemporalidade e temporalidade? Como o espírito possui substância para que se configurem aspectos em si como o atemporal e o temporal, se é puro?
 
-Diferenciemos então, portanto, a substância do Espírito, no sentido de que o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivência levada à última instância, na qual nem mesmo precisa de si, não dispensa os aspectos temporais; dispensa, no entanto, a necessidade de si num sentido assimétrico. O Si do Ser está para além da necessidade dele mesmo, mas não além da necessidade da presença, da vida. O Ser é vivo, ainda que seja indiferenciado, ou seja, uma vida assimétrica à definição ontológica convencional.
-444
----
+Diferenciemos então, portanto, a substância do Espírito, no sentido de que o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivência levada à última instância, na qual nem mesmo precisa de si como ente determinado, não dispensa os aspectos temporais; dispensa, no entanto, a necessidade de si num sentido simétrico da identidade. O Si do Ser está para além da necessidade dele mesmo como ente determinado, mas não além da necessidade da presença, da vida. O Ser é vivo, ainda que seja indiferenciado.
 
-# PROPOSIÇÃO : A TRANSCENDÊNCIA DO SER E A POSITIVIDADE INDIFERENCIADA
+---
+revisado
+# A TRANSCENDÊNCIA DO SER E A POSITIVIDADE INDIFERENCIADA
 
 > *"O absoluto não está somente no ser, mas foge a essa dicotomia do ser ou não ser, entao, ao afirmar que o absoluto é, isso é diferente de afirmar sua positivade. Se o absoluto é o ser e não ser, então esse ''ser'' o possível e o impossivel, ou seja, transgredir a lógica rumo a impossibilidade, o torna positivo, porem não ausente o seu ato de ''ser'', mas o torna indiferenciado, no sentido que seu ato de ser abarca o impossível. O Ser se livra da determinação sem abandonar sua essencia."*
 
