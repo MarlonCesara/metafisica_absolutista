@@ -1650,10 +1650,11 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 > O Espírito é o agir do invisível, a pureza que é. O Espírito do Ser é a identidade do querer, e não o querer de uma identidade. O Espírito do absoluto é o querer sem identidade, que se faz idêntico a si mesmo, idêntico ao amor.
 
 ---
-revisado
+
 # O ESPÍRITO COMO AUTO-PRESENÇA
 
 ## A Necessidade de um Conceito de Espírito
+
 **Intuição fundamental e seus riscos:** Uma das intuições mais persistentes em sua reflexão é que o Absoluto não pode ser uma realidade meramente mecânica, cega ou indiferente. Ele deve ter, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo é extremamente problemático. Na tradição filosófica e teológica, "espírito" geralmente evoca um sujeito consciente; alguém que pensa, quer e age; uma pessoa (no sentido forte) com vontade e deliberação; um agente causal que intervém no mundo.
 
 **Problemas da atribuição psicológica:** Se atribuirmos essas características ao Absoluto, imediatamente introduzimos **dualidade** (sujeito e objeto, vontade e ação, pensamento e pensado), **temporalidade** (deliberação e decisão implicam antes e depois), **contingência** (escolher entre alternativas implica que as alternativas eram realmente possíveis) e **determinação** (um espírito pessoal tem características definidas). O desafio, então, é: *como pensar o Absoluto como "espírito" sem cair nessas determinações?*
@@ -1704,7 +1705,7 @@ A formulação mais segura é: **o Absoluto é mais do que uma pessoa (transcend
 A questão da escolha reaparece aqui de forma crucial. Se o Absoluto é espírito, ele escolheu criar o mundo ou ser o que é? Nossa posição é que **o Absoluto não escolhe porque não há escolha a ser feita**. Isso mostra que ele está além da estrutura de escolha do mundo determinado. O Absoluto não é uma vontade que decide; ele é a própria necessidade que torna possível a vontade e a escolha no domínio do indiferenciado.
 
 ## Síntese da Décima Proposição
-**Proposição X: O Absoluto é espírito no sentido de auto-presença absoluta, sem psicologia ou escolha.**
+O Absoluto é espírito no sentido de auto-presença absoluta, sem psicologia ou escolha.**
 O termo "espírito" indica que o Absoluto não é mecânico ou cego. Contudo, é purificado de determinações psicológicas. O Absoluto não escolhe porque não há alternativas reais; sua espiritualidade é a necessidade absoluta. Ele é mais do que uma pessoa e não é menos. Esta proposição preserva a intuição de um fundamento vivo e inteligível sem introduzir contradições.
 
 ## Por que Esta Proposição é Fundamental
@@ -1712,10 +1713,10 @@ A noção de "espírito" como auto-presença absoluta responde à questão de o 
 
 ---
 
-# PROPOSIÇÃO: O ESPÍRITO INDIFERENCIADO
+# O ESPÍRITO INDIFERENCIADO
 
-## 11.1 Introdução: A Necessidade de um Espírito Puro
-Agora que entendemos a autocausalidade, as ações da liberdade, a temporalidade do Espírito, vamos explorar o conteúdo do Espírito, ou seja, sua pureza fundamental. E para isso, vamos começar limpando as janelas que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto, explorar o nada, para que tenhamos os traços bem delineados do Ser. Precisamos dissociar outras vias da via fundamental, para só depois entendermos o conceito de Espírito indiferenciado e sua dissociação de outros entes, ainda que determinados para o absoluto. Perguntas como: "se Deus é tudo, como algo pode ainda existir?" serão respondidas somente depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto, a substância pura do Espírito, que está para além do nada e age sob o nada.
+## Introdução: A Necessidade de um Espírito Puro
+Agora que entendemos a auto causalidade, as ações da liberdade, a temporalidade do Espírito, vamos explorar o conteúdo do Espírito, ou seja, sua pureza fundamental. E para isso, vamos começar limpando as janelas que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto, explorar para que tenhamos os traços bem delineados do Ser. Precisamos dissociar outras vias da via fundamental, para só depois entendermos o conceito de Espírito indiferenciado e sua dissociação de outros entes, ainda que determinados para o absoluto. Perguntas como: "se o Ser é tudo, como algo pode ainda existir que não o seja?" serão respondidas somente depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto, a substância pura do Espírito, que está para além do nada e age sob o nada.
 
 ## A Pergunta Primordial: Como o Espírito Pode Ser Autocausal?
 Para iniciarmos a investigação, neste momento, acerca do Espírito absoluto, vem-nos a pergunta primordial: como o Espírito pode ser autocausal? Ao imaginarmos um Espírito determinado, chegaríamos ao mesmo problema de uma realidade determinada para o absoluto, assim como investigamos anteriormente. O Absoluto não poderia portar o nada ou o fenômeno inicialmente sem poluir sua pureza.
@@ -1728,7 +1729,7 @@ Uma vez tendo entendido o que é determinação para o absoluto e o que é o ind
 Por exemplo, se o Espírito se desse num primeiro momento determinado, isto quer dizer, voltado a outro direcionamento que não seja ao ato já instaurado do Ser, então não seria justificável. É preciso que sua ação seja justificável, instaurada conforme aquilo que já é, e absolutamente necessária. Isto quer dizer que **a vontade do Espírito é rendida ao ato de Ser**. É a doação total de si em prol do Ser.
 
 Uma vez rendido ao que é, o Espírito tem sua ação ainda que em um estado indetectável, ainda que em um estado puríssimo. Sua ação não passa pela decisão de agir, mas é instaurada no que é. O Espírito flui na existência, é conforme o existir. O Espírito não passa por sua decisão para Existir, simplesmente é conforme uma necessidade ontológica.
-
+revisado
 ## Exemplo do Círculo Negro
 Imagine que o absoluto é um círculo negro. O Espírito não precisa criar, ou decidir criar esse círculo; ele já se dá instaurado como existente e criador, já se sucedeu dessa forma, um círculo. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver o círculo ou o não círculo. Simplesmente o espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como o relativo: incausado e indetectável no sentido de que sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
 
@@ -1855,7 +1856,7 @@ O Ser de Deus transcende o que é, no sentido de que é um Ser na forma mais pur
 
 ### Síntese da Proposição
 
-**Proposição XIV demonstrada:** O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação transcende a positividade determinada. Ao transgredir a lógica e abarcar o domínio do impossível (o ser e o não-ser simultâneos), o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a essência de sua própria presença inabalável.
+ O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação transcende a positividade determinada. Ao transgredir a lógica e abarcar o domínio do impossível (o ser e o não-ser simultâneos), o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a essência de sua própria presença inabalável.
 
 | **Categoria** | **Ontologia Clássica (Determinação)** | **Ontologia do Absoluto (Indiferenciação)** |
 | :--- | :--- | :--- |
@@ -1868,7 +1869,7 @@ O Ser de Deus transcende o que é, no sentido de que é um Ser na forma mais pur
 
 ---
 
-## **PROPOSIÇÃO VI: A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
+## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
 
 ### 6.1. Introdução: Da Natureza à Ação
 A Proposição IV estabeleceu o Absoluto como Espírito Pessoal, cuja autocausalidade exige autoconhecimento (onisciência), autodomínio (onipotência) e autopresença total (onipresença). A Proposição VI investigará a relação deste Espírito com as realidades contingentes que dele emanam. Antes, porém, é necessário compreender a estrutura interna da ação do Absoluto: **como o Espírito Pessoal exerce sua liberdade metafísica?** Esta Proposição VI investiga precisamente esta questão fundamental: **Quais são as dimensões da ação do Absoluto enquanto ser autocausal e pessoal?** A resposta revelará que a liberdade do Absoluto não é unidimensional, mas se desdobra em três modos distintos e complementares de autofundamentação, os quais correspondem às Pessoas da Santíssima Trindade na tradição cristã.
