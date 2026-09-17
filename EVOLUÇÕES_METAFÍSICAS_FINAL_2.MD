@@ -1729,15 +1729,13 @@ Uma vez tendo entendido o que é determinação para o absoluto e o que é o ind
 Por exemplo, se o Espírito se desse num primeiro momento determinado, isto quer dizer, voltado a outro direcionamento que não seja ao ato já instaurado do Ser, então não seria justificável. É preciso que sua ação seja justificável, instaurada conforme aquilo que já é, e absolutamente necessária. Isto quer dizer que **a vontade do Espírito é rendida ao ato de Ser**. É a doação total de si em prol do Ser.
 
 Uma vez rendido ao que é, o Espírito tem sua ação ainda que em um estado indetectável, ainda que em um estado puríssimo. Sua ação não passa pela decisão de agir, mas é instaurada no que é. O Espírito flui na existência, é conforme o existir. O Espírito não passa por sua decisão para Existir, simplesmente é conforme uma necessidade ontológica.
+
+## Exemplo do nada mentalizável
+Imagine, para fins de entendimento, que o absoluto é como um nada mentalizável, porém, não é nada, é puro. O Espírito não precisa criar, ou decidir criar esse nada; ele já se dá instaurado como existente e criador, já se sucedeu dessa forma. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver o nada. Simplesmente o espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como seria o nada: incausado e indetectável no sentido de que sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
+
+## Exemplo da velocidade infinita
+Imagine que o Espírito tem uma ação tão rápida que o determinador da ação se afasta da ação infinitamente. É uma velocidade tão infinita que o determinador é indetectável, e só se pode constatar sua ação. Ou seja, o determinador não precisou estar lá para que a ação existisse; sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é altíssimo, existe mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir determinado; sua ação é totalmente invisível. O Espírito entendeu sem precisar entender, observou sem precisar observar, agiu sem precisar ter agido. Está puramente instaurado no que é. Como se fosse a vida do que é, e não o determinador do que é. Possui todas as propriedades do determinador, porém sem precisar ter sido efetivamente o determinador.
 revisado
-## Exemplo do Círculo Negro
-Imagine que o absoluto é um círculo negro. O Espírito não precisa criar, ou decidir criar esse círculo; ele já se dá instaurado como existente e criador, já se sucedeu dessa forma, um círculo. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver o círculo ou o não círculo. Simplesmente o espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como o relativo: incausado e indetectável no sentido de que sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
-
-## A Velocidade Infinita da Ação Divina
-O Espírito tem uma ação tão rápida que o determinador da ação se afasta da ação infinitamente. É uma velocidade tão infinita que o determinador é indetectável, e só se pode constatar sua ação. Ou seja, o determinador não precisou estar lá para que a ação existisse; sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é altíssimo, existe mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir; sua ação é totalmente invisível.
-
-O Espírito entendeu sem precisar entender, observou sem precisar observar, agiu sem precisar ter agido. Está puramente instaurado no que é. Como se fosse a vida do que é, e não o determinador do que é. Possui todas as propriedades do determinador, porém sem precisar ter sido efetivamente o determinador.
-
 ## O Espírito como Vida do Nada
 O Espírito é um determinador doado ao todo, de forma a se expandir até tornar sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que.
 
