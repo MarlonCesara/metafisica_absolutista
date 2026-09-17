@@ -1735,12 +1735,11 @@ Imagine, para fins de entendimento, que o absoluto é como um nada mentalizável
 
 ## Exemplo da velocidade infinita
 Imagine que o Espírito tem uma ação tão rápida que o determinador da ação se afasta da ação infinitamente. É uma velocidade tão infinita que o determinador é indetectável, e só se pode constatar sua ação. Ou seja, o determinador não precisou estar lá para que a ação existisse; sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é altíssimo, existe mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir determinado; sua ação é totalmente invisível. O Espírito entendeu sem precisar entender, observou sem precisar observar, agiu sem precisar ter agido. Está puramente instaurado no que é. Como se fosse a vida do que é, e não o determinador do que é. Possui todas as propriedades do determinador, porém sem precisar ter sido efetivamente o determinador.
+
+## Exemplo do Espírito como Vida do Nada
+O Espírito é um determinador doado ao todo, de forma a se expandir até tornar sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que. *"O Espírito é a vida do nada, o solo no qual as coisas são realizadas, a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação."*
+
 revisado
-## O Espírito como Vida do Nada
-O Espírito é um determinador doado ao todo, de forma a se expandir até tornar sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que.
-
-> *"O Espírito é a vida do nada, o solo no qual as coisas são realizadas, a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação."*
-
 ## A Ação Indetectável do Espírito
 O Espírito age de forma indetectável. Sua ação dá o que é, se doa como vontade do que é.
 
