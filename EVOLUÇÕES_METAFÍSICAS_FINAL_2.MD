@@ -1739,15 +1739,15 @@ Imagine que o Espírito tem uma ação tão rápida que o determinador da ação
 ## Exemplo do Espírito como Vida do Nada
 O Espírito é um determinador doado ao todo, de forma a se expandir até tornar sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o que. *"O Espírito é a vida do nada, o solo no qual as coisas são realizadas, a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação."*
 
-revisado
+
 ## A Ação Indetectável do Espírito
 O Espírito age de forma indetectável. Sua ação dá o que é, se doa como vontade do que é.
 
 **Exemplo:** A cachoeira cai inevitavelmente, ou seja, o absoluto existe inevitavelmente, e só pode ser por vontade do Espírito. E essa vontade emerge pura, pois age de forma a deixar ser o que já é.
 
-O absoluto naturalmente existe, e impõe o existir à completude, pois existe tal como é. O ato absoluto é o ato de ser necessário, tendo como contraparte o nada, ou seja, a si mesmo. O nada evidencia o absoluto, pois o nada é nada. E na ausência do nada, há absoluto.
-
-## 11.9 A Indiferenciação do Espírito
+O absoluto naturalmente existe, e impõe o existir à completude, pois existe tal como é. O ato absoluto é o ato de ser necessário, não possuindo uma contraparte tal como o nada. O nada não é um evidenciador do absoluto, pois o nada é nada. O nada ontológico sendo um fator ilógico, há somente o absoluto. Há somente a soberania do Ser.
+revisado
+## A Indiferenciação do Espírito
 O nada como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito. Exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é indiferenciado. Ou seja, suspende o Espírito criado sob um aspecto único.
 
 Ao suspendermos o Espírito determinado, e também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
