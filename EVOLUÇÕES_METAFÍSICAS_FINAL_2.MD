@@ -1811,6 +1811,16 @@ Na tradição filosófica clássica, o conceito de "Ser" está invariavelmente a
 
 Afirmar que o Absoluto "é" difere substancialmente de afirmar uma positividade comum ou ôntica. Quando dizemos que um ente contingente "é", estamos simultaneamente dizendo o que ele *não é* (uma árvore é positiva precisamente porque *não é* uma pedra). A positividade clássica exige contornos, limites e exclusões. O Absoluto, por sua vez, exige uma **positividade transcendente**: uma afirmação que não se constrói sobre a negação de um oposto.
 
+O existir da lógica clássica é dependente da negação do impossível. É dependente de refenciar o nada, dizendo que é ente é ente, e não não ente. Ou seja, diz que o ente é soberano, de certa forma, referenciando o não ente, referenciando uma hipótese impossível. Referenciado o não ente como algo.
+
+Portanto, o existir da lógica clássica é uma modalidade, só se considera o não ente, na condição de que, havendo a possibilidade de três entes, existam só dois. Portanto, há o não ente, que se dá quando o ente é possível.
+
+Portanto, a lógica clássica se refere ao contingente, considerando mais contingentes possíveis, ou a ausência do contingente possível. Isto quer dizer que, se a ausência indica o impossível, a lógica clássica cai numa contradição ao negar o ente. Portanto, o positivismo da lógica clássica se refere ao contingente.
+
+Já o positivismo do Ser envolve o necessário, o Ser não tem identidade dissociada do fundamento portanto, não carrega a dicotomia ser e possivelmente o não ente. O Ser, não carrega a possibilidade do não ser. 
+
+Exemplo: o numero dois carrega o potencial de ter um acréscimo, isto é, ser três e não dois, ou ser zero. Mas o Ser não tem potencial de acrescimento e nem de Ser nao Ser. Portanto, neste sentido está além da logica clássica, e não no sentido de estar além do existir.
+
 ## A Transgressão Rumo à Impossibilidade
 Para que o Absoluto seja o fundamento irrestrito da realidade, ele deve abarcar tanto o ser quanto o não-ser, operando a síntese suprema entre o possível e o impossível. Ao admitirmos que o Absoluto é simultaneamente o ser e o não-ser, a razão é forçada a transgredir a fronteira da lógica simétrica (que proíbe a contradição) rumo ao domínio da impossibilidade.
 
