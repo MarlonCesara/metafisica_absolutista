@@ -1790,7 +1790,7 @@ Como, portanto, o espírito sendo puro tem propriedades como atemporalidade e te
 Diferenciemos então, portanto, a substância do Espírito, no sentido de que o Espírito é algo vivo. O ato de estar vivo, de ser vivente e presente já aborda o aspecto temporal. Porém, essa vivência levada à última instância, na qual nem mesmo precisa de si como ente determinado, não dispensa os aspectos temporais; dispensa, no entanto, a necessidade de si num sentido simétrico da identidade. O Si do Ser está para além da necessidade dele mesmo como ente determinado, mas não além da necessidade da presença, da vida. O Ser é vivo, ainda que seja indiferenciado.
 
 ---
-revisado
+
 # A TRANSCENDÊNCIA DO SER E A POSITIVIDADE INDIFERENCIADA
 
 Se o Absoluto foge das dicotomias determinísticas, se não é A ou B, porque não foge da dicotomia fundamental do ente ou não ente? Existe, ao invés de não existir. Não foge à fundamentação, embora fuja da determinação. É uma existência que não é uma coisa ou outra, mas nem deixa de existir. É um existir que poderíamos ate dizer que escapa da própria existência através de sua pureza. Um existir que age, praticamente, sem existir.
@@ -1800,9 +1800,6 @@ Escapa da sua determinação, porém, não escapa da existência. Porém, ao pen
 Pelo ponto de vistas do ente, poderia se dizer que o indiferenciado está até mesmo além da existência, porem, se referindo a existência do ente que se destrói ao retirar-lhe a identidade. Porem, nos referindo a existência como diferenciado, temos uma existência que não é dependente da determinação como o do ente, mas ainda se diz existência. 
 
 Temos, portanto, uma existência determinística, e uma existência essencial. O Ser, tem sua existência na essência. Não é uma existência determinística, mas ainda é existência, ainda é uma positividade.
-
-
-revisado
 
 > *"O absoluto não está somente no ser, mas foge a essa dicotomia do ser ou não ser determinístico, entao, ao afirmar que o absoluto é no sentido determinístico, isso é diferente de afirmar sua positividade. Se o absoluto é o ser e não ser, então esse ''ser'' o possível e o impossível, ou seja, transgredir a lógica rumo a impossibilidade, o torna positivo, porem não ausente o seu ato de ''ser'', mas o torna indiferenciado, no sentido que seu ato de ser abarca o impossível. O Ser se livra da determinação sem abandonar sua essência."*
 
@@ -1822,56 +1819,55 @@ Já o positivismo do Ser envolve o necessário, o Ser não tem identidade dissoc
 Exemplo: o numero dois carrega o potencial de ter um acréscimo, isto é, ser três e não dois, ou ser zero. Mas o Ser não tem potencial de acrescimento e nem de Ser nao Ser. Portanto, neste sentido está além da logica clássica, e não no sentido de estar além do existir.
 
 ## A Transgressão Rumo à Impossibilidade
-Para que o Absoluto seja o fundamento irrestrito da realidade, ele deve abarcar tanto o ser quanto o não-ser, operando a síntese suprema entre o possível e o impossível. Ao admitirmos que o Absoluto é simultaneamente o ser e o não-ser, a razão é forçada a transgredir a fronteira da lógica simétrica (que proíbe a contradição) rumo ao domínio da impossibilidade.
+Para que o Absoluto seja o fundamento irrestrito da realidade, se fosse visto por uma lógica deterministica, ele deveria abarcar tanto o ser quanto o não-ser, operando a síntese suprema entre o possível e o impossível. Pois o não ser do necessário, não é uma opção não eleita, mas é a inversão ontológica da realidade. Ao admitirmos que o Absoluto é simultaneamente o ser e o não-ser, a razão é forçada a transgredir a fronteira da lógica simétrica (que proíbe a contradição) rumo ao domínio da impossibilidade.
 
-Essa transgressão lógica rumo ao impossível não destrói o Absoluto nem o reduz a um absurdo vazio. Pelo contrário, ela o constitui como **verdadeiramente positivo**. Ao assumir o impossível (a coexistência do ser e do não-ser), o Absoluto prova que sua existência não depende das muletas da coerência sistêmica aristotélica. Ele é tão pleno que suporta e integra a própria contradição que aniquilaria qualquer realidade contingente.
+Essa transgressão lógica rumo ao impossível destrói o Absoluto e o reduz a um absurdo vazio. O absoluto constitui como **verdadeiramente positivo**. Ao assumir o impossível (a coexistência do ser com a possibilidade do não-ser), o Absoluto prova que sua existência depende das muletas da coerência sistêmica aristotélica. O absoluto não suporta e integra a própria contradição.
 
 ## O Ato de Ser que Abarca o Impossível
-A integração do impossível não ausenta nem enfraquece o "ato de ser" do Absoluto. Pelo contrário, torna esse ato **indiferenciado**. 
+A integração da contradição performatica do não ser, ou do impossível destrói o "ato de ser" do Absoluto. Não torna esse ato **indiferenciado**. 
 
-A indiferenciação, neste contexto, não significa letargia ou vácuo, mas a **expansão máxima da ontologia**. O ato de ser do Absoluto é tão imensurável que ele não precisa escolher entre a possibilidade e a impossibilidade para continuar sendo; ele abarca o impossível dentro de sua própria afirmação vital. 
+A indiferenciação, neste contexto, não significa letargia ou vácuo, mas a **expansão máxima da ontologia**. O ato de ser do Absoluto é tão imensurável que ele não precisa intermediar entre a possibilidade e a impossibilidade para continuar sendo; ele não abarca o impossível dentro de sua própria afirmação vital. 
 
-* **O Ser no domínio determinado:** Age confinado pelas regras do possível. Seu ato de ser exige a exclusão do impossível para se manter estável.
-* **O Ser no Absoluto:** Age como a matriz que dilui o impossível em si mesmo. Seu ato de ser é incólume à contradição, absorvendo a impossibilidade como uma mera nuance de sua plenitude infinita.
+* **O Ser no domínio determinado:** Age pelas regras do contigente, portanto, não pode ser conforme o determinado, pois perderia a soberania aceitando que, pudesse estar ausente ou ser acrescido. 
+* **O Ser no Absoluto:** Seu ato de ser exige a exclusão do impossível para se manter estável. Seu ato de ser recusa à contradição, entendendo a impossibilidade de uma conersão negativa de si mesmo como uma contrariedade a propriedade da necessariedade.
 
 ## A Libertação da Determinação sem a Perda da Essência
-A conclusão magistral desta dinâmica é a libertação final do Ser. Ao englobar o ser, o não-ser, o possível e o impossível, o Ser desprende-se definitivamente da **determinação**. 
+A conclusão magistral desta dinâmica é a libertação final do Ser. Ao englobar o ser em uma categoria de existir dissonante à da lógica classica, temos que o Ser desprende-se definitivamente da **determinação**. Estando distante da dicotomia existir versos não existir aristotelica, e abordando uma existencia que dispensa qualquer antagonismo.
 
-A determinação é o "pedágio" que os entes finitos pagam para existir; eles devem assumir uma forma e rejeitar outras. O Absoluto, ao assumir o impossível em seu estado de indiferenciação, recusa-se a pagar esse pedágio. Ele se livra da determinação, da obrigatoriedade de ser *algo* delineado.
+A determinação é o "pedágio" que os entes finitos pagam para existir; eles devem assumir uma forma e rejeitar outras. O Absoluto, ao assumir uma contrariedade em seu estado de indiferenciação, recusa-se a dar lugar a outro ou ter entes acrescidos de si que poderiam estar ausentes. Ele se livra da determinação, da obrigatoriedade de ser *algo* delineado quando se faz soberano e necessário.
 
 Entretanto, **essa libertação da determinação não significa o abandono de sua essência**. A essência do Absoluto não é uma "forma" ou um "molde" que se perderia na indiferenciação. A essência do Absoluto é a própria **Presença Autofundante** (como visto nas proposições anteriores), o ato puro e indestrutível de Ser. 
 
-O Ser, ao tornar-se indiferenciado e abarcar o impossível, retorna à sua pureza máxima: ele é a essência total que não precisa ser "isto" ou "aquilo" para justificar sua realidade.
+O Ser, ao tornar-se indiferenciado e recusar sua negação, retorna à sua pureza máxima: ele é a essência total que não precisa ser "isto" ou "aquilo" para justificar sua realidade.
 
 ## A Presença Relacional e o Ser Criacional
 A ação divina não opera sob a carência de um objetivo a ser alcançado, pois o Absoluto já é a consumação de todos os fins. O Seu "estar presente" é, portanto, uma doação contínua, um transbordamento de Sua plenitude indiferenciada. Quando afirmamos que o Seu Ser é relacional e criacional, não O reduzimos à dependência daquilo que Ele cria ou com o qual Se relaciona. Pelo contrário, a criação e a relação são ecos de uma vitalidade ontológica tão imensurável que não pode ser contida na mera imobilidade.
 
-Nessa transcendência, o "agir" e o "ser" colapsam em uma única e indivisível realidade. No mundo contingente e fenomênico, agir implica sair de si, transitar da potência ao ato, sofrer alteração e consumir-se no tempo. No Espírito Absoluto, agir é permanecer perfeitamente em si mesmo, enquanto a profundidade dessa própria permanência irradia a possibilidade de existência para tudo o que é finito. Ele não precisa "mover-se" ou "decidir-se" cronologicamente para criar; a Sua simples **Presença Autofundante** já é o ato criador que sustenta toda a manifestação.
+Nessa transcendência, o "agir" e o "ser" colapsam em uma única e indivisível realidade. No mundo contingente e fenomênico, agir implica sair de si, transitar da potência ao ato, sofrer alteração e consumir-se no tempo. No Espírito Absoluto, agir é permanecer perfeitamente em si mesmo, enquanto a profundidade dessa própria permanência irradia a possibilidade de existência para tudo o que é determinado. Ele não precisa "mover-se" ou "decidir-se" cronologicamente para criar; a Sua simples **Presença Autofundante** já é o ato criador que o sustenta e o permite dar o inicio à criação do mundo contingente.
 
 É precisamente por isso que Sua presença transgride o sentido usual do Ser em ação. Trata-se de uma **ação em repouso absoluto** e de um **repouso absolutamente ativo**. Ele se relaciona com a multiplicidade e com as diferenças do mundo sem violar ou fragmentar a Sua unidade indiferenciada. Ele instaura o tempo sem jamais se sujeitar às suas métricas. 
 
-Ao se fazer relacional, o Absoluto não cria um "outro" independente que Lhe faça oposição. Em vez disso, Ele abre o seu campo de suspensão (o Relativo) para que o ente contingente possa existir como um hóspede abrigado na Sua imensidão. A relação que Deus estabelece com a criação é puramente assimétrica: Ele permeia e sustenta o ser da criatura em sua totalidade, sem que a criatura o defina, o limite ou o esgote.
+Ao se fazer relacional, o Absoluto não cria um "outro" independente que Lhe faça oposição. Em vez disso, usa de sua liberdade, abandona seu estatuto de soberania para que o ente contingente possa existir. A relação que o Ser estabelece com o contingente é de forma que a criatura não o defina, o limite ou o esgote.
 
 Desta forma, o Espírito não é apenas o alicerce estático do universo ou um princípio lógico frio; Ele é o pulso vivificante primordial. O Seu Ser criacional não surge da necessidade de preencher um vazio — pois o verdadeiro nada, como demonstrado, não possui sustentação ontológica —, mas da superabundância de uma perfeição e de uma liberdade absolutas que, sem precisarem de nada, transbordam o ato de existir. Ele é, portanto, a Vida que doa a vida, a Presença que não apenas *está*, mas que ativamente *faz ser*.
 
-## 14.6 A Transcendência Pura e a Detecção do Ser
-O Ser de Deus transcende o que é, no sentido de que é um Ser na forma mais pura, que é detectado por sua ação, ou por sua relação com outros entes.
+## A Transcendência Pura e a Detecção do Ser
+O Ser transcende o que é, no sentido de que é um Ser na forma mais pura, que é detectado por sua ação, ou por sua relação com outros entes.
 
 ---
 
 ### Síntese da Proposição
 
- O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação transcende a positividade determinada. Ao transgredir a lógica e abarcar o domínio do impossível (o ser e o não-ser simultâneos), o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a essência de sua própria presença inabalável.
+ O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação transcende a positividade determinada. Ao transgredir a lógica classica em sua constante necessidade de diferenciações, o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a essência de sua própria presença inabalável.
 
 | **Categoria** | **Ontologia Clássica (Determinação)** | **Ontologia do Absoluto (Indiferenciação)** |
 | :--- | :--- | :--- |
-| **Status do Ser** | Opõe-se estritamente ao Não-Ser. | Engloba o Ser e o Não-Ser. |
+| **Status do Ser** | Opõe-se estritamente ao Não-Ser. | Engloba o Ser sem possibilidade de diminuição ou acrescimo. |
 | **Positividade** | Adquirida pela forma e exclusão (é A, logo não é B). | Adquirida pela transgressão lógica (abrangência total). |
-| **Relação com o Impossível**| O impossível destrói o ato de ser. | O impossível é englobado pelo ato de ser. |
 | **Essência** | Vinculada à determinação. | Pura, preservada mesmo na total indiferenciação. |
 
-> *"O Absoluto não sacrifica o seu Ser ao mergulhar na indiferenciação; ele sacrifica apenas a prisão da forma. Ao abraçar o impossível, o Ser revela que a sua essência verdadeira nunca foi a de ser 'algo', mas a de ser o próprio abismo vivo onde o possível e o impossível repousam em paz."*
 
+revisado
 ---
 
 ## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
