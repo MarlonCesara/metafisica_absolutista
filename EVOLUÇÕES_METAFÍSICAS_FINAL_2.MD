@@ -1866,16 +1866,15 @@ O Ser transcende o que é, no sentido de que é um Ser na forma mais pura, que �
 | **Positividade** | Adquirida pela forma e exclusão (é A, logo não é B). | Adquirida pela transgressão lógica (abrangência total). |
 | **Essência** | Vinculada à determinação. | Pura, preservada mesmo na total indiferenciação. |
 
-
-revisado
 ---
 
 ## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
 
-### 6.1. Introdução: Da Natureza à Ação
-A Proposição IV estabeleceu o Absoluto como Espírito Pessoal, cuja autocausalidade exige autoconhecimento (onisciência), autodomínio (onipotência) e autopresença total (onipresença). A Proposição VI investigará a relação deste Espírito com as realidades contingentes que dele emanam. Antes, porém, é necessário compreender a estrutura interna da ação do Absoluto: **como o Espírito Pessoal exerce sua liberdade metafísica?** Esta Proposição VI investiga precisamente esta questão fundamental: **Quais são as dimensões da ação do Absoluto enquanto ser autocausal e pessoal?** A resposta revelará que a liberdade do Absoluto não é unidimensional, mas se desdobra em três modos distintos e complementares de autofundamentação, os quais correspondem às Pessoas da Santíssima Trindade na tradição cristã.
+### Introdução: Da Natureza à Ação
+A Proposição anterior estabeleceu o Absoluto como Espírito Pessoal, cuja auto causalidade exige autoconhecimento (onisciência), autodomínio (onipotência) e auto presença total (onipresença). Esta Proposição investigará a relação deste Espírito com as realidades contingentes que dele emanam. Antes, porém, é necessário compreender a estrutura interna da ação do Absoluto: **como o Espírito Pessoal exerce sua liberdade metafísica?** Esta Proposição investiga precisamente esta questão fundamental: **Quais são as dimensões da ação do Absoluto enquanto ser auto causal e pessoal?** A resposta revelará que a liberdade do Absoluto não é unidimensional, mas se desdobra em três modos distintos e complementares de auto fundamentação, os quais correspondem a três Pessoas distintas.
 
-### 6.2. A Necessidade do Absoluto e a Irrevogabilidade do Ser
+revisado
+### A Necessidade do Absoluto e a Irrevogabilidade do Ser
 O Absoluto é exatamente o que é, sendo todo ele mesmo de tal forma que existe necessariamente como Absoluto. O não absoluto não se apresenta como uma opção viável, pois qualquer tentativa de conceber o não absoluto terminaria por reintroduzir um absoluto em outro nível. O não absoluto constitui apenas uma via lógica para se referir ao absoluto, uma construção que se enquadra num sistema lógico — mas o absoluto é precisamente o legislador da lógica, não um objeto dentro dela. Portanto, considerar o não absoluto implicaria admitir uma parte potencialmente integradora do absoluto no próprio absoluto, o que é contraditório. O absoluto não pode ser capturado por um pensamento lógico de natureza pragmática. Dessa forma, o Absoluto **existe necessariamente**. E, por existir necessariamente, é pleno em si mesmo, não possuindo uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena precisamente no que significa ser absoluto. Sua abrangência é total sobre si mesmo, de modo que a **plenitude lhe é indissociável**.
 
 A intencionalidade do absoluto. O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um absoluto novamente. O não absoluto é uma via lógica para absoluto, de forma que se enquadre num sistema lógico, e o absoluto é o legislador lógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no próprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento lógico pragmático. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociável de si.
@@ -1883,7 +1882,7 @@ A intencionalidade do absoluto. O absoluto é tal como se é, é todo a si mesmo
 ### 6.3. A Intencionalidade do Absoluto e a Liberdade Metafísica
 A não contingência não é um fator que sistematize o Absoluto de maneira a suprimir sua liberdade metafísica. Pelo contrário, a liberdade metafísica se configura em favor dessa não contingência, estabelecendo uma intencionalidade que é necessariamente orientada para a plenitude e para a vida. 
 
-#### 6.3.1. Objeção e Resposta: A Liberdade e a Não Contingência
+#### Objeção e Resposta: A Liberdade e a Não Contingência
 Contra o argumento da liberdade metafísica, poderia ser formulada a seguinte objeção: *"Se a liberdade do Absoluto não inclui a possibilidade do não absoluto, então sua liberdade seria incompleta, tornando-o um ente parcialmente mecânico."*
 
 A resposta, porém, é que o Absoluto é perfeito: sua não contingência não exprime limitação, mas perfeição — um amor, um compromisso com a liberdade e com a vida que é tão firme e convicto que a possibilidade do não absoluto é simplesmente descartada. Trata-se de **um amor indestrutível**. Isso significa que o Absoluto é livre em si mesmo: fundamenta-se, plenifica-se e personaliza-se, e sua intenção está irrevogavelmente dirigida à vida, não por estar aprisionado, mas por perfeição. A possibilidade da contingência é descartada como requisito para a amplitude de sua liberdade. A não contingência, portanto, não é algo sistemático no sentido de uma ausência de ação, de um condicionamento inerte e sem vida. Ela é perfeição: um querer pela vida que é irrevogável. A não contingência é pessoalidade, é a incorruptibilidade em sentido espiritual. Não representa uma ausência de liberdade, mas sim a **liberdade de ser a si mesmo de modo irrevogável**.
