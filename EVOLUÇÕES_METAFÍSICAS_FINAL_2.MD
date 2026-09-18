@@ -1838,6 +1838,7 @@ A determinação é o "pedágio" que os entes finitos pagam para existir; eles d
 
 Entretanto, **essa libertação da determinação não significa o abandono de sua essência**. A essência do Absoluto não é uma "forma" ou um "molde" que se perderia na indiferenciação. A essência do Absoluto é a própria **Presença Autofundante** (como visto nas proposições anteriores), o ato puro e indestrutível de Ser. 
 
+
 O Ser, ao tornar-se indiferenciado e recusar sua negação, retorna à sua pureza máxima: ele é a essência total que não precisa ser "isto" ou "aquilo" para justificar sua realidade.
 
 ## A Presença Relacional e o Ser Criacional
@@ -5676,3 +5677,10 @@ E falar sob a impossibilidade igual a nada, pois a possibilidade perde seus cont
 
 
 O niilista é como um individuo que olha de uma janela a festa do mundo, a alegria da vida, e precisa ser o senhor de engenho que cessa toda a alegria com trabalhos pesados, formando uma elite na qual imagina uma superioridade. Desta forma, o niiilista acaba com a festa aparente da vida, deixando com que a alegria do homem fique ocultada por seu rosto cansado, privado de seu lazer e dos bens disposníveis, belezas naturais, etc. O niilista, por vezes, sente grande mal estar em ver o manifestar da alegria social, a alegria de infancia da sociedade ao simples proveito dos bens que a natureza oferece.
+
+
+
+
+A negação do indiferenciado é diferente da negação do determinado. Ao se negar o determinado, se nega a identidade em conjunção com o fundamento. Isto quer dizer que, a negação não necessariamente aniquila o ente. Ao negarmos uma realidade que possui três entes, se pode conceber uma realidade que possua dois entes. Isto é, a negação de uma realidade, pode resultar em outra.
+
+Porém, ao negar o que não há determinação, o que não pode portar acrescimo e diminuição, temos que, há uma unanimidade. Não se pode negar o Ser, ao se negar não obtemos de nenhuma forma outra realidade, visto que se nega o absoluto.
