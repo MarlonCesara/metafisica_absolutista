@@ -5765,3 +5765,14 @@ Embora antigo, Parmênides funda a base desse raciocínio ao estabelecer a absol
 
 A consciência  sugere trmporalidDe conhecinento consumado e refrescado
  Atualozado
+
+
+
+Causar envolce um agente
+Nao é um ato mecanico de efeito e consequencia
+Pois exige propriedades
+Ao somar o causar ao agebte temos o caussr como ser
+
+
+O auto causalidade envolve a auto consciencia, o conhecer-se por inteiro, e o estar consciente. Ambos revelam a consumação temporal e a atualização temporal em concomitancia. 
+
