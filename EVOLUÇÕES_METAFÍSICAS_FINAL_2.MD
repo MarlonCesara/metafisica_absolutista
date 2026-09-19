@@ -1930,7 +1930,7 @@ Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento i
 | **Vertical** | Fundamentador | "Eu Existo" (Autoafirmação ontológica) | Incorruptível, necessário |
 | **Diagonal** | Plenificador | "Escolho o que me realiza" (Autodeterminação) | Despersonalizado, perfeccionista |
 | **Horizontal** | Personalizador | "Sigo minha identidade" (Automanifestação) | Livre, pessoal, relacional, personalizado |
-revisado
+
 ### As Três Pessoas do Espírito Absoluto
 A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo.
 
@@ -1961,19 +1961,22 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
 
 ## O Espírito da plenitude como interseção
 
-Perceba que o Espírito da plenitude, faz parte da autofundamentação tanto quanto da personalização, pois ambas ações são direcionadas ao existir. Portanto, tanto a fundamentação carrega a liberdade do Espírito quanto a personalização. Então a plenitude é uma liberdade de intersecção entre a afirmação "Eu existo" e a afirmação "Eu escolho o que me personaliza, porém, necessariamente isto será em direção ao existir".
+Enquanto o fundamentador afirma, 'eu sou', o espirito da plenitude afirma eu sou, ainda que houvesse a escolhe de não ser, sou necessário. E enquanto o personalizador afirma, eu escolho entre infinitas possibilidades, o plenificador afirma, eu escolho com base na escolha fundamental de ser, pois o não ser tão tem nem mesmo agir.
+
+Isto é, o planificador está tanto na decisão de Ser, na decisão dualística, que para o Ser, representa perfeição, quanto em qualquer escolha horizontal do Ser. Atribuindo, portanto, ao Ser plenitude em sua fundação, e em sua decisão.
+
+O Espírito da plenitude, faz parte da autofundamentação tanto quanto da personalização, pois ambas ações são direcionadas ao existir. Portanto, tanto a fundamentação carrega a liberdade do Espírito quanto a personalização. Então a plenitude é uma liberdade de intersecção entre a afirmação "Eu existo" e a afirmação "Eu escolho o que me personaliza, porém, necessariamente isto será em direção ao existir".
 
 O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.
 
 A plenitude surge justamente como o ponto de intersecção entre essas duas dimensões. De um lado, está a afirmação fundamental: **"Eu existo"**; de outro, a afirmação pessoal: **"Eu escolho aquilo que me personaliza"**. Contudo, aquilo que é escolhido pela personalidade não pode contrariar a orientação fundamental do Absoluto para o existir. A liberdade de personalização, portanto, não se encontra fora da necessidade de existência, mas manifesta-se dentro dela.
 
-Assim, a plenitude é o espaço ontológico no qual necessidade e liberdade deixam de aparecer como opostos. A necessidade de existir fornece o fundamento da liberdade, enquanto a liberdade de personalizar determina a forma pela qual essa existência se realiza. O Espírito, portanto, é simultaneamente fundamentador e personalizador: afirma **"Eu existo"** e, a partir dessa afirmação, pode dizer **"Eu escolho quem sou"** — mas sempre dentro da orientação irrevogável para o existir.
+Assim, a plenitude é o espaço ontológico no qual necessidade e liberdade deixam de aparecer como opostos. A necessidade de existir fornece o fundamento da liberdade, enquanto a liberdade de personalizar determina a forma pela qual essa existência se expressa. O Espírito, portanto, é simultaneamente fundamentador e personalizador: afirma **"Eu existo"** e, a partir dessa afirmação, pode dizer **"Eu escolho"** — mas sempre dentro da orientação irrevogável para o existir.
 
-Nesse sentido, a plenitude não é simplesmente o resultado da existência nem um objetivo externo a ela; é a própria convergência entre a afirmação do existir e a liberdade de determinar a forma desse existir.
+Nesse sentido, a plenitude não é simplesmente o resultado da existência nem um objetivo externo a ela; é a própria convergência entre a afirmação do existir e a liberdade de consentir com esse esse existir.
 
-
-### 6.7. Unidade na Trindade e Correlação Sistemática
-Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o universo não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável. A **Liberdade** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
+### Unidade na Trindade e Correlação Sistemática
+Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o Ser não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável, assegura o consentimento da existencia. A **Liberdade** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
 A relação entre as autodeterminações do Espírito e as Pessoas da Trindade manifesta-se assim (A Trindade da Autocausalidade):
 
@@ -1983,11 +1986,13 @@ A relação entre as autodeterminações do Espírito e as Pessoas da Trindade m
 | **Diagonal (Plenificadora)** | Espírito Santo | Santificação | "Espírito que santifica" (2 Tessalonicenses 2:13) |
 | **Horizontal (Personalizadora)** | Deus Filho | Encarnação | "Verbo que se fez carne" (João 1:14) |
 
-### 6.8. A Dinâmica Temporal e Atemporal da Ação Trinitária
-Sendo o Absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si.
+### A Dinâmica Temporal e Atemporal da Ação Trinitária
+O Absoluto pleno em si, pois é existente e totalmente consentido com tal existência; se manifesta pleno e é necessariamente orientado pela própria natureza a essa plenitude. Há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si.
 
-Porém, uma ação personalizadora necessita ser temporal. A plenitude atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois somente a plenitude satisfaz o sentido do Absoluto como tal. A forma personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
+Porém, este atemporal, não é uma ausência de tempo como se fosse uma forma colapsada do tempo em uma infinitude, mas é uma consumação, e está consumação. Por isto, está além do temporal, não no sentido que não é mais temporal, mas no sentido que ultrapassou a totalidade do tempo para um momento único, no qual se consume futuro, presente e passado.
 
+Porém, uma ação personalizadora necessita ser temporal. A plenitude atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois a plenitude já satisfaz o sentido do Absoluto como tal. A forma personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
+revisado
 Isto significa que a ação do Espírito Perfeito está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular. A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o Fundamentador e o Personalizador que é o Espírito da plenitude.
 
 O ato de plenitude atemporal coincide com o ato de personalização da ação do Espírito. Desse modo, há um mar do Espírito já instaurado, ao mesmo tempo em que existe uma ação que jorra constantemente nesse mar. Temos, portanto, uma força fundamental instaurada e o seu fluxo contínuo, que a percorre completamente, mas que conserva, dentro dela mesma, a distinção de sua própria ação. Exemplo: Deus Pai é como um mar, enquanto Deus Filho é o rumo da correnteza. Ambos são um só, possuem uma única direção rumo à continuidade das águas, e esse objetivo comum os une. Em toda a extensão do mar sempre houve a correnteza; porém, na ação instauradora do próprio mar, houve a ação do Deus Pai. O ato da plenitude é vivo, mas sua vida existe em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer, em qualquer âmbito e temporalidade, essa força que já foi instaurada atemporalmente, como uma correnteza que se move em um ponto específico de um mar antes imóvel, porém vivo. Assim como gotas que caem e reverberam em ondas sobre um mar calmo, Deus Pai é o mar calmo, enquanto o Espírito personalizador é o decidir do cair da gota, que provoca reverberações acidentais dentro da plenitude instaurada.
@@ -5784,3 +5789,6 @@ Sendo auto causal o espirito é autor de sua soberania, é autor do seu auto con
 Sendo auto causal torna-se Ser. A auto causalidade desdobra e continua todas as caracteristicas divinas, podendo, até mesmo chegar até o homem para encontrar a verdadeira definição de pecado.
 
 A auto causalidade cria a consciência. Pois o auto causar envolve conhecer, dominar e estar presente. 
+
+
+O Ser, inferido através de aspectos relacionais, é um Ser leve, um Ser relacional. Que não está preso a forma, que não pode ser negado em detrimento de outra forma. Sua estadia não é uma negação de outras formas, é uma pureza relacional. 
