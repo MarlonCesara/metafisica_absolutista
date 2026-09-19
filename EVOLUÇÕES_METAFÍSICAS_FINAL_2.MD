@@ -5763,15 +5763,13 @@ Embora antigo, Parmênides funda a base desse raciocínio ao estabelecer a absol
 * Quando se trata da Verdade (Aletheia), o Ser é uno, contínuo, indivisível (indiferenciado) e pleno. A premissa central é que "O ser é, e o não-ser não é". Negar o Ser (o indiferenciado absoluto) é impossível não apenas fisicamente, mas para o próprio pensamento. Não é possível sequer pensar no nada absoluto sem transformá-lo em "algo" na mente, comprovando que o Absoluto repudia estruturalmente a negação.
 
 
-A consciência  sugere trmporalidDe conhecinento consumado e refrescado
- Atualozado
+A consciência  sugere temporalidade conhecimento consumado e atualizado ao mesmo tempo.
+ 
 
-
-
-Causar envolce um agente
+Causar envolve um agente
 Nao é um ato mecanico de efeito e consequencia
 Pois exige propriedades
-Ao somar o causar ao agebte temos o caussr como ser
+Ao somar o causar ao agente temos o causar como ser
 
 
 O auto causalidade envolve a auto consciencia, o conhecer-se por inteiro, e o estar consciente. Ambos revelam a consumação temporal e a atualização temporal em concomitancia. 
