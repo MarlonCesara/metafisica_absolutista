@@ -5774,3 +5774,6 @@ Ao somar o causar ao agente temos o causar como ser
 
 O auto causalidade envolve a auto consciencia, o conhecer-se por inteiro, e o estar consciente. Ambos revelam a consumação temporal e a atualização temporal em concomitancia. 
 
+A soberania do Espírito não é uma auto determinação, pois não há o produto determinado, o nada ontológico não é uma determinação e não existe. Só há a necessariedade, a auto causalidade. O fator auto causal não se divide em fundamento e determinação.
+
+Portanto, o Ser é autor de sua soberania, mas esse não é um estado determinado. É um estado indiferenciado do Ser. 
