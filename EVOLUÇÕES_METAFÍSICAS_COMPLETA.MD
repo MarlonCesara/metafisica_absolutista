@@ -12069,3 +12069,8 @@ O niilista acredita cegamente em seu plano, não analise realmente a inteligenci
 
 
 O crime, por vezes, é uma covardia. É um desabar de um interior que está se isolando em si mesmo, em sua própria ideia e precisa exalar seu desespero, sua contrariedade. O individuo que sequestra, que vende aquilo que entorpece o outro. São todas as expressões de um desabar, é sacrificar a própria ação da normalidade em prol de um desabafo desesperador, em prol de um absurdo interior que desaba na sociedade e não aguenta ficar retido. O transmitir do desespero nada mais é do que o terror que exaure o individuo ate se externar no outro, que o enraivece pelo encarceramento de uma realidade que não lhe pertence, da qual é escravo.  
+
+
+
+
+Uma sociedade que conhece todos os meios de produção, tecnologias, mas não conhece o homem, quem se apropria da politica para administrar esses bens, é uma sociedade que carece de um grande avanço tecnológico, pois essa tecnologia ainda não está a serventia do homem, mas da manutenção de um esquema fraudulento, que não se direciona ou apoia realmente o humano. Pois o não entendimento do homem significa, também,  não entendimento completo dos sistemas políticos e sistemas de produção.
