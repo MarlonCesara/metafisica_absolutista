@@ -5782,3 +5782,5 @@ Portanto, o Ser é autor de sua soberania, mas esse não é um estado determinad
 Sendo auto causal o espirito é autor de sua soberania, é autor do seu auto conhecimento, é autor da sua atualização e consumação, desenvolve três liberdades distintas.
 
 Sendo auto causal torna-se Ser. A auto causalidade desdobra e continua todas as caracteristicas divinas, podendo, até mesmo chegar até o homem para encontrar a verdadeira definição de pecado.
+
+A auto causalidade cria a consciência. Pois o auto causar envolve conhecer, dominar e estar presente. 
