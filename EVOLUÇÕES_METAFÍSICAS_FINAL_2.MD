@@ -2010,33 +2010,29 @@ Ao mesmo tempo, a ação do fundamento participa da ação da personalização n
 
 O Espírito Fundamentador tem uma ação isolada, no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito da plenitude. Portanto, poderíamos considerar uma persona própria. Ao passo que o Espírito Personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a ação da pessoa fundamentadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador. O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem as ambas ações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
 
-revisado
-A forma de ação do Espírito Plenificador está sempre ligada à perfeição; porém, a ação do Espírito Personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito Plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito Plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
+A forma de ação do Espírito Plenificador está sempre ligada à perfeição; porém, a ação do Espírito Personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito Plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas.
+
+Exemplo bíblico: Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito Plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
 ### Resumo Trinitário Metafísico
 1. **Fundamentador (Vertical):** Fundamenta a existência. É a fonte incriada de todo ser. Age atemporalmente como pura afirmação ontológica.
 2. **Plenificador (Diagonal):** Completa e santifica sem persona fixa. É o amor e a sabedoria que perfazem toda a criação. Atua como ponte entre o fundamento e a personalização.
-3. **Personalizador (Horizontal):** É o Verbo pessoal através de quem todas as coisas foram feitas. Age temporalmente, introduzindo a liberdade e a pessoalidade na estrutura do Absoluto.
+3. **Personalizador (Horizontal):** É o Verbo pessoal através de quem todas as coisas foram feitas. Age temporalmente, introduzindo a liberdade em conjunção com a pessoalidade na estrutura do Absoluto.
 
-> *"Há um só corpo e um só Espírito, assim como a esperança para a qual vocês foram chamados é uma só; há um só Senhor, uma só fé, um só batismo, um só Deus e Pai de todos, que é sobre todos, por meio de todos e em todos."* — Efésios 4:4-6
-
-### 6.11. Conclusão da Proposição 
+### Conclusão da Proposição 
 A intencionalidade do Absoluto é irrevogavelmente direcionada à vida e à plenitude, não por aprisionamento ou limitação, mas por perfeição e amor indestrutível. Sua não contingência não é uma negação da liberdade, mas a expressão mais alta da liberdade: a **liberdade de ser a si mesmo irrevogavelmente**.
 
 **Proposição demonstrada:** A liberdade do Absoluto, enquanto Espírito Pessoal autocausal, desdobra-se em três dimensões distintas e complementares de ação:
-1. **Autodeterminação Vertical (Espírito Fundamentador):** Ação incorruptível e necessária de autofundamentação, que afirma puramente a existência. Corresponde ao Pai.
-2. **Autodeterminação Diagonal (Espírito Plenificador):** Ação despersonalizada e perfeccionista que direciona toda escolha à plenitude do ser. Corresponde ao Espírito Santo.
-3. **Autodeterminação Horizontal (Espírito Personalizador):** Ação livre e pessoal que manifesta a identidade do Absoluto segundo os acidentes de uma personalidade. Corresponde ao Filho.
+1. **Autodeterminação Vertical (Espírito Fundamentador):** Ação incorruptível e necessária de autofundamentação, que afirma puramente a existência.
+2. **Autodeterminação Diagonal (Espírito Plenificador):** Ação despersonalizada e perfeccionista que direciona toda escolha à plenitude do ser. 
+3. **Autodeterminação Horizontal (Espírito Personalizador):** Ação livre e pessoal que manifesta a identidade do Absoluto segundo os acidentes de uma personalidade. 
 
-Estas três dimensões não dividem o Absoluto, mas revelam a riqueza interna de sua vida. O Pai e o Espírito Santo atuam atemporalmente na autofundamentação e autoperfeição do Ser; o Filho atua temporalmente como expressão pessoal e histórica do Absoluto. O Espírito Santo é o vínculo de amor e plenitude que une o Fundamento à Personalização, garantindo que todas as ações, mesmo as mais livres e pessoais, estejam sempre ordenadas à plenitude do Ser. Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autodeterminação divinas. A liberdade do Absoluto não é arbitrária, mas trinitária — fundamento, sabedoria e pessoalidade em perfeita unidade, movidas por um amor indestrutível que é a própria essência de sua existência necessária e plena.
+Estas três dimensões não dividem o Absoluto, mas revelam a riqueza interna de sua vida. O Fundamentador e o Espírito da Plenitude atuam atemporalmente na autofundamentação e autoperfeição do Ser; o Personalizador atua temporalmente como expressão pessoal e histórica do Absoluto. O Espírito da Plenitude é o vínculo de amor e plenitude que une o Fundamento à Personalização, garantindo que todas as ações, mesmo as mais livres e pessoais, estejam sempre ordenadas à plenitude do Ser. Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e auto causalidade divina. A liberdade do Absoluto não é arbitrária, mas trinitária — fundamento, sabedoria e pessoalidade em perfeita unidade, movidas por um amor indestrutível que é a própria essência de sua existência necessária e plena.
 
-
-O resultado é uma **estrutura metafísica coerente** que demonstra como a liberdade do Absoluto, enquanto Espírito Pessoal autocausal, necessariamente se desdobra em três dimensões de ação — fundamentação, plenificação e personalização — que correspondem às Pessoas da Santíssima Trindade, todas unificadas por um amor indestrutível que é a própria expressão de sua existência necessária e plena.
-
-> *"A Trindade não é um acréscimo à doutrina de Deus, mas a própria explicitação do que significa dizer que Deus é Espírito."* — Karl Rahner
+O resultado é uma **estrutura metafísica coerente** que demonstra como a liberdade do Absoluto, enquanto Espírito Pessoal autocausal, necessariamente se desdobra em três dimensões de ação — fundamentação, plenificação e personalização — todas unificadas por um amor indestrutível que é a própria expressão de sua existência necessária e plena.
 
 ---
-
+revisado
 ## ** A ESTRUTURA DA AUTOCAUSALIDADE E A AÇÃO TRINITÁRIA**
 
 ### **7.1. As Três Dimensões da Ação do Espírito**
