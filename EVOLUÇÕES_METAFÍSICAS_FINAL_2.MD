@@ -2023,9 +2023,9 @@ Exemplo bíblico: Jesus agia no humano individual ou para onde sua personalidade
 A intencionalidade do Absoluto é irrevogavelmente direcionada à vida e à plenitude, não por aprisionamento ou limitação, mas por perfeição e amor indestrutível. Sua não contingência não é uma negação da liberdade, mas a expressão mais alta da liberdade: a **liberdade de ser a si mesmo irrevogavelmente**.
 
 **Proposição demonstrada:** A liberdade do Absoluto, enquanto Espírito Pessoal autocausal, desdobra-se em três dimensões distintas e complementares de ação:
-1. **Autodeterminação Vertical (Espírito Fundamentador):** Ação incorruptível e necessária de autofundamentação, que afirma puramente a existência.
-2. **Autodeterminação Diagonal (Espírito Plenificador):** Ação despersonalizada e perfeccionista que direciona toda escolha à plenitude do ser. 
-3. **Autodeterminação Horizontal (Espírito Personalizador):** Ação livre e pessoal que manifesta a identidade do Absoluto segundo os acidentes de uma personalidade. 
+1. **Autocausalidade Vertical (Espírito Fundamentador):** Ação incorruptível e necessária de autofundamentação, que afirma puramente a existência.
+2. **Autocausalidade Diagonal (Espírito Plenificador):** Ação despersonalizada e perfeccionista que direciona toda escolha à plenitude do ser. 
+3. **Autocausalidade Horizontal (Espírito Personalizador):** Ação livre e pessoal que manifesta a identidade do Absoluto segundo os acidentes de uma personalidade. 
 
 Estas três dimensões não dividem o Absoluto, mas revelam a riqueza interna de sua vida. O Fundamentador e o Espírito da Plenitude atuam atemporalmente na autofundamentação e autoperfeição do Ser; o Personalizador atua temporalmente como expressão pessoal e histórica do Absoluto. O Espírito da Plenitude é o vínculo de amor e plenitude que une o Fundamento à Personalização, garantindo que todas as ações, mesmo as mais livres e pessoais, estejam sempre ordenadas à plenitude do Ser. Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e auto causalidade divina. A liberdade do Absoluto não é arbitrária, mas trinitária — fundamento, sabedoria e pessoalidade em perfeita unidade, movidas por um amor indestrutível que é a própria essência de sua existência necessária e plena.
 
@@ -2038,45 +2038,45 @@ O resultado é uma **estrutura metafísica coerente** que demonstra como a liber
 ### **As Três Dimensões da Ação do Espírito**
 O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológicas complementares:
 
-**1. Autodeterminação Vertical (Espírito Fundamentador)**
+**1. Auto causalidade Vertical (Espírito Fundamentador)**
 * **Definição:** Qualidade do ente de agir incorruptivelmente, isto é, em prol de sua existência e do sistema que o sustenta.
 * **Características para o Absoluto:**
     * **Incorruptibilidade:** O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
     * **Fundamentação:** O Espírito age como princípio de sustentação ontológica (autofundamentação).
 * **Princípio:** *"Eu Existo"* (pura afirmação ontológica).
 
-**2. Autodeterminação Diagonal (Espírito Plenificador)**
+**2. Auto causalidade Diagonal (Espírito Plenificador)**
 * **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
 * **Características para o Absoluto:**
     * **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
     * **Auto causalidade Essencial:** O Espírito age como princípio causal (auto causalidade) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
     * *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
 * **Princípio:** *"Escolho o que me realiza como Absoluto."*
-revisado
-**3. Autodeterminação Horizontal (Espírito Personalizador)**
-* **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+
+**3. Auto causalidade Horizontal (Espírito Personalizador)**
+* **Definição:** Qualidade do ente de causar-se na total amplitude de sua estrutura pessoal.
 * **Características para o Absoluto:**
     * **Personalização:** Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).
     * **Liberdade Direcionada:** A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.
     * *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
 * **Princípio:** *"Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."*
 
-#### **Tabela 7.1: As Três Dimensões da Ação Divina**
+#### **Tabela: As Três Dimensões da Ação Divina**
 
 | Dimensão | Espírito como... | Princípio | Modo de Ação |
 | :--- | :--- | :--- | :--- |
 | **Vertical** | Fundamentador | "Eu Existo" (Autoafirmação ontológica) | Incorruptível, necessário |
-| **Diagonal** | Plenificador | "Escolho o que me realiza" (Autodeterminação) | Despersonalizado, perfeccionista |
+| **Diagonal** | Plenificador | "Escolho o que me realiza" (Auto realização) | Despersonalizado, perfeccionista |
 | **Horizontal** | Personalizador | "Sigo minha identidade" (Automanifestação) | Livre, pessoal, relacional |
 
-### **7.2. Conclusão da Ação: A Unidade Trinitária da Ação Divina**
+### **Conclusão da Ação: A Unidade Trinitária da Ação Divina**
 Esta tríplice dimensão da ação do Espírito não representa uma divisão, mas uma **unidade dinâmica** que manifesta a plenitude do Ser divino:
 1. **Como Fundamentador,** O Espírito é o **doador da vida** - fonte incriada de toda existência.
 2. **Como Plenificador,** O Espírito é a **direção à plenitude** - razão e sabedoria que estrutura a realidade.
 3. **Como Personalizador,** O Espírito é a **pessoalidade** - amor pessoal e dom que personaliza.
 
 ---
-
+revisado
 ### **AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 
 #### **As Pessoas da Autocausalidade Divina**
