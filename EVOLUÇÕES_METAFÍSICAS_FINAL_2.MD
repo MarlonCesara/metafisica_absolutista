@@ -1818,6 +1818,10 @@ Já o positivismo do Ser envolve o necessário, o Ser não tem identidade dissoc
 
 Exemplo: o numero dois carrega o potencial de ter um acréscimo, isto é, ser três e não dois, ou ser zero. Mas o Ser não tem potencial de acrescimento e nem de Ser nao Ser. Portanto, neste sentido está além da logica clássica, e não no sentido de estar além do existir.
 
+A negação do indiferenciado é diferente da negação do determinado. Ao se negar o determinado, se nega a identidade em conjunção com o fundamento. Isto quer dizer que, a negação não necessariamente aniquila o ente. Ao negarmos uma realidade que possui três entes, se pode conceber uma realidade que possua dois entes. Isto é, a negação de uma realidade, pode resultar em outra.
+
+Porém, ao negar o que não há determinação, o que não pode portar acrescimo e diminuição, temos que, há uma unanimidade. Não se pode negar o Ser, ao se negar não obtemos de nenhuma forma outra realidade, visto que se nega o absoluto.
+
 ## A Transgressão Rumo à Impossibilidade
 Para que o Absoluto seja o fundamento irrestrito da realidade, se fosse visto por uma lógica deterministica, ele deveria abarcar tanto o ser quanto o não-ser, operando a síntese suprema entre o possível e o impossível. Pois o não ser do necessário, não é uma opção não eleita, mas é a inversão ontológica da realidade. Ao admitirmos que o Absoluto é simultaneamente o ser e o não-ser, a razão é forçada a transgredir a fronteira da lógica simétrica (que proíbe a contradição) rumo ao domínio da impossibilidade.
 
@@ -5681,6 +5685,4 @@ O niilista é como um individuo que olha de uma janela a festa do mundo, a alegr
 
 
 
-A negação do indiferenciado é diferente da negação do determinado. Ao se negar o determinado, se nega a identidade em conjunção com o fundamento. Isto quer dizer que, a negação não necessariamente aniquila o ente. Ao negarmos uma realidade que possui três entes, se pode conceber uma realidade que possua dois entes. Isto é, a negação de uma realidade, pode resultar em outra.
 
-Porém, ao negar o que não há determinação, o que não pode portar acrescimo e diminuição, temos que, há uma unanimidade. Não se pode negar o Ser, ao se negar não obtemos de nenhuma forma outra realidade, visto que se nega o absoluto.
