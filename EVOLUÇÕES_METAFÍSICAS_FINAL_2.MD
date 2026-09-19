@@ -2114,7 +2114,7 @@ Essas personas não são divisões, mas **modos de relação do Espírito consig
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
-revisado
+
 
 ### **A Ação Trinária, Plenitude e Acidentes**
 A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
@@ -2125,7 +2125,7 @@ A forma personalizadora do absoluto se dá necessariamente de forma temporal. At
 
 O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como via única. As três ações se divergem, portanto, na esfera do Absoluto.
 
-O Espírito Fundamentador e o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador e o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto. O Espírito fundamentador tem uma ação isolada, no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito Perfeito. Portanto, poderíamos considerar uma persona própria. Ao passo que o Espírito personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a ação da pessoa fundamentadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador.
+O Espírito Fundamentador em conjunção com o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador em conjunção com o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto. O Espírito fundamentador tem uma ação isolada, no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito da plenitude. Portanto, poderíamos considerar uma persona própria. Ao passo que o Espírito personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a ação da pessoa fundamentadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador.
 
 O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem as ambas ações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
 
@@ -2134,12 +2134,16 @@ O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitu
 * O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.
 * A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
 * O Espírito do Ser tem três dimensões de ação que se distinguem em pessoas distintas em sua autodeterminação:
-    * O Espírito fundamental (Pai) e o plenificador (Espírito Santo) garantem a existência e a perfeição.
-    * A Alma (personificação do Espírito como Filho) introduz a liberdade e a personalidade na estrutura do Absoluto.
+    * O Espírito fundamental e o plenificador garantem a existência e a perfeição.
+    * A Alma (personificação do Espírito) introduz a personalidade na estrutura do Absoluto.
 
-Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autodeterminação divinas. Ao compararmos com conceitos doutrinários, podemos interpretar o pai como a força fundante. O filho como a personalização. E o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
+Enquanto o fundamentador é livre para Ser, com o Espírito da plenitude é livre para ser por inteiro, e com o personalizador é livre para ser segundo uma identidade, no sentido de agir sob múltiplas escolhas igualmente direcionadas a plenitude. Isto é, ações horizontais que não envolvam a dualidade Ser não Ser.
 
+Enquato o Espírito da plenitude orienta entre o Ser e não Ser, sempre em direção ao Ser em plenitude, e necessariamente em plenitude em função da perfeição. O fundamentador orienta em função da força necessaria para a existência e para que haja a escolha entre Ser e não Ser, sempre direcionada ao Ser. E o personalizador, horienta o absoluto a escolhas em sua atualização que envolvem horizontalidade, e não somente verticalidade (Ser e não Ser). Isto faz com que, a haja a escolha pela soberania ou pela criação, incluindo o que criar e quando. Sendo está criação ou manutenção da soberania direcionada e sob tutela do Espírito plenificador, considerando que, o não ser não pode ter ações.
 
+Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autocausalidade divinas. Ao compararmos com conceitos doutrinários, podemos interpretar o pai como a força fundante. O filho como a personalização. E o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
+
+revisado
 
 ## **A AUTOCAUSALIDADE BIFÁSICA E A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO**
 
