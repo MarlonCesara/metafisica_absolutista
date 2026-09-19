@@ -2032,10 +2032,10 @@ Estas três dimensões não dividem o Absoluto, mas revelam a riqueza interna de
 O resultado é uma **estrutura metafísica coerente** que demonstra como a liberdade do Absoluto, enquanto Espírito Pessoal autocausal, necessariamente se desdobra em três dimensões de ação — fundamentação, plenificação e personalização — todas unificadas por um amor indestrutível que é a própria expressão de sua existência necessária e plena.
 
 ---
-revisado
+
 ## ** A ESTRUTURA DA AUTOCAUSALIDADE E A AÇÃO TRINITÁRIA**
 
-### **7.1. As Três Dimensões da Ação do Espírito**
+### **As Três Dimensões da Ação do Espírito**
 O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológicas complementares:
 
 **1. Autodeterminação Vertical (Espírito Fundamentador)**
@@ -2049,10 +2049,10 @@ O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológic
 * **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
 * **Características para o Absoluto:**
     * **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
-    * **Autodeterminação Essencial:** O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
+    * **Auto causalidade Essencial:** O Espírito age como princípio causal (auto causalidade) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
     * *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
 * **Princípio:** *"Escolho o que me realiza como Absoluto."*
-
+revisado
 **3. Autodeterminação Horizontal (Espírito Personalizador)**
 * **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
 * **Características para o Absoluto:**
