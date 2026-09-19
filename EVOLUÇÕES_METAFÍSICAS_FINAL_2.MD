@@ -2076,19 +2076,19 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 3. **Como Personalizador,** O Espírito é a **pessoalidade** - amor pessoal e dom que personaliza.
 
 ---
-revisado
+
 ### **AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 
 #### **As Pessoas da Autocausalidade Divina**
-A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, que correspondem às Pessoas da Santíssima Trindade.
+A análise das dimensões da auto causalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, ou seja, modos de auto consentimento para com sua própria soberania absoluta.
 
 **1. O Poder Fundante (Espírito Fundamentador)**
 * **Atributos:**
     * **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
-    * **Inabalabilidade:** Não se curva a contingências; sua natureza é *autossustentação pura*.
+    * **Inabalabilidade:** Não se curva a contingências; sua natureza é *autonomia pura*.
     * **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
 * **Símbolo:** O Trovão (a irrupção incontestável do Ser).
-* **Princípio:** *"Antes de toda forma, há a fortaleza que a sustenta."*
+* **Princípio:** *"Antes de toda forma, há a fortaleza que a causa."*
 
 **2. A Sabedoria Plenificadora (Espírito Realizador)**
 * **Atributos:**
@@ -2110,25 +2110,11 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
 Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:
 * O **Poder** (Fundamentador) garante que o universo não desmorone.
 * A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável.
-* A **Liberdade** (Personalizador) introduz a personalidade no cosmo.
+* A **Personalidade** (Personalizador) introduz a personalidade no cosmo.
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
-#### **Tabela: A Trindade da Autocausalidade**
-
-| Dimensão da Autocausalidade | Pessoa Divina | Atributo Principal | Princípio |
-| :--- | :--- | :--- | :--- |
-| **Vertical (Fundamentadora)** | Deus Pai | Autoexistência | "Eu Sou" (Êxodo 3:14) |
-| **Diagonal (Plenificadora)** | Espírito Santo | Santificação | "Espírito que santifica" (2 Tessalonicenses 2:13) |
-| **Horizontal (Personalizadora)** | Deus Filho | Encarnação | "Verbo que se fez carne" (João 1:14) |
-
-#### **Resumo Trinitário Metafísico**
-1. **Pai (Vertical):** Fundamenta a existência. É a fonte incriada de todo ser.
-2. **Espírito Santo (Diagonal):** Completa e santifica sem persona fixa. É o amor e a sabedoria que perfazem toda a criação.
-3. **Filho (Horizontal):** Encarna a personalidade divina na história. É o Verbo pessoal através de quem todas as coisas foram feitas.
-
-> *"Há um só corpo e um só Espírito, assim como a esperança para a qual vocês foram chamados é uma só; há um só Senhor, uma só fé, um só batismo, um só Deus e Pai de todos, que é sobre todos, por meio de todos e em todos."*
-> — Efésios 4:4-6
+revisado
 
 ### **A Ação Trinária, Plenitude e Acidentes**
 A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
