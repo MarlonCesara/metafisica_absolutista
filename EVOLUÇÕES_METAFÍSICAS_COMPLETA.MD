@@ -12074,3 +12074,28 @@ O crime, por vezes, é uma covardia. É um desabar de um interior que está se i
 
 
 Uma sociedade que conhece todos os meios de produção, tecnologias, mas não conhece o homem, quem se apropria da politica para administrar esses bens, é uma sociedade que carece de um grande avanço tecnológico, pois essa tecnologia ainda não está a serventia do homem, mas da manutenção de um esquema fraudulento, que não se direciona ou apoia realmente o humano. Pois o não entendimento do homem significa, também,  não entendimento completo dos sistemas políticos e sistemas de produção.
+
+
+
+
+### Niilismo
+
+O niilista não gosta de ver o outro aproveitando a vida fartamente:
+
+alimentação em fartura, saúde, alegria em fartura.
+
+Pois julga ter optado pela completa escassez espiritual, renegando a vida em sua totalidade.
+
+Não quer ver o outro esbanjando dessa mesma vida, como se a aproveitasse totalmente, enquanto para o niilista nada restará.
+
+O niilista dá aos outros os restos como expressão da vida breve da qual tirará proveito.
+
+O resto de vida que o niilista aproveita não é em função do deleite, mas em função da espera.
+
+Portanto, considera-se que a angústia de extrair da vida a espera pela nulidade, e não o preâmbulo da eternidade, faz o niilista saborear com gosto amargo o que tem de vida.
+
+### Prostituição
+
+A prostituição é um jeito de dizer que não há ninguém dentro daquele corpo?
+
+Se quiser, também posso fazer uma **segunda limpeza mais filosófica**, mantendo as mesmas ideias, mas deixando a argumentação mais rigorosa e com linguagem de tratado metafísico.
