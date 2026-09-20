@@ -2164,7 +2164,7 @@ revisado
 * **Natureza:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável.
     * *"Eu Sou o que Sou" (Êxodo 3:14)*: A autoidentidade pura, sem dependência de tempo ou sequência.
 * **Princípios Envolvidos:**
-    * **Causa Identitária (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida.
+    * **Auto Causalidade (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida.
     * **Causa Existencial (Atemporal):** *"O Absoluto existe por si mesmo"* — não deriva de nenhuma condição prévia.
 * **Implicação Metafísica:** A autocausalidade atemporal garante que o Espírito seja **fonte irredutível**, nunca uma consequência de processos.
 
