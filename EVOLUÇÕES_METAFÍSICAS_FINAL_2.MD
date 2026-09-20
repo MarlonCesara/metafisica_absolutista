@@ -322,7 +322,8 @@ A aplicação regressiva desses princípios conduz, necessariamente, à postula�
 2. **É identicamente si mesmo de modo necessário** (satisfazendo as causas identitárias sem depender de determinações externas).
 3. **É a causa sustentadora de toda a existência e de toda identidade contingente.**
 4. **É indiferenciado, no sentido de que sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem absolutamente, de modo que não há em seu interior qualquer distinção que rompa sua pureza fundamental.**
-5. **É causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
+**5. O Absoluto não pode ser negado, diminuído ou acrescido, pois é soberano e plenamente suficiente em si mesmo. A afirmação de um ente determinado implica a negação de todas as demais possibilidades que lhe são incompatíveis; porém, a negação do Absoluto não conduz a uma possibilidade alternativa, pois qualquer alternativa ao Absoluto já constituiria alguma determinação do real. Assim, enquanto o determinado pode ser negado em favor de outra possibilidade, o Absoluto não pode ser substituído por outra possibilidade sem que essa própria possibilidade reivindique, de algum modo, a condição de absoluto. Portanto, o não absoluto não constitui uma alternativa ao Absoluto.**
+6. **É causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
 
 #### Síntese da Inferência Direta sobre a Natureza do Ser
 
@@ -5842,3 +5843,7 @@ Sendo auto causal torna-se Ser. A auto causalidade desdobra e continua todas as 
 O Ser, inferido através de aspectos relacionais, é um Ser leve, um Ser relacional. Que não está preso a forma, que não pode ser negado em detrimento de outra forma. Sua estadia não é uma negação de outras formas, é uma pureza relacional. 
 
 A auto causalidade cria a consciência. Pois o auto causar envolve conhecer, dominar e estar presente. 
+
+
+
+Exemplo, para fins de entendimento, vamos considerar o absoluto auto determinado, isto quer dizer que, consideraremos o nada ontológico e que este nada é de autoria da determinação do Espírito. O nada determinado nada, nega todas as outras possibilidades. Isto quer dizer que, se o Espírito nega as outras possibilidades, é condição do Espírito aceita-las. Porém, o Espírito nao é determinado, e o nada não existe, portanto, não é possível que haja uma determinação no contexto da soberania do Absoluto. 
