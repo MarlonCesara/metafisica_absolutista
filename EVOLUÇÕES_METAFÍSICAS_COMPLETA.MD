@@ -12094,8 +12094,13 @@ O resto de vida que o niilista aproveita não é em função do deleite, mas em 
 
 Portanto, considera-se que a angústia de extrair da vida a espera pela nulidade, e não o preâmbulo da eternidade, faz o niilista saborear com gosto amargo o que tem de vida.
 
+
+
+O niilista, quando não obtem um meio de desviar seus sintomas, tem como sintoma sem escapismo a agressividade.
+
 ### Prostituição
 
 A prostituição é um jeito de dizer que não há ninguém dentro daquele corpo?
 
 Se quiser, também posso fazer uma **segunda limpeza mais filosófica**, mantendo as mesmas ideias, mas deixando a argumentação mais rigorosa e com linguagem de tratado metafísico.
+
