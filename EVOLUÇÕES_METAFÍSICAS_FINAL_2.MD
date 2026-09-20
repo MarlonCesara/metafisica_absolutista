@@ -5847,3 +5847,69 @@ Exemplo, para fins de entendimento, vamos considerar o absoluto auto determinado
 O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. 
 
 O próprio ato de causar-se é o seu próprio efeito.
+
+
+
+
+
+
+
+
+
+
+
+
+
+Organizei e corrigi a ortografia, preservando ao máximo suas ideias e formulações originais, sem acrescentar conteúdo novo.
+
+### Causação e Ser
+
+Causar envolve um agente.
+
+Não é um ato mecânico de efeito e consequência, pois exige propriedades.
+
+Ao somar o causar ao agente, temos o causar como Ser.
+
+Não há o autocausado: o causar é o próprio efeito.
+
+O Ser tem o mesmo conceito. Não existe o ente formalizado pelo Ser; existe o Ser, e o Ser é o próprio ente manifesto.
+
+A autocausalidade envolve autopresença, autoconhecimento e autodomínio.
+
+Por isso, o causar não é cego ou mecânico: é vivo.
+
+Não é, portanto, o absurdo causar; o causar é o Ser.
+
+O Absoluto é livre para se autocausar, sendo vivo.
+
+Isto implica liberdade de ser a si, liberdade de consentir com o ser a si e liberdade de escolha de ser a si como soberano.
+
+Ser soberano nega outras infinitas escolhas.
+
+Então temos o agir personalizado.
+
+O autocausar se encontra consigo mesmo em um ato eterno, onde o causar é idêntico ao causado.
+
+Ao passo que também se encontra em uma linha temporal nula e consumada.
+
+O auto-ser a si envolve um loop, ao passo que um momento eterno.
+
+O ato de encontro do Ser é sempre consigo mesmo.
+
+O causar-se, em um fecho ontológico, torna-se o Ser.
+
+O causar-se envolve um só ente, em encontro consigo mesmo, num ato idêntico e num ir de encontro eterno.
+
+Este encontro se chama Ser.
+
+Se autocausar é auto-ser.
+
+A diferença entre o autocausar e o Ser é nenhuma.
+
+### Consciência e temporalidade
+
+A consciência sugere temporalidade, conhecimento consumado e refrescado, atualizado.
+
+
+
+
