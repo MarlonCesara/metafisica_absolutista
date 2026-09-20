@@ -2115,8 +2115,6 @@ Essas personas não são divisões, mas **modos de relação do Espírito consig
 
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
-
-
 ### **A Ação Trinária, Plenitude e Acidentes**
 A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
@@ -2130,8 +2128,7 @@ O Espírito Fundamentador em conjunção com o Espírito Plenificador atuam atem
 
 O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem as ambas ações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
 
-
-### **7.6. Conclusão do Capítulo**
+### **Conclusão do Capítulo**
 * O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.
 * A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
 * O Espírito do Ser tem três dimensões de ação que se distinguem em pessoas distintas em sua autodeterminação:
@@ -2144,8 +2141,6 @@ Enquato o Espírito da plenitude orienta entre o Ser e não Ser, sempre em dire�
 
 Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autoconsciência e autocausalidade divinas. Ao compararmos com conceitos doutrinários, podemos interpretar o pai como a força fundante. O filho como a personalização. E o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
 
-
-
 ## **A AUTOCAUSALIDADE BIFÁSICA E A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO**
 
 A aplicação dos quatro princípios causais ao Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.
@@ -2156,24 +2151,20 @@ O auto causalidade envolve a auto consciência, o conhecer-se por inteiro, e o e
 
 A auto causalidade é consciência. E está consciência é consciência de um todo, e consciência atuante e atualizante. 
 
-revisado
-
 ### **A Dinâmica Bifásica**
 
 **1. Autocausalidade Atemporal: A Causa Definitiva**
 * **Natureza:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável.
     * *"Eu Sou o que Sou" (Êxodo 3:14)*: A autoidentidade pura, sem dependência de tempo ou sequência.
 * **Princípios Envolvidos:**
-    * **Auto Causalidade (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida.
-    * **Causa Existencial (Atemporal):** *"O Absoluto existe por si mesmo"* — não deriva de nenhuma condição prévia.
+    * **Auto Causalidade (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida. *"O Absoluto existe por si mesmo"* — não deriva de nenhuma condição prévia
 * **Implicação Metafísica:** A autocausalidade atemporal garante que o Espírito seja **fonte irredutível**, nunca uma consequência de processos.
 
 **2. Autocausalidade Temporal: O Ciclo Autossustentado**
 * **Natureza:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada.
     * *"O Pai trabalha até agora, e Eu trabalho também" (João 5:17)*: A atividade contínua do Espírito no tempo.
 * **Princípios Envolvidos:**
-    * **Causa Identitária Continuada (Temporal):** *"O Absoluto persiste como Absoluto"* — mantém sua essência no devir.
-    * **Causa Existencial Continuada (Temporal):** *"O Absoluto se sustenta a cada instante"* — não é estático, mas vivo.
+    * **Auto causalidade Continuada (Temporal):** *"O Absoluto persiste como Absoluto"* — mantém sua essência no devir. *"O Absoluto se sustenta a cada instante"* — não é estático, mas vivo.
 * **Implicação Metafísica:** A autocausalidade temporal revela que o Espírito **não é passivo**, mas age perpetuamente para sustentar sua própria realidade.
 
 **3. A Unidade Bifásica: Eternidade e Tempo Integrados**
@@ -2183,19 +2174,22 @@ revisado
     * *Solução:* O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**.
 * **Exemplo Metafórico:** Ao consumar o futuro, presente e passado em um instante único, temos uma natureza atemporal construída a partir do temporal.
 
-### ** Implicações Metafísicas para o Absoluto Incognoscível**
-1.  **O Incognoscível é Pessoal:** O incognoscível não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, que excede toda conceitualização precisamente porque é **sujeito absoluto** (não objeto).
-2.  **A Possibilidade e Impossibilidade são Atos do Espírito:** Os domínios do possível e do impossível não são limites externos, mas **expressões da autodeterminação do Espírito**. O "impossível" (como a contradição) existe como **negação interna** que o Espírito supera em sua totalidade.
+### ** Implicações Metafísicas para o Absoluto**
+1.  **O Absoluto é Pessoal:** O Absoluto não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, que excede toda conceitualização precisamente porque é **sujeito absoluto** (não objeto).
+2.  **A Possibilidade e Impossibilidade manifestável são Atos do Espírito:** Os domínios do possível e do impossível não disruptivo não são limites externos, mas **expressões da autodeterminação do Espírito**. 
 3.  **A Realidade é Autocomunicação do Espírito:** O mundo contingente (o "possível manifestado") não é uma emanação necessária, mas **ato livre de autodoação do Absoluto**.
 
 ### **Formulação Final: O Espírito como Causalidade Viva**
 O Absoluto é **Espírito Autocausal**:
 * **Autofundado** (não deriva de nada externo)
 * **Autoconsciente** (não é "cego" ou impessoal)
-* **Autolibertário** (define sua própria lógica e possibilidade)
+* **Autolibertário** (define sua própria ação)
 * **Automanifestante** (a realidade é sua expressão, não sua limitação)
 
-O Ser como Autodeterminador: O Absoluto autodeterminado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada). "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que: 1) Existe (autofundamentação); 2) Se define (autodeterminação); 3) Persiste (autocontinuidade).
+
+O Ser como Auto causador: O Absoluto auto causado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada). "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que: 1) Existe (autofundamentação); 2) Se define (autodeterminação); 3) Persiste (autocontinuidade). 
+
+Considerando que o Ser é indiferenciado, então a ação de auto fundamentação é fundida a ação de autodeterminação, sendo uma auto causalidade.
 
 > *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."*
 
@@ -2215,8 +2209,9 @@ No ato imediato causal, o Espírito não se causa em um processo temporal sucess
 * **Não há regressão infinita,** pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.
 * O Espírito **já é** plenamente si mesmo em um eterno presente. Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).
 
+revisado
 **O Ser em Ato (Consumação):**
-O **Espírito** é o **ato puro de autodeterminação** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.
+O **Espírito** é o **ato puro de autocausalidade** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.
 * **Espírito em Ato (Consumado)** $\rightarrow$ O Espírito já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.
     * *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.
 
@@ -5847,3 +5842,8 @@ A auto causalidade cria a consciência. Pois o auto causar envolve conhecer, dom
 
 
 Exemplo, para fins de entendimento, vamos considerar o absoluto auto determinado, isto quer dizer que, consideraremos o nada ontológico e que este nada é de autoria da determinação do Espírito. O nada determinado nada, nega todas as outras possibilidades. Isto quer dizer que, se o Espírito nega as outras possibilidades, é condição do Espírito aceita-las. Porém, o Espírito nao é determinado, e o nada não existe, portanto, não é possível que haja uma determinação no contexto da soberania do Absoluto. 
+
+
+O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. 
+
+O próprio ato de causar-se é o seu próprio efeito.
