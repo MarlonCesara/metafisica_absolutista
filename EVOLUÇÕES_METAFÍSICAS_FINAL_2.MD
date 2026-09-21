@@ -2283,17 +2283,17 @@ Ao usarmos a comparação do Espírito como um círculo que se desdobra no tempo
 Pois o tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito. No universo presente, a **temporalidade linear do fenômeno** é percorrida pelo observador de uma forma linear, não é vivenciada simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde; à medida que o tempo avança, o observador obtém um novo tempo e o tempo passado se vai.
 
 No Espírito, ao contrário, o tempo todo é vivência imediata, há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva) tal como um observador neste mundo. O Espírito é o próprio tempo em toda sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado. 
-revisado
+
 Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio) como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade não é duração infinita, mas a posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
 
-### **O Infinito e o Tempo: Princípios Indiscerníveis**
-Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e tempo (fluxo eventual) compartilham propriedades essenciais:
-* **Não-Coexistência de Opostos Relativos:** A (eventos) e B (infinitude) não podem ocupar a mesma dimensão se forem contraditórios. (*Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo).
+### **Atualidade do Espírito e a infinitude atemporal: Princípios Indiscerníveis**
+Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e atualidade (fluxo eventual) compartilham propriedades essenciais:
+* **Não-Coexistência de Opostos:** A (eventos) e B (infinitude) não podem ocupar a mesma dimensão se forem contraditórios. (*Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo).
 * **Referencial Possível:** A (eventos) e B (infinitude) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
-    * **Ausência de dimensões absolutas:** Nem o evento nem a infinitude podem ser delimitados espacial ou temporalmente.
-    * **Dependência de um segundo termo:** O infinito só é definível em relação ao evento (ex.: infinitude em progressão vs. infinitude consumada). O evento só é reconhecível em contraste com o infinito (ex.: infinito vs. progressão infinita).
+    * **Ausência de dimensões absolutas:** Nem a atualidade nem a infinitude podem ser delimitados espacial ou temporalmente.
+    * **Dependência de um segundo termo:** O infinito só é definível em relação a atualidade (ex.: infinitude em progressão vs. infinitude consumada). A atualidade só é reconhecível em contraste com o infinito (ex.: infinito vs. progressão infinita).
 * **Dualidade Necessária:** Sem dualidade, ambos colapsam. O infinito é ininteligível sem o fluxo eventual; a eventualidade em sua integralidade é indistinguível do infinito.
-
+revisado
 **O ato único do Espírito**, em outras palavras, consiste na **transcendência do temporal**. Desse modo, o tempo pode ser percorrido como uma linha infinita, e, ao adentrarmos a dimensão temporal infinita na tentativa de medi-la, o resultado obtido é **o ato único do Ser** – um ato que compreendemos como **atemporal**.
 
 Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contém uma dimensão medível, temos o atemporal, ou seja, uma experiência que extravasa o tempo.
