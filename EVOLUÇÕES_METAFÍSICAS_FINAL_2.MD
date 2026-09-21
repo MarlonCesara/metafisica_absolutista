@@ -2498,45 +2498,7 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 revisado
-
-
-
-
-
-
-
-### **O fundamento como sabedoria**
-
-Deus pais, o estado atemporal do Espírito, é definido como sabedoria. Pois seu conhecer envolve ser a totalidade concluída, o fundamento. O espírito envolve a santidade, a retidão para a sabedoria ou para a personalidade. E o personalizador envolve a expressão dessa sabedoria de forma particular.
-
-
-
-
-Perguntas como *"Se Deus é tudo, como algo que não é Deus pode ainda existir?"* ou *"Se o Espírito é puro e indiferenciado, como dele pode provir a multiplicidade?"* só encontrarão resposta depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto. É essa substância pura do Espírito — que está para além do nada e que age *sob* o nada, conferindo-lhe a possibilidade de ser o fundo sobre o qual a criação se destaca — que precisamos agora investigar.
-
-### **9.2. O Nada como Primeira Janela a Ser Limpa: A Experiência do Vazio Ontológico**
-Antes de contemplarmos a plenitude, devemos nos deter no vazio. O nada não é um mero conceito abstrato; é uma experiência limítrofe da consciência, um horizonte que se abre quando todas as determinações são suspensas.
-
-
-
 
 ### **Introdução: Do Causal ao Criacional — A Natureza da Presença Absoluta**
 Tendo estabelecido os princípios da auto causalidade absoluta, adentramos agora a natureza íntima do Auto causado. Se antes investigamos *como* o Absoluto se fundamenta, cabe agora perguntar: *o que é* esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia causal, mas como ato puro de auto posição?
@@ -2568,7 +2530,7 @@ Nossa definição escapa desses problemas: o espírito não é um *sujeito* que 
 
 ---
 
-## **Tese V: A Suspensão do Nada**
+## **A Suspensão do Nada**
 
 **Proposição:**
 O nada verdadeiro não é ausência de ser, mas a *suspensão* da própria distinção entre ser e não-ser. O indiferenciado é esse "nada além do nada" — uma positividade que não pode ser afirmada positivamente.
@@ -5906,7 +5868,6 @@ O próprio ato de causar-se é o seu próprio efeito.
 
 
 
-Organizei e corrigi a ortografia, preservando ao máximo suas ideias e formulações originais, sem acrescentar conteúdo novo.
 
 ### Causação e Ser
 
@@ -5988,3 +5949,35 @@ Portanto, o Ser, quando causa a si mesmo, **eleva-se ao infinito**. Há uma real
 
 
 | **Infinito Vertical** | A Identidade do "Deus sobre Deus" (Elevação ao Infinito). | Autoconsciência absoluta e onisciência consumada. |
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#  não reutilizaveis
+
+### **O fundamento como sabedoria**
+
+Deus pais, o estado atemporal do Espírito, é definido como sabedoria. Pois seu conhecer envolve ser a totalidade concluída, o fundamento. O espírito envolve a santidade, a retidão para a sabedoria ou para a personalidade. E o personalizador envolve a expressão dessa sabedoria de forma particular.
+
+Perguntas como *"Se Deus é tudo, como algo que não é Deus pode ainda existir?"* ou *"Se o Espírito é puro e indiferenciado, como dele pode provir a multiplicidade?"* só encontrarão resposta depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto. É essa substância pura do Espírito — que está para além do nada e que age *sob* o nada, conferindo-lhe a possibilidade de ser o fundo sobre o qual a criação se destaca — que precisamos agora investigar.
+
+### **O Nada como Primeira Janela a Ser Limpa: A Experiência do Vazio Ontológico**
+Antes de contemplarmos a plenitude, devemos nos deter no vazio. O nada não é um mero conceito abstrato; é uma experiência limítrofe da consciência, um horizonte que se abre quando todas as determinações são suspensas.
