@@ -12104,3 +12104,5 @@ A prostituição é um jeito de dizer que não há ninguém dentro daquele corpo
 
 Se quiser, também posso fazer uma **segunda limpeza mais filosófica**, mantendo as mesmas ideias, mas deixando a argumentação mais rigorosa e com linguagem de tratado metafísico.
 
+
+Niilista tem dificuldade de interiorização, de viver a vida interior, de permanecer em silencio sem falar com ninguém.
