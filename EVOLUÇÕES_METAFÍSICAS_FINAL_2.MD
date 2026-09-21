@@ -362,6 +362,23 @@ Embora a inferência direta realizada até aqui nos ofereça um vislumbre origin
 
 Portanto, o conceito de Absoluto designa uma realidade totalmente desprovida de causa antecedente ou exterior, atributos estes indissociáveis da causa última.
 
+## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL**
+
+### **A Necessidade de uma Purificação do Olhar: Introdução ao Caminho Apofático**
+Agora que compreendemos brevemente a estrutura da auto causalidade, as dimensões da liberdade divina e a temporalidade não linear do Espírito, deveríamos avançar para uma profundidade ainda maior. Perguntas como qual é o *conteúdo* do Espírito? O que é, em sua essência mais íntima, essa realidade que chamamos de Ser absoluto? Como o Espírito age? Como Se relaciona com o tempo? Como exerce Sua liberdade? O *quê* é a substância pura que subjaz a todas as determinações, o solo ontológico do qual tudo brota? Devem ser respondidas de forma detalhada e de todos os ângulos cabíveis. 
+
+Esta investigação, porém, exige uma preparação rigorosa. Não podemos abordar diretamente a pureza do Espírito com mentes turvadas por conceitos inadequados, por imagens que projetamos n'Ele a partir de nossa experiência limitada. É necessário, antes de mais nada, *limpar as janelas* que nos impedem de ver verdadeiramente a paisagem do Espírito. Essas janelas são as noções pré-concebidas, os hábitos mentais, as categorias filosóficas que, embora úteis para lidar com o mundo finito, tornam-se obstáculos quando aplicadas ao Infinito.
+
+Para que os traços do Ser se delineiem com clareza, precisamos explorar suas oposições, o seu limite, o seu fundo: precisamos explorar o *nada*. É no contraste com o nada que o ser se revela com mais clareza. É confrontando o vazio que a plenitude se manifesta desmoronando os vazios conceituais. A via para a compreensão do Espírito indiferenciado passa, necessariamente, pela desassociação de todas as outras vias que pretendem explicar o fundamento do real de forma errônea. Precisamos distinguir o caminho fundamental dos caminhos secundários, por mais que estes também apontem, à seu grosso modo, para o absoluto.
+
+A tradição mística de diversas culturas reconheceu a necessidade dessa passagem pelo nada como preparação para a visão do Ser. O que é, pois, o nada? Não se trata simplesmente da ausência de coisas particulares, de um vazio ôntico. O nada de que falamos é mais radical: é a ausência de qualquer determinação, de qualquer propriedade, de qualquer ser. É a pura negação, o "não" absoluto. Quando tentamos pensá-lo, nossa mente recua, pois o pensamento só pode apreender o ser. O nada é o impensável por excelência, o limite do inteligível.
+
+No entanto, essa experiência do nada é crucial. Ao contemplarmos o nada, somos forçados a reconhecer que tudo o que existe — incluindo nós mesmos e nossas categorias — poderia *não* existir. O nada revela a contingência radical do finito. Ele funciona como um solvente universal que dissolve nossas certezas e nos prepara para receber uma certeza mais alta: a do Ser necessário.
+
+É diante do nada que a pergunta fundamental emerge com toda a sua força: *por que existe algo em vez de nada?* Esta pergunta, que Leibniz considerava a primeira da filosofia, só pode ser devidamente formulada após termos contemplado a possibilidade real do nada. Se não passamos por essa experiência, corremos o risco de tomar o ser como um dado óbvio, como algo que "está aí" sem maiores questionamentos. A grandeza da pergunta exige a grandeza do abismo que a antecede.
+
+O nada, portanto, é a primeira janela a ser limpa. Não porque ele contenha alguma verdade positiva, mas porque sua contemplação nos livra da ilusão de que o ser finito é autossuficiente. Ao encararmos o nada, nossa mente se desapega das determinações particulares e se abre para a possibilidade de algo que seja para além de toda determinação — algo que não possa não existir, algo cuja essência é o próprio existir.
+
 #### A Substância Absoluta e o Incausado
 
 A tradição teológica frequentemente concebe a substância de uma realidade incausada em termos de uma pureza originária ou, de maneira ainda mais rigorosa, através da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causas.
@@ -2402,11 +2419,6 @@ Exemplo: O Ser em uma linha infinita de números, e a totalidade desses números
 
 Isto indica que, enquanto a pessoa da fundamentação decidiu a plenitude, isto é, a pessoa fundamentadora é poder e decisão por esse poder retilíneo, plano e pleno. A pessoa personalizadora não decide só pelo poder fundante, mas decide a maneira com que se manifesta as decisões determinísticas desse poder entre infinitas decisões possíveis. E isto revela que o personalizador participou da criação.
 
-
-revisado
-
-
-
 ### **Síntese Final: A Arquitetura do Tempo Divino**
 O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que o Ser tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio, meio e fim, mas vive a atualidade com a atualização criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, no amor da Trindade.
 
@@ -2503,6 +2515,12 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 
 
+revisado
+
+
+
+
+
 
 
 ### **O fundamento como sabedoria**
@@ -2511,29 +2529,16 @@ Deus pais, o estado atemporal do Espírito, é definido como sabedoria. Pois seu
 
 
 
-## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL**
-
-### **9.1. A Necessidade de uma Purificação do Olhar: Introdução ao Caminho Apofático**
-Agora que compreendemos a estrutura da auto causalidade, as dimensões da liberdade divina e a temporalidade não linear do Espírito, podemos avançar para uma questão ainda mais fundamental: qual é o *conteúdo* do Espírito? O que é, em sua essência mais íntima, essa realidade que chamamos de Ser absoluto? Até aqui, exploramos o *como* do Espírito — como Ele age, como Se relaciona com o tempo, como exerce Sua liberdade. Agora, devemos investigar o *quê* — a substância pura que subjaz a todas as determinações, o solo ontológico do qual tudo brota e para o qual tudo tende.
-
-Esta investigação, porém, exige uma preparação rigorosa. Não podemos abordar diretamente a pureza do Espírito com mentes turvadas por conceitos inadequados, por imagens que projetamos n'Ele a partir de nossa experiência limitada. É necessário, antes de mais nada, *limpar as janelas* que nos impedem de ver verdadeiramente a paisagem do Espírito. Essas janelas são as noções pré-concebidas, os hábitos mentais, as categorias filosóficas que, embora úteis para lidar com o mundo finito, tornam-se obstáculos quando aplicadas ao Infinito.
-
-Para que os traços do Ser se delineiem com clareza, precisamos explorar o seu oposto, o seu limite, o seu fundo: precisamos explorar o *nada*. É no contraste com o nada que o ser se revela. É confrontando o vazio que a plenitude se manifesta. A via para a compreensão do Espírito indiferenciado passa, necessariamente, pela desassociação de todas as outras vias que pretendem explicar o fundamento do real. Precisamos distinguir o caminho fundamental dos caminhos secundários, por mais que estes também apontem, a seu modo, para o absoluto.
 
 Perguntas como *"Se Deus é tudo, como algo que não é Deus pode ainda existir?"* ou *"Se o Espírito é puro e indiferenciado, como dele pode provir a multiplicidade?"* só encontrarão resposta depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto. É essa substância pura do Espírito — que está para além do nada e que age *sob* o nada, conferindo-lhe a possibilidade de ser o fundo sobre o qual a criação se destaca — que precisamos agora investigar.
 
 ### **9.2. O Nada como Primeira Janela a Ser Limpa: A Experiência do Vazio Ontológico**
-Antes de contemplarmos a plenitude, devemos nos deter no vazio. O nada não é um mero conceito abstrato; é uma experiência limítrofe da consciência, um horizonte que se abre quando todas as determinações são suspensas. A tradição mística de diversas culturas reconheceu a necessidade dessa passagem pelo nada como preparação para a visão do Ser.
+Antes de contemplarmos a plenitude, devemos nos deter no vazio. O nada não é um mero conceito abstrato; é uma experiência limítrofe da consciência, um horizonte que se abre quando todas as determinações são suspensas.
 
-O que é, pois, o nada? Não se trata simplesmente da ausência de coisas particulares, de um vazio ôntico. O nada de que falamos é mais radical: é a ausência de qualquer determinação, de qualquer propriedade, de qualquer ser. É a pura negação, o "não" absoluto. Quando tentamos pensá-lo, nossa mente recua, pois o pensamento só pode apreender o ser. O nada é o impensável por excelência, o limite do inteligível.
 
-No entanto, essa experiência do nada é crucial. Ao contemplarmos o nada, somos forçados a reconhecer que tudo o que existe — incluindo nós mesmos e nossas categorias — poderia *não* existir. O nada revela a contingência radical do finito. Ele funciona como um solvente universal que dissolve nossas certezas e nos prepara para receber uma certeza mais alta: a do Ser necessário.
 
-É diante do nada que a pergunta fundamental emerge com toda a sua força: *por que existe algo em vez de nada?* Esta pergunta, que Leibniz considerava a primeira da filosofia, só pode ser devidamente formulada após termos contemplado a possibilidade real do nada. Se não passamos por essa experiência, corremos o risco de tomar o ser como um dado óbvio, como algo que "está aí" sem maiores questionamentos. A grandeza da pergunta exige a grandeza do abismo que a antecede.
 
-O nada, portanto, é a primeira janela a ser limpa. Não porque ele contenha alguma verdade positiva, mas porque sua contemplação nos livra da ilusão de que o ser finito é autossuficiente. Ao encararmos o nada, nossa mente se desapega das determinações particulares e se abre para a possibilidade de algo que seja para além de toda determinação — algo que não possa não existir, algo cuja essência é o próprio existir.
-
-### **9.3. Introdução: Do Causal ao Criacional — A Natureza da Presença Absoluta**
+### **Introdução: Do Causal ao Criacional — A Natureza da Presença Absoluta**
 Tendo estabelecido os princípios da auto causalidade absoluta, adentramos agora a natureza íntima do Auto causado. Se antes investigamos *como* o Absoluto se fundamenta, cabe agora perguntar: *o que é* esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia causal, mas como ato puro de auto posição?
 
 Não exploraremos mais a causalidade, mas a natureza do auto causado. Ou seja, sabemos que o auto causado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
