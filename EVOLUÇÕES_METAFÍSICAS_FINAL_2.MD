@@ -2318,9 +2318,9 @@ Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumad
 Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. Deste modo, temos uma consumação não estática ou pré-formatada, mas viva em si e presente em qualquer instante. Desta forma, advém uma realidade atemporal viva e frutífera, um solo fértil para o *start* do fenômeno no tempo do Espírito. Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o início fenomênico.
 
 > **Exemplo da Reta Viva e do Filme Projetado:** O tempo do Espírito não é uma linha reta meramente consumada; é uma linha reta que é viva em cada centímetro de extensão. Imagine uma reta geométrica. Se ela for apenas um traço estático, cada ponto é uma coordenada fixa e imutável, e nenhum ponto pode "agir" sobre o outro. Mas se cada centímetro dessa reta for um centro de consciência e ação, a decisão pode partir em qualquer tempo do Espírito — de qualquer "centímetro" dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria *start*, pois ela já estaria num momento de consumação atemporal estático, como um filme que já foi completamente projetado e cujos fotogramas não podem mais ser alterados.
-revisado
+
 ### **O Enigma do Início (*Start*) Fenomênico e a Potência Ativa**
-O paradoxo se aprofunda: como algo pode "iniciar" num ser para quem tudo já está consumado? O Espírito, mesmo dispondo de todo o tempo consumado (campo das possibilidades), possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é consumada no que tange a se realizar sem atualizações, mas não é estática. O ato de ser é puro ato de plenitude de atividade.
+O paradoxo se aprofunda: como algo pode "iniciar" num ser para quem tudo já está consumado? O Espírito, mesmo dispondo de todo o tempo consumado (campo das possibilidades), possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser divino. A ação do Espírito de Ser é consumada no que tange a se realizar, mas não é estática. O ato de ser é puro ato de plenitude de atividade.
 
 O universo "mancharia" a pureza inicial somente se concebêssemos o Espírito como realidade estática e fechada, como uma esfera perfeita que nada pode receber nem emitir. Porém, a linha temporal do Espírito existe como *potência ativa*, não como completude inerte. 
 
@@ -2332,7 +2332,7 @@ Podemos comparar a capacidade de ação do Espírito ao observador linear: neste
 
 ### **O Observador Eterno: A Subjetividade que Constitui o Tempo**
 > **Exemplo ilustrativo da Sala e do Quadro:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou. Se alguém sempre esteve numa sala observando um quadro, não há um momento em que "começou"; a observação é coextensiva à sua presença.
-
+revisado
 O Espírito como Observador absoluto:
 * Não tem um "primeiro momento" de observação (não é um evento no tempo, mas a condição de possibilidade do tempo).
 * Sua observação é constitutiva de seu ser (Ele é ato de observação, pura subjetividade).
