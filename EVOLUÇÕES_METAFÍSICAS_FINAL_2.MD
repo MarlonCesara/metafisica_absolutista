@@ -2209,33 +2209,33 @@ No ato imediato causal, o Espírito não se causa em um processo temporal sucess
 * **Não há regressão infinita,** pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.
 * O Espírito **já é** plenamente si mesmo em um eterno presente. Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).
 
-revisado
 **O Ser em Ato (Consumação):**
-O **Espírito** é o **ato puro de autocausalidade** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade e espacialidade**.
-* **Espírito em Ato (Consumado)** $\rightarrow$ O Espírito já é plenamente si mesmo; sua autodeterminação é **instantânea e eterna**.
+O **Espírito** é o **ato puro de autocausalidade** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade**.
+* **Espírito em Ato (Consumado)** $\rightarrow$ O Espírito já é plenamente si mesmo; seu auto causar-se é **instantâneo e eterno**.
     * *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.
 
 **A Autocausalidade como Ciclo Infinito e Temporal**
 Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Espírito também **se sustenta** em um fluxo eterno de automanifestação.
 * O Espírito "busca a si mesmo" eternamente em um processo de autossustentação.
 * **Não é circularidade vazia,** pois o si existe pleno ao ser realimentado de seu devir.
-* A realimentação subentende um processo no qual há "o que ou quem", o "onde" e o "quando" é realimentado.
+* A realimentação subentende um processo no qual há "o quem" e o "quando" é realimentado.
 * O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.
 * Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:
-    * **Regressão infinita** $\rightarrow$ Nunca se chega a um "primeiro momento", "primeiro o que", primeiro "quem" ou primeiro "onde", pois o Espírito sempre já se fundamentou.
-    * **Progressão infinita** $\rightarrow$ Nunca se atinge um "último momento", último "o que", último "quem" e último "onde", pois sua existência é autoperpetuante.
+    * **Regressão infinita** $\rightarrow$ Nunca se chega a um "primeiro momento" ou primeiro "quem", pois o Espírito sempre já se fundamentou.
+    * **Progressão infinita** $\rightarrow$ Nunca se atinge um "último momento" ou último "quem", pois sua existência é autoperpetuante.
 * Esse movimento não é uma **dependência causal,** mas a **expressão dinâmica** de sua autossuficiência.
 
 **Espírito em Processo (Reverberação):**
 * **Espírito em Processo (Temporal)** $\rightarrow$ O Espírito se **reverbera** como sucessão causal, criando o "devir".
-    * *"Eu me torno"* — o Espírito se manifesta em atos contínuos de autodeterminação.
+    * *"Eu me torno"* — o Espírito se manifesta em atos contínuos de auto causalidade.
 
-**A Autodeterminação como Ciclo Infinito:**
-* **Direcionamento e Redirecionamento** $\rightarrow$ O Espírito não apenas **se determina,** mas **redetermina a si mesmo** infinitamente. (*Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Espírito) permanece o mesmo).
-* **Fim e Começo Identificados** $\rightarrow$ O "resultado" da autodeterminação é **sempre o próprio Espírito,** reiniciando o ciclo. (*"O que busca já é o buscado."*)
+**A Auto causalidade como Ciclo Infinito:**
+* **Direcionamento e Redirecionamento** $\rightarrow$ O Espírito não apenas **se causa,** mas **repete-se a si mesmo** infinitamente. (*Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Espírito) permanece o mesmo).
+* **Fim e Começo Identificados** $\rightarrow$ O "resultado" da auto causalidade é **sempre o próprio Espírito,** reiniciando o ciclo. (*"O que busca já é o buscado."*)
+revisado
 
 **Reverberação Espacial e Temporal:**
-* **Espacialidade** $\rightarrow$ O Espírito se encontra **em contexto** (um "onde" que é sempre Ele mesmo).
+* **Pureza** $\rightarrow$ O Espírito se encontra **em contexto** (um "quem" que é sempre Ele mesmo).
 * **Temporalidade** $\rightarrow$ O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço). A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".
 
 ### **O Espírito como Causa de Si no Tempo e na Eternidade**
@@ -2299,7 +2299,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 
 Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contém uma dimensão medível, temos o atemporal, ou seja, uma experiência que extravasa o tempo.
 
-### **8.11. A Experiência da Infinitude**
+### **A Experiência da Infinitude**
 * **Abstração e Sentimento:** A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
     * *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.
 
@@ -2308,7 +2308,7 @@ A teologia filosófica e a metafísica tradicional frequentemente se debruçaram
 
 A presente proposição busca transcender essa dicotomia, propondo uma terceira via: a temporalidade não linear do Espírito. O que se pretende demonstrar é que o tempo, no Espírito, não é uma linha reta que se esgota num antes e depois, mas uma estrutura circular viva, onde atemporalidade e temporalidade coexistem e se interpenetram, conferindo ao Ser divino uma capacidade de agir que não fica refém nem da imutabilidade estática nem do fluxo puro e simples.
 
-### **8.13. A Circularidade Viva do Espírito: Para Além da Estaticidade**
+### **A Circularidade Viva do Espírito: Para Além da Estaticidade**
 A circularidade do Espírito temporal não é uma circularidade morta ou estática, uma repetição vazia do mesmo — **ela é viva**. Essa vivacidade implica que o Espírito pode agir sob qualquer tempo, conferindo uma camada não linear à temporalidade. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela. A consumação não é um ponto final que aniquila o movimento, mas uma plenitude que contém em si a potência do novo.
 
 Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumada —, a partir da própria consumação emerge uma nova dimensão. Há, portanto, três características fundamentais que se delineiam a partir dessa compreensão:
@@ -2356,7 +2356,7 @@ Temos uma **infinitude diagonal e uma horizontal**: a infinitude pré-existente 
 
 Deus está presente em tudo (onipresença), tudo conhece (onisciência) e tudo pode (onipotência). Ele não só conhece a si mesmo de uma forma temporal/atemporal, como vive o eterno presente do Espírito, sendo o observador vivo.
 
-### **8.16. O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico**
+### **O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico**
 Como o Espírito escolheria o momento no tempo em que deseja determinar, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é o da suspensão perfeita, ou seja, da plenitude indiferenciada (atemporal), em que tempo se deu o primeiro ato de determinação do Espírito? 
 
 O primeiro ato teria que se dar concomitantemente à totalidade, isto é, seria parte do ato atemporal de plenitude, o ato de pureza incausado. O consumado, em sua plenitude, teria um momento de plenitude para tal escolha, e chamaremos esse momento de *tempo do Espírito*. E que diríamos ser o começo dos tempos, isto é, a criação do universo (o "fiat criador" visto de dentro da eternidade).
@@ -2388,7 +2388,7 @@ A alma não teve sua ação no primeiro momento da completude, mas tem potencial
 
 Temos o diferencial do ato concreto de fundamentação (que se dá na completude, como solo que confere um teor único) e o ato posterior de vivência (que se dá sob o estatuto do personalizador, ativo ou passivo na história, revelando o amor que é a vida trinitária).
 
-### **8.18. O Propósito Divino, a Regressão Infinita e o Princípio Diagonal**
+### **O Propósito Divino, a Regressão Infinita e o Princípio Diagonal**
 > Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetamos o homem vivo antes mesmo de ser criado. E chamemos essa projeção, essa ideia viva e subsistente do homem no pensamento divino, de **anjos**. Desta forma, temos seres que são vivos, porém, como projeções, preparando o caminho para a sua realização histórica.
 
 Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
