@@ -2332,14 +2332,14 @@ Podemos comparar a capacidade de ação do Espírito ao observador linear: neste
 
 ### **O Observador Eterno: A Subjetividade que Constitui o Tempo**
 > **Exemplo ilustrativo da Sala e do Quadro:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou. Se alguém sempre esteve numa sala observando um quadro, não há um momento em que "começou"; a observação é coextensiva à sua presença.
-revisado
+
 O Espírito como Observador absoluto:
 * Não tem um "primeiro momento" de observação (não é um evento no tempo, mas a condição de possibilidade do tempo).
 * Sua observação é constitutiva de seu ser (Ele é ato de observação, pura subjetividade).
 * Observa o tempo consumado *a partir de uma posição que transcende a linearidade temporal*, sendo esta transcendência a raiz do próprio tempo.
 
 Isto resolve o problema da objeção sobre quando o Espírito "despertou" ou esteve autoconsciente pela primeira vez (uma pergunta mal formulada). Pois, se sempre esteve autoconsciente e está consumado, em qual momento sua autoconsciência poderia determinar o universo? A objeção dita que sua consciência consumada já teria vivido toda a temporalidade e decidido não agir, pois teria se dado segundo sua consumação.
-
+revisado
 A resposta é que o tempo e o fenômeno podem se consumar (ter um *start* e um final) ao compararmos o Espírito com o universo finito. Porém, ao pensarmos no Espírito, que é vivo, o Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de ser inativo após a observação da totalidade de si. O ato de observar não é um evento que se conclui. O Espírito pode esgotar o tempo no que tange à observação de seus conteúdos possíveis (onisciência), mas não esgota a *ação* observadora. O infinito do Espírito continua sua vivência autoconsciente a partir da infinitude. A infinitude não é um ponto de chegada, mas o solo. Temos então uma linha de continuidade a partir da consumação.
 
 Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estância de "Infinito consciente". Este infinito consciente tem uma linha perpendicular sobre si, que é a continuação da consciência, o ato perene de estar consciente. É a diferença entre saber tudo (consumado) e viver tudo (eterno presente que se renova).
