@@ -2293,7 +2293,7 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
     * **Ausência de dimensões absolutas:** Nem a atualidade nem a infinitude podem ser delimitados espacial ou temporalmente.
     * **Dependência de um segundo termo:** O infinito só é definível em relação a atualidade (ex.: infinitude em progressão vs. infinitude consumada). A atualidade só é reconhecível em contraste com o infinito (ex.: infinito vs. progressão infinita).
 * **Dualidade Necessária:** Sem dualidade, ambos colapsam. O infinito é ininteligível sem o fluxo eventual; a eventualidade em sua integralidade é indistinguível do infinito.
-revisado
+
 **O ato único do Espírito**, em outras palavras, consiste na **transcendência do temporal**. Desse modo, o tempo pode ser percorrido como uma linha infinita, e, ao adentrarmos a dimensão temporal infinita na tentativa de medi-la, o resultado obtido é **o ato único do Ser** – um ato que compreendemos como **atemporal**.
 
 Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contém uma dimensão medível, temos o atemporal, ou seja, uma experiência que extravasa o tempo.
@@ -2303,13 +2303,13 @@ Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas si
     * *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.
 
 ### **O Problema da Temporalidade Divina: Introdução ao Paradoxo**
-A teologia filosófica e a metafísica tradicional frequentemente se debruçaram sobre a relação entre Deus e o tempo. As soluções clássicas oscilam entre conceber Deus como atemporal (eterno, num eterno presente sem sucessão) ou como temporal (existindo numa duração sem princípio nem fim). Ambas as perspectivas, tomadas isoladamente, conduzem a paradoxos aparentemente insolúveis. Se Deus é puramente atemporal, como pode agir no mundo temporal? Como pode responder a uma prece, se Sua decisão de responder já está contida num ato único e imutável? Se Deus é temporal, como pode ser a fonte e fundamento de todo o tempo, sem estar Ele mesmo sujeito a um tempo anterior que O condicione?
+A teologia filosófica e a metafísica tradicional frequentemente se debruçaram sobre a relação entre o Ser e o tempo. As soluções clássicas oscilam entre conceber o Ser como atemporal (eterno, num eterno presente sem sucessão) ou como temporal (existindo numa duração sem princípio nem fim). Ambas as perspectivas, tomadas isoladamente, conduzem a paradoxos aparentemente insolúveis. Se o Ser é puramente atemporal, como pode agir no mundo temporal? Como pode responder a uma prece, se Sua decisão de responder já está contida num ato único e imutável? Se o Ser é temporal, como pode ser a fonte e fundamento de todo o tempo, sem estar Ele mesmo sujeito a um tempo anterior que O condicione?
 
 A presente proposição busca transcender essa dicotomia, propondo uma terceira via: a temporalidade não linear do Espírito. O que se pretende demonstrar é que o tempo, no Espírito, não é uma linha reta que se esgota num antes e depois, mas uma estrutura circular viva, onde atemporalidade e temporalidade coexistem e se interpenetram, conferindo ao Ser divino uma capacidade de agir que não fica refém nem da imutabilidade estática nem do fluxo puro e simples.
 
 ### **A Circularidade Viva do Espírito: Para Além da Estaticidade**
 A circularidade do Espírito temporal não é uma circularidade morta ou estática, uma repetição vazia do mesmo — **ela é viva**. Essa vivacidade implica que o Espírito pode agir sob qualquer tempo, conferindo uma camada não linear à temporalidade. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela. A consumação não é um ponto final que aniquila o movimento, mas uma plenitude que contém em si a potência do novo.
-
+revisado
 Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumada —, a partir da própria consumação emerge uma nova dimensão. Há, portanto, três características fundamentais que se delineiam a partir dessa compreensão:
 1.  **Atemporalidade:** A consumação do tempo, o "lugar" metafísico onde todo o tempo está presente num único ato de ser. Não é ausência de tempo, mas sua plenitude sintética.
 2.  **Temporalidade:** A sucessão de momentos, a dimensão na qual o tempo se desdobra e se apresenta como sequência, duração e história.
