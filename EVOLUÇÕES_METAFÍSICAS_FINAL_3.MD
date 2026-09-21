@@ -2432,7 +2432,7 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 
 
-
+=======================================================================================================================================================
 
 
 
@@ -3690,21 +3690,6 @@ As pessoas se difereciam pelo nivel de liberdade. O nivel de liberdade se faz te
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-################################
-
 # Sintese
 
 Através do principio da causalidade, chegamos a conclusão de uma realidade incausada, pura, indiferenciada, pois ao supormos qualquer determinação para o absoluto, a determinação colapsa em relativo. Até mesmo ao supormos o nada, a investigação aponta que o nada não sub existe sem um referencial, sem o inefável. O nada por si mesmo não oferece sentido lógico. Porém, para inferir sobre a substancia incausada, temos que, portanto, deliminar o que é o contingente, o que seria o causado. Ao reduzirmos o causado, seja este uma determinação como nada ou existência, esclarecemos o cenário para inferirmos sob o inefável.
@@ -3878,38 +3863,6 @@ O pecado original do homem vem de uma indefinição direta, sem parentesco anter
 Os anjos são a mentalização espiritual, a projeção do homem.
 
 A blasfêmia é um autossabotamento: o corpo tenta se adequar.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-hhhhhh
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -4188,34 +4141,9 @@ Os quatro princípios assimétricos — **Indiferenciação Fundamental, Inclus�
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 # A LÓGICA FUNDAMENTAL
 
 A lógica que opera no indierenciado
-
-
-
-
-
-
-aaaaa
-
-
-
 
 
 
@@ -4979,7 +4907,6 @@ Isto quer dizer que, embora o personalizador esteve sempre com o consumador, o f
 
 
 
-Claro. Mantive **o conteúdo e a linha filosófica das suas ideias**, apenas corrigi o português, organizei a pontuação e eliminei repetições/ruídos de digitação.
 
 Não funciona buscar o que há em absoluto.
 
@@ -5062,64 +4989,7 @@ Uma realidade pura necessariamente tem sua identidade fundida à sua fundamenta�
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+=====================================================
 
 
 
@@ -5181,37 +5051,6 @@ Ou, inversamente:
 A investigação do Nada, nesse sentido, não constitui uma digressão preliminar, mas o próprio ponto de partida para determinar se existe uma diferença fundamental entre **o Nada absoluto**, que não pode possuir qualquer propriedade, e **uma realidade indeterminada ou potencial**, que, justamente por possuir potencialidade, já pertence de algum modo ao domínio do Ser.
 
 **Observação importante:** as citações de Hegel sustentam muito bem a parte sobre a aproximação entre **Ser, Nada, indeterminação e devir**. Já Aristóteles é especialmente útil para sustentar sua crítica à ideia de que o Nada possa ser uma **potência**, porque, na estrutura aristotélica, potência é justamente uma capacidade ou princípio de mudança — portanto, não equivale a uma ausência absoluta. ([Perseus][2]) Tomás de Aquino, por sua vez, é uma boa referência para a distinção entre **criação** e **transformação de uma matéria preexistente**. ([Novo Advento][1])
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -5309,18 +5148,6 @@ Eleger o relativo como realidade ontológica implica em retornar ao marco zero, 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 ## O Nada como Existência Relacional
 
 Ao concebermos o nada como algo representável, fazendo-o como uma existência potencialmente manifestável — isto é, como uma nulidade ou neutralização do existente —, estamos operando ainda dentro de um quadro existencial. Esse "nada" não é uma ausência absoluta, mas uma **negação determinada**, dependente de um referencial. Nesse sentido, o **nada** poderia ser interpretado como existência, uma possibilidade dentro do campo do Absoluto. Ele não é autossuficiente, mas **determinado pelo que nega**. Assim, o signo mental do Nada deixa de ser um mero índice de vacuidade e passa a operar como o horizonte primordial de onde a pura atualidade do Ser irrompe.
@@ -5403,11 +5230,6 @@ Ao considerarmos o nada como uma realidade potencial, temos o potenciado como fu
 
 
 
-
-
-
-
-
 Denominaremos, portanto, nossa substância bruta — o nada — como 'absoluto', avançando na investigação de propriedades que transcendam a mera potência dentro desse escopo. É preciso notar que a atribuição do termo 'absoluto' ao nada não se confunde com o conceito de 'nada absoluto' — o qual inviabilizaria a coexistência de outras propriedades —, mas qualifica o nada como a máxima expressão cognoscível do incausado que inferimos até o momento.
 
 
@@ -5416,30 +5238,6 @@ Começaremos a utilizar o conceito de "nada" não em sua acepção vulgar — co
 
 
 Ao tentarmos supor duas propriedades diferentes, o determinado como um indeterminado, é mais uma tentativa de purificar o determinado. Está tentativa, destrói a forma, e não resulta nem no indiferenciado verdadeiro (Ser), e nem no nada, pois ainda tenta carregar um substancia ilógica, um mundo que só persiste e é por definição determinado, porém é indeterminado ao mesmo tempo.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -5494,17 +5292,6 @@ Ao se afirmar o auto ausar, o auto querer, se pergunta, auto querer de que? Não
 
 
 
-
-
-
-
-
-
-
-
-
-
-
 Ao concebermos a indiferenciação do todo que se opõe ao nada — numa tentativa de evitar que ele seja mutuamente excludente em relação ao Nada —, o que alcançamos é a indiferenciação da própria determinação. Nesse horizonte, as possibilidades particulares (A, B, C...) fundem-se em um substrato informe que, contudo, permanece indubitavelmente existente.
 
 Logo, o estado indiferenciado atesta a sua própria existência. 
@@ -5513,35 +5300,14 @@ Logo, o estado indiferenciado atesta a sua própria existência.
 
 É sobre este horizonte de eventos cognitivo — esta singularidade dinâmica do Inominável — que lançaremos agora a luz da autocausalidade.
 
-
-
-
 A verdadeira singularidade do nada escapa à razão; o irrepresentável seria, de fato, o elemento com propriedade autocausal.
 
 Agora, a busca direciona-se ao **espectral**. Assumindo-se a impossibilidade de conceituar o nada absoluto, e reconhecendo que tal gesto é uma tentativa da razão de subjugar a realidade, utilizaremos o limite máximo do resultado dessa tentativa. Ainda que o nada seja irrepresentável ou logicamente contraditório por sua própria definição, ele permanece como a ferramenta sobressalente de que dispomos nessa jornada de dominar o real. Busquemos agora, através de princípios causais, rastrear *espectros no nada*, a fim de averiguar, em um âmbito relacional, o vácuo ontológico deixado por ele.
 
 
-
-
-
 Ao partirmos a investigação acerca do inefável a partir do mundo contingente, temos a inferência indireta, se há algo, esse algo partiu de uma pureza positiva que teria o poder de causar a realidade sem uma ontologia negativa como o nada como suporte. Porém, essa forma de inferência é indireta. Ao averiguarmos as propriedades do absoluto, podemos fazer tal inferencia de forma direta, e alem disto, podemos traçar, delinear melhor os traços do inefavel, como seu aspecto temporal, sua intencionalidade e liberdade.
 
-
-
-
 A auto posição absoluta se dá pelo principio, isto é, o principio é definido pelo próprio absoluto. No principio está a soberania.
-
-
-
-
-
-
-
-
-
-
-
-
 
 ## Conclusão da Hipótese Especulativa
 
@@ -5569,10 +5335,6 @@ Através da inferencia indireta da substancia incausada, temos que, só podemos 
 A primeira pessoa é o desejo por si como existente, a segunda pessoa é desejar esse existente como pleno. E a terceira é desejar com uma referencia própria, uma pessoa gerada pelo auto querer, que escolhe entre duas opçoes semelhantes em direçao a sua plenitude.
 
 
-
-
-
-
 Na auto causalidade absoluta não existe quem queira, o sujeito do querer, pois o sujeito é uma determinação, não existe algo, no sentido comum da existencia, não há uma existencia, e nem mesmo a não existencia. O que há é a auto causalidade pura, sem ser despertada por um sujeito, e sem um direcionamento ontológico.
 
 Desta forma temos o puro auto querer, não temos a existência, temos o existir. Nao temos uma consciência com direcionamento, temos o próprio amor consciente. Não temos a existencia, temos a pureza que dilui a existencia determinada em um existir. 
@@ -5589,22 +5351,9 @@ Isto é, o próprio auto querer, um ato atemporal, infinito, se formaliza como o
 
 A intenção forma um agente para a intenção. Portanto, o Ser não é uma pessoa que ama, mas o amor que se faz pessoa. Não é uma existencia ou ente que ama, mas é o amor que cria o ente ou a existencia.
 
-
-
-
-
 Completa-se aqui a investigação sobre o nada. Porém, não se completa a investigação sobre o absoluto. Por agora, iremos inferir além do próprio conceito de nada ou de existência, isto é, pelo conceito do indiferenciado, o que poderia despertar toda a cadeia causal e que está além da existência ou na nulidade.
 
 Se o conceito de nada tornou-se dependente de um angulador para se realizar, buscaremos esta possibilidade de angulação analisando as propriedades do inefável. Ao considera-lo que tem as propriedades necessarias para realizar a angulação, temos, portanto nada, e até mesmo o despertar deste nada em recortes
-
-
-
-
-
-
-
-
-
 
 Deus é puro sentido.
 
@@ -5674,43 +5423,11 @@ O membro de uma facção é acima de tudo alguém que compra a própria possibil
 
 Qualquer ato humano é tirado do nada.
 
-
-
-
-
-
-
-
-
-
-
-
-
 Numa abordagem direta inferimos o Ser a partir do próprio Absoluto, e não a partir do contingente. Porém, sempre é inferido, o Ser, a partir do contigente. E isto não revela os traços do Ser de forma delineada, como a intencionalidade, a dimensionalidade da liberdade divida entre pessoas, a temporalidade do Ser. Porém, só é possível deduzir indiretamente o Ser pela pureza, e é por isso dito Ser. Porém, não se encontra outras características deduzindo o Ser de forma indireta. O amor pode ser infinito, pode ser puro. Não necessita de determinação, por carregar, por si só, o teor de pureza. Pode ser a doação total.
-
-
-
 
 O universo colapsado em pura possibilidade não possui sentido intrínseco até ser "observado" ou "recortado" por uma consciência relacional. Este "Espírito Angulador" não depende do nada; pelo contrário, ele dá sentido ao espaço infinito. No Absoluto, a existência não é um acidente mecânico, mas um imperativo: Ele é sua própria causa (autocausado), movido por uma retidão inabalável em direção à vida e à plenitude. O palco de cristal da realidade passa a ser governado puramente pelo aspecto relacional do Absoluto.
 
-
-
 Quando imagainamos o nada absoluto sob a causalidade temos uma visão mais clara do Ser, o Ser que se auto causa, se faz ser, não é um existente, mas é o processo de construção de si, sem determinar um si. É o auto querer por si e o auto se fazer através da substancia do próprio querer-se.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 Esta autocausalidade opera simultaneamente nos planos atemporal (autofundação definitiva) e temporal (autossustentação contínua), revelando o Absoluto como Presença Autofundante que transcende as dicotomias reducionistas.
 
@@ -5725,54 +5442,15 @@ A aplicação da auto causalidade ao Absoluto revela uma estrutura dinâmica ún
 
 Metáfora Ilustrativa: Consumação do passado, presente e futuro num instante único, criando uma natureza atemporal a partir do temporal.
 
-
-
-
-
 Causar envolce um agente
 Pois exige propriedades
 Nao é um ato mecanico de efeito e consequencia
 Ao somar o causar ao agebte temos o caussr como ser. Entao não há mais o causar, há o causar e unido ao agente. Pois o autor da causa é o causar.
 
-
 Falar sob o impossível que não é disruptivel. 
 E falar sob a impossibilidade igual a nada, pois a possibilidade perde seus contornos. 
 
-
 O niilista é como um individuo que olha de uma janela a festa do mundo, a alegria da vida, e precisa ser o senhor de engenho que cessa toda a alegria com trabalhos pesados, formando uma elite na qual imagina uma superioridade. Desta forma, o niiilista acaba com a festa aparente da vida, deixando com que a alegria do homem fique ocultada por seu rosto cansado, privado de seu lazer e dos bens disposníveis, belezas naturais, etc. O niilista, por vezes, sente grande mal estar em ver o manifestar da alegria social, a alegria de infancia da sociedade ao simples proveito dos bens que a natureza oferece.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 A distinção lógica entre a negação de um ente determinado e a negação do ser indiferenciado (o Absoluto) é um problema central na história da ontologia e da metafísica. Abaixo estão as principais referências bibliográficas e os argumentos de filósofos que fundamentam essa exata tese:
 
@@ -5821,53 +5499,30 @@ Embora antigo, Parmênides funda a base desse raciocínio ao estabelecer a absol
 * Para Parmênides, as coisas determinadas e mutáveis, que estão sujeitas ao acréscimo e à diminuição (o contingente), pertencem ao mundo da "Opinião" (Doxa) e das ilusões humanas.
 * Quando se trata da Verdade (Aletheia), o Ser é uno, contínuo, indivisível (indiferenciado) e pleno. A premissa central é que "O ser é, e o não-ser não é". Negar o Ser (o indiferenciado absoluto) é impossível não apenas fisicamente, mas para o próprio pensamento. Não é possível sequer pensar no nada absoluto sem transformá-lo em "algo" na mente, comprovando que o Absoluto repudia estruturalmente a negação.
 
-
 A consciência  sugere temporalidade conhecimento consumado e atualizado ao mesmo tempo.
  
-
 Causar envolve um agente
 Nao é um ato mecanico de efeito e consequencia
 Pois exige propriedades
 Ao somar o causar ao agente temos o causar como ser
 
-
-
 A soberania do Espírito não é uma auto determinação, pois não há o produto determinado, o nada ontológico não é uma determinação e não existe. Só há a necessariedade, a auto causalidade. O fator auto causal não se divide em fundamento e determinação.
 
 Portanto, o Ser é autor de sua soberania, mas esse não é um estado determinado. É um estado indiferenciado do Ser. 
-
 
 Sendo auto causal o espirito é autor de sua soberania, é autor do seu auto conhecimento, é autor da sua atualização e consumação, desenvolve três liberdades distintas.
 
 Sendo auto causal torna-se Ser. A auto causalidade desdobra e continua todas as caracteristicas divinas, podendo, até mesmo chegar até o homem para encontrar a verdadeira definição de pecado.
 
-
-
 O Ser, inferido através de aspectos relacionais, é um Ser leve, um Ser relacional. Que não está preso a forma, que não pode ser negado em detrimento de outra forma. Sua estadia não é uma negação de outras formas, é uma pureza relacional. 
 
 A auto causalidade cria a consciência. Pois o auto causar envolve conhecer, dominar e estar presente. 
 
-
-
 Exemplo, para fins de entendimento, vamos considerar o absoluto auto determinado, isto quer dizer que, consideraremos o nada ontológico e que este nada é de autoria da determinação do Espírito. O nada determinado nada, nega todas as outras possibilidades. Isto quer dizer que, se o Espírito nega as outras possibilidades, é condição do Espírito aceita-las. Porém, o Espírito nao é determinado, e o nada não existe, portanto, não é possível que haja uma determinação no contexto da soberania do Absoluto. 
-
 
 O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável. 
 
 O próprio ato de causar-se é o seu próprio efeito.
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 ### Causação e Ser
 
@@ -5917,38 +5572,18 @@ A diferença entre o autocausar e o Ser é nenhuma.
 
 A consciência sugere temporalidade, conhecimento consumado e refrescado, atualizado.
 
-
-
-
 Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, mas teve sua ação direta e histórica concretizada a partir de um momento único posterior à criação. Não houve um processo de criação da alma de Jesus diretamente do Espírito no tempo, pois seu agir já estava operante desde sempre na fundamentação. O que houve foi uma *ativação* da ação personalizadora da segunda pessoa da Trindade na história. Temos, portanto, uma alma gerada no tempo (a humanidade de Jesus), ao passo que também sempre existiu atemporalmente (a divindade do Verbo).
 
 
 > Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude e personalidade — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetamos o homem vivo antes mesmo de ser criado. E chamemos essa projeção, essa ideia viva e subsistente do homem no pensamento divino, de **anjos**. Desta forma, temos seres que são vivos, porém, como projeções, preparando o caminho para a sua realização histórica.
 
 
-
-
-
-
-
-
-
-
-
 Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
-
-
 
 
 Portanto, o Ser, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no nada. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante. Assim, **o tempo do Espírito pode determinar sobre o nada** precisamente porque Deus está além do tempo e da atemporalidade. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, extrapolando o absoluto cognoscível. Se o relativo não pode se autodeterminar, a auto causalidade (o Espírito observador) confere uma linha *perpendicular* ao tempo consumado a partir da aparição do Absoluto.
 
 
-
-
-
-
-
-| **Infinito Vertical** | A Identidade do "Deus sobre Deus" (Elevação ao Infinito). | Autoconsciência absoluta e onisciência consumada. |
 
 
 
@@ -5981,3 +5616,5 @@ Perguntas como *"Se Deus é tudo, como algo que não é Deus pode ainda existir?
 
 ### **O Nada como Primeira Janela a Ser Limpa: A Experiência do Vazio Ontológico**
 Antes de contemplarmos a plenitude, devemos nos deter no vazio. O nada não é um mero conceito abstrato; é uma experiência limítrofe da consciência, um horizonte que se abre quando todas as determinações são suspensas.
+
+| **Infinito Vertical** | A Identidade do "Deus sobre Deus" (Elevação ao Infinito). | Autoconsciência absoluta e onisciência consumada. |
