@@ -2186,7 +2186,6 @@ O Absoluto é **Espírito Autocausal**:
 * **Autolibertário** (define sua própria ação)
 * **Automanifestante** (a realidade é sua expressão, não sua limitação)
 
-
 O Ser como Auto causador: O Absoluto auto causado é, em sua manifestação concreta, o Ser (ato puro de existência autofundada). "Ser" aqui não é um conceito vazio, mas a própria realidade em ato, que: 1) Existe (autofundamentação); 2) Se define (autodeterminação); 3) Persiste (autocontinuidade). 
 
 Considerando que o Ser é indiferenciado, então a ação de auto fundamentação é fundida a ação de autodeterminação, sendo uma auto causalidade.
@@ -2232,33 +2231,32 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 **A Auto causalidade como Ciclo Infinito:**
 * **Direcionamento e Redirecionamento** $\rightarrow$ O Espírito não apenas **se causa,** mas **repete-se a si mesmo** infinitamente. (*Exemplo:* Um rio que, ao fluir, redefine seu próprio leito — mas o rio (o Espírito) permanece o mesmo).
 * **Fim e Começo Identificados** $\rightarrow$ O "resultado" da auto causalidade é **sempre o próprio Espírito,** reiniciando o ciclo. (*"O que busca já é o buscado."*)
-revisado
 
 **Reverberação Espacial e Temporal:**
 * **Pureza** $\rightarrow$ O Espírito se encontra **em contexto** (um "quem" que é sempre Ele mesmo).
-* **Temporalidade** $\rightarrow$ O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço). A **manifestação** é o Espírito se autodeterminando, sob a perspectiva de uma "causalidade em progresso".
+* **Temporalidade** $\rightarrow$ O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço). A **manifestação** é o Espírito se auto causando, sob a perspectiva de uma "causalidade em progresso".
 
 ### **O Espírito como Causa de Si no Tempo e na Eternidade**
 * **Fundamento** $\rightarrow$ O Espírito é **causa imediata** de sua existência (não precisa de "outro").
 * **Autocontinuidade** $\rightarrow$ O Espírito é **causa contínua** de sua manifestação (gera tempo e espaço).
 
 Isso unifica: **Eternidade** (Espírito em ato) e **Temporalidade** (Espírito em processo).
-* Na temporalidade, todas as ações são manifestadas de forma temporal: possível, impossível e incognoscível.
+* Na temporalidade, todas as ações são manifestadas de forma temporal: possível, impossível não disrutivo e incognoscível.
 * Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente às determinações temporais.
 
 ### **A Unidade Não-Polar da Autocausalidade Espiritual**
-A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Determinador é puro até para Si mesmo. Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato. 
+A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Auto causador é puro até para Si mesmo. Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato. 
 
 O Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão. Sua pureza dispensa essa oscilação — pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translúcido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da distinção entre existência potencial e atual. Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido). Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento.
 
 O Espírito já é a consumação de toda sua existência em progressão, de forma que, seja tudo em ato ao passo que pode se aprofundar desse "tudo" de forma a encontrar o seu âmbito "temporal". Ou seja, ao imaginarmos uma transcendência do temporal, de forma a esgotarmos um tempo infinito até encontrarmos o seu resvalo, temos, portanto, o tempo em ato único que é o tempo resumido em sua linha progressiva e regressiva infinita. 
 
-Desta forma, temos a atemporalidade como sinônimo da temporalidade, definindo o atemporal como síntese de um temporal elevado ao seu limite, ou transcendido em sua essência dimensional. O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo.
+Desta forma, temos a atemporalidade como sinônimo da temporalidade, definindo o atemporal como síntese de um temporal elevado ao seu limite. O conceito de "mal infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo.
 
 * **Causalidade com agente puro:** A autocausalidade do Ser não estabelece uma oposição entre ato único e processo sustentador; ambas as autocausalidades não colidem, mas se sintetizam em uma única realidade.
 
 ### **O Tempo do Espírito vs. O Tempo Fenomênico**
-O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se. O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente.
+O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se. O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional do tempo e transcendente.
 
 **1. Natureza do Tempo Fenomênico**
 * **Progressão e Regressão Limitadas:** O tempo fenomênico avança (progressão) e recua (regressão) dentro de uma estrutura dimensional fixa. Sua linha temporal é **finita em manifestação**, ainda que aspire ao infinito.
@@ -2266,18 +2264,19 @@ O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limi
 * **Visão Dimensional:** O observador no tempo fenomênico percebe apenas **fatias da realidade** (presente, passado, futuro). O infinito não se manifesta no campo fenomênico como experiência direta.
 
 **2. Natureza do Tempo Espiritual**
-* **Progressão como Encontro Consigo Mesmo:** O tempo do Espírito não se estende linearmente, mas **se recolhe em si mesmo** a cada ato de autodeterminação. Sua "linha temporal" é uma **espiral ontológica**, onde cada momento é **simultaneamente origem e consumação**.
+* **Progressão como Encontro Consigo Mesmo:** O tempo do Espírito não se estende linearmente, mas **se recolhe em si mesmo** a cada ato de auto causa. Sua "linha temporal" é uma **espiral ontológica**, onde cada momento é **simultaneamente origem e consumação**.
 * **Infinito Realizado no Ato:** Enquanto o tempo fenomênico **busca** o infinito, o tempo espiritual **já o é** em cada instante de sua automanifestação. A retroalimentação do Espírito não é uma repetição vazia, mas um **eterno retorno ao Ser pleno**.
 * **Visão Transcendente:** O observador no tempo espiritual não percebe o infinito como algo distante, mas como **fundamento imediato** de sua própria consciência. A temporalidade não é uma sucessão de "agoras", mas um **eterno presente que engloba passado e futuro**.
 
-**Conclusão: Duas Modalidades Temporais Radicalmente Distintas:** O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas uma **modalidade ontológica radicalmente distinta**. No fenômeno, o tempo é **procura sem fim**. No Espírito, o tempo é **encontro perpétuo consigo mesmo**. Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — não como duração infinita, mas como **presença absoluta que transcende toda medida**.
+**Conclusão: Duas Modalidades Temporais Radicalmente Distintas:** O tempo do Espírito não é uma "versão ampliada" do tempo fenomênico, mas uma **modalidade ontológica radicalmente distinta**. No fenômeno, o tempo é **procura sem fim**. No Espírito, o tempo é **encontro perpétuo consigo mesmo**. Enquanto o primeiro está condenado à incompletude, o segundo **já habita a eternidade** — como **presença absoluta que transcende toda medida**.
 
 ### **Estruturando a Infinitude: A Dissolução do Tempo no Ato Atemporal**
-* **Dissolução Espacial:** A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável, dissolvendo a distinção entre proximidade e distância ontológica.
-* **Tempo Potencial e Expresso (Atemporalidade):** O tempo existe em dois modos: 1) **Tempo expresso** (manifestado, atualizado); 2) **Tempo inexpresso** (potencial não realizado). A infinitude consome ambos, anulando a distinção entre manifestação e não-manifestação temporal. A infinitude consuma o tempo em sua expressão e inexpressão, transcendendo a própria dicotomia entre atual e potencial.
+* **Dissolução Espacial:** A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável, dissolvendo a distinção entre proximidade e distância ontológica. Exemplo: Não há um onde no amor, no qual ele nasce e se encontra. Como numa fonte que nasce e jorra nela mesma. Pois o onde seria uma dimensão espacial, há somente o quem e não o onde. 
+
+Exemplo: * **Tempo Potencial e Expresso (Atemporalidade):** O tempo existe em dois modos pelo observador deste mundo: 1) **Tempo expresso** (manifestado, atualizado); 2) **Tempo inexpresso** (potencial não realizado). A infinitude consome ambos, anulando a distinção entre manifestação e não-manifestação temporal. A infinitude consuma o tempo em sua expressão e inexpressão, transcendendo a própria dicotomia entre atual e potencial. Na infinitude do Espírito o tempo potencial já está consumado, ao passo que ainda é presente.
 
 **Formulação Final:** O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
-
+revisado
 ### **A Circularidade Viva do Espírito e a Temporalidade Linear**
 Ao usarmos a comparação do Espírito como um círculo que se desdobra no tempo e se repete infinitamente numa linha reta, tendemos a pensar (somos levados a imaginar) que seu autodomínio, autopresença e autoconhecimento percorrem os elos à medida que o tempo avança em sua internalidade. Porém, essa é uma visão mundana do tempo. 
 
