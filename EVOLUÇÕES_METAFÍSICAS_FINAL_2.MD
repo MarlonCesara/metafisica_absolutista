@@ -2394,25 +2394,64 @@ Temos o diferencial do ato concreto de fundamentação (que se dá na completude
 **A Regressão Infinita e a Solução Transcendente:**
 Mesmo que se encontre o "*start*" da ação, haveria uma constante ação desde o momento da plenitude, e está sendo passividade. Uma ação passiva. Pois, a soberania é uma ação soberana que se dá sem que seja necessária qualquer ação prévia. Não é uma determinação, pois nada determina, só há auto posição soberana do Espírito. Porém, se o tempo é consumado, em toda está consumação houve essa ação de soberania. 
 
+Se o indiferenciado se dá como tal, como explicar a transição para a determinação da criação sem violar sua pureza? Ao considerar que o absoluto se deu como acionado no quesito determinado, isso provoca um infinito de regressões: se o tempo do Espírito se deu determinado, exige um determinador, e este ultimo determinador temporal, também está determinado e exige por sua vez outro determinador.
+
+Para agir sobre o consumado, não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio tempo do Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Ser — um **"Ser sobre Ser"** — e neste haveria uma temporalidade mantendo a consumação. E nesse "Ser sobre Ser", que se estende ao infinito, numa sucessão causas infinitas, nunca haveria uma causa temporal definitiva. Pois sempre, nas consumações haveria uma determinação. Um tempo determinado na consumação já estabelecido, porém o tempo Espiritual não se deu determinado pelo start da criação. O start foi decidido pelo atualizador, e não era uma mecânica pré estabelecida na consumação.
+
+Exemplo: O Ser em uma linha infinita de números, e a totalidade desses números é o atemporal. Porém, um desses números já estava pré determinado a ser o start da criação. Porém, se assim é, o absoluto é determinado, então exigiria um determinador. Porém, outro determinador sendo outro Ser cairia do mesmo conflito. Portanto,  a solução é considerar que o start da criação não é uma determinação no tempo consumado, mas é uma decisão no tempo atualizado, uma decisão do Espírito personalizador. Por está linha ilógica poderíamos chegar no seguinte erro: 
+
+Isto indica que, enquanto a pessoa da fundamentação decidiu a plenitude, isto é, a pessoa fundamentadora é poder e decisão por esse poder retilíneo, plano e pleno. A pessoa personalizadora não decide só pelo poder fundante, mas decide a maneira com que se manifesta as decisões determinísticas desse poder entre infinitas decisões possíveis. E isto revela que o personalizador participou da criação.
+
+
 revisado
 
-Se o indiferenciado se dá como tal, como explicar a transição para a determinação da criação sem violar sua pureza? Tende ao infinito uma regressão: se algo agiu sobre o tempo do Espírito e este porta o tempo, regride infinitamente o tempo primeiro que teve a primeira ação. O Absoluto precisaria de uma determinação em si.
 
-Para agir sobre o consumado, não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio tempo do Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Deus — um **"Deus sobre Deus"** — e nesta haveria uma temporalidade mantendo a consumação. E nesse "Deus sobre Deus", que se estende ao infinito, teria a ação do determinador.
-
-Portanto, Deus, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no nada. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante. Assim, **o tempo do Espírito pode determinar sobre o nada** precisamente porque Deus está além do tempo e da atemporalidade. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, extrapolando o absoluto cognoscível. Se o relativo não pode se autodeterminar, a auto causalidade (o Espírito observador) confere uma linha *perpendicular* ao tempo consumado a partir da aparição do Absoluto.
 
 ### **Síntese Final: A Arquitetura do Tempo Divino**
-O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que Deus tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio e o fim, mas vive o meio com a frescura criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, no amor da Trindade.
+O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que o Ser tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio, meio e fim, mas vive a atualidade com a atualização criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, no amor da Trindade.
 
 | Dimensão do Infinito | Ação Metafísica correspondente | Relação com a Auto causalidade |
 | :--- | :--- | :--- |
 | **Infinito Horizontal** | A Existência Atemporal e Imutável. | Auto fundamentação pura do Ser. |
-| **Infinito Vertical** | A Identidade do "Deus sobre Deus" (Elevação ao Infinito). | Autoconsciência absoluta e onisciência consumada. |
-| **Infinito Diagonal** | A Vontade e Liberdade de Criação (O *Start* Fenomênico). | Princípio de decisão que quebra a estaticidade. |
-| **Infinito Perpendicular** | A Ação Viva no Tempo do Espírito (Renovação Perene). | Observador Eterno atualizando o que sempre foi conhecido. |
+
+| **Infinito vertical** | A Vontade e Liberdade de Criação (O *Start* Fenomênico). | Princípio de decisão que quebra a estaticidade. A Ação Viva no Tempo do Espírito (Renovação Perene). | Observador Eterno atualizando o que sempre foi conhecido. |
 
 ---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -5931,3 +5970,16 @@ Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, 
 
 
 Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
+
+
+
+
+Portanto, o Ser, quando causa a si mesmo, **eleva-se ao infinito**. Há uma realidade última inalcançável, que determina inexplicavelmente pela lógica, no nada. Um Deus temporal inalcançável até para si mesmo, que transcende a si num ciclo temporal causal a todo instante. Assim, **o tempo do Espírito pode determinar sobre o nada** precisamente porque Deus está além do tempo e da atemporalidade. A realidade inalcançável pela razão dá vazão ao ato mesmo dentro da plenitude atemporal. Deus é uma fonte causal que se desdobra para o infinito rumo a si mesmo, extrapolando o absoluto cognoscível. Se o relativo não pode se autodeterminar, a auto causalidade (o Espírito observador) confere uma linha *perpendicular* ao tempo consumado a partir da aparição do Absoluto.
+
+
+
+
+
+
+
+| **Infinito Vertical** | A Identidade do "Deus sobre Deus" (Elevação ao Infinito). | Autoconsciência absoluta e onisciência consumada. |
