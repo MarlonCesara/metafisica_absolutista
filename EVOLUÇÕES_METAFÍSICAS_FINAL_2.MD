@@ -2386,16 +2386,17 @@ A alma do Verbo, dessa forma, sempre existiu de modo nativo na Trindade; porém,
 Não há um processo de criação da alma do absoluto diretamente do Espírito da plenitude no tempo do Espírito, pois o personalizador já estava operante desde sempre na fundamentação. O que há é uma *ativação* da ação personalizadora da pessoa personalizadora. Temos, portanto, uma alma ativada no tempo consumado, ao passo que também sempre existiu atemporalmente.
 
 A alma não teve sua ação no primeiro momento ou ultimo momento da completude, mas tem potencial de ação no tempo total do Espírito. Temos a plenitude e totalidade do tempo do Espírito (o fundamentador), e uma vivência temporal personalizável (a alma). O Espírito, no momento de sua integralidade eterna, é como tal (completude); mas no tempo presente do Espírito, há o progresso numa linha perpendicular à completude eterna.
-revisado
+
 Temos o diferencial do ato concreto de fundamentação (que se dá na completude, como solo que confere um teor único) e o ato posterior de vivência (que se dá sob o estatuto do personalizador, ativo ou passivo na história, revelando o amor que é a vida trinitária).
 
 ### **O Propósito Divino, a Regressão Infinita e o Princípio Diagonal**
-> Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetamos o homem vivo antes mesmo de ser criado. E chamemos essa projeção, essa ideia viva e subsistente do homem no pensamento divino, de **anjos**. Desta forma, temos seres que são vivos, porém, como projeções, preparando o caminho para a sua realização histórica.
-
-Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
 
 **A Regressão Infinita e a Solução Transcendente:**
-Mesmo que se encontre o "*start*", como se define a constante ação desde o momento da plenitude? Se o indiferenciado se dá como tal, como explicar a transição para a determinação sem violar sua pureza? Tende ao infinito uma regressão: se algo agiu sobre o tempo do Espírito e este porta o tempo, regride infinitamente o tempo primeiro que teve a primeira ação. O indeterminado precisaria de uma determinação em si.
+Mesmo que se encontre o "*start*" da ação, haveria uma constante ação desde o momento da plenitude, e está sendo passividade. Uma ação passiva. Pois, a soberania é uma ação soberana que se dá sem que seja necessária qualquer ação prévia. Não é uma determinação, pois nada determina, só há auto posição soberana do Espírito. Porém, se o tempo é consumado, em toda está consumação houve essa ação de soberania. 
+
+revisado
+
+Se o indiferenciado se dá como tal, como explicar a transição para a determinação da criação sem violar sua pureza? Tende ao infinito uma regressão: se algo agiu sobre o tempo do Espírito e este porta o tempo, regride infinitamente o tempo primeiro que teve a primeira ação. O Absoluto precisaria de uma determinação em si.
 
 Para agir sobre o consumado, não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio tempo do Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Deus — um **"Deus sobre Deus"** — e nesta haveria uma temporalidade mantendo a consumação. E nesse "Deus sobre Deus", que se estende ao infinito, teria a ação do determinador.
 
@@ -5915,3 +5916,18 @@ A consciência sugere temporalidade, conhecimento consumado e refrescado, atuali
 
 
 Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, mas teve sua ação direta e histórica concretizada a partir de um momento único posterior à criação. Não houve um processo de criação da alma de Jesus diretamente do Espírito no tempo, pois seu agir já estava operante desde sempre na fundamentação. O que houve foi uma *ativação* da ação personalizadora da segunda pessoa da Trindade na história. Temos, portanto, uma alma gerada no tempo (a humanidade de Jesus), ao passo que também sempre existiu atemporalmente (a divindade do Verbo).
+
+
+> Deus desenvolveu no tempo o propósito de criar o homem, pois isso se relaciona com sua plenitude e personalidade — foi pleno que gerasse mais vida na esfera do real. O propósito de criar o homem foi criado no tempo, sendo este propósito também vivo. De forma que projetamos o homem vivo antes mesmo de ser criado. E chamemos essa projeção, essa ideia viva e subsistente do homem no pensamento divino, de **anjos**. Desta forma, temos seres que são vivos, porém, como projeções, preparando o caminho para a sua realização histórica.
+
+
+
+
+
+
+
+
+
+
+
+Se Deus transcende infinitamente a identidade e o Ser numa linha vertical, isto significa que há mais princípios lógicos além dos eixos horizontal (existência) e vertical (identidade). Há um **princípio diagonal** — que não é a identidade nem a existência pura — que permite decisões na esfera divina. O existir e a identidade, por si sós, não permitem decisões em sua esfera. A decisão de criação deveria estar no ato único, mas este ato único contém em si a dinâmica diagonal da liberdade.
