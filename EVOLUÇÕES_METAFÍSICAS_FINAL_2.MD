@@ -2276,14 +2276,14 @@ O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limi
 Exemplo: * **Tempo Potencial e Expresso (Atemporalidade):** O tempo existe em dois modos pelo observador deste mundo: 1) **Tempo expresso** (manifestado, atualizado); 2) **Tempo inexpresso** (potencial não realizado). A infinitude consome ambos, anulando a distinção entre manifestação e não-manifestação temporal. A infinitude consuma o tempo em sua expressão e inexpressão, transcendendo a própria dicotomia entre atual e potencial. Na infinitude do Espírito o tempo potencial já está consumado, ao passo que ainda é presente.
 
 **Formulação Final:** O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
-revisado
+
 ### **A Circularidade Viva do Espírito e a Temporalidade Linear**
 Ao usarmos a comparação do Espírito como um círculo que se desdobra no tempo e se repete infinitamente numa linha reta, tendemos a pensar (somos levados a imaginar) que seu autodomínio, autopresença e autoconhecimento percorrem os elos à medida que o tempo avança em sua internalidade. Porém, essa é uma visão mundana do tempo. 
 
 Pois o tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito. No universo presente, a **temporalidade linear do fenômeno** é percorrida pelo observador de uma forma linear, não é vivenciada simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde; à medida que o tempo avança, o observador obtém um novo tempo e o tempo passado se vai.
 
-No Espírito, ao contrário, o tempo todo é vivência imediata, há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva) tal como um observador contingente neste mundo. O Espírito é o próprio tempo em toda sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado. 
-
+No Espírito, ao contrário, o tempo todo é vivência imediata, há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva) tal como um observador neste mundo. O Espírito é o próprio tempo em toda sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado. 
+revisado
 Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio) como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade não é duração infinita, mas a posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
 
 ### **O Infinito e o Tempo: Princípios Indiscerníveis**
