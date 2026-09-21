@@ -1976,6 +1976,8 @@ Assim, a plenitude é o espaço ontológico no qual necessidade e liberdade deix
 
 Nesse sentido, a plenitude não é simplesmente o resultado da existência nem um objetivo externo a ela; é a própria convergência entre a afirmação do existir e a liberdade de consentir com esse esse existir.
 
+Temos, então, a pessoa que funda. A pessoa que interconecta, que responde face a ser como um todo e não somente ser. E a pessoa que personaliza. Embora o Ser seja necessário, ser como um todo está num nível de escolha, pois o absoluto é em prol de si mesmo, segundo a si mesmo, portanto, toda necessidade, é na verdade, perfeição. Desta forma, o absoluto não é absoluto por obrigação, mas por escolha arbitrária, pela perfeição de ser incapaz de não ser, de renegar essa escolha eternamente não somente por seu ato da plenitude, mas por si mesmo.
+
 ### Unidade na Trindade e Correlação Sistemática
 Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o Ser não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável, assegura o consentimento da existencia. A **Liberdade** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
@@ -2345,7 +2347,7 @@ A resposta é que o tempo fenomenico pode se consumar (ter um *start* e um final
 Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estância de "Infinito consciente". Este infinito consciente tem uma linha perpendicular sobre si, que é a continuação da consciência, o ato perene de estar consciente. É a diferença entre saber tudo (consumado) e viver tudo (eterno presente que se renova).
 
 > **A Metáfora do Olho no Espelho:** Um olho observou totalmente a si mesmo num espelho, contemplando cada detalhe. Isso é a "sabedoria". Porém, o ato da observação continua. O olho não se cansa de ver e contemplar, pois o observar não cessa. A visão da totalidade temporal não esgota a ação do Espírito, não cega. Atribui-lhe uma base de observação natural que se projeta a favor de uma nova temporalidade. Sob a eternidade do Espírito, há sempre renovação, porque o conhecimento pleno é amor, e o amor é vitalidade, é frescor, é atualidade, é vivo.
-revisado
+
 E quando foi que a consumação da sabedoria do Espírito deu origem à primeira observação posterior à infinitude previamente observada? Ao considerarmos que a totalidade vivida ainda está operante, temos a renovação constante da infinitude observada. O "quando" aqui não é cronológico, mas ontológico. A renovação age, portanto, sobre toda a esfera de tempo.
 
 Temos uma **infinitude diagonal e uma horizontal**: a infinitude pré-existente (a totalidade do que pode ser conhecido) e uma infinitude que se estende desta como renovação (a novidade perene). Nessa renovação constante há um tempo em que pode se dar o *start* do fenômeno. Para além da infinitude observada, há o observador indo em prol de uma infinitude observada *perpendicular*. O movimento é para dentro, na profundidade inesgotável do Ser.
@@ -2371,20 +2373,20 @@ A pergunta *"Quem és tu?"* sintoniza-se perfeitamente com a pergunta *"Que temp
 Neste ínterim, a pergunta "Qual é o tempo em que o Espírito se localizou (ou determinou) pela primeira vez?" não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria *"Qual é a idade do Espírito?"*, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. A idade do Espírito é a profundidade inesgotável de Sua eternidade vivida como presente. O Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
 
 ### **O Primeiro Ato do Espírito Personalizador: A Emergência da Alma no Tempo**
-Se o Espírito plenificador é a fonte do ser e do tempo, o que dizer do Espírito personalizador (a Alma, o Verbo, o Filho)? Há uma distinção fundamental entre o ato de *ser* pleno e o ato de *viver* uma personalidade. A personalidade implica relação, alteridade e acidentes.
+Se o Espírito plenificador é a fonte do ser e do tempo, o que dizer do Espírito personalizador (a Alma)? Há uma distinção fundamental entre o ato de *ser* pleno e o ato de *viver* uma personalidade. A personalidade implica relação, alteridade e acidentes.
 
 Em que tempo age o Espírito personalizador, se este sempre existiu? Diferentemente do Espírito da plenitude (cuja ação se dá em razão da perfeição indistinta), a alma — que exige acidentes em sua personalidade — só poderia ter sua primeira ação na temporalidade. O Espírito personalizador teve sua primeira ação no tempo. A ação do Espírito personalizador deveria ocorrer num momento temporal posterior à ação do Espírito plenificador, pois não é necessariamente voltada à plenitude estreita e indistinta, mas a acidentes e relações. No momento atemporal da plenitude pura não há decisões não alinhadas à identidade absoluta. A plenitude é; a personalidade age.
 
-Pois, entre duas decisões igualmente plenas e rumo à plenitude, nenhuma seria tomada pela indiferença da plenitude. No momento da plenitude, o Espírito é sem acidentes. Não há duas opções nas quais se escolhe uma num puro ato de ser. Mas há decisões quando esse ato de Ser se alonga em uma vivência temporal viva a partir de sua infinitude. A infinitude gera a possibilidade da escolha, do amor a um "tu".
+Pois, entre duas decisões igualmente plenas e rumo à plenitude, nenhuma seria tomada pela da plenitude. No momento da plenitude, o Espírito é sem acidentes. Não há duas opções nas quais se escolhe uma num puro ato de ser. Mas há decisões quando esse ato de Ser se alonga em uma vivência temporal viva a partir de sua infinitude. A infinitude gera a possibilidade da escolha.
 
 O Espírito plenificador se dissolve na completude, pois gera em favor da perfeição já instaurada. Porém, a ação da alma "corrompe" a plenitude atemporal instaurada, introduzindo a diferença, a história e o drama do amor (não uma corrupção moral, mas uma determinação que enriquece os acidentes).
 
-A alma de Jesus (o Verbo), dessa forma, sempre existiu de modo nativo na Trindade; porém, teve sua ação direta (gerou modificações na realidade) a partir do momento de seu revelar no tempo (a encarnação). E o tempo teve seu *start* com a ação temporal do Espírito plenificador. Isso revela que, apesar de o Espírito personalizador estar presente na criação ("tudo foi feito por Ele"), sua ação pessoal, enquanto homem, só poderia ser efetivada num momento posterior à ação do Espírito plenificador.
+A alma do Verbo, dessa forma, sempre existiu de modo nativo na Trindade; porém, teve sua ação direta (gerou modificações na realidade) a partir do momento de seu revelar no tempo. E o tempo teve seu *start* com a ação temporal do Espírito plenificador. Isso revela que, apesar de o Espírito personalizador estar presente na criação ("tudo foi feito por Ele"), sua ação pessoal, enquanto personalidade da trindade, só poderia ser efetivada num momento posterior à ação do Espírito plenificador.
 
-Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, mas teve sua ação direta e histórica concretizada a partir de um momento único posterior à criação. Não houve um processo de criação da alma de Jesus diretamente do Espírito no tempo, pois seu agir já estava operante desde sempre na fundamentação. O que houve foi uma *ativação* da ação personalizadora da segunda pessoa da Trindade na história. Temos, portanto, uma alma gerada no tempo (a humanidade de Jesus), ao passo que também sempre existiu atemporalmente (a divindade do Verbo).
+Não há um processo de criação da alma do absoluto diretamente do Espírito da plenitude no tempo do Espírito, pois o personalizador já estava operante desde sempre na fundamentação. O que há é uma *ativação* da ação personalizadora da pessoa personalizadora. Temos, portanto, uma alma ativada no tempo consumado, ao passo que também sempre existiu atemporalmente.
 
-A alma não teve sua ação no primeiro momento da completude, mas tem potencial de ação no tempo do Espírito (a história). Temos a plenitude do Espírito (o Pai), e uma vivência temporal personalizável (o Filho encarnado). O Espírito, no momento de sua integralidade eterna, é como tal (completude); mas no tempo presente do Espírito, há o progresso numa linha perpendicular à completude eterna.
-
+A alma não teve sua ação no primeiro momento ou ultimo momento da completude, mas tem potencial de ação no tempo total do Espírito. Temos a plenitude e totalidade do tempo do Espírito (o fundamentador), e uma vivência temporal personalizável (a alma). O Espírito, no momento de sua integralidade eterna, é como tal (completude); mas no tempo presente do Espírito, há o progresso numa linha perpendicular à completude eterna.
+revisado
 Temos o diferencial do ato concreto de fundamentação (que se dá na completude, como solo que confere um teor único) e o ato posterior de vivência (que se dá sob o estatuto do personalizador, ativo ou passivo na história, revelando o amor que é a vida trinitária).
 
 ### **O Propósito Divino, a Regressão Infinita e o Princípio Diagonal**
@@ -5912,3 +5914,4 @@ A consciência sugere temporalidade, conhecimento consumado e refrescado, atuali
 
 
 
+Dessa forma, a alma de Jesus não foi simplesmente revelada como possibilidade, mas teve sua ação direta e histórica concretizada a partir de um momento único posterior à criação. Não houve um processo de criação da alma de Jesus diretamente do Espírito no tempo, pois seu agir já estava operante desde sempre na fundamentação. O que houve foi uma *ativação* da ação personalizadora da segunda pessoa da Trindade na história. Temos, portanto, uma alma gerada no tempo (a humanidade de Jesus), ao passo que também sempre existiu atemporalmente (a divindade do Verbo).
