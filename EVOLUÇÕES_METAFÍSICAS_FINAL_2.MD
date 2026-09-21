@@ -2309,12 +2309,12 @@ A presente proposição busca transcender essa dicotomia, propondo uma terceira 
 
 ### **A Circularidade Viva do Espírito: Para Além da Estaticidade**
 A circularidade do Espírito temporal não é uma circularidade morta ou estática, uma repetição vazia do mesmo — **ela é viva**. Essa vivacidade implica que o Espírito pode agir sob qualquer tempo, conferindo uma camada não linear à temporalidade. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela. A consumação não é um ponto final que aniquila o movimento, mas uma plenitude que contém em si a potência do novo.
-revisado
+
 Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumada —, a partir da própria consumação emerge uma nova dimensão. Há, portanto, três características fundamentais que se delineiam a partir dessa compreensão:
 1.  **Atemporalidade:** A consumação do tempo, o "lugar" metafísico onde todo o tempo está presente num único ato de ser. Não é ausência de tempo, mas sua plenitude sintética.
 2.  **Temporalidade:** A sucessão de momentos, a dimensão na qual o tempo se desdobra e se apresenta como sequência, duração e história.
-3.  **Autocausalidade:** A capacidade do Espírito de ser causa de si mesmo, o que confere uma dimensão *exterior* ao tempo. É a liberdade absoluta que determina a si mesma e pode determinar a realidade temporal a partir de sua essência.
-
+3.  **Autocausalidade:** A capacidade do Espírito de ser causa de si mesmo, o que confere uma dimensão *exterior* ao tempo. É a fonte incausada absoluta que causa a si mesma e pode determinar a realidade.
+revisado
 Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. Deste modo, temos uma consumação não estática ou pré-formatada, mas viva em si e presente em qualquer instante. Desta forma, advém uma realidade atemporal viva e frutífera, um solo fértil para o *start* do fenômeno no tempo do Espírito. Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o início fenomênico.
 
 > **Exemplo da Reta Viva e do Filme Projetado:** O tempo do Espírito não é uma linha reta meramente consumada; é uma linha reta que é viva em cada centímetro de extensão. Imagine uma reta geométrica. Se ela for apenas um traço estático, cada ponto é uma coordenada fixa e imutável, e nenhum ponto pode "agir" sobre o outro. Mas se cada centímetro dessa reta for um centro de consciência e ação, a decisão pode partir em qualquer tempo do Espírito — de qualquer "centímetro" dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria *start*, pois ela já estaria num momento de consumação atemporal estático, como um filme que já foi completamente projetado e cujos fotogramas não podem mais ser alterados.
