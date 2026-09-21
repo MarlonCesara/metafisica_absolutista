@@ -3694,6 +3694,19 @@ A almogênese - o nascimento da alma através do encontro - revela que:
 
 A vocação humana não é a auto-suficiência, mas a **comunhão** - tornar-se plenamente si mesmo através do dom total a outro.
 
+
+revisado
+## A EXISTENCIA DE MULTIPLAS ALMAS DETERMINADAS
+
+As almas não competem por um espaço metafísico, por isto, não existe a questão que indaga acerca de como todas existem para absoluto, sendo absoluto não um espaço. Mas a alma está na esfera relacional.
+
+Exemplo: existem muitos sentimentos em mim, e posso enxergar cada um deles. Ou, senti uma sensação de estranhamento, nunca vi aquela outra alma, nunca senti sua presença.
+
+Portanto, uma alma determina a presença ou distancia da outra na esfera relacional. E não numa esfera espacial onde todas ficariam em um aglutinado de Espíritos que não se diferem.
+
+
+A alma determinada
+
 # **TRATADO METAFÍSICO DA ONTOLOGIA DO SER, DO SOU E DA TRANSCENDÊNCIA (PARTE II)**
 
 ## **EIXO IV: A FUSÃO DAS ALMAS, O TOQUE E A ALMOGÊNESE**
