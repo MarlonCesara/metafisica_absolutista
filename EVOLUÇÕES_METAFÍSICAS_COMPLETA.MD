@@ -3703,7 +3703,9 @@ As almas não competem por um espaço metafísico, por isto, não existe a quest
 Exemplo: existem muitos sentimentos em mim, e posso enxergar cada um deles. Ou, senti uma sensação de estranhamento, nunca vi aquela outra alma, nunca senti sua presença.
 
 Portanto, uma alma determina a presença ou distancia da outra na esfera relacional. E não numa esfera espacial onde todas ficariam em um aglutinado de Espíritos que não se diferem.
-
+ex: Existem varios sentimentosn um nao sente o outro
+Estamos nos sentindo separados.
+Temos um sentimento de unidade. Te sinto distante. Portanto, a relação das almas não é definida por espacialidade, mas por definição intencional. A solitude da alma não é espacial, é intencional.
 
 A alma determinada
 
