@@ -1,6 +1,6 @@
 # EVOLUÇÕES METAFÍSICAS
 
-Proposição 1 - ## Lógica Diacrônica: A Contraparte Temporal da Identidade
+## Lógica Diacrônica: A Contraparte Temporal da Identidade - Proposição 1 
 
 A fundação da lógica como disciplina sistemática é obra de Aristóteles (384-322 a.C.), desenvolvida em resposta às limitações percebidas na filosofia platônica. Enquanto Platão orientava a investigação para o mundo transcendente das Ideias ou Formas, Aristóteles buscou estabelecer um método formal para o pensamento correto acerca do mundo real — um *organon* (ferramenta) para a ciência e a demonstração.
 
@@ -129,7 +129,7 @@ Esta estrutura revela uma **simetria lógica profunda** e completa, integrando *
 
 
 
-Proposição 2 ## A Dupla Fundamentação da Realidade Contingente
+## A Dupla Fundamentação da Realidade Contingente - Proposição 2 
 
 A aplicação da estrutura lógica previamente estabelecida ao domínio da causalidade revela que toda realidade contingente exige uma **dupla fundamentação necessária e irredutível**: uma para a sua **existência** e outra para a sua **identidade**. Esta análise causal eleva os princípios lógicos do plano do pensamento para o plano da existência.
 
@@ -207,7 +207,7 @@ A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta c
 
 
 
-Proposição 3 ## O HORIZONTE DA RAZÃO
+## O HORIZONTE DA RAZÃO - Proposição 3 
 
 ## As Três Categorias Radicais da razão
 
@@ -360,7 +360,7 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-Proposição 4 ## O FUNDAMENTO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL
+## O FUNDAMENTO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL - Proposição 4 
 
 #### A Necessidade Lógica de um Fundamento Absoluto
 
@@ -378,7 +378,7 @@ A aplicação regressiva desses princípios conduz, necessariamente, à postula�
 - **É indiferenciado, no sentido de que sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem absolutamente, de modo que não há em seu interior qualquer distinção que rompa sua pureza fundamental.**
 - **O Absoluto não pode ser negado, diminuído ou acrescido, pois é soberano e plenamente suficiente em si mesmo. A afirmação de um ente determinado implica a negação de todas as demais possibilidades que lhe são incompatíveis; porém, a negação do Absoluto não conduz a uma possibilidade alternativa, pois qualquer alternativa ao Absoluto já constituiria alguma determinação do real. Assim, enquanto o determinado pode ser negado em favor de outra possibilidade, o Absoluto não pode ser substituído por outra possibilidade sem que essa própria possibilidade reivindique, de algum modo, a condição de absoluto. Portanto, o não absoluto não constitui uma alternativa ao Absoluto.**
 
-Embora estes princípios tenham sido constantemente comentados e analisados ao longo da história, há um princípio importantíssimo para traçar todas as características do Espírito sem que seja necessário recorrer a um modo de inferência indireta — isto é, à tentativa de deduzir o Ser a partir do mundo contingente, estabelecendo que, para todo efeito, existe uma causa necessária. Esse princípio, que nos revela uma visão ampla da substância do Espírito e de suas propriedades, está a seguir:
+Embora estes princípios tenham sido constantemente comentados e analisados ao longo da história, há um princípio ainda não comentado ou analisado, o qual se faz a pedra angular para traçar todas as características do Espírito sem que seja necessário recorrer a um modo de inferência indireta — isto é, à tentativa de deduzir o Ser a partir do mundo contingente, estabelecendo que, para todo efeito, existe uma causa necessária. Esse novo princípio, que nos revela uma visão ampla da substância do Espírito e de suas propriedades:
 
 **O Absoluto é causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
 
@@ -396,26 +396,17 @@ Não há o agente da causa ou a causa exterior. Há o causar como agente. Portan
 
 Não há ação sob algo, pois não há nada que se mova. E não há o ente criado concretizado como produto da ação. O movimento é uma determinação, indica uma ação em detrimento de outras, uma ação dimensional. Portanto, não haveria exatamente a ação do agente, como um movimento físico. Há o querer de si como ação. A ação do agente não é concretizada em uma realidade determinada que se deixa acidentar, pois a ação se faz acidente em uma realidade. Mas o desejo é a ação prévia, anterior a atividade. Desta forma, a ação do causar-se não é um movimento em uma realidade, mas é o querer-se, o tender a si. Desta forma, o causar-se se faz valido perante uma intencionalidade, e não perante um movimento, tal como seria um movimento físico. O Ser, desta forma, é relacional, é uma inclinação que se concretiza em si mesma. Em um conceito mais preciso, o causar-se, ou o Ser, poderia ser comparado ao auto querer absoluto, ao amor inefável. 
 
-Por uma via inversa, podemos, através do conceito de Ser, encontrar o auto causal. O Ser indica o ente que é sua ação de construir-se, de fazer-se, ou melhor, de querer-se. Sendo o Ser absoluto, temos, para o Ser, o mesmo um sinônimo de causar-se. 
+Por uma via inversa, podemos, através do conceito de Ser, encontrar o auto causal. O Ser indica o ente que é sua ação de construir-se, de fazer-se, ou melhor, de querer-se. Sendo o Ser absoluto, temos, para o Ser, o mesmo um sinônimo de causar-se. Sendo o Ser um ato concreto que realiza uma ação, a ação de se fazer sou, então não teriamos mais o Ser. O Ser, não poderia ser uma ação, pois a ação é movimento, e não poderia se concretizar como uma existência determinada Ser. Portanto, o Ser, é relacional. É a tendencia a si mesmo, o auto querer que tem como resultado a si mesmo.
 
-O Ser é o agente sendo o próprio efeito de seu ato de Ser. Isto é, há o verbo, e o agente é o verbo. O Ser não é um sou, isto quer, o ente concretizado e determinado como um ente ou o ente. O Ser é o próprio ato de auto criação. o Ser é o ato de auto causar-se.
+O "fazer-se" denota a intenção de fazer-se. E a intenção, não produzindo uma ação concretizada na construção do sou, produz a ação concretizada no querer. Um querer que se doa ao todo e a construção de si como ente determinado.
 
-
-
-
+Em suma, o Ser é o agente sendo o próprio efeito de seu ato (desejo) de Ser. Isto é, há o verbo, e o agente é o verbo. O Ser não é um sou, isto quer, o ente concretizado e determinado como um ente ou o ente. O Ser é o próprio ato de auto criação. o Ser é o ato de auto causar-se.
 
 
-excluir abaixo
 
-Embora estes princípios tenham sido constantemente comentados e analisados, um principio importantíssimo para traçar todas as características do Espírito sem que seja necessário recorrer a um modo de inferência indireta -a tentativa de deduzir o Ser a partir do mundo contingente, estabelecendo que para todo efeito existe uma causa necessária-. E este principio o qual nos revela uma visão ampla da substancia do Espírito e de suas propriedades está a seguir:
 
-**O Absoluto é causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
 
-Este principio implica que, do fator auto causal, podemos extrair todas as propriedades do Espírito, quer dizer que, não existe somente o absoluto incausado, no sentido de que não há uma causa exterior a ele. Este olhar está ainda sob uma cadeia causal, mas não adentra na particularidade absoluta, definindo-o pelo que não há anterior a ele, mas não por ele mesmo.
 
-O Absoluto, portanto, não é somente incausado, mas é auto causado. Não há nenhuma natureza externa pela qual o absoluto deve ser, e não há nada que possa compo-lo se não, ele mesmo. Ainda que indaguemos que o absoluto necessariamente deva ser de tal modo, este modo é eleito pelo próprio absoluto, pois ainda que haja necesariedade no estatudo do absoluto, essa necessessariedade é dada por Ele mesmo, e não poderia ser oriunda de uma fonte externa.
-
-Isto quer dizer que, não devemos somente dizer que não há um ente causador para o absoluto, de forma a defini-lo pela ausência de um causador externo, mas devemos defini-lo pela presença de um causador interno. 
 
 
 
