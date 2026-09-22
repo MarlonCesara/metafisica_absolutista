@@ -417,11 +417,11 @@ Ao analisarmos o conceito Ser sob a ótica do auto causal, temos, imediatamente 
 
 Desta forma, inferimos a primeira pripriedade da auto causalidade, a presença. Se a ação do Absoluto não é um movimento físico ou mecânico, ela deve ser entendida como uma **ação intencional ou imanente** da presença. O ato de causar-se é, na verdade, o *querer-se*. É uma inclinação que encontra sua plena realização em si mesma. O Ser é relacional e volitivo: pode ser comparado ao autodesejo absoluto, a um querer primordial ou a um amor inefável.
 
-O construir-se deve ser executado para que haja o Ser, mas é executado na própria ação de fazer-se Ser. Não havendo uma ação, há o impulso despertar da ação que, sob a ótica da presença, é a intenção.
+O construir-se deve ser executado para que haja o Ser, mas é executado na própria ação de fazer-se Ser. Não havendo uma ação, há o impulso despertar da ação que, sob a ótica da presença, é a intenção. Temos que, não há movimento, se não o movimento da intenção formalizada como ato.
 
-aqui
+No contexto auto causal da física, o que move um objeto, isto é, a causa do movimento, é outro impulso. Porém, no contexto da presença, o mover é a intenção de movimento, a intenção é o start do movimento. Desta forma, não havendo a necessidade do movimento, há a intenção instaurada, o bem querer por si, o desejo de si.
 
-
+Temos, portanto, o movimento primeiro como intenção. A intenção que já é o próprio ente desejado e formalizado. Temos, portanto, a mais clara definição do Ser: o amor, o querer inefável.
 
 Não há ação sob algo, pois não há nada que se mova. E não há o ente criado concretizado como produto da ação. O movimento é uma determinação, indica uma ação em detrimento de outras, uma ação dimensional. Portanto, não haveria exatamente a ação do agente, como um movimento físico. Há o querer de si como ação. A ação do agente não é concretizada em uma realidade determinada que se deixa acidentar, pois a ação se faz acidente em uma realidade. Mas o desejo é a ação prévia, anterior a atividade. Desta forma, a ação do causar-se não é um movimento em uma realidade, mas é o querer-se, o tender a si. Desta forma, o causar-se se faz valido perante uma intencionalidade, e não perante um movimento, tal como seria um movimento físico. O Ser, desta forma, é relacional, é uma inclinação que se concretiza em si mesma. Em um conceito mais preciso, o causar-se, ou o Ser, poderia ser comparado ao auto querer absoluto, ao amor inefável. 
 
