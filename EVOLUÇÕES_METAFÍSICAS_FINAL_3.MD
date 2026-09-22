@@ -620,19 +620,19 @@ A hipótese que se sustenta é que o Nada não fundamenta a realidade determinad
 
 
 
-### A LÓGICA DO INDETERMINADO E A CAUSALIDADE ASSIMÉTRICA
+### CAUSALIDADE ASSIMÉTRICA - Parte 6
 
 #### As Tentativas de Definir e Categorizar o Nada
 
 Para investigar o Nada de forma rigorosa e exaurir suas possibilidades ontológicas e metafísicas, é necessário categorizar as diferentes abordagens e tentativas conceituais que a razão impõe sobre essa **“substância bruta”** da indeterminação. Antes, porém, é preciso estabelecer os princípios a partir dos quais essas categorias serão inferidas.
 
-Esses princípios consistem, basicamente, em uma **reversão dos princípios assimétricos**: são princípios que, *a priori*, desorganizam o mundo intuitivamente determinado com o objetivo de tentar produzir, a partir dele, uma substância pura e indiferenciada.
+Esses princípios consistem, basicamente, em uma **reversão dos princípios aristotélicos**: são princípios que, *a priori*, desorganizam o mundo intuitivamente determinado com o objetivo de tentar produzir, a partir dele, uma substância pura e indiferenciada.
 
-Isto é, mediante a reversão dos princípios da lógica clássica, torna-se possível construir aquilo que aqui denominaremos um **falso Ser**. O falso Ser surge quando se tenta purificar o mundo fenomênico, retirando dele progressivamente suas determinações. Em vez de investigar o Ser tal como ele se manifesta no mundo determinado, procede-se pela subtração de suas propriedades, relações, formas e diferenças, na tentativa de alcançar algo absolutamente simples, puro e indiferenciado.
+Isto é, mediante a reversão dos princípios da lógica clássica, torna-se possível construir aquilo que aqui denominaremos um **falso Ser**. O falso Ser surge quando se tenta purificar o mundo fenomênico, retirando dele progressivamente suas determinações. Em vez de investigar diretamente o Ser enquanto tal, como ocorre na via fundada no princípio da autocausalidade, toma-se o mundo determinado como ponto de partida, procedendo-se à progressiva subtração de suas propriedades, relações, formas e distinções, na tentativa de alcançar, por via negativa, aquilo que se apresentaria como absolutamente simples, puro e indiferenciado.
 
-Nesse movimento, os princípios da lógica assimétrica procuram delimitar o Ser por meio da retirada das determinações presentes no mundo contingente. Entretanto, segundo a hipótese aqui desenvolvida, esse procedimento falha justamente porque não alcança a essência do Ser determinado. Ao contrário, ele tende a destruir conceitualmente aquilo que pretende compreender: remove a forma do mundo determinado, elimina suas diferenças e suspende suas determinações, para então tentar reconstruir, a partir dessa negação, um suposto substrato ontológico puro e disforme.
+Nesse movimento, os princípios da lógica assimétrica procuram delimitar o Ser por meio da retirada das determinações presentes no mundo contingente. Entretanto, segundo a hipótese aqui desenvolvida, esse procedimento falha justamente porque não alcança a essência do Ser. Ao contrário, ele tende a destruir conceitualmente aquilo que pretende compreender: remove a forma do mundo determinado, elimina suas diferenças e suspende suas determinações, para então tentar reconstruir, a partir dessa negação, um suposto substrato ontológico puro e disforme.
 
-O resultado é uma espécie de **falso Ser**: algo que parece aproximar-se do absoluto justamente porque foi privado de todas as determinações que caracterizam os entes. Quanto mais determinações são retiradas, mais esse suposto fundamento parece puro. Porém, ao final do processo, pode-se ter produzido não uma forma superior de Ser, mas simplesmente a ausência daquilo que tornava possível identificá-lo como Ser.
+O resultado é uma espécie de **falso Ser**: algo que parece aproximar-se do absoluto justamente porque foi privado de todas as determinações que caracterizam os entes. Quanto mais determinações são retiradas, mais esse suposto fundamento parece puro. Porém, ao final do processo, pode-se ter produzido não uma forma superior de Ser, mas simplesmente a ausência daquilo que tornava possível identificá-lo como ente.
 
 Essa dificuldade já aparece de maneira particularmente expressiva na filosofia de Hegel. Ao tratar do começo da *Ciência da Lógica*, Hegel caracteriza o Ser puro como **“pura indeterminação e vazio”** e afirma que o Nada puro possui a mesma ausência de determinação. Daí sua célebre conclusão:
 
@@ -643,7 +643,7 @@ Essa dificuldade já aparece de maneira particularmente expressiva na filosofia 
 A retirada das determinações do mundo fenomênico pode, portanto, produzir uma aparência de pureza sem gerar necessariamente uma realidade ontologicamente fundamental. O procedimento de purificação pode acabar confundindo a **indeterminação conceitual** com a **pureza ontológica**. Nesse sentido, os princípios da lógica assimétrica operam como instrumentos de desconstituição do mundo determinado. Eles partem das coisas que possuem forma, identidade, relação e determinação e procuram retirar sucessivamente essas características, até alcançar aquilo que supostamente permaneceria quando todas as determinações fossem eliminadas.
 
 O problema é que, ao retirar aquilo que determina uma coisa como aquilo que ela é, não se descobre necessariamente a sua essência. Pode-se simplesmente ter destruído conceitualmente a própria coisa. Assim, a operação não produz necessariamente o Ser puro, mas pode produzir um **substrato indeterminado** — uma construção conceitual que conserva apenas a ideia de que “algo deve permanecer” depois da eliminação de todas as determinações. É justamente nesse ponto que a investigação do Nada se torna necessária. Pois, se esse substrato não possui determinação, forma ou propriedade, precisamos perguntar se ele ainda pode ser chamado de Ser ou se, levado às últimas consequências, aproxima-se precisamente do Nada.
-
+revisado
 A questão torna-se ainda mais complexa quando introduzimos os **princípios causais assimétricos**. Esses princípios operam de modo que a causa do mundo fenomênico seja concebida como uma substância nadificada, potencial, indeterminada, relativa, angulada ou mesmo impossível. Em vez de compreender o mundo determinado como diretamente produzido pela liberdade causal do Ser, esses princípios procuram estabelecer uma realidade ontológica anterior que funcionaria como condição de sua transformação. Nesse modelo, a realidade fenomênica não seria causada diretamente pelo Ser. Ela seria o resultado da transformação de uma ontologia prévia, que aqui se pretende definir como Nada. Temos, portanto, uma passagem da **lógica assimétrica** para uma **causalidade assimétrica**.
 
 Os princípios da lógica assimétrica primeiro desorganizam e desconstituem o mundo contingente, retirando suas determinações na tentativa de compor uma substância pura. Em seguida, os princípios causais assimétricos utilizam essa substância indeterminada como fundamento anterior da realidade determinada.
@@ -801,6 +801,21 @@ A proposição aqui apresentada estabelece que:
 | **Manifestação Não Disruptiva** | O novo não precisa destruir o velho |
 
 ---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### Dos Princípios Assimétricos aos Princípios Causais (A Causalidade do Indeterminado e a Sustentação do Ser)
 
