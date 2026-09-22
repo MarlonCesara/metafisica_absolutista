@@ -360,7 +360,12 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-## O FUNDAMENTO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL - Proposição 4 
+
+
+
+
+
+## OS PRINCÍPIOS FUNDAMENTAIS DO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL - Proposição 4 
 
 #### A Necessidade Lógica de um Fundamento Absoluto
 
@@ -388,11 +393,35 @@ O Absoluto, portanto, não é somente incausado, mas autocausado. Não há nenhu
 
 Isso significa que não devemos somente dizer que não há um ente causador do Absoluto, definindo-o pela ausência de um causador externo, mas devemos defini-lo pela presença de um causador interno.
 
-O causar-se é um fecho ontológico, o qual, não gera o causado, mas o causar se fecha em si mesmo, sendo o causar a própria substancia. E desta ação podemos inferir todas as características necessárias para definir o Ser. 
-
-O causar-se e o Ser são conceitos comparáveis e não contraditórios. O causar-se, implica em ser o causar. Portanto, para absoluto, teríamos o causar. Sendo este causar, autor de si, temos como conceito mais nítido deste processo o Ser. Pois o causar é uma ação que fecha em si mesma. 
+O causar-se é um fecho ontológico, o qual, não gera o causado, mas o causar se fecha em si mesmo, sendo o causar a própria substancia. E desta ação podemos inferir todas as características necessárias para definir o Ser. O causar-se e o Ser são conceitos comparáveis e não contraditórios. O causar-se, implica em ser o causar. Portanto, para absoluto, teríamos o causar. Sendo este causar, autor de si, temos como conceito mais nítido deste processo o Ser. Pois o causar é uma ação que fecha em si mesma. 
 
 Não há o agente da causa ou a causa exterior. Há o causar como agente. Portanto, tratando-se de um agente que causa a si mesmo, e o agente é o próprio causar-se. Temos, não um agente vazio, mas temos o que chamarei para inicio de conversa como o desejo do agente.
+
+
+
+
+### A ANALISE DO CONCEITO SER SOB A ÓTICA ABSOLUTA E SOB A ÓTICA AUTO CAUSAL
+
+Como não há um espaço externo ou uma matéria prévia para sofrer uma ação física, essa causalidade não pode ser compreendida como "movimento". O movimento é uma determinação temporal e dimensional, a passagem de uma potência para um ato. No Absoluto, não há o que se mover. A ação não se concretiza como um acidente em uma realidade preexistente.
+
+O movimento, portanto do Ser, não é relativo a uma ação concreta, como seria a ação de modelar um ente e estabelece-lo na realidade. A ação, no ponto de vista humano, designa um movimento acionado por outro fator, como o arremeço de um objeto causado pela força que o moveu. A auto ação, para a visão comum, se daria como um movimento fisico que causa, sem que este movimento tenha causa.
+
+Mas no contexto do Absoluto, este movimento não poderia ser Físico. Pois até mesmo um movimento incausado produz oscilações no indiferente. Um movimento produz um ato que se traduz diferente do ato antecessor ao movimento. Temos que, o movimento do Ser, não é exterior, não move algo fora de si, porem o movimento do Ser deve ser puro. Não deve produzir mudanças. Em sintese não é um movimento, pois o indiferente se dá como tal, sem necessidade de mudança.
+
+Para encontrar a definição exata de Ser, devemos faze-lo pelo principio auto causal. Pois a definição de Ser não indica em detalhes a substancia do Ser, mas refere-se a sua indistinção entre causa e fundamento. O conceito Ser designa uma realidade que é sua essência, e sua essência é quem ela é. Ou seja, uma realidade indiferente. O conceito de Ser é o apontamento a uma realidade fundamental e indistinta interiormente indicando que sua formatação é sua própria fundamentação. O nome Ser é a fusão da fundamentação com a identidade, num fecho ontológico onde o fundamento é a própria distinção. Ou seja, não é um ente A ou ente B, mas é um ser ente.
+
+
+## A noção de presença inferida do auto causal
+
+Ao analisarmos o conceito Ser sob a ótica do auto causal, temos, imediatamente a inferência de uma causa que é seu causar. Tal como temos um Ser que é seu construir Ser. Porém, o Ser designa, além de uma realidade que é sua própria identidade, uma analogia clara ao ente. Isto é, a uma vontade imperante e não há um impulso físico, como relembra a palavra causar. O auto causado, já não é um impulso a si mesmo, mas se há auto causalidade, é um ente. Desta forma, mediante a analise da auto causalidade como presencia fundamental, pois é autora do causar-se, temos o Ser. Que é o causar-se sob tutela de uma auto presença. 
+
+Desta forma, inferimos a primeira pripriedade da auto causalidade, a presença. Se a ação do Absoluto não é um movimento físico ou mecânico, ela deve ser entendida como uma **ação intencional ou imanente** da presença. O ato de causar-se é, na verdade, o *querer-se*. É uma inclinação que encontra sua plena realização em si mesma. O Ser é relacional e volitivo: pode ser comparado ao autodesejo absoluto, a um querer primordial ou a um amor inefável.
+
+O construir-se deve ser executado para que haja o Ser, mas é executado na própria ação de fazer-se Ser. Não havendo uma ação, há o impulso despertar da ação que, sob a ótica da presença, é a intenção.
+
+aqui
+
+
 
 Não há ação sob algo, pois não há nada que se mova. E não há o ente criado concretizado como produto da ação. O movimento é uma determinação, indica uma ação em detrimento de outras, uma ação dimensional. Portanto, não haveria exatamente a ação do agente, como um movimento físico. Há o querer de si como ação. A ação do agente não é concretizada em uma realidade determinada que se deixa acidentar, pois a ação se faz acidente em uma realidade. Mas o desejo é a ação prévia, anterior a atividade. Desta forma, a ação do causar-se não é um movimento em uma realidade, mas é o querer-se, o tender a si. Desta forma, o causar-se se faz valido perante uma intencionalidade, e não perante um movimento, tal como seria um movimento físico. O Ser, desta forma, é relacional, é uma inclinação que se concretiza em si mesma. Em um conceito mais preciso, o causar-se, ou o Ser, poderia ser comparado ao auto querer absoluto, ao amor inefável. 
 
