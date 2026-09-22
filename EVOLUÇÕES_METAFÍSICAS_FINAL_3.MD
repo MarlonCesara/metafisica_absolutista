@@ -1,6 +1,6 @@
 # EVOLUÇÕES METAFÍSICAS
 
-## O Contexto Histórico e a Necessidade de um *Organon*
+Proposição 1 - ## Lógica Diacrônica: A Contraparte Temporal da Identidade
 
 A fundação da lógica como disciplina sistemática é obra de Aristóteles (384-322 a.C.), desenvolvida em resposta às limitações percebidas na filosofia platônica. Enquanto Platão orientava a investigação para o mundo transcendente das Ideias ou Formas, Aristóteles buscou estabelecer um método formal para o pensamento correto acerca do mundo real — um *organon* (ferramenta) para a ciência e a demonstração.
 
@@ -99,15 +99,39 @@ A análise demonstra que os princípios lógicos fundamentais organizam-se de fo
 
 Esta estrutura revela uma **simetria lógica profunda** e completa, integrando **temporalidade e ontologia** num sistema coerente e fechado. O **Princípio da Não-Disformidade** surge, assim, não como um acréscimo opcional, mas como um pilar necessário para garantir a **integridade dos entes no domínio do tempo**, complementando definitivamente a lógica clássica com a sua dimensão dinâmica ausente.
 
-### Conclusão da Proposição I
+### Conclusão
 
-**Proposição I demonstrada:** A lógica clássica, embora necessária, é insuficiente para uma descrição completa da realidade temporal. O **Princípio da Não-Disformidade (¬(A = B))** é o quarto pilar lógico necessário, completando a arquitetura simétrica da razão ao estabelecer a contraparte temporal do Princípio da Identidade. A identidade não é apenas uma relação estática consigo mesmo; exige uma defesa dinâmica contra a confusão ontológica ao longo do tempo.
+**A Proposição demonstrada:** A lógica clássica, embora necessária, é insuficiente para uma descrição completa da realidade temporal. O **Princípio da Não-Disformidade (¬(A = B))** é o quarto pilar lógico necessário, completando a arquitetura simétrica da razão ao estabelecer a contraparte temporal do Princípio da Identidade. A identidade não é apenas uma relação estática consigo mesmo; exige uma defesa dinâmica contra a confusão ontológica ao longo do tempo.
 
 ---
 
-## A Dupla Fundamentação da Realidade
 
-A aplicação da estrutura lógica previamente estabelecida ao domínio da causalidade revela que toda realidade contingente exige uma **dupla fundamentação necessária e irredutível**: uma para a sua **existência** e outra para a sua **identidade**. Esta análise causal eleva os princípios lógicos do plano do pensamento para o plano do ser.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Proposição 2 ## A Dupla Fundamentação da Realidade Contingente
+
+A aplicação da estrutura lógica previamente estabelecida ao domínio da causalidade revela que toda realidade contingente exige uma **dupla fundamentação necessária e irredutível**: uma para a sua **existência** e outra para a sua **identidade**. Esta análise causal eleva os princípios lógicos do plano do pensamento para o plano da existência.
 
 ### A Questão Existencial: "Por que há algo em vez de nada?"
 Esta pergunta metafísica clássica desdobra-se, à luz da estrutura lógica, em duas dimensões distintas:
@@ -167,7 +191,23 @@ Esta proposição estabelece as bases para investigar a natureza deste Fundament
 ### A Resposta à Pergunta Metafísica Fundamental
 A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta completa é: **"Por que há *estas coisas específicas* em vez de outras, ou em vez de nada?"** A resposta exige referência a um Fundamento que seja tanto Causa Existencial quanto Causa Identitária de tudo o que é contingente.
 
-# O HORIZONTE DA RAZÃO
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Proposição 3 ## O HORIZONTE DA RAZÃO
 
 ## As Três Categorias Radicais da razão
 
@@ -306,7 +346,21 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 **Proposição demonstrada:** O horizonte metafísico total contém três domínios irredutíveis: o Possível (realidade estruturada e coerente), o Impossível (limite lógico interno) e o Incognoscível (transcendência radical). Esta estrutura não representa uma limitação, mas uma plenitude integral — o cognoscível revela o que pode ser conhecido racionalmente, enquanto o incognoscível mantém aberto o horizonte para o que só pode ser acessado por vias não-discursivas.
 
-### O FUNDAMENTO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Proposição 4 ## O FUNDAMENTO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL
 
 #### A Necessidade Lógica de um Fundamento Absoluto
 
@@ -318,16 +372,56 @@ A análise do Absoluto exige um mapeamento preciso dos domínios do pensável e 
 
 A aplicação regressiva desses princípios conduz, necessariamente, à postulação de um **Fundamento Absoluto** que:
 
-1. **Existe por si mesmo** (satisfazendo as causas existenciais sem exigir uma causa antecedente).
-2. **É identicamente si mesmo de modo necessário** (satisfazendo as causas identitárias sem depender de determinações externas).
-3. **É a causa sustentadora de toda a existência e de toda identidade contingente.**
-4. **É indiferenciado, no sentido de que sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem absolutamente, de modo que não há em seu interior qualquer distinção que rompa sua pureza fundamental.**
-**5. O Absoluto não pode ser negado, diminuído ou acrescido, pois é soberano e plenamente suficiente em si mesmo. A afirmação de um ente determinado implica a negação de todas as demais possibilidades que lhe são incompatíveis; porém, a negação do Absoluto não conduz a uma possibilidade alternativa, pois qualquer alternativa ao Absoluto já constituiria alguma determinação do real. Assim, enquanto o determinado pode ser negado em favor de outra possibilidade, o Absoluto não pode ser substituído por outra possibilidade sem que essa própria possibilidade reivindique, de algum modo, a condição de absoluto. Portanto, o não absoluto não constitui uma alternativa ao Absoluto.**
-6. **É causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
+- **Existe por si mesmo** (satisfazendo as causas existenciais sem exigir uma causa antecedente).
+- **É identicamente si mesmo de modo necessário** (satisfazendo as causas identitárias sem depender de determinações externas).
+- **É a causa sustentadora de toda a existência e de toda identidade contingente.**
+- **É indiferenciado, no sentido de que sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem absolutamente, de modo que não há em seu interior qualquer distinção que rompa sua pureza fundamental.**
+- **O Absoluto não pode ser negado, diminuído ou acrescido, pois é soberano e plenamente suficiente em si mesmo. A afirmação de um ente determinado implica a negação de todas as demais possibilidades que lhe são incompatíveis; porém, a negação do Absoluto não conduz a uma possibilidade alternativa, pois qualquer alternativa ao Absoluto já constituiria alguma determinação do real. Assim, enquanto o determinado pode ser negado em favor de outra possibilidade, o Absoluto não pode ser substituído por outra possibilidade sem que essa própria possibilidade reivindique, de algum modo, a condição de absoluto. Portanto, o não absoluto não constitui uma alternativa ao Absoluto.**
+
+Embora estes princípios tenham sido constantemente comentados e analisados ao longo da história, há um princípio importantíssimo para traçar todas as características do Espírito sem que seja necessário recorrer a um modo de inferência indireta — isto é, à tentativa de deduzir o Ser a partir do mundo contingente, estabelecendo que, para todo efeito, existe uma causa necessária. Esse princípio, que nos revela uma visão ampla da substância do Espírito e de suas propriedades, está a seguir:
+
+**O Absoluto é causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
+
+Este princípio implica que, a partir do fator autocausal, podemos extrair todas as propriedades do Espírito. Quer dizer que não existe somente o Absoluto incausado, no sentido de que não há uma causa exterior a ele. Esse olhar ainda se encontra sob uma cadeia causal, pois adentra apenas naquilo que vem antes do Absoluto, mas não em sua particularidade absoluta, definindo-o pelo que não há anteriormente a ele, e não por aquilo que ele é em si mesmo.
+
+O Absoluto, portanto, não é somente incausado, mas autocausado. Não há nenhuma natureza externa pela qual o Absoluto deva ser, e não há nada que possa compô-lo senão ele mesmo. Ainda que indaguemos que o Absoluto necessariamente deva ser de determinado modo, esse modo é eleito pelo próprio Absoluto, pois, ainda que haja necessidade no estatuto do Absoluto, essa necessidade é dada por Ele mesmo e não poderia ser oriunda de uma fonte externa.
+
+Isso significa que não devemos somente dizer que não há um ente causador do Absoluto, definindo-o pela ausência de um causador externo, mas devemos defini-lo pela presença de um causador interno.
+
+O causar-se é um fecho ontológico, o qual, não gera o causado, mas o causar se fecha em si mesmo, sendo o causar a própria substancia. E desta ação podemos inferir todas as características necessárias para definir o Ser. 
+
+O causar-se e o Ser são conceitos comparáveis e não contraditórios. O causar-se, implica em ser o causar. Portanto, para absoluto, teríamos o causar. Sendo este causar, autor de si, temos como conceito mais nítido deste processo o Ser. Pois o causar é uma ação que fecha em si mesma. 
+
+Não há o agente da causa ou a causa exterior. Há o causar como agente. Portanto, tratando-se de um agente que causa a si mesmo, e o agente é o próprio causar-se. Temos, não um agente vazio, mas temos o que chamarei para inicio de conversa como o desejo do agente.
+
+Não há ação sob algo, pois não há nada que se mova. O movimento é uma determinação, indica uma ação em detrimento de outras, uma ação dimensional. Portanto, não haveria exatamente a ação do agente, como um movimento físico. Há o querer de si como ação. A ação do agente não é concretizada em uma realidade determinada que se deixa acidentar, pois a ação se faz acidente em uma realidade. Mas o desejo é a ação prévia, anterior a atividade. Desta forma, a ação do causar-se não é um movimento em uma realidade, mas é o querer-se, o tender a si. Desta forma, o causar-se se faz valido perante uma intencionalidade, e não perante um movimento, tal como seria um movimento físico. O Ser, desta forma, é relacional, é uma inclinação que se concretiza em si mesma. Em um conceito mais preciso, o causar-se, ou o Ser, poderia ser comparado ao auto querer absoluto, ao amor inefável. 
+
+Por uma via inversa, podemos, através do conceito de Ser, encontrar o auto causal. O Ser indica o ente que é sua ação de construir-se, de fazer-se, ou melhor, de querer-se. Sendo o Ser absoluto, temos, para o Ser, o mesmo um sinônimo de causar-se. 
+
+O Ser é o agente sendo o próprio efeito de seu ato de Ser. Isto é, há o verbo, e o agente é o verbo. O Ser não é um sou, isto quer, o ente concretizado e determinado como um ente ou o ente. O Ser é o próprio ato de auto criação. o Ser é o ato de auto causar-se.
+
+
+
+
+
+
+excluir abaixo
+
+Embora estes princípios tenham sido constantemente comentados e analisados, um principio importantíssimo para traçar todas as características do Espírito sem que seja necessário recorrer a um modo de inferência indireta -a tentativa de deduzir o Ser a partir do mundo contingente, estabelecendo que para todo efeito existe uma causa necessária-. E este principio o qual nos revela uma visão ampla da substancia do Espírito e de suas propriedades está a seguir:
+
+**O Absoluto é causa de si mesmo. Embora não haja uma substância absoluta predeterminada, a própria autocausalidade atua como sua substância.**
+
+Este principio implica que, do fator auto causal, podemos extrair todas as propriedades do Espírito, quer dizer que, não existe somente o absoluto incausado, no sentido de que não há uma causa exterior a ele. Este olhar está ainda sob uma cadeia causal, mas não adentra na particularidade absoluta, definindo-o pelo que não há anterior a ele, mas não por ele mesmo.
+
+O Absoluto, portanto, não é somente incausado, mas é auto causado. Não há nenhuma natureza externa pela qual o absoluto deve ser, e não há nada que possa compo-lo se não, ele mesmo. Ainda que indaguemos que o absoluto necessariamente deva ser de tal modo, este modo é eleito pelo próprio absoluto, pois ainda que haja necesariedade no estatudo do absoluto, essa necessessariedade é dada por Ele mesmo, e não poderia ser oriunda de uma fonte externa.
+
+Isto quer dizer que, não devemos somente dizer que não há um ente causador para o absoluto, de forma a defini-lo pela ausência de um causador externo, mas devemos defini-lo pela presença de um causador interno. 
+
+
 
 #### Síntese da Inferência Direta sobre a Natureza do Ser
 
-Tendo estabelecido os princípios da autocausalidade absoluta, adentramos agora a natureza íntima do autocausado. Se antes investigamos *como* o Absoluto se fundamenta, cabe agora perguntar: *o que é* esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia causal, mas como ato puro de autoposição?
+Tendo estabelecido os princípios da auto causalidade absoluta, adentramos agora a natureza íntima do auto causado. Se antes investigamos *como* o Absoluto se fundamenta, cabe agora perguntar: *o que é* esse fundamento vivo? Que tipo de realidade emerge quando o Ser é compreendido não como efeito de uma cadeia causal, mas como ato puro de auto posição?
 
 Não exploraremos mais a causalidade, mas a natureza do autocausado. Ou seja, sabemos que o autocausado é uma presença, mas o que seria, de fato, essa presença? Qual a sua potencialidade? Como essa potência pode criar? Quais são as características, as possibilidades e a potencialidade do Absoluto segundo a ótica dialética?
 
