@@ -619,8 +619,51 @@ A hipótese que se sustenta é que o Nada não fundamenta a realidade determinad
 
 
 
+### O NADA COMO SIGNO MENTAL E SUA INSUSTENTABILIDADE ONTOLÓGICA - Parte 6
 
-### CAUSALIDADE ASSIMÉTRICA - Parte 6
+#### O Nada como Signo Mental e a Imanência da Representação
+
+Já é possível adiantar que o final desta investigação delineará o nada como uma tentativa falha de conceber um falso Ser. Isso porque, ao tentarmos apreender o nada como uma realidade pura, somos inevitavelmente conduzidos a um estado de indefinição, no qual qualquer determinação atribuída ao nada já o converte em algo. A criação a partir do nada, portanto, não pressupõe uma categoria ontológica nova, oposta ao Ser, mas antes a condição de liberdade do Ser no campo do Absoluto. O problema deixa, assim, de ser a identificação de uma suposta realidade chamada “nada” e passa a ser a compreensão da própria possibilidade de criação sem a transformação de uma realidade ou substância prévia. A pergunta fundamental, portanto, não será “o que é o nada?”, mas “como é possível criar sem transformar uma realidade ou substância prévia chamada nada?”. Dessa forma, ao refutarmos sucessivamente as tentativas de constituir o nada como uma realidade, poderemos alcançar uma compreensão mais precisa da liberdade metafísica e, consequentemente, de como o Ser opera sobre essa liberdade.
+
+A conclusão correta é que a melhor forma de falar sobre o nada é, na verdade, não se referir a ele. Ao fazermos qualquer referência, já delineamos uma realidade ontológica. Portanto, o conceito de "nada" designa uma categoria inteligível, ao passo que o mero silêncio — o não pronunciar-se sobre coisa alguma — abstém-se de referenciar tanto a realidade quanto a irrealidade. Todavia, a omissão deliberada acerca de um objeto não equivale à sua elucidação total. Dessa forma, a insistência de certas vertentes filosóficas em afirmar que a ausência de discurso ou a suspensão do pensamento é a melhor forma de representar o nada constitui, em última análise, uma renúncia à produção de conteúdo ontológico autêntico — ainda que essas vertentes estejam corretas em seu pressuposto. Essa postura frequentemente mascara uma tentativa de esquivar-se da complexidade inerente ao tema e das dificuldades lógico-formais de inferir sobre ele.
+
+A cognição humana opera estritamente por meio de representações mentais, isto é, sobre signos que remetem a entidades ou dimensões da realidade. Por conseguinte, para que o nada escape ao esvaziamento discursivo e submeta-se ao aparato cognitivo, ele deve ser postulado sob uma perspectiva ontológica. Faz-se necessária uma demonstração argumentativa que fundamente a legitimidade do conceito de nada como algo infundado, permitindo que ele atue como um signo mental operante no pensamento lógico somente com o fim de refutá-lo como realidade ontológica.
+revisado
+Uma vez estabelecido o estatuto ontológico do nada como uma hipótese falsa para fins de inferência, podemos investigar as propriedades que testam a possibilidade de um nada absoluto, avaliando se há uma pureza ontológica subjacente a ele que sustente essa absolutez. Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não-ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
+
+O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não-objetos". Portanto, o nada designado pela linguagem existe e não contém a total nulidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável. O nada não pode sequer ser absoluto, pois, desprovido de fundamento próprio, não possui realidade na qual a absolutez possa se fundar ou da qual possa ser predicada.
+
+Com o propósito de encontrar o aspecto puro (Ser) no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se o Ser é necessário para o Absoluto. Isto quer dizer que testaremos, através dos princípios assimétricos e simétricos, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada. Exploraremos as várias vertentes do nada em suas internalidades. Exploraremos o que seria e como o nada funcionaria de fato.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### CAUSALIDADE ASSIMÉTRICA - Parte 7
 
 #### As Tentativas de Definir e Categorizar o Nada
 
@@ -864,7 +907,6 @@ Os quatro princípios da causalidade assimétrica constituem o sistema de fundam
 | **Causa Irruptiva** | A novidade absoluta irrompe na história sem quebrar a ordem mecânica preexistente. | Manifestação Não Disruptiva (M(Imp) não destrói R) | Atualização de Potenciais ocultos | Fundamenta a liberdade, a criatividade artística e a evolução do ser. |
 
 
-revisado
 
 
 
@@ -885,23 +927,23 @@ revisado
 
 
 
-### O NADA COMO SIGNO MENTAL E SUA INSUSTENTABILIDADE ONTOLÓGICA
 
-#### O Nada como Signo Mental e a Imanência da Representação
 
-Já é possível adiantar que o final desta investigação delineará o nada como uma tentativa falha de conceber um falso Ser. Isso porque, ao tentarmos apreender o nada como uma realidade pura, somos inevitavelmente conduzidos a um estado de indefinição, no qual qualquer determinação atribuída ao nada já o converte em algo. A criação a partir do nada, portanto, não pressupõe uma categoria ontológica nova, oposta ao Ser, mas antes a condição de liberdade do Ser no campo do Absoluto. O problema deixa, assim, de ser a identificação de uma suposta realidade chamada “nada” e passa a ser a compreensão da própria possibilidade de criação sem a transformação de uma realidade ou substância prévia. A pergunta fundamental, portanto, não será “o que é o nada?”, mas “como é possível criar sem transformar uma realidade ou substância prévia chamada nada?”. Dessa forma, ao refutarmos sucessivamente as tentativas de constituir o nada como uma realidade, poderemos alcançar uma compreensão mais precisa da liberdade metafísica e, consequentemente, de como o Ser opera sobre essa liberdade.
 
-A conclusão correta é que a melhor forma de falar sobre o nada é, na verdade, não se referir a ele. Ao fazermos qualquer referência, já delineamos uma realidade ontológica. Portanto, o conceito de "nada" designa uma categoria inteligível, ao passo que o mero silêncio — o não pronunciar-se sobre coisa alguma — abstém-se de referenciar tanto a realidade quanto a irrealidade. Todavia, a omissão deliberada acerca de um objeto não equivale à sua elucidação total. Dessa forma, a insistência de certas vertentes filosóficas em afirmar que a ausência de discurso ou a suspensão do pensamento é a melhor forma de representar o nada constitui, em última análise, uma renúncia à produção de conteúdo ontológico autêntico — ainda que essas vertentes estejam corretas em seu pressuposto. Essa postura frequentemente mascara uma tentativa de esquivar-se da complexidade inerente ao tema e das dificuldades lógico-formais de inferir sobre ele.
 
-A cognição humana opera estritamente por meio de representações mentais, isto é, sobre signos que remetem a entidades ou dimensões da realidade. Por conseguinte, para que o nada escape ao esvaziamento discursivo e submeta-se ao aparato cognitivo, ele deve ser postulado sob uma perspectiva ontológica. Faz-se necessária uma demonstração argumentativa que fundamente a legitimidade do conceito de nada como algo infundado, permitindo que ele atue como um signo mental operante no pensamento lógico somente com o fim de refutá-lo como realidade ontológica.
 
-Uma vez estabelecido o estatuto ontológico do nada como uma hipótese falsa para fins de inferência, podemos investigar as propriedades que testam a possibilidade de um nada absoluto, avaliando se há uma pureza ontológica subjacente a ele que sustente essa absolutez. Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não-ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
 
-O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não-objetos". Portanto, o nada designado pela linguagem existe e não contém a total potencialidade ou a total nulidade. Ele possui uma certa referência à nulidade, mas não à sua totalidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável. O nada não pode sequer ser absoluto, pois, desprovido de fundamento próprio, não possui realidade na qual a absolutez possa se fundar ou da qual possa ser predicada.
 
-Com o propósito de encontrar o aspecto puro (Ser) no absoluto — isto é, no incausado — e considerando que todo retorno ontológico se dá a partir de uma causa positiva e necessariamente pura, precisamos de um ponto de inferência para alcançar tal ontologia ou os aspectos dessa pureza. Para isso, inferiremos sobre o nada. O nada será o nosso ponto de partida para encontrar a ação espiritual. Inferir sobre o nada significa, na verdade, segregá-lo como nada absoluto; a inferência nos levará a concluir se o nada é um absoluto possível ou se o Ser é necessário para o Absoluto. Isto quer dizer que testaremos, através dos princípios assimétricos e simétricos, a possibilidade de o nada ser soberano, inferindo, desta vez, sobre o próprio nada. Exploraremos as várias vertentes do nada em suas internalidades. Exploraremos o que seria e como o nada funcionaria de fato.
 
-#### O Nada como Existência Relacional
+
+
+
+
+
+
+
+
+#### O Nada como Existência Relacional - Parte 8
 
 Ao concebermos o nada como algo representável — isto é, como uma existência potencialmente manifestável, uma nulidade ou uma neutralização do existente —, permanecemos, inevitavelmente, dentro de um quadro existencial. Esse “nada” já não corresponde a uma ausência absoluta, mas a uma negação determinada, cuja definição depende necessariamente de um referencial. Nesse sentido, o nada poderia ser interpretado como uma possibilidade dentro do campo do Absoluto, mas jamais como uma realidade autossuficiente. Ele é determinado precisamente por aquilo que nega. Assim, o signo mental do nada deixa de indicar uma vacuidade absoluta e passa a operar como um conceito relacional, definido a partir daquilo que lhe serve de contraparte.
 
