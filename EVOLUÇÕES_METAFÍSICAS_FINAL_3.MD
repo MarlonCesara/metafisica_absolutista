@@ -1206,53 +1206,27 @@ O indeterminado não é, portanto, o resultado da indeterminação do determinad
 Ao indeterminarmos um ente de si mesmo, não temos uma realidade pura (o que chamaríamos de Ser). Mas, ao indiferenciarmos o ente até mesmo em si, e não somente de si, temos, novamente, o substrato ilógico. Isso porque o indiferenciamento transgride o nível da fundamentação, ou seja, a indeterminação não pode ultrapassar para o nível da fundamentação daquilo que não é, por sua própria natureza, indeterminado sem que destruo o que almeja pruficar.
 
 Ao investigarmos pela via da nadificação do determinado sob o intuito, não de indetermina-lo, mas de transforma-lo na pureza fundamental, percebemos que o nada não pode sustentar sequer o atributo da pureza. A pureza pressupõe alguma realidade da qual se possam excluir as determinações; exige, portanto, um substrato que permaneça enquanto tais determinações são removidas. Para que algo seja dito puro, é necessário que algo seja. O Nada, por definição, não possui substância, substrato ou realidade sobre a qual qualquer predicado possa ser fundado: ele simplesmente não é.
-revisado
-Ao tentarmos igualar o **indeterminado** com o próprio nada, deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. Através da lógica assimétrica, é possível anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
-
-No entanto, a indiferenciação refere-se à imparcialidade da identidade, e não à extinção da fundamentação. Porém, ao pensarmos em uma indiferenciação total, ambos os modos — nada e indiferenciado — manifestam um paradoxo. Pensar o nada ou pensar em uma indiferenciação total exige conferir realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
-
-Neste estágio da investigação, como a substância pura permanece inalcançada, somos compelidos a justificar a existência factual das coisas — afinal, se o mundo manifesto existe, ele deve derivar de alguma operação primordial. Buscamos, portanto, identificar o mecanismo que opera *sobre* esse nada, visando extrair desse conteúdo, que colapsa infinitamente, uma determinação: o "algo" que existe.
-
-É neste ponto que tentamos também singularizar o determinado, indeterminando-o em um colapso que desaba sem um fim. O indiferenciado retirado do determinado deixa de ser uma categoria estática para tornar-se a **captura desse contorno em colapso**. Isso significa que o termo "indiferenciado" adquire um caráter estritamente **dinâmico**. A mente humana tenta resgatar um significado para ele, mas, no exato instante em que ele é pensado, esse significado esvai-se. É uma aproximação cognitiva de altíssima velocidade, mas cuja "velocidade do pensamento" jamais consegue alcançar ou estabilizar o seu produto final.
-
-Indiferenciamos o determinado, e o que sobra é o nada falseável, ou uma indiferenciação não realizada, que identifica um ente mal indiferenciado, de forma que se precise reincidir a indiferenciação infinitas vezes, tal como se necessita nadificar o ente infinitas vezes.
-
-O "nada" torna-se, assim, uma **singularidade filosófica**. É um termo que tende assintoticamente ao infinito, estabelecendo um *loop* perpétuo na razão: uma busca incessante por um significado que, por definição estrutural, nunca poderá repousar em um conceito fixo.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
 #### O Nada como Portador de Potencial Ontológico
 
+===
+error
 Embora tenhamos estabelecido o Indiferenciado como a matriz primordial afirmativa, a investigação lógica nos obriga a reconhecer uma simetria estrutural incontornável: **o "nada" também porta um potencial equivalente ao do indiferenciamento forçado do mundo determinado.**
 
 O "nada", compreendido em sua acepção metafísica relacional, atua como a anulação direta do Ser. Sendo o Ser a somatória de toda a existência e o horizonte de todas as determinações possíveis, o nada não pode ser reduzido a um simples vácuo estéril ou a uma carência inerte. Pelo contrário, por consistir precisamente na anulação do Ser, o nada é, em sua essência, a **anulação do todo em potencial**.
 
-Para que a negação absoluta ocorra e se sustente conceitualmente, a "ausência" precisa espelhar a exata magnitude da "presença" que ela cancela. Tal como o Indiferenciado é o potencial latente do diferenciado — abrigando em si todas as formas e existências antes de sua manifestação —, o nada abriga o potencial absoluto do Ser sob o signo da supressão.
+===
 
-Dessa forma, conclui-se que **ambos os conceitos guardam infinito potencial**. A distinção entre eles não repousa em uma suposta ausência de potência no nada, mas unicamente no vetor dessa mesma potência primordial:
+Para que a negação absoluta ocorra e se sustente conceitualmente, a "ausência" precisa espelhar a exata magnitude da "presença" que ela cancela. Tal como o Indiferenciado é o potencial latente do diferenciado — abrigando em si todas as formas e existências antes de sua manifestação —, o nada abriga o potencial absoluto do ser sob o signo da supressão.
 
-* **O determinado Indiferenciado** é o potencial afirmativo: a totalidade em estado de suspensão ontológica, aguardando a determinação. É o Ser-em-potência, a matriz que possibilita a diferenciação.
-* **O Nada** é o potencial negativo: a totalidade em estado de supressão. É a força neutralizadora que contém, em seu próprio avesso, a exata proporção ontológica do Ser que ele anula.
+Dessa forma, conclui-se que **ambos os conceitos guardam potencial**. A distinção entre eles não repousa em uma suposta ausência de potência no nada, mas unicamente no vetor dessa mesma potência primordial:
 
-Portanto, o nada jamais é destituído de conteúdo latente. Se o Indiferenciado forçado guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do Ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado forçado são determinações: são estados ou potenciais do negado ou do indiferenciamento do diferenciado. São um estado de estabilidade para o todo ontológico. O indiferenciado tem o potencial da diferença, e é em si uma determinação; tal como o nada tem o potencial do todo, e é em si uma determinação.
+* **O determinado feito indeterminado** é o potencial afirmativo: a totalidade em estado de suspensão ontológica, aguardando a determinação. É o ser-em-potência, a matriz que possibilita a determinação.
+* **O Nada** é o potencial negativo: a totalidade em estado de anulação. É a força neutralizadora que contém, em seu próprio avesso, a exata proporção ontológica do Ser que ele anula.
+revisado
+Portanto, o nada jamais é destituído de conteúdo latente. Se o indeterminado forçado guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do Ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado forçado são determinações: são estados ou potenciais do negado ou do indiferenciamento do diferenciado. São um estado de estabilidade para o todo ontológico. O indiferenciado tem o potencial da diferença, e é em si uma determinação; tal como o nada tem o potencial do todo, e é em si uma determinação.
 
 O indiferenciamento do determinado é indiferente até a si mesmo, ao passo que assumir o nada significa saltar esse caminho intermediário. Trata-se de uma via direta para produzir a nulidade, degradando o ontológico por meio da conceituação. Porém, por ambas as vias alcança-se o mesmo resultado: a nulidade do que é. O indiferenciado conclui-se no nada ao negar o ente fragmentado, afirmando não ser nem uma coisa, nem outra, e nem a si próprio. Já o nada opera uma negação mais incisiva e cabal, pois dispensa a abordagem dos fragmentos.
 
@@ -1261,6 +1235,20 @@ Neste contexto, os termos "nada" e "indiferenciado" não se referem a um objeto 
 O potencial do indiferenciado, portanto, ao voltar-se para si mesmo, não atinge o potencial do não-indiferenciado — tal como o potencial do nada jamais alcança o não-nada. Desta forma, o incausado permanece aprisionado a determinações, nunca atingindo uma forma totalmente potente. Ao atribuirmos ao indiferenciado o potencial do não-indiferenciado, deparamo-nos com uma realidade cujo potencial consiste em ser potencial ou não; ao subtrairmos mais uma camada desse potencial, projetamos uma linha infinita que avança perpetuamente, sem jamais encontrar o seu verdadeiro potencial.
 
 Em síntese, o indiferenciado busca a nulidade ao colocar-se como radicalmente diferente de qualquer coisa, enquanto o nada a persegue ao recusar-se a ser coisa alguma. Ambos os caminhos representam vias distintas que partem do mesmo intuito e desaguam no mesmo resultado: a tentativa de estabelecer uma substância incausada. O nada, ou o indiferenciado, são, portanto, conceitos dinâmicos, incapazes de sintetizar conceitualmente o seu verdadeiro significado.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### A Problemática do Infinito e a Dualidade Perspectívica do Ente
 
@@ -1290,6 +1278,20 @@ Para a sensação, a intuição, o desejo ou o querer, é possível atribuir con
 
 A sensação, portanto, é real e inteira enquanto sensação. Ela não é uma realidade incompleta pelo fato de ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe. Desse modo, a fluência contínua pode ser compreendida como uma propriedade da realidade efetivamente existente em seu processo de atualização. Ela pode ser incessante sem ser infinita. Pode ser eterna enquanto continuidade sem constituir uma totalidade infinita já realizada. A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 **O Infinito e o Nada: A Dualidade Perspectívica do Ente**
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
@@ -1303,6 +1305,16 @@ Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade
 Porém, esta é uma visão infundada, visto que o olhar sobre a completude infinita não captura o nada, já que o nada não é coisa alguma. E a forma infinitizada deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza a sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isso quer dizer que, se infinitizarmos um número, há o devir do número que o faz perder seu contorno como número, tal como ocorreria ao infinitizarmos a identidade.
 
 Ao se olhar aquilo que não representa coisa alguma, nada se olha. Ao se olhar uma realidade de forma relativa, não se olha nem a forma, pois a forma já não existe para compor o ente determinado.
+
+
+
+
+
+
+
+
+
+
 
 **O Modelo Analógico da Infinitude Espacial e Temporal**
 
@@ -1323,6 +1335,21 @@ Ao projetarmos o vetor da infinitude sobre o campo integral da determinação, c
 > A determinação é uma fratura no Infinito. O Ser determinado surge quando o intelecto recorta a completude. Sem o recorte, a luz plena do Infinito cega a razão, manifestando-se aparentemente como a vacuidade primordial.
 
 Temos, portanto, a fundamentação de um **Nada Ontológico** — não como negação privativa da realidade, mas como a própria face do Infinito Absoluto quando apreendido em sua totalidade indivisível. Porém, essa faceta é falsa, uma vez que a definição do nada ontológico está apenas no olhar do angulador da infinitude, isto é, é apenas uma miragem, uma realidade imaginada.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### O ANGULADOR, A EMERGÊNCIA DOS FENÔMENOS E O RELATIVO
 
@@ -1414,6 +1441,15 @@ A arquitetura do início da realidade resolve-se através de uma simetria perfei
 
 O "Start" da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco: ele deixa de contemplar a totalidade indivisível (o Nada) e passa a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes.
 
+
+
+
+
+
+
+
+
+
 #### A Vitalidade do Angulador
 
 Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
@@ -1453,6 +1489,21 @@ E até agora temos somente a completude existente ainda em seu marco zero. É ne
 Iremos, então, explorar o Absoluto — o que existe realmente sob o nada — e considerar esse nada como o campo de liberdade do Absoluto, do Ser, da pureza fundamental. Se investigamos o nada e concluímos que ele carece de uma segunda parte para justificá-lo, agora vamos explorar o absoluto, o Ser, para que encontremos de novo o nada, de forma a complementá-lo. Isto é, exploramos o nada, agora exploraremos o angulador que vai de encontro ao nada e o angula para que o nada exista de fato.
 
 Iremos, portanto, justificar o angulador de forma a inferir suas propriedades. E o faremos em busca de aspectos relacionais para o relativo, aspectos relacionais estes que sejam a nossa infinitude. Isto é, procuraremos por propriedades espirituais que emergem no nada por serem absolutas e que, por se darem no contexto do nada, dispensam explicações. Porém, já é possível adiantar que o relativo não pode ser infinitizado, pois nem mesmo pode ser ontológico. Além disso, o angulador não é deduzido de inferência alguma do absoluto; é apenas uma forma de criar o nada imaginado, pelo fato de esse nada não poder ser ontológico.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### O Nada e o Relativo
 
@@ -5856,3 +5907,18 @@ Portanto, o conceito de Absoluto designa uma realidade totalmente desprovida de 
 
 
 
+=====
+error
+Ao tentarmos igualar o **indeterminado** com o próprio nada, deve existir um estado que seja, simultaneamente, indiferenciado em si e indiferenciado de si mesmo. Em suma, embora o nada se refira a uma nulidade, ele carrega consigo uma ontologia potencial. Através da lógica assimétrica, é possível anular o todo, assim como é possível indiferenciar o diferenciado até mesmo em sua fundamentação — o que, no fundo, constitui uma determinação potencial, tal como o próprio nada.
+
+No entanto, a indiferenciação refere-se à imparcialidade da identidade, e não à extinção da fundamentação. Porém, ao pensarmos em uma indiferenciação total, ambos os modos — nada e indiferenciado — manifestam um paradoxo. Pensar o nada ou pensar em uma indiferenciação total exige conferir realidade a dois estados simultâneos: aquele em que o todo é anulado e aquele em que esse mesmo todo permanece inoculado, como potência, em seu próprio estado antagônico.
+
+Neste estágio da investigação, como a substância pura permanece incausada, somos compelidos a justificar a existência factual das coisas — afinal, se o mundo manifesto existe, ele deve derivar de alguma operação primordial. Buscamos, portanto, identificar o mecanismo que opera *sobre* esse nada, visando extrair desse conteúdo, que colapsa infinitamente, uma determinação: o "algo" que existe.
+
+É neste ponto que tentamos também singularizar o determinado, indeterminando-o em um colapso que desaba sem um fim. O indiferenciado retirado do determinado deixa de ser uma categoria estática para tornar-se a **captura desse contorno em colapso**. Isso significa que o termo "indiferenciado" adquire um caráter estritamente **dinâmico**. A mente humana tenta resgatar um significado para ele, mas, no exato instante em que ele é pensado, esse significado esvai-se. É uma aproximação cognitiva de altíssima velocidade, mas cuja "velocidade do pensamento" jamais consegue alcançar ou estabilizar o seu produto final.
+
+Indiferenciamos o determinado, e o que sobra é o nada falseável, ou uma indiferenciação não realizada, que identifica um ente mal indiferenciado, de forma que se precise reincidir a indiferenciação infinitas vezes, tal como se necessita nadificar o ente infinitas vezes.
+
+O "nada" torna-se, assim, uma **singularidade filosófica**. É um termo que tende assintoticamente ao infinito, estabelecendo um *loop* perpétuo na razão: uma busca incessante por um significado que, por definição estrutural, nunca poderá repousar em um conceito fixo.
+
+=====
