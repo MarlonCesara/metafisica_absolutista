@@ -643,7 +643,7 @@ Essa dificuldade já aparece de maneira particularmente expressiva na filosofia 
 A retirada das determinações do mundo fenomênico pode, portanto, produzir uma aparência de pureza sem gerar necessariamente uma realidade ontologicamente fundamental. O procedimento de purificação pode acabar confundindo a **indeterminação conceitual** com a **pureza ontológica**. Nesse sentido, os princípios da lógica assimétrica operam como instrumentos de desconstituição do mundo determinado. Eles partem das coisas que possuem forma, identidade, relação e determinação e procuram retirar sucessivamente essas características, até alcançar aquilo que supostamente permaneceria quando todas as determinações fossem eliminadas.
 
 O problema é que, ao retirar aquilo que determina uma coisa como aquilo que ela é, não se descobre necessariamente a sua essência. Pode-se simplesmente ter destruído conceitualmente a própria coisa. Assim, a operação não produz necessariamente o Ser puro, mas pode produzir um **substrato indeterminado** — uma construção conceitual que conserva apenas a ideia de que “algo deve permanecer” depois da eliminação de todas as determinações. É justamente nesse ponto que a investigação do Nada se torna necessária. Pois, se esse substrato não possui determinação, forma ou propriedade, precisamos perguntar se ele ainda pode ser chamado de Ser ou se, levado às últimas consequências, aproxima-se precisamente do Nada.
-revisado
+
 A questão torna-se ainda mais complexa quando introduzimos os **princípios causais assimétricos**. Esses princípios operam de modo que a causa do mundo fenomênico seja concebida como uma substância nadificada, potencial, indeterminada, relativa, angulada ou mesmo impossível. Em vez de compreender o mundo determinado como diretamente produzido pela liberdade causal do Ser, esses princípios procuram estabelecer uma realidade ontológica anterior que funcionaria como condição de sua transformação. Nesse modelo, a realidade fenomênica não seria causada diretamente pelo Ser. Ela seria o resultado da transformação de uma ontologia prévia, que aqui se pretende definir como Nada. Temos, portanto, uma passagem da **lógica assimétrica** para uma **causalidade assimétrica**.
 
 Os princípios da lógica assimétrica primeiro desorganizam e desconstituem o mundo contingente, retirando suas determinações na tentativa de compor uma substância pura. Em seguida, os princípios causais assimétricos utilizam essa substância indeterminada como fundamento anterior da realidade determinada.
@@ -652,7 +652,7 @@ O movimento completo pode ser descrito da seguinte maneira:
 
 **mundo determinado → retirada das determinações → indeterminação → Nada/substrato → transformação → mundo determinado.**
 
-Nesse esquema, o mundo determinado é simultaneamente o ponto de partida e o ponto de chegada. Parte-se do mundo fenomênico para retirar suas determinações, produzindo uma suposta realidade indeterminada; posteriormente, essa realidade é utilizada como substrato para explicar o próprio mundo do qual ela foi abstraída. É precisamente essa circularidade que precisa ser investigada. Os princípios da lógica assimétrica procuram **destruir o mundo contingente sem destruí-lo completamente**. Retiram suas determinações, mas tentam preservar algo que ainda possa ser considerado existente. Pretendem, assim, purificar o mundo determinado sem eliminá-lo, tornando-o indeterminado e, simultaneamente, mantendo-o ontologicamente subsistente. Essa operação produz uma tensão fundamental: se retiramos todas as determinações de uma realidade, o que resta? Se ainda resta alguma coisa, essa coisa possui alguma determinação mínima; se não resta determinação alguma, então torna-se necessário explicar em que sentido aquilo que resta ainda pode ser chamado de Ser.
+Nesse esquema, o mundo determinado é simultaneamente o ponto de partida e o ponto de chegada. Parte-se do mundo fenomênico para retirar suas determinações, produzindo uma suposta realidade indeterminada; posteriormente, essa realidade é utilizada como substrato para explicar o próprio mundo do qual ela foi abstraída. É precisamente essa circularidade que precisa ser investigada. Os princípios da lógica assimétrica procuram **destruir o mundo contingente sem destruí-lo completamente**. Retiram suas determinações, mas tentam preservar algo que ainda possa ser considerado existente. Pretendem, assim, purificar o mundo determinado sem eliminá-lo, tornando-o indeterminado e, simultaneamente, mantendo-o ontologicamente subsistente. Essa operação produz uma tensão fundamental: se retiramos todas as determinações de uma realidade, o que resta? Se ainda resta alguma coisa, essa coisa possui alguma determinação mínima; se não resta determinação alguma, então torna-se necessário explicar em que sentido aquilo que resta ainda pode ser chamado de ser.
 
 É nesse ponto que o Nada pode surgir como resultado extremo da operação de purificação. O Nada seria aquilo que permanece quando toda determinação foi removida, mas que, paradoxalmente, ainda é tratado como se pudesse constituir um fundamento. Entretanto, se o Nada é absolutamente desprovido de propriedades, ele não pode ser uma substância. Se é uma substância, possui algum modo de ser. Se possui algum modo de ser, já não é Nada absoluto. A mesma dificuldade aparece quando o Nada é convertido em potência. Uma potência não é simplesmente ausência; ela é uma capacidade de atualização. Aristóteles, ao tratar da potência, relaciona-a precisamente à possibilidade de mudança e atualização. Portanto, chamar o Nada de “potencial” já parece atribuir a ele uma estrutura que contradiz sua definição como ausência absoluta.
 
@@ -670,7 +670,7 @@ A **causa transformadora** pressupõe algo sobre o qual opera. Ela modifica uma 
 
 É justamente essa diferença que precisa ser preservada. Quando se afirma que o Ser transforma o Nada, atribui-se ao Nada uma função causal passiva. O Nada torna-se aquilo que recebe uma determinação. Mas aquilo que recebe uma determinação precisa possuir algum estatuto ontológico capaz de recebê-la. Por isso, o conceito de Nada deve ser distinguido rigorosamente do conceito de **indeterminação**. A indeterminação pode pertencer a algo que existe. Uma coisa pode ser indeterminada relativamente a um aspecto específico e, ainda assim, possuir realidade. O Nada absoluto, entretanto, não pode ser indeterminado no mesmo sentido, porque até mesmo a indeterminação seria uma característica que lhe atribuiríamos.
 
-Dessa forma, a tentativa de construir uma substância pura pela retirada das determinações pode terminar produzindo justamente aquilo que pretendia evitar: uma abstração vazia. O procedimento parte do mundo determinado, remove suas características, elimina suas relações, suspende suas formas e chega finalmente a algo que já não pode ser identificado com nenhuma realidade particular. Nesse ponto, porém, surge a pergunta decisiva: **chegamos ao Ser puro ou simplesmente ao Nada?** Se chegamos ao Nada, então a operação não descobriu o fundamento do Ser; apenas eliminou as determinações do ente até atingir sua negação. Se chegamos ao Ser, então será necessário explicar por que a ausência de determinações implica a presença do Ser, e não simplesmente sua ausência.
+Dessa forma, a tentativa de construir uma substância pura pela retirada das determinações pode terminar produzindo justamente aquilo que pretendia evitar: uma abstração vazia. O procedimento parte do mundo determinado, remove suas características, elimina suas relações, suspende suas formas e chega finalmente a algo que já não pode ser identificado com nenhuma realidade particular. Nesse ponto, porém, surge a pergunta decisiva: **chegamos ao Ser puro ou simplesmente ao Nada?** Se chegamos ao Nada, então a operação não descobriu o fundamento do Ser; apenas eliminou as determinações do ente até atingir sua negação. Se chegamos ao Ser, então será necessário explicar por que a ausência de determinações implica a presença do Ser, e não simplesmente a ausência.
 
 É justamente essa questão que torna problemática a identificação entre Ser e Nada. A ausência de determinações pode explicar a **indiferenciação**, mas não explica necessariamente a **existência**. Pode-se retirar de um ente todas as suas características particulares sem, por isso, demonstrar que aquilo que resta constitui um fundamento ontológico necessário. Assim, o que aqui denominamos **lógica assimétrica** pode ser compreendido como um conjunto de operações conceituais que procuram inverter o procedimento ordinário da razão: em vez de partir do determinado para compreender suas determinações, parte-se do determinado para retirar suas determinações e tentar alcançar aquilo que supostamente as antecede. Da mesma maneira, a causalidade assimétrica procura inverter a explicação causal ordinária: em vez de compreender o efeito como diretamente produzido pelo fundamento, introduz-se entre ambos uma realidade intermediária, indeterminada e potencial, que funcionaria como substrato da transformação.
 
@@ -802,30 +802,15 @@ A proposição aqui apresentada estabelece que:
 
 ---
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 #### Dos Princípios Assimétricos aos Princípios Causais (A Causalidade do Indeterminado e a Sustentação do Ser)
 
 **Introdução: A Transição da Lógica Abstrata para a Causalidade Vertical**
 
-Se a face simétrica da razão deságua em uma causalidade horizontal e diacrônica — que rege as relações entre os entes já individualizados no espaço-tempo —, a **face assimétrica da razão** exige um desdobramento metafísico radicalmente diferente. A lógica do indeterminado não pode ser projetada sobre uma causalidade de choques, forças equivalentes ou reações simétricas. Ela exige a formulação de uma **Causalidade Assimétrica**.
+Se a face simétrica da razão deságua em uma causalidade diacrônica — que rege as relações entre os entes já individualizados no espaço-tempo —, a **face assimétrica da razão** exige um desdobramento metafísico radicalmente diferente. A lógica do indeterminado não pode ser projetada sobre uma causalidade de choques, forças equivalentes ou reações simétricas. Ela exige a formulação de uma **Causalidade Assimétrica**.
 
-Esta não é uma causalidade que opera *entre* as coisas do mundo (como a bola de bilhar que move outra), mas uma **causalidade vertical e emanativa** que opera *do Fundamento para a Manifestação*. Enquanto a causalidade clássica é governada pela conservação e pela ação-reação, a causalidade assimétrica explica como o infinito sustenta o finito, como o absoluto gera o contingente e como o indeterminado dá origem à determinação sem sofrer desgaste, divisão ou esgotamento. A correspondência necessária entre o *logos* do indeterminado e a estrutura profunda do real exige, portanto, a tradução dos quatro princípios lógicos assimétricos em **quatro princípios causais metafísicos**.
+Esta não é uma causalidade que opera *entre* as coisas do mundo (como a bola de bilhar que move outra), mas uma **causalidade emanativa** que opera *do Fundamento para a Manifestação*. Enquanto a causalidade clássica é governada pela conservação e pela ação-reação, a causalidade assimétrica explica como o indeterminado dá origem à determinação sem sofrer desgaste, divisão ou esgotamento. A correspondência necessária entre o *logos* do indeterminado e a estrutura profunda do real exige, portanto, a tradução dos quatro princípios lógicos assimétricos em **quatro princípios causais metafísicos**.
 
-Tais princípios podem servir para justificar a tentativa de conceber a causa transformadora em ação de duas maneiras. Na primeira, o Ser atuaria diretamente sobre o Nada ou sobre o indiferenciado, transformando-o em algo determinado. Na segunda, o próprio indiferenciado seria concebido como capaz de transformar-se autonomamente em algo, atualizando-se progressivamente em uma realidade determinada. Nesse segundo caso, o indiferenciado poderia ser considerado um falso Ser: uma espécie de realidade originária que contém, de forma indiferenciada, as partes que posteriormente constituirão a realidade contingente. Assim, tratar-se-ia da própria realidade contingente reduzida à indiferenciação, que, ao atualizar-se, voltaria a constituir-se como realidade determinada.
+Tais princípios podem servir para justificar a tentativa de conceber a causa transformadora em ação de duas maneiras. Na primeira, o Ser atuaria diretamente sobre o Nada ou sobre o indeterminado, transformando-o em algo determinado. Na segunda, o próprio indeterminado seria concebido como capaz de transformar-se autonomamente em algo, atualizando-se progressivamente em uma realidade determinada. Nesse segundo caso, o indeterminado poderia ser considerado um falso Ser: uma espécie de realidade originária que contém as partes que posteriormente constituirão a realidade contingente. Assim, tratar-se-ia da própria realidade contingente reduzida à indeterminação, que, ao atualizar-se, voltaria a constituir-se como realidade determinada.
 
 Entretanto, é importante recordar que tais construções constituem, em última instância, uma tentativa equivocada de reconstruir um pensamento que parte da equivalência entre o Ser e o Nada. Elas pressupõem, ainda, que o Nada possua algum tipo de existência efetiva e que, consequentemente, possa sofrer uma atualização ou transformação. É justamente essa pressuposição que precisa ser rejeitada: se o Nada é verdadeiramente nada, não pode existir como algo, nem possuir partes, potencialidades ou qualquer capacidade de atualização.
 
@@ -833,13 +818,13 @@ Entretanto, é importante recordar que tais construções constituem, em última
 
 Ao transportarmos o eixo da assimetria para o plano ontológico, deparamo-nos com uma realidade que a física clássica ou a lógica puramente formal não conseguem isolar: a **unilateralidade pura**. No mundo determinado, toda causa sofre, de algum modo, o influxo de seu efeito (a terceira lei de Newton exemplifica essa simetria no âmbito físico). No entanto, na metafísica do indeterminado, a relação de fundação seria absolutamente unidirecional: o Fundamento (F) causaria a Manifestação (M), enquanto M não alteraria, não limitaria nem reagiria sobre F.
 
-Essa assimetria causal impediria que o Absoluto fosse capturado ou dissolvido por suas próprias manifestações, preservando, assim, a possibilidade de uma novidade radical na realidade manifesta. Entretanto, essa formulação conduz a uma dificuldade fundamental. Ela pressupõe que um fundamento indiferenciado possa produzir, a partir de si mesmo, uma realidade diferenciada sem sofrer qualquer determinação ou esgotamento. O problema é que, levado às últimas consequências, esse fundamento indiferenciado não poderia ser propriamente um fundamento distinto daquilo que produz. Se ele contém, ainda que de maneira indiferenciada, aquilo que posteriormente constituirá o mundo determinado, então o agente causador nada mais seria do que o próprio mundo determinado reduzido a uma condição de indiferenciação.
+Essa assimetria causal impediria que o Absoluto fosse capturado ou dissolvido por suas próprias manifestações, preservando, assim, a possibilidade de uma novidade radical na realidade manifesta. Entretanto, essa formulação conduz a uma dificuldade fundamental. Ela pressupõe que um fundamento indeterminado possa produzir, a partir de si mesmo, uma realidade determinada sem sofrer qualquer determinação ou esgotamento. O problema é que, levado às últimas consequências, esse fundamento indeterminado não poderia ser propriamente um fundamento distinto daquilo que produz. Se ele contém, ainda que de maneira indeterminada, aquilo que posteriormente constituirá o mundo determinado, então o agente causador nada mais seria do que o próprio mundo determinado reduzido a uma condição de indeterminação.
 
 Nesse sentido, teríamos uma realidade ontologicamente insustentável: algo que não é efetivamente determinado, mas que também não pode ser identificado com o Nada, pois lhe atribuímos a capacidade de produzir, atualizar e determinar a realidade. A tentativa de estabelecer uma causa indiferenciada, portanto, acaba por introduzir uma entidade intermediária que não possui uma determinação própria suficiente para existir como fundamento, mas que, ao mesmo tempo, precisa possuir determinações potenciais para explicar o surgimento do determinado. A assimetria pretendida, desse modo, não resolve o problema: apenas desloca a dificuldade para um fundamento cuja própria natureza permanece indeterminada e cuja capacidade causal já pressupõe aquilo que deveria explicar.
 
 **Os Quatro Princípios Causais Assimétricos**
 
-Os quatro princípios da causalidade assimétrica constituem o sistema de fundamentação vertical que explica a emergência, a novidade e a transcendência do real a partir de seu suposto fundo inesgotável.
+Os quatro princípios da causalidade assimétrica constituem o sistema de fundamentação que explica a emergência, a novidade e a transcendência do real a partir de seu suposto fundo inesgotável.
 
 1. **Princípio da Causa Emanativa (Originária)**
 
@@ -860,7 +845,7 @@ Os quatro princípios da causalidade assimétrica constituem o sistema de fundam
 > **A causa absoluta sustenta e fundamenta o efeito contingente sem sofrer qualquer reação, desgaste ou diminuição por parte deste.**
 
 * **Fundamento Lógico:** Princípio da Assimetria Fundacional (F → M, M ↛ F).
-* **Articulação Metafísica:** Este é o coração da causalidade vertical. A dependência é exclusiva do fundado em relação ao fundamento. O universo determinado consome a energia de suas próprias causas internas (causalidade simétrica), mas a força que o mantém suspenso sobre o nada não sofre entropia. O efeito não esgota a causa; a tela não é alterada pela tinta do quadro.
+* **Articulação Metafísica:** A dependência é exclusiva do fundado em relação ao fundamento. O universo determinado consome a energia de suas próprias causas internas (causalidade simétrica), mas a força que o mantém suspenso sobre o nada não sofre entropia. O efeito não esgota a causa; a tela não é alterada pela tinta do quadro.
 
 4. **Princípio da Causa Irruptiva (Emergência Aberta)**
 
@@ -877,6 +862,28 @@ Os quatro princípios da causalidade assimétrica constituem o sistema de fundam
 | **Causa Paradoxal** | A causa primeira viabiliza a coexistência produtiva de opostos no mundo. | Inclusão do Paradoxo (∃x (P(x) ∧ ¬P(x))) | Síntese Suprareacional | Permite fenômenos de fronteira, como a vida, a mente e o tempo. |
 | **Causa Unilateral** | O Fundamento gera o ser manifestado sem ser modificado ou esgotado por ele. | Assimetria Fundacional (F → M, M ↛ F) | Dependência Vertical Unilateral | Explica a transcendência do absoluto e a contingência do cosmos. |
 | **Causa Irruptiva** | A novidade absoluta irrompe na história sem quebrar a ordem mecânica preexistente. | Manifestação Não Disruptiva (M(Imp) não destrói R) | Atualização de Potenciais ocultos | Fundamenta a liberdade, a criatividade artística e a evolução do ser. |
+
+
+revisado
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### O NADA COMO SIGNO MENTAL E SUA INSUSTENTABILIDADE ONTOLÓGICA
 
