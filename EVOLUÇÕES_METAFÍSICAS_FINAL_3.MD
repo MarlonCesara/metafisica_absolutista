@@ -969,7 +969,7 @@ Se a manifestação A e o nada B forem concebidos como potenciais opostos ou com
 
 Se forem potenciais mútuos, então coexistem como diferentes modalidades de uma mesma realidade ou essência. Nesse caso, o nada deixa de ser nada em sentido absoluto e passa a constituir apenas uma modalidade de determinação do ser.
 
-* *Exemplo:* Uma infinitude material que não pode ser apreendida enquanto totalidade, pois uma dimensão material verdadeiramente infinita não pode ser integralmente visualizada. Ao ser recortada ou delimitada pelo olhar, porém, ela se apresenta como uma dimensão material real. Nesse intervalo, ocorre o colapso da forma dotada da potência de recorte, pois aquilo que era concebido como uma totalidade indiferenciada passa a manifestar-se como uma determinação particular. Porém, uma infinitude que é considerada "nada", mas que se torna visível mediante um recorte, não é nada.
+* *Exemplo:* Uma infinitude material que não pode ser apreendida enquanto totalidade, pois uma dimensão material verdadeiramente infinita não pode ser integralmente visualizada. Ao ser recortada ou delimitada pelo olhar, porém, ela se apresenta como uma dimensão material real.  
 
 Se forem potenciais opostos, então se excluem mutuamente. A presença de qualquer determinação em B faria com que B deixasse imediatamente de ser nada, pois um potencial já constitui alguma forma de determinação.
 
