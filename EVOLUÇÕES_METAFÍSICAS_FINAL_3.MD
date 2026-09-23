@@ -628,7 +628,7 @@ Já é possível adiantar que o final desta investigação delineará o nada com
 A conclusão correta é que a melhor forma de falar sobre o nada é, na verdade, não se referir a ele. Ao fazermos qualquer referência, já delineamos uma realidade ontológica. Portanto, o conceito de "nada" designa uma categoria inteligível, ao passo que o mero silêncio — o não pronunciar-se sobre coisa alguma — abstém-se de referenciar tanto a realidade quanto a irrealidade. Todavia, a omissão deliberada acerca de um objeto não equivale à sua elucidação total. Dessa forma, a insistência de certas vertentes filosóficas em afirmar que a ausência de discurso ou a suspensão do pensamento é a melhor forma de representar o nada constitui, em última análise, uma renúncia à produção de conteúdo ontológico autêntico — ainda que essas vertentes estejam corretas em seu pressuposto. Essa postura frequentemente mascara uma tentativa de esquivar-se da complexidade inerente ao tema e das dificuldades lógico-formais de inferir sobre ele.
 
 A cognição humana opera estritamente por meio de representações mentais, isto é, sobre signos que remetem a entidades ou dimensões da realidade. Por conseguinte, para que o nada escape ao esvaziamento discursivo e submeta-se ao aparato cognitivo, ele deve ser postulado sob uma perspectiva ontológica. Faz-se necessária uma demonstração argumentativa que fundamente a legitimidade do conceito de nada como algo infundado, permitindo que ele atue como um signo mental operante no pensamento lógico somente com o fim de refutá-lo como realidade ontológica.
-revisado
+
 Uma vez estabelecido o estatuto ontológico do nada como uma hipótese falsa para fins de inferência, podemos investigar as propriedades que testam a possibilidade de um nada absoluto, avaliando se há uma pureza ontológica subjacente a ele que sustente essa absolutez. Propõe-se, portanto, a investigação de um nada ontológico: uma dimensão que compartilha de traços do existente para que possa ser formalmente representada. Trata-se de tensionar e decifrar o aparente paradoxo entre a ontologia apreensível pelo intelecto e o nada em si (tradicionalmente relegado à não-ontologia impensável). Desenvolver um modelo para um nada ontologicamente sustentável revela-se um esforço teoricamente mais fecundo do que a repetição de que "a melhor representação do nada é o não pensar", sob o pretexto de que concebê-lo anularia sua própria natureza. Existem vias logicamente mais robustas e rigorosas para predicá-lo.
 
 O nada, quando referenciado pela linguagem, assume um caráter ontológico; diz-se que ele existe para que possa ser referenciado. A linguagem é composta por signos que designam objetos, e não "não-objetos". Portanto, o nada designado pela linguagem existe e não contém a total nulidade. Sendo assim, em nossas investigações, referenciaremos o nada como um objeto para que possamos inferir sobre ele, operando, contudo, com a ciência de que o seu predicado essencial é inominável. O nada não pode sequer ser absoluto, pois, desprovido de fundamento próprio, não possui realidade na qual a absolutez possa se fundar ou da qual possa ser predicada.
@@ -955,6 +955,8 @@ O nada só pode ser concebido como contraparte de algo manifesto ou possível. O
 
 **2. Referencialidade Obrigatória**
 Não há “nada” sem relação com um “algo”, seja esse algo previamente manifestado, seja apenas concebível como possibilidade. Da mesma maneira, não há potência sem relação com aquilo que pode vir a ser atualizado, nem “não ente” sem referência àquilo que ele nega: o ente. Por conseguinte, também não há ausência sem a possibilidade de uma presença como referência, pois algo necessariamente precisa estar ausente para que se possa falar propriamente em ausência.
+
+revisado
 
 **3. Um marcador de ausência**
 Uma forma de indicar que determinada manifestação não está presente. A negação só pode existir enquanto negação de algo que já foi manifestado ou cuja manifestação seja possível. Portanto, não há “nada” em sentido absoluto sem uma referência positiva que determine aquilo que está sendo negado.
@@ -2663,7 +2665,7 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 
 
-revisado
+
 
 
 
