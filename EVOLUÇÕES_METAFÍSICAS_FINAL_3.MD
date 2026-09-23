@@ -1232,34 +1232,16 @@ Chegamos, assim, a uma dificuldade fundamental: aquilo que ainda não existe nã
 A própria palavra **“infinidade”** revela essa dificuldade. Considerada isoladamente, ela não parece simbolizar uma realidade determinada, mas funcionar como uma atribuição feita a alguma coisa. Quando dizemos “infinidade”, estamos aparentemente acrescentando ao ente uma propriedade cuja realidade completa nunca pode ser apresentada. A infinidade, atribuida ao ente determinado, seria, então, uma realidade acrescida daquilo que não pode ser efetivamente determinado para essa ente.
 
 Dizer que o universo possui um espaço infinito ou que uma singularidade possui uma massa infinita seria, sob essa perspectiva, problemático. Não porque a linguagem matemática não possa operar legitimamente com o conceito de infinito, mas porque, no plano das coisas determinadas, transformar o infinito em uma propriedade efetivamente existente pode produzir uma contradição conceitual. O infinito matemático pode funcionar como limite, relação ou estrutura formal; outra coisa é concebê-lo como uma determinação real integralmente presente em um ente. É importante, entretanto, distinguir **ser finito** de **ter um fim**. A finitude não implica necessariamente uma cessação. Algo pode ser finito em sua determinação atual e, ainda assim, permanecer suscetível de transformação, de expansão ou de duração indefinida.
-revisado
-Assim, adicionar a um ente uma **fluência contínua** é conceitualmente diferente de atribuir-lhe infinitude. A fluência contínua não pressupõe a existência atual de uma realidade que ainda não existe. Ela apenas afirma que aquilo que existe permanece em processo de transformação ou duração. Cada estado presente é real enquanto presente, ainda que outros estados possam sucedê-lo indefinidamente. Por isso, talvez não seja adequado afirmar que o espaço do universo é infinito. Seria mais coerente dizer que o universo pode apresentar uma expansão contínua, caso essa expansão seja compreendida como um processo cuja atualização não exige a existência presente de uma totalidade espacial já realizada.
 
-No campo das sensações, poderíamos encontrar igualmente determinações finitas que se modificam, se ampliam ou se sucedem continuamente. Poderíamos conceber a delimitação de nosso universo particular como aquilo que constitui sua própria fronteira fenomênica, além da qual se iniciariam outros universos ou outras **h.c.s.**. Mas poderíamos também considerar que nosso universo particular não possui uma extensão previamente determinada e encerrada, e que permanece em expansão contínua.
+Assim, adicionar a um ente determinado uma **fluência contínua** é conceitualmente diferente de atribuir-lhe infinitude. A fluência contínua não pressupõe a existência atual de uma realidade que ainda não existe. Ela apenas afirma que aquilo que existe permanece em processo de transformação ou duração. Cada estado presente é real enquanto presente, ainda que outros estados possam sucedê-lo indefinidamente. Por isso, talvez não seja adequado afirmar que o espaço do universo é infinito. Seria mais coerente dizer que o universo pode apresentar uma expansão contínua, caso essa expansão seja compreendida como um processo cuja atualização não exige a existência presente de uma totalidade espacial infinita já realizada.
 
-Não seria possível atribuir simplesmente um espaço às sensações, pois o próprio espaço poderia ser compreendido como mais uma determinação sensível, e não como um recipiente absoluto no qual as sensações estariam dispostas. É possível, contudo, atribuir às sensações uma continuidade temporal: uma sucessão incessante de estados presentes, na qual cada estado é plenamente real enquanto ocorre, sem que seja necessário pressupor uma totalidade temporal infinita já existente.
-
-Para a sensação, a intuição, o desejo ou o querer, é possível atribuir conteúdo qualitativo; é possível que exista um querer infinito. Isso ocorre porque o qualitativo se infinitiza, pois não é quantitativo. Um amor infinito pode existir, enquanto uma realidade espacial infinita não. Portanto, realidades relacionais podem adquirir infinitude. Temos, portanto, dois conceitos distintos:
+Para o desejo ou o querer, é possível atribuir conteúdo qualitativo; é possível que exista um querer infinito. Isso ocorre porque o qualitativo se infinitiza, pois não é quantitativo. Um amor infinito pode existir, enquanto uma realidade espacial infinita não. Portanto, realidades espírituais podem adquirir infinitude. Temos, portanto, dois conceitos distintos:
 
 * **Um ente infinito** seria, em sentido absoluto, um ente acrescido daquilo que jamais pode ser integralmente atualizado; sua infinitude apontaria para uma totalidade que nunca se apresenta como realidade acabada.
-* **Um ente de fluência contínua**, por outro lado, é um ente cuja realidade é inteiramente efetiva em cada atualização presente e que se acresce somente de propriedades que, quando atualizadas, tornam-se igualmente reais.
+* **Um ente de fluência contínua**, por outro lado, é um ente cuja realidade é inteiramente efetiva em cada atualização presente e que se acresce somente de propriedades que, quando atualizadas, tornam-se igualmente reais. Desse modo, a fluência contínua pode ser compreendida como uma propriedade da realidade efetivamente existente em seu processo de atualização. Ela pode ser incessante sem ser infinita. Pode ser eterna enquanto continuidade sem constituir uma totalidade infinita já realizada. A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada se instaurada em uma realidade determinada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
+* **Um querer infinito**, por sua vez, resguarda em si uma qualidade não quantitativa, mas espiritual. Trata-se de uma qualidade que não se enquadra no que é dimensional, mensurável, redutível ou suscetível de acréscimo quantitativo. Um amor infinito, nesse sentido, não se realiza por acumulação ou extensão, mas dá-se de modo total; sua infinitude não é apreendida na esfera do mensurável, mas na própria qualidade de seu ato. Uma realidade espiritual, por não estar submetida à dimensionalidade, dispensa extensão, medida e composição quantitativa, embora permaneça inteligível, dedutível e passível de ser estabelecida conceitualmente como indiferenciada.
 
-A sensação, portanto, é real e inteira enquanto sensação. Ela não é uma realidade incompleta pelo fato de ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe. Desse modo, a fluência contínua pode ser compreendida como uma propriedade da realidade efetivamente existente em seu processo de atualização. Ela pode ser incessante sem ser infinita. Pode ser eterna enquanto continuidade sem constituir uma totalidade infinita já realizada. A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+revisado
 **O Infinito e o Nada: A Dualidade Perspectívica do Ente**
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
@@ -1273,16 +1255,6 @@ Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade
 Porém, esta é uma visão infundada, visto que o olhar sobre a completude infinita não captura o nada, já que o nada não é coisa alguma. E a forma infinitizada deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza a sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isso quer dizer que, se infinitizarmos um número, há o devir do número que o faz perder seu contorno como número, tal como ocorreria ao infinitizarmos a identidade.
 
 Ao se olhar aquilo que não representa coisa alguma, nada se olha. Ao se olhar uma realidade de forma relativa, não se olha nem a forma, pois a forma já não existe para compor o ente determinado.
-
-
-
-
-
-
-
-
-
-
 
 **O Modelo Analógico da Infinitude Espacial e Temporal**
 
@@ -5922,4 +5894,15 @@ Embora tenhamos estabelecido o Indiferenciado como a matriz primordial afirmativ
 
 O "nada", compreendido em sua acepção metafísica relacional, atua como a anulação direta do Ser. Sendo o Ser a somatória de toda a existência e o horizonte de todas as determinações possíveis, o nada não pode ser reduzido a um simples vácuo estéril ou a uma carência inerte. Pelo contrário, por consistir precisamente na anulação do Ser, o nada é, em sua essência, a **anulação do todo em potencial**.
 
+===
+
+
+
+===
+error
+No campo das sensações, poderíamos encontrar igualmente determinações finitas que se modificam, se ampliam ou se sucedem continuamente. Mas poderíamos também considerar que nosso universo particular não possui uma extensão previamente determinada e encerrada, e que permanece em expansão contínua.
+
+Não seria possível atribuir simplesmente um espaço às sensações, pois o próprio espaço poderia ser compreendido como mais uma determinação sensível, e não como um recipiente absoluto no qual as sensações estariam dispostas. É possível, contudo, atribuir às sensações uma continuidade temporal: uma sucessão incessante de estados presentes, na qual cada estado é plenamente real enquanto ocorre, sem que seja necessário pressupor uma totalidade temporal infinita já existente.
+
+O querer, portanto, é real e inteira enquanto querer. Ele não é uma realidade incompleta pelo fato de ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe. 
 ===
