@@ -950,7 +950,7 @@ Se, por outro lado, forem concebidos como **potenciais opostos**, então A e B d
 *Exemplo:* suponha-se o indiferenciado, tomado como nada, ao qual se atribua a potência de manifestar-se. Aparentemente, teríamos dois polos opostos: de um lado, a ausência de determinação; de outro, a determinação manifesta. Entretanto, a própria atribuição de uma potência de manifestação ao indiferenciado já impede que ele seja concebido como ausência absoluta. Para que B possa conter a potência de tornar-se A, é necessário que B possua, de algum modo, a capacidade ou condição pela qual A possa emergir. Essa capacidade já constitui uma determinação ontológica.
 
 Há, ademais, uma **dependência conceitual** entre os dois polos. O indiferenciado só pode ser definido como tal em referência àquilo que se apresenta como diferenciado ou determinado. Do mesmo modo, a manifestação só pode ser compreendida como manifestação em relação àquilo que, supostamente, não está manifestado. A oposição, portanto, não estabelece duas realidades absolutamente independentes, mas uma relação conceitual entre determinação e ausência de determinação.
-revisado
+
 **Demonstração do colapso da noção de nada absoluto:** em ambos os casos, a concepção de um nada absoluto torna-se inconsistente.
 
 Se o nada **possui potencialidade**, então já não é absolutamente indeterminado, pois a própria potência constitui uma determinação — ainda que não seja uma determinação atualizada.
@@ -1009,7 +1009,7 @@ Não havendo um nada existente, também não há uma transição efetiva entre u
 
 **4. A Ilusão do Intervalo Nulificador**
 Dessa forma, o nada pode parecer um estado intermediário que permite imaginar a passagem para a existência. A mente introduz um intervalo conceitual entre aquilo que é nadificado e aquilo que passa a ser determinado, interpretando esse intervalo como um “nada” que posteriormente seria superado. Entretanto, esse intervalo não corresponde necessariamente a uma realidade metafísica. Não existe um vácuo ontológico entre a ausência de uma determinação e a própria determinação. A suposta “passagem pelo nada” é, portanto, uma projeção epistemológica: uma maneira de representar mentalmente a ausência de uma determinação, e não a descrição de uma entidade que efetivamente precede a existência.
-revisado
+
 **5. Colapso por Autorreferência**
 Todo nada concebido como negação pressupõe algo como referente. Quando eliminamos completamente esse referente, eliminamos também a condição de inteligibilidade da própria negação. O nada, portanto, não consegue sustentar-se como entidade autônoma. Ele não é um estado estável do ser, mas o limite ao qual conduzimos o pensamento quando retiramos progressivamente todas as determinações do determinado. Sua pretensão de absolutez conduz, assim, ao próprio colapso conceitual: quanto mais tentamos isolá-lo como realidade, menos conteúdo resta para identificá-lo como algo.
 
@@ -1018,9 +1018,9 @@ Ao destituir toda a determinação do determinado, não obtemos uma sopa ontoló
 #### Criação sem Conversão do Nada
 
 A existência criada, portanto, não precisa ser compreendida como resultado de uma transformação do nada em algo. Tampouco é necessário postular um processo no qual uma realidade chamada “nada” se autossuprima para produzir a existência. Se o nada não possui existência própria, não pode constituir um substrato a partir do qual algo seja produzido. A criação, nesse contexto, deve ser compreendida sem a necessidade de uma conversão ontológica do nada em manifestação. O que existe é a manifestação de uma realidade determinada segundo suas próprias condições de possibilidade. O “nada” apenas nomeia, retrospectiva ou conceitualmente, a soberania do Ser que antecede essa manifestação.
-revisado
+
 Quando nos referimos ao Ser soberano e absoluto, não é necessário recorrer à simbologia de uma ausência ontológica, pois a própria soberania do Ser exclui qualquer necessidade de postular um nada ontológico que persista paralelamente ou em competição com o Ser verdadeiro. Se o Ser é verdadeiramente absoluto e soberano, nada lhe é ontologicamente exterior como princípio, substância ou fundamento concorrente. A ausência de uma realidade prévia não exige, portanto, a existência de um “nada” que a represente; basta a própria soberania do Ser como fundamento da manifestação. Desse modo, a autossupressão não designa um processo real sofrido por uma entidade chamada nada. Ela apenas descreve, de maneira figurada, o desaparecimento conceitual de uma determinação negativa. O produto dessa suposta autossupressão não existe como entidade intermediária: não há um “nada autossuprimido” que posteriormente se transforme em existência.
-revisado
+
 #### Implicações Radicais e a Criação Ex Nihilo
 
 A tentativa de conceber o nada como entidade metafísica paradoxal revela-se, portanto, um exercício de pensamento que se desfaz em suas próprias condições de formulação.
@@ -1051,8 +1051,60 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 * **O Ser não precisa do nada para criar:** A criação é ato puro da liberdade divina, que estabelece a distinção radical entre Criador e criatura, não uma modificação de algum substrato preexistente.
 * **A criação é manifestação gratuita, não emanação:** O mundo não "flui" necessariamente do Ser (como no neoplatonismo), mas é chamado à existência por ato livre da vontade do Ser, como manifestação gratuita da plenitude do Ser.
 
-*(Nota sobre a continuidade: Aqui está a quarta parte. Ela aborda as teses do Nada Existente, os processos lógicos de indiferenciação e nadificação, o potencial ontológico e, finalmente, a complexa problemática do infinito em relação ao ente.)*
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+revisado
 ### A APORIA DO IMPOSSÍVEL, A INDIFERENCIAÇÃO E A PROBLEMÁTICA DO INFINITO
 
 #### O Nada Existente e a Aporia do Impossível
