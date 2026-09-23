@@ -12133,3 +12133,7 @@ Se enxe de ira e quer de todo jeito que o outro sinta o peso de certa forma que 
 
 O niilista traça planos tolos, planos sem que investigue necessariamente a eficácia, somente pela ilusão de concretiza-los, pelo simples deslumbre de obter a riqueza a partir deles.
 
+
+
+Quando a alma se liberta do corpo, qualquer ódio, qualquer obsessão, qualquer vingança, sendo a alma livre de todo instinto de auto preservação, ou do medo, o individuo pode se encerrar numa auto anulação temporária. 
+
