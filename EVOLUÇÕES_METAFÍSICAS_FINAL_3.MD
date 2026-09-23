@@ -1122,7 +1122,7 @@ Pelo contrário, a criação *ex nihilo* estabelece fundamentos dogmáticos e on
 
 
 
-### A APORIA DO IMPOSSÍVEL E A PROBLEMÁTICA DO INFINITO - Parte 8
+### Tentativas de conferir inteligibilidade lógica ao Nada Ontológico - Parte 8
 
 #### O Nada Existente e a Aporia do Impossível
 
@@ -1185,24 +1185,12 @@ A infinitude, portanto, não deve ser entendida aqui como uma propriedade quanti
 
 O nada potencial, portanto, não alcança a nulidade plena. Cada tentativa de conduzi-lo à sua completa supressão apenas reconduz à própria estrutura que se pretendia superar. Seu “desabar sobre si mesmo” não produz um termo final, mas uma regressão indefinida na qual a nulidade é continuamente retomada como potência. O limite absoluto da nulidade permanece, assim, inalcançável enquanto ainda houver algo que possa ser nomeado, referido ou conceituado como “nada”.
 
+#### O Processo da Indeterminação e Nadificação do Determinado
 
+Há um processo pelo qual se tenta indeterminar o determinado, e outro processo pelo qual se tenta negar o determinado. Isto é, há um processo pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existência e a identidade das coisas na tentativa de alcançar a pureza, ou até mesmo o nada potencial.
 
-
-
-
-
-
-
-
-
-
-
-#### O Processo da Indiferenciação e Nadificação do Determinado
-
-Há um processo pelo qual se tenta indiferenciar o diferenciado, e outro processo pelo qual se tenta negar o diferenciado. Isto é, há um processo pelo qual se tenta extrair a identidade das coisas que a possuem, e um processo pelo qual se tenta negar a existência e a identidade das coisas na tentativa de alcançar a pureza, ou até mesmo o nada potencial.
+A indeterminação, quando produzida a partir da determinação para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indeterminação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão da forma). O indeterminado, como diluição do determinado, opera apenas pela *ausência* das determinações, pressupondo o substrato que as contém. Porém, ao perderem a forma em um estado de completa indeterminação, e ao se extrair delas essas formas, as coisas já não são aquilo que antes se identificava.
 revisado
-A indiferenciação, quando produzida a partir da determinação para justificar um nada potencial, falha em sua missão de pureza. Ao ser invocada, essa indiferenciação supõe uma "potência", afirmando precisamente aquilo que deseja negar: a presença de "qualquer coisa" (ainda que em estado de suspensão). O Indiferenciado, como diluição do determinado, opera apenas pela *ausência* das diferenças, pressupondo o substrato que as contém. Porém, ao perderem a forma em um estado de completa indiferenciação, e ao se extrair delas essas formas, as coisas já não são aquilo que antes se identificava.
-
 Em contrapartida, a nadificação direta — isto é, a negação — colapsa de forma mais precisa e radical, pois não pressupõe nenhuma sopa residual indiferenciada oriunda da diluição de formas. O "nada" engendra o seu próprio colapso lógico — um colapso que, por sua vez, desaba infinitamente sobre si mesmo. Ele é um conceito que tende à autossupressão perpétua e, por isso, revela-se muito mais limpo de afirmações ontológicas do que a "potência" sugerida pela indiferenciação do determinado. Do ponto de vista estritamente filosófico, ainda que tanto a indiferenciação do determinado quanto a nadificação do existente sejam, do mesmo ponto de vista, ilógicas, a nadificação oferece intuitivamente um "desabar" muito mais cristalino: ela traz embutida em sua premissa a aniquilação imediata daquilo que a própria palavra tenta nomear ("algo"). Enquanto a indiferenciação do diferenciado tenta capturar a ausência de formas, a "nadificação" opera sobre o próprio potencial de positividade das formas, tentando anulá-lo.
 
 Ao tentarmos supor duas propriedades distintas — o determinado enquanto indeterminado —, realizamos apenas mais uma tentativa de purificar o determinado. Essa operação, contudo, destrói a própria forma sem alcançar nenhum dos extremos pretendidos: não resulta no indiferenciado verdadeiro (isto é, no Ser), nem tampouco no Nada. Isso ocorre porque ainda se conserva uma substância logicamente contraditória: um mundo que, por existir, necessariamente persiste como determinado, mas que, ao mesmo tempo, é concebido como indeterminado.
