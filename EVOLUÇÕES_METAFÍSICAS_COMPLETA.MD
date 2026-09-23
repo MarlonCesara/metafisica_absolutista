@@ -12137,3 +12137,9 @@ O niilista traça planos tolos, planos sem que investigue necessariamente a efic
 
 Quando a alma se liberta do corpo, qualquer ódio, qualquer obsessão, qualquer vingança, sendo a alma livre de todo instinto de auto preservação, ou do medo, o individuo pode se encerrar numa auto anulação temporária. 
 
+O niilista quer a expressao ainda quea expressao nao tenha objetivo...ele quer primeiramente a ilusao, e em segundo lugar a expressao
+A ilusao o desvia dos pensamentos temerosos e a expressao alivia a carga cignitica de sua tendencia interior
+O ser é o ato de ser entificado
+
+
+A alma usa o sentimento de ser desconhecida, o estado de desconhecimento, usa o ser transparente, ser ausente do outro. Ser desconhecida, o sentir da estranheza do outro. O não sentir o outro.
