@@ -1207,47 +1207,17 @@ Ao indeterminarmos um ente de si mesmo, não temos uma realidade pura (o que cha
 
 Ao investigarmos pela via da nadificação do determinado sob o intuito, não de indetermina-lo, mas de transforma-lo na pureza fundamental, percebemos que o nada não pode sustentar sequer o atributo da pureza. A pureza pressupõe alguma realidade da qual se possam excluir as determinações; exige, portanto, um substrato que permaneça enquanto tais determinações são removidas. Para que algo seja dito puro, é necessário que algo seja. O Nada, por definição, não possui substância, substrato ou realidade sobre a qual qualquer predicado possa ser fundado: ele simplesmente não é.
 
-
-
-#### O Nada como Portador de Potencial Ontológico
-
-===
-error
-Embora tenhamos estabelecido o Indiferenciado como a matriz primordial afirmativa, a investigação lógica nos obriga a reconhecer uma simetria estrutural incontornável: **o "nada" também porta um potencial equivalente ao do indiferenciamento forçado do mundo determinado.**
-
-O "nada", compreendido em sua acepção metafísica relacional, atua como a anulação direta do Ser. Sendo o Ser a somatória de toda a existência e o horizonte de todas as determinações possíveis, o nada não pode ser reduzido a um simples vácuo estéril ou a uma carência inerte. Pelo contrário, por consistir precisamente na anulação do Ser, o nada é, em sua essência, a **anulação do todo em potencial**.
-
-===
-
 Para que a negação absoluta ocorra e se sustente conceitualmente, a "ausência" precisa espelhar a exata magnitude da "presença" que ela cancela. Tal como o Indiferenciado é o potencial latente do diferenciado — abrigando em si todas as formas e existências antes de sua manifestação —, o nada abriga o potencial absoluto do ser sob o signo da supressão.
 
 Dessa forma, conclui-se que **ambos os conceitos guardam potencial**. A distinção entre eles não repousa em uma suposta ausência de potência no nada, mas unicamente no vetor dessa mesma potência primordial:
 
 * **O determinado feito indeterminado** é o potencial afirmativo: a totalidade em estado de suspensão ontológica, aguardando a determinação. É o ser-em-potência, a matriz que possibilita a determinação.
 * **O Nada** é o potencial negativo: a totalidade em estado de anulação. É a força neutralizadora que contém, em seu próprio avesso, a exata proporção ontológica do Ser que ele anula.
+
+Portanto, o nada jamais é destituído de conteúdo latente. Se o indeterminado, produzido a partir do determinado, guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado produzido a partir do determinado são estados ou potenciais do negado ou do produto da obra-prima transformada. São um estado de uma suposta estabilidade para o todo ontológico. O indeterminado teria o potencial do determinado e é, em si, uma determinação; tal como o nada tem o potencial do todo e é, em si, um existente. Ambas as condições são um estado ilusório colocado provisoriamente na obra-prima que tentam transformar; são uma nuvem subjacente que perpassa provisoriamente o conceito que tentam omitir. São uma via errônea, ilógica, em direção aos conceitos fundamentais, uma via pela qual se tenta usar um atalho para se chegar a verdades fundamentais.
+
+
 revisado
-Portanto, o nada jamais é destituído de conteúdo latente. Se o indeterminado forçado guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do Ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado forçado são determinações: são estados ou potenciais do negado ou do indiferenciamento do diferenciado. São um estado de estabilidade para o todo ontológico. O indiferenciado tem o potencial da diferença, e é em si uma determinação; tal como o nada tem o potencial do todo, e é em si uma determinação.
-
-O indiferenciamento do determinado é indiferente até a si mesmo, ao passo que assumir o nada significa saltar esse caminho intermediário. Trata-se de uma via direta para produzir a nulidade, degradando o ontológico por meio da conceituação. Porém, por ambas as vias alcança-se o mesmo resultado: a nulidade do que é. O indiferenciado conclui-se no nada ao negar o ente fragmentado, afirmando não ser nem uma coisa, nem outra, e nem a si próprio. Já o nada opera uma negação mais incisiva e cabal, pois dispensa a abordagem dos fragmentos.
-
-Neste contexto, os termos "nada" e "indiferenciado" não se referem a um objeto finalizado, mas sim ao próprio **processo de nadificação** que nunca atinge o seu termo exato. Iremos explorar o absoluto sob a perspectiva da forma final: a cada potência explorada, o potencial do nada se expande.
-
-O potencial do indiferenciado, portanto, ao voltar-se para si mesmo, não atinge o potencial do não-indiferenciado — tal como o potencial do nada jamais alcança o não-nada. Desta forma, o incausado permanece aprisionado a determinações, nunca atingindo uma forma totalmente potente. Ao atribuirmos ao indiferenciado o potencial do não-indiferenciado, deparamo-nos com uma realidade cujo potencial consiste em ser potencial ou não; ao subtrairmos mais uma camada desse potencial, projetamos uma linha infinita que avança perpetuamente, sem jamais encontrar o seu verdadeiro potencial.
-
-Em síntese, o indiferenciado busca a nulidade ao colocar-se como radicalmente diferente de qualquer coisa, enquanto o nada a persegue ao recusar-se a ser coisa alguma. Ambos os caminhos representam vias distintas que partem do mesmo intuito e desaguam no mesmo resultado: a tentativa de estabelecer uma substância incausada. O nada, ou o indiferenciado, são, portanto, conceitos dinâmicos, incapazes de sintetizar conceitualmente o seu verdadeiro significado.
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 #### A Problemática do Infinito e a Dualidade Perspectívica do Ente
@@ -5922,3 +5892,36 @@ Indiferenciamos o determinado, e o que sobra é o nada falseável, ou uma indife
 O "nada" torna-se, assim, uma **singularidade filosófica**. É um termo que tende assintoticamente ao infinito, estabelecendo um *loop* perpétuo na razão: uma busca incessante por um significado que, por definição estrutural, nunca poderá repousar em um conceito fixo.
 
 =====
+
+
+
+
+
+
+
+
+
+
+
+===
+error
+O indiferenciamento do determinado é indiferente até a si mesmo, ao passo que assumir o nada significa saltar esse caminho intermediário. Trata-se de uma via direta para produzir a nulidade, degradando o ontológico por meio da conceituação. Porém, por ambas as vias alcança-se o mesmo resultado: a nulidade do que é. O indiferenciado conclui-se no nada ao negar o ente fragmentado, afirmando não ser nem uma coisa, nem outra, e nem a si próprio. Já o nada opera uma negação mais incisiva e cabal, pois dispensa a abordagem dos fragmentos.
+
+Neste contexto, os termos "nada" e "indiferenciado" não se referem a um objeto finalizado, mas sim ao próprio **processo de nadificação** que nunca atinge o seu termo exato. Iremos explorar o absoluto sob a perspectiva da forma final: a cada potência explorada, o potencial do nada se expande.
+
+Em síntese, o indiferenciado busca a nulidade ao colocar-se como radicalmente diferente de qualquer coisa, enquanto o nada a persegue ao recusar-se a ser coisa alguma. Ambos os caminhos representam vias distintas que partem do mesmo intuito e desaguam no mesmo resultado: a tentativa de estabelecer uma substância incausada. O nada, ou o indiferenciado, são, portanto, conceitos dinâmicos, incapazes de sintetizar conceitualmente o seu verdadeiro significado.
+
+O potencial do indeterminado produzido, portanto, ao voltar-se para si mesmo, não atinge o potencial do não-indeterminado — tal como o potencial do nada jamais alcança o não-nada. Desta forma, o indeterminado produzido a partir do determinado permanece aprisionado a determinações, nunca atingindo uma forma totalmente potente. Ao atribuirmos ao indeterminado o potencial do não-indeterminado, deparamo-nos com uma realidade cujo potencial consiste em ser potencial ou não; ao subtrairmos mais uma camada desse potencial, projetamos uma linha infinita que avança perpetuamente, sem jamais encontrar o seu verdadeiro potencial.
+
+
+===
+
+#### O Potencial Ontológico do nada e do indeterminado
+
+===
+error
+Embora tenhamos estabelecido o Indiferenciado como a matriz primordial afirmativa, a investigação lógica nos obriga a reconhecer uma simetria estrutural incontornável: **o "nada" também porta um potencial equivalente ao do indiferenciamento forçado do mundo determinado.**
+
+O "nada", compreendido em sua acepção metafísica relacional, atua como a anulação direta do Ser. Sendo o Ser a somatória de toda a existência e o horizonte de todas as determinações possíveis, o nada não pode ser reduzido a um simples vácuo estéril ou a uma carência inerte. Pelo contrário, por consistir precisamente na anulação do Ser, o nada é, em sua essência, a **anulação do todo em potencial**.
+
+===
