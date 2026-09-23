@@ -12143,3 +12143,6 @@ O ser é o ato de ser entificado
 
 
 A alma usa o sentimento de ser desconhecida, o estado de desconhecimento, usa o ser transparente, ser ausente do outro. Ser desconhecida, o sentir da estranheza do outro. O não sentir o outro.
+
+
+Se houvesse o nadificado como ontológico o Ser não teria a liberdade do nao nadificado.
