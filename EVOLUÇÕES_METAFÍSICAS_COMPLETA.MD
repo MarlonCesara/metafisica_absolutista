@@ -12132,3 +12132,4 @@ De forma a nao deixae o outro se esquecer do q ele sente
 Se enxe de ira e quer de todo jeito que o outro sinta o peso de certa forma que o niilista carrega
 
 O niilista traça planos tolos, planos sem que investigue necessariamente a eficácia, somente pela ilusão de concretiza-los, pelo simples deslumbre de obter a riqueza a partir deles.
+
