@@ -12121,3 +12121,14 @@ Se quiser, também posso fazer uma **segunda limpeza mais filosófica**, mantend
 
 
 Niilista tem dificuldade de interiorização, de viver a vida interior, de permanecer em silencio sem falar com ninguém. O niilista é alheio a si mesmo, guiado pelas suas vontades instintivas. Vive num aparente aprisionamento, onde observa a imensidão sob o assombro de desconhecimento de si para o todo. Como se fosse manipulado como uma marionete. 
+
+
+O niilista foge da consciencia auto cisnciencia ao se deparar e se desviar a atencao dele..se diz pra ele que ele n se atenta em si
+Imagine o auto causarse num giro de velocidade infinita que parou de girar
+Maquiavelismo sintoma niilista o individuo incorpora um vilao
+Recorrencia a crenças desajustadas confusas ou a total descrença
+O niilista acha q todos tem q ter a vida oesada sofrer para sentir como ele ..e se enche de raiva quando ve que a vida do outro é leve em razao de sua leva interior
+De forma a nao deixae o outro se esquecer do q ele sente
+Se enxe de ira e quer de todo jeito que o outro sinta o peso de certa forma que o niilista carrega
+
+O niilista traça planos tolos, planos sem que investigue necessariamente a eficácia, somente pela ilusão de concretiza-los, pelo simples deslumbre de obter a riqueza a partir deles.
