@@ -956,27 +956,70 @@ O nada só pode ser concebido como contraparte de algo manifesto ou possível. O
 **2. Referencialidade Obrigatória**
 Não há “nada” sem relação com um “algo”, seja esse algo previamente manifestado, seja apenas concebível como possibilidade. Da mesma maneira, não há potência sem relação com aquilo que pode vir a ser atualizado, nem “não ente” sem referência àquilo que ele nega: o ente. Por conseguinte, também não há ausência sem a possibilidade de uma presença como referência, pois algo necessariamente precisa estar ausente para que se possa falar propriamente em ausência.
 
-revisado
-
 **3. Um marcador de ausência**
 Uma forma de indicar que determinada manifestação não está presente. A negação só pode existir enquanto negação de algo que já foi manifestado ou cuja manifestação seja possível. Portanto, não há “nada” em sentido absoluto sem uma referência positiva que determine aquilo que está sendo negado.
 
 * *Exemplo:* a ausência de luz solar só pode ser compreendida porque a luz solar constitui uma realidade ou, ao menos, uma possibilidade conceitualmente determinada. Sem o referente, não haveria propriamente uma “ausência de luz solar”, mas apenas a impossibilidade de estabelecer qualquer determinação.
 * *Demonstração do erro:* se o nada necessita de um “algo” para delimitar sua própria vacuidade, então sua definição é necessariamente relativa. Ele não pode reivindicar autofundação, pois sua inteligibilidade depende daquilo que pretende negar. O nada relacional é, portanto, ontologicamente derivado: é uma sombra conceitual projetada sobre uma realidade que lhe serve de referência.
 
-**4. Oposição Negativa e Potenciais Mútuos**
-Se a manifestação A e o nada B forem concebidos como potenciais opostos ou como potenciais mútuos, surgem dificuldades distintas.
+### 4. Oposição Negativa e Potenciais Mútuos
 
-Se forem potenciais mútuos, então coexistem como diferentes modalidades de uma mesma realidade ou essência. Nesse caso, o nada deixa de ser nada em sentido absoluto e passa a constituir apenas uma modalidade de determinação do ser.
+Se a manifestação A e o nada B forem concebidos como **potenciais opostos** ou como **potenciais mútuos**, emergem dificuldades distintas, mas convergentes, quanto à possibilidade de se sustentar a noção de um nada absoluto.
 
-* *Exemplo:* Uma infinitude material que não pode ser apreendida enquanto totalidade, pois uma dimensão material verdadeiramente infinita não pode ser integralmente visualizada. Ao ser recortada ou delimitada pelo olhar, porém, ela se apresenta como uma dimensão material real.  
+Se forem concebidos como **potenciais mútuos**, então ambos deverão participar, de algum modo, de uma mesma realidade ou essência, distinguindo-se apenas segundo diferentes modalidades de atualização ou determinação. Nesse caso, o nada deixaria de ser nada em sentido absoluto, pois passaria a constituir uma modalidade possível de uma realidade subjacente. Aquilo que é tomado como “nada” já não seria a ausência absoluta de ser, mas apenas uma condição ou modalidade determinada do ser.
 
-Se forem potenciais opostos, então se excluem mutuamente. A presença de qualquer determinação em B faria com que B deixasse imediatamente de ser nada, pois um potencial já constitui alguma forma de determinação.
+*Exemplo:* considere-se uma extensão material que, por sua própria infinitude, não possa ser apreendida enquanto totalidade. Embora a totalidade da extensão não possa ser integralmente visualizada, qualquer recorte ou delimitação dessa realidade pelo olhar revela uma dimensão material efetivamente existente. O que inicialmente parecia indeterminado ou inapreensível enquanto totalidade não constitui, por isso, um nada absoluto; trata-se apenas de uma realidade cuja determinação excede o alcance da apreensão.
 
-* *Exemplo:* O indiferenciado, tomado como nada, teria como potência a própria manifestação. Aparentemente, ambos seriam opostos: de um lado, a ausência de determinação; de outro, a determinação manifesta. Contudo, são conceitualmente dependentes, pois só podemos definir o indiferenciado como “nada” em referência àquilo que pode manifestar-se a partir dele.
-* *Demonstração do erro:* em ambos os casos, a noção de nada absoluto colapsa. Se o nada possui potencialidade, ele já contém alguma determinação e, portanto, não é nada. Se não possui potencialidade alguma, não pode funcionar como substrato, fundamento ou princípio de transição para a manifestação.
+Se, por outro lado, forem concebidos como **potenciais opostos**, então A e B deverão excluir-se mutuamente. A determinação manifesta em A seria, nesse caso, incompatível com a ausência de determinação atribuída a B. Contudo, surge imediatamente uma dificuldade: se B possui qualquer potência em direção a A, essa potência já introduz em B alguma determinação. O nada, portanto, deixaria de ser absolutamente nada no próprio instante em que lhe fosse atribuída uma potência de manifestação.
 
-Assim, o nada não pode ser simultaneamente uma ausência absoluta e uma realidade dotada de potência.
+*Exemplo:* suponha-se o indiferenciado, tomado como nada, ao qual se atribua a potência de manifestar-se. Aparentemente, teríamos dois polos opostos: de um lado, a ausência de determinação; de outro, a determinação manifesta. Entretanto, a própria atribuição de uma potência de manifestação ao indiferenciado já impede que ele seja concebido como ausência absoluta. Para que B possa conter a potência de tornar-se A, é necessário que B possua, de algum modo, a capacidade ou condição pela qual A possa emergir. Essa capacidade já constitui uma determinação ontológica.
+
+Há, ademais, uma **dependência conceitual** entre os dois polos. O indiferenciado só pode ser definido como tal em referência àquilo que se apresenta como diferenciado ou determinado. Do mesmo modo, a manifestação só pode ser compreendida como manifestação em relação àquilo que, supostamente, não está manifestado. A oposição, portanto, não estabelece duas realidades absolutamente independentes, mas uma relação conceitual entre determinação e ausência de determinação.
+revisado
+**Demonstração do colapso da noção de nada absoluto:** em ambos os casos, a concepção de um nada absoluto torna-se inconsistente.
+
+Se o nada **possui potencialidade**, então já não é absolutamente indeterminado, pois a própria potência constitui uma determinação — ainda que não seja uma determinação atualizada.
+
+Se, ao contrário, o nada **não possui potencialidade alguma**, então não pode servir de substrato, fundamento ou princípio de transição para qualquer manifestação. Nada poderia proceder dele, nem ele poderia explicar a passagem da ausência absoluta à presença determinada, pois não haveria nele qualquer princípio pelo qual tal passagem pudesse ocorrer.
+
+Desse modo, o problema pode ser formulado nos seguintes termos: **ou o nada possui potência, e então já não é nada em sentido absoluto; ou não possui potência alguma, e então não pode desempenhar qualquer função ontológica na gênese ou fundamentação da manifestação.**
+
+Consequentemente, não parece possível atribuir ao nada, simultaneamente, **ausência absoluta de determinação** e **potência real para a manifestação**. A primeira exclui a segunda, enquanto a segunda já compromete a primeira.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+revisado
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### A Insustentabilidade Ontológica do Nada
 
