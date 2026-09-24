@@ -483,11 +483,38 @@ Ao tentar explorar os aspectos autocausais do Absoluto sem antes purificar as ja
 
 Torna-se, portanto, necessário purificar o Absoluto de quaisquer substratos ontológicos falsos antes de estabelecermos as inferências necessárias acerca da autocausalidade. Após uma breve inferência sobre a Trindade, apresentada como estímulo e preparação ao leitor, poderemos então percorrer nossa via apofática, para somente depois alcançarmos o deleite de uma compreensão mais refinada e purificada da autocausalidade — livre de conceitos falsos que obscureçam nossa contemplação e nos impeçam de entrever, por vias conceituais, aquilo que permanece inefável.
 
-Alguns autores como hegel caem em contrariedades intermináveis por não terem percorrido o caminho apofativo necessario, hegel ao declarar que o absoluto é autodeterminado, cai em uma esfera na qual necessita explicar como é possível que o absoluto seja determinado e indiferenciado ao mesmo tempo. Ademais, compara até mesmo o nada com o Ser, ao dizer que o Ser adentra no nada e provoca o devir. Fica então, evidenciado de forma clara, porque, sem a via apofativa a auto causalidadea não pode ser plenamente entendida.
+Alguns autores, como Hegel, acabam conduzindo sua investigação a contradições intermináveis por não terem percorrido suficientemente o caminho apofático. Ao declarar que o Absoluto é autodeterminado, Hegel se coloca diante de um problema que exige explicar como o Absoluto pode ser, ao mesmo tempo, determinado e indiferenciado. Ademais, ao aproximar o nada do Ser, afirmando que o Ser adentra no nada e, dessa relação, emerge o devir, introduz o nada como se este pudesse desempenhar uma função ontológica positiva.
 
-Apensar de parecer facil entender que, o Absoluto é igual a si mesmo, consente com essa igualdade, e escolhe naturalmente a soberania sem ação prévia tendo como opção a não soberania. Isto, precisa estar completamente livre da mentalidade de se considerar o nada um modelo de ação, uma realidade passível de transformação ou até mesmo uma pureza que se iguala ao Ser.
+Torna-se, então, evidente por que, sem a via apofática, a autocausalidade não pode ser plenamente compreendida.
+
+À primeira vista, pode parecer simples compreender que o Absoluto é igual a si mesmo, consente com essa igualdade e, sem depender de uma ação anterior, possui em si mesmo a soberania. Entretanto, essa compreensão somente pode ser sustentada se estiver completamente livre da mentalidade que concebe o nada como um modelo de ação, como uma realidade passível de transformação ou mesmo como uma espécie de pureza que possa ser equiparada ao Ser.
+
+Quando o nada é investigado rigorosamente, torna-se necessário retirar dele qualquer positividade ontológica que não lhe pertença. Ele não pode ser concebido como uma realidade alternativa ao Ser, como uma potência que aguarda atualização, nem como um estado anterior a partir do qual algo possa ser produzido. Se assim fosse, já não estaríamos falando propriamente do nada, mas de alguma modalidade de ser ainda não determinada.
+
+Sob essa perspectiva, a própria concepção hegeliana de que o Absoluto é autodeterminado encontra um limite. Se a determinação for compreendida como a passagem de uma condição indeterminada para uma condição determinada, então ela pressupõe algum tipo de diferença anterior à própria determinação. Mas, no Absoluto, não pode haver uma realidade exterior ou anterior que forneça o fundamento dessa determinação. A autodeterminação, quando interpretada nesses termos, acaba por reintroduzir no Absoluto uma estrutura que pertence ao âmbito do contingente.
+
+A ideia de que o Ser é idêntico ao nada e de que o Ser, ao adentrar no nada, produz o devir somente pode adquirir coerência caso o nada seja tratado como uma realidade dotada de alguma determinação ou positividade. Entretanto, ao fazê-lo, o nada deixa de ser nada em sentido rigoroso. Ele passa a funcionar como uma espécie de ente negativo, uma realidade contraposta ao Ser e capaz de participar de seu movimento.
+
+Nesse sentido, pode-se sustentar que Hegel não está descrevendo propriamente o Espírito em sua pureza absoluta, mas uma estrutura ontológica na qual um ente, ainda que concebido de maneira extremamente abstrata, recebe a capacidade de determinar-se por meio de uma relação com aquilo que é apresentado como seu oposto. O problema é que, ao atribuir ao nada uma função ontológica positiva, essa estrutura acaba apropriando-se de propriedades que, em uma investigação apofática rigorosa, só poderiam ser originadas no próprio Ser fundamental.
+
+É precisamente por isso que a via apofática possui importância crucial. Antes de perguntar como o Absoluto age, determina-se ou se manifesta, é necessário estabelecer aquilo que ele não pode ser. Antes de atribuir ao nada qualquer função na constituição do real, é necessário investigar se o nada pode, em sentido estrito, possuir alguma função ontológica.
+
+Sem essa depuração, corre-se o risco de projetar sobre o Absoluto categorias pertencentes ao mundo contingente e, posteriormente, tentar resolver as contradições produzidas por essa própria projeção. A via apofática, portanto, não é um mero procedimento negativo ou uma etapa preliminar da investigação: ela é uma condição para que o Absoluto não seja confundido com aquilo que ele não é e para que a autocausalidade possa ser compreendida sem transformar a soberania absoluta em uma forma de determinação dependente de um oposto.
+
+Se quiser, também posso deixar o texto **mais próximo do estilo de uma obra filosófica sistemática**, com termos como *Ser Fundamental, indiferenciação, determinação, nada, autocausalidade e devir* definidos formalmente antes da argumentação.
 
 
+Claro. Preservei a ideia central, mas dei mais precisão à crítica a Hegel e deixei o fechamento com um tom mais filosófico e ensaístico.
+
+Outro equívoco de Hegel foi rejeitar a autocausalidade por considerá-la uma estrutura contraditória, na qual deveria necessariamente existir uma causa anterior àquilo que é causado. Dentro desse modelo, haveria dois momentos distintos: um momento anterior, correspondente à causa, e um momento posterior, correspondente ao efeito. O segundo, enquanto resultado do primeiro, constituiria uma determinação nova e, de certo modo, negaria a independência do momento originário.
+
+Entretanto, aquilo que Hegel considera ilógico pode ser justamente uma proposição necessária para compreender a temporalidade própria do Espírito. No contexto autocausal, não é necessário conceber causa e efeito como dois momentos ontologicamente separados, nos quais o primeiro desaparece ou é superado pela emergência do segundo. Pode-se conceber, ao contrário, uma circularidade viva na qual o Espírito encontra a si mesmo precisamente naquilo que procura.
+
+O objeto da procura e o objeto do encontro são, nesse sentido, o mesmo. A diferença não está na existência de dois seres distintos, mas no modo como o mesmo Ser se atualiza temporalmente em relação a si próprio. O encontro não acrescenta ao Espírito uma realidade que lhe fosse exterior; ele manifesta, em uma nova atualização, aquilo que já pertence à própria realidade do Espírito. A temporalidade deixa, assim, de ser compreendida como uma simples sucessão de causa e efeito e passa a ser compreendida como uma atualização sempre presente de uma identidade que permanece consigo mesma.
+
+Essa estrutura da autocausalidade, bem como suas implicações para a temporalidade do Espírito, será investigada mais profundamente adiante.
+
+Portanto, não desanime diante do caminho apofático. O esforço será frutífero, pois, ao afastarmos progressivamente aquilo que o Ser não pode ser, começaremos a adentrar seus conceitos mais íntimos. E é justamente nesse aprofundamento que nossa investigação poderá alcançar consequências que ultrapassam a própria metafísica tradicional.
 
 
 
