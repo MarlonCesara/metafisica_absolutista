@@ -6759,3 +6759,8 @@ Essa separação é filosoficamente importante, porque **não é evidente que �
 
 
 ==============
+
+
+
+
+O Ser não é uma realidade parcial, nem metafórica.
