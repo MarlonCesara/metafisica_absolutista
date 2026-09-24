@@ -467,6 +467,17 @@ Contudo, para que o aprofundamento no princípio autocausal atinja sua precisão
 
 Antes, porém, de prosseguirmos rumo a essa investigação mais profunda, é preciso trilhar a via apofática. Isso significa desobstruir o horizonte de compreensão do Absoluto, expurgando extravios e conceitos ilógicos. Tal purificação filosófica será alcançada justamente ao atravessarmos uma investigação precisa e rigorosa sobre o conceito de "nada".
 
+Ao analisar a autocausalidade, abandona-se progressivamente o olhar que apreende o mundo apenas sob as categorias do físico e do contingente e passa-se a investigar dimensões como a intencionalidade, a liberdade e a presença. Já não se busca apenas aquilo que produz um efeito, mas aquilo que pode constituir-se como princípio de si mesmo.
+
+Entretanto, enquanto se continuam atribuindo ao Absoluto características próprias da contingência — sobretudo quando se tenta explicar o nada mediante categorias causais — corre-se o risco de permanecer investigando não um Ser puro e em si, mas um ser ainda pensado segundo as estruturas do mundo. Atribuir intencionalidade a determinações que, em sua radicalização, parecem dissolver-se no Absoluto não é suficiente para revelar, de modo claro, a dimensão propriamente espiritual. Pode-se apenas estar projetando sobre o Absoluto categorias retiradas da experiência do ente contingente.
+
+É nesse sentido que a noção de **incausado** adquire uma importância decisiva. Ao pensar o incausado, não se pensa simplesmente aquilo que não possui uma causa anterior; pensa-se aquilo que não depende de um impulso prévio, de um início exterior ou de uma ação que o coloque em movimento. O incausado rompe, portanto, com a estrutura ordinária de causa e efeito, na qual todo acontecimento parece exigir algo anterior que o determine.
+
+O olhar dirigido à autocausalidade constitui, assim, um primeiro movimento em direção ao Espírito. Nele, deixa-se de conceber a realidade exclusivamente a partir da sucessão dos acontecimentos do mundo e começa-se a pensá-la a partir de um princípio que não recebe de outro o impulso de sua própria realidade. A questão já não é somente **o que causa o quê**, mas **como pode haver realidade sem uma determinação anterior que a faça ser**.
+
+Desse modo, a passagem da causalidade ao Espírito é também uma passagem da exterioridade para a presença. Enquanto a causalidade descreve a relação entre acontecimentos — um antecedente que produz um consequente —, o Espírito aponta para uma realidade cuja inteligibilidade não reside primariamente em ser movida por outro, mas em sua própria presença, liberdade e interioridade.
+
+A autocausalidade, nesse sentido, não representa ainda a plena determinação do Espírito, mas o primeiro deslocamento do pensamento: deixa-se de olhar apenas para o mundo e começa-se a perguntar pelo princípio que pode ser em si mesmo, sem depender de um impulso exterior para atualizar sua própria realidade.
 
 
 
@@ -5925,12 +5936,12 @@ O querer, portanto, é real e inteira enquanto querer. Ele não é uma realidade
 
 
 
-E passa a se explorar aspectos como intencionalidade, liberdade
-Ao analisar a auto causalidade se para de olhar o mundo pelosnolhos do fisico contigente
+ 
+Ao analisar a auto causalidade se para de olhar o mundo pelosnolhos do fisico contigente E passa a se explorar aspectos como intencionalidade, liberdade
 Porem ao continuar atrihuindo aspectos contingentes na falta de explicacoes sobre o nada se explora um ser no mundo nao um ser puro e em si
 Pois ao atribuir intencionalidade a aspectos que parecem se moscigenar no absoluto como o nada
 Nao se encontra realmente de forma clara os fatores espieituais
 Quando nos referimos ao incausado estamos oensando em algo sem impulssos orevios de start e acao
-
+O olhar sob a auto causalidade é o primeiro olhar sob o Espírito, se para de conceber o mundo e passa a se pensar sob o Espirito. De forma que, se para de pensar em causa e efeito, e passa a se pensar em espirito, presença.
 
 Se houvesse o nadificado como ontológico o Ser não teria a liberdade do nao nadificado.
