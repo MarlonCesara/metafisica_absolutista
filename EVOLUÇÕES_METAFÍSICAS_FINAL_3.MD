@@ -1241,15 +1241,15 @@ Para o desejo ou o querer, é possível atribuir conteúdo qualitativo; é poss�
 * **Um ente de fluência contínua**, por outro lado, é um ente cuja realidade é inteiramente efetiva em cada atualização presente e que se acresce somente de propriedades que, quando atualizadas, tornam-se igualmente reais. Desse modo, a fluência contínua pode ser compreendida como uma propriedade da realidade efetivamente existente em seu processo de atualização. Ela pode ser incessante sem ser infinita. Pode ser eterna enquanto continuidade sem constituir uma totalidade infinita já realizada. A diferença fundamental está, portanto, entre **infinitude** e **continuidade**: a infinitude pretende designar uma totalidade que jamais pode ser integralmente atualizada se instaurada em uma realidade determinada, enquanto a continuidade designa o próprio processo pelo qual realidades determinadas sucedem-se e se transformam sem que seja necessário pressupor, em cada uma delas, a existência antecipada de sua totalidade futura.
 * **Um querer infinito**, por sua vez, resguarda em si uma qualidade não quantitativa, mas espiritual. Trata-se de uma qualidade que não se enquadra no que é dimensional, mensurável, redutível ou suscetível de acréscimo quantitativo. Um amor infinito, nesse sentido, não se realiza por acumulação ou extensão, mas dá-se de modo total; sua infinitude não é apreendida na esfera do mensurável, mas na própria qualidade de seu ato. Uma realidade espiritual, por não estar submetida à dimensionalidade, dispensa extensão, medida e composição quantitativa, embora permaneça inteligível, dedutível e passível de ser estabelecida conceitualmente como indiferenciada.
 
-revisado
+
 **O Infinito e o Nada: A Dualidade Perspectívica do Ente**
 
 Conclui-se, a partir das análises precedentes, que a investigação acerca do Nada permanece destituída de um arcabouço conceitual metafisicamente sustentável. Sob as perspectivas até aqui examinadas, o nada figura unicamente como um índice dialético que evidencia a presença, ou como um opressor relacional que a pressupõe e a circunscreve. Escapa-nos, portanto, a apreensão de uma autêntica oposição mútua — um horizonte em que o existente seja, concomitantemente e sob o mesmo aspecto, a própria nulidade, sem que para isso se recorra a um paradoxo insolúvel que faça o nada sucumbir no instante em que lhe é atribuído o estatuto de existência.
 
 Para fins especulativos e práticos, faz-se necessário introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela quase apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a luz desse conceito, a nulidade aparentemente passa a coexistir com seu oposto ontológico.
 
-Ao considerarmos a totalidade e o nada como conceitos exatamente iguais, não haverá mais dualidade entre eles. Porém, como unir a existência ao nada de forma que não se excluam mutuamente? Postula-se, pois, que a infinitude da forma do determinado ou a infinitude de um conjunto incontável de determinações em sua completude é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede qualquer mensurabilidade ou predicação restritiva (havendo um número de formas infindáveis ou até mesmo uma forma de propriedades infinitas). O olhar direcionado à totalidade do infinito aparentemente coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui uma tentativa metodológica para conceber um nada ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
-
+Ao considerarmos a infinitude de uma realidade determinada e o nada como conceitos exatamente iguais, não haveria mais dualidade entre a realidade determinada e o nada, sendo o nada uma realidade determinada que foi infinitizada. Essa seria uma solução considerável que, aparentemente, uniria a existência ao nada de forma não excludente. Postula-se, pois, que a infinitude da forma do determinado ou a infinitude de um conjunto incontável de determinações em sua completude é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede qualquer mensurabilidade ou predicação restritiva (havendo um número de formas infindáveis ou até mesmo uma forma de propriedades infinitas). O olhar direcionado à uma determinação infinitizada aparentemente coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui uma tentativa metodológica para conceber um nada ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
+revisado
 Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre a existência e o nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma **variação de angulação**. Diante da completude irrestrita — a infinitude pura —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
 
 Porém, esta é uma visão infundada, visto que o olhar sobre a completude infinita não captura o nada, já que o nada não é coisa alguma. E a forma infinitizada deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza a sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isso quer dizer que, se infinitizarmos um número, há o devir do número que o faz perder seu contorno como número, tal como ocorreria ao infinitizarmos a identidade.
@@ -5906,3 +5906,31 @@ Não seria possível atribuir simplesmente um espaço às sensações, pois o pr
 
 O querer, portanto, é real e inteira enquanto querer. Ele não é uma realidade incompleta pelo fato de ainda haver sensações futuras. O que existe é a sensação presente; o que vem depois pertence ao seu fluxo, não à sua realidade atual. Sua continuidade não exige que ela contenha antecipadamente aquilo que ainda não existe. 
 ===
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+E passa a se explorar aspectos como intencionalidade, liberdade
+Ao analisar a auto causalidade se para de olhar o mundo pelosnolhos do fisico contigente
+Porem ao continuar atrihuindo aspectos contingentes na falta de explicacoes sobre o nada se explora um ser no mundo nao um ser puro e em si
+Pois ao atribuir intencionalidade a aspectos que parecem se moscigenar no absoluto como o nada
+Nao se encontra realmente de forma clara os fatores espieituais
+Quando nos referimos ao incausado estamos oensando em algo sem impulssos orevios de start e acao
+
+
+Se houvesse o nadificado como ontológico o Ser não teria a liberdade do nao nadificado.
