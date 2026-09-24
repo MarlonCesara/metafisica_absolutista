@@ -479,8 +479,9 @@ Desse modo, a passagem da causalidade ao Espírito é também uma passagem da ex
 
 A autocausalidade, nesse sentido, não representa ainda a plena determinação do Espírito, mas o primeiro deslocamento do pensamento: deixa-se de olhar apenas para o mundo e começa-se a perguntar pelo princípio que pode ser em si mesmo, sem depender de um impulso exterior para atualizar sua própria realidade.
 
+Ao tentar explorar os aspectos autocausais do Absoluto sem antes purificar as janelas através das quais o contemplamos, isto é, ao ingressar nessa investigação sob a pressuposição de que o nada possui algum modo de existência, cai-se quase instantaneamente em uma concepção determinista do Absoluto. O nada é constantemente, ao longo da história da filosofia, comparado ao Ser ou concebido como uma realidade potencial, passível de atualização e, assim, capaz de participar da produção do contingente. Quando se parte dessa perspectiva, a intencionalidade deixa de constituir um fechamento ontológico em si mesma e passa a ser compreendida como aquilo que condiciona o nada, ou até mesmo como aquilo que o incorpora, a fim de, supostamente, transformá-lo.
 
-
+Torna-se, portanto, necessário purificar o Absoluto de quaisquer substratos ontológicos falsos antes de estabelecermos as inferências necessárias acerca da autocausalidade. Após uma breve inferência sobre a Trindade, apresentada como estímulo e preparação ao leitor, poderemos então percorrer nossa via apofática, para somente depois alcançarmos o deleite de uma compreensão mais refinada e purificada da autocausalidade — livre de conceitos falsos que obscureçam nossa contemplação e nos impeçam de entrever, por vias conceituais, aquilo que permanece inefável.
 
 
 
