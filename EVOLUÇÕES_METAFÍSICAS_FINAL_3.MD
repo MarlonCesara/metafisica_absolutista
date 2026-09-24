@@ -503,9 +503,6 @@ Sem essa depuração, corre-se o risco de projetar sobre o Absoluto categorias p
 
 Se quiser, também posso deixar o texto **mais próximo do estilo de uma obra filosófica sistemática**, com termos como *Ser Fundamental, indiferenciação, determinação, nada, autocausalidade e devir* definidos formalmente antes da argumentação.
 
-
-Claro. Preservei a ideia central, mas dei mais precisão à crítica a Hegel e deixei o fechamento com um tom mais filosófico e ensaístico.
-
 Outro equívoco de Hegel foi rejeitar a autocausalidade por considerá-la uma estrutura contraditória, na qual deveria necessariamente existir uma causa anterior àquilo que é causado. Dentro desse modelo, haveria dois momentos distintos: um momento anterior, correspondente à causa, e um momento posterior, correspondente ao efeito. O segundo, enquanto resultado do primeiro, constituiria uma determinação nova e, de certo modo, negaria a independência do momento originário.
 
 Entretanto, aquilo que Hegel considera ilógico pode ser justamente uma proposição necessária para compreender a temporalidade própria do Espírito. No contexto autocausal, não é necessário conceber causa e efeito como dois momentos ontologicamente separados, nos quais o primeiro desaparece ou é superado pela emergência do segundo. Pode-se conceber, ao contrário, uma circularidade viva na qual o Espírito encontra a si mesmo precisamente naquilo que procura.
