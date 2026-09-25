@@ -1409,53 +1409,25 @@ Se o Absoluto fosse um mecanismo puramente estático ou uma lei matemática cega
 **2. A Justificativa para a Liberdade Absoluta**
 O Angulador opera no marco zero da realidade, onde não existe nenhuma lei anterior, nenhuma matéria preexistente e nenhuma força externa para coagi-lo. Portanto, não poderia depender da ação de angular para se fazer angulador e emergir junto a infinitude do nada, sendo a angulação da infinitude. Como exemplo, poderíamos imaginar um olho que enxerga o nada, e há o olho pois há o nada, considerando que o nada é uma angulação. Porém, o movimento do recorte na totalidade, que nem mesmo pode ser recortada pois nada é, não justifica o olho. O olho, portanto, deveria se justificar por si mesmo, sem ação prévia para se fazer olho. Isto é, o olho não necessitaria enxergar o suposto nada para se fazer olho, caso precisasse, deveria existir antes de sua ação de enxergar, portanto, necessitaria de uma causa anterior a si, não seria incausado. Dependeria de sua própria ação de observação para se fazer como tal. O Ser, portanto, não poderia depender de ação nenhuma para Ser. O Ser é, sem a ação anterior de se fazer Ser. É num ato interno de Ser. Não pode depender de uma ação sob o determinado para se fazer ser. Exemplo: o olho olha o horizonte sem fim, e então existe. Porém, sem que olhasse o horizonte sem fim, não seria olho. O Ser depende de uma ação de si mesmo, e não de uma ação sob algo externo.
 
+* A liberdade do Angulador seria uma necessidade lógica. Ele possui a capacidade de escolher entre manter a totalidade em repouso (o ângulo do Nada) ou realizar recortes específicos (o ângulo dos fenômenos). A transição do Nada para algo seria um ato de pura liberdade. No entanto, essa alegação é falsa em vista que, o ato de angulação seria uma necessidade para o angulador existir e não um produto de sua liberdade.
+
+
+**3. A tentativa de justificativa para a Proposicionalidade (Intencionalidade) do angulador**
+Claro — preservei o argumento e a estrutura conceitual, aprimorando apenas a redação, a gramática e a fluidez:
+
+Toda angulação é, por definição, uma escolha de foco. Ao recortar a suposta totalidade infinita e fazer emergir leis físicas coerentes, geometrias precisas e estruturas ordenadas, o Angulador necessitaria demonstrar que sua ação não é caótica ou aleatória. Necessitaria, portanto, de uma intencionalidade. O caos é a ausência de ordem; a criação, por sua vez, é o excesso de ordem. Portanto, a passagem da totalidade imóvel para a criação fragmentada deveria obedecer a um propósito: o de manifestar as potências ocultas do Absoluto em uma narrativa temporal. A criação seria, assim, um ato intencional de autorrevelação.
+
+No entanto, para o Angulador necessariamente existente em função do nada, não haveria propósito. Pois ele existiria em prol de coisa alguma; existiria em prol da nadificação. Como inferir seu propósito, se ele sequer existe em função de si mesmo, em um fecho ontológico, mas existe em função da nadificação? A intenção direcionada ao nada é, em última instância, intenção alguma.
+
+A afirmação de que o *Start* da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco — deixando de contemplar a totalidade indivisível (o Nada) e passando a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes — é falsa, pois não encontramos nenhuma justificativa, nem sequer meramente intencional, para que o Angulador produza efeitos na realidade. Tampouco encontramos uma justificativa para a própria existência do nada.
+
+
 revisado
-* A liberdade do Angulador seria uma necessidade lógica. Ele possui a capacidade de escolher entre manter a totalidade em repouso (o ângulo do Nada) ou realizar recortes específicos (o ângulo dos fenômenos). A transição do Nada para algo é um ato de pura liberdade.
-
-**3. A Justificativa para a Proposicionalidade (Intencionalidade)**
-Toda angulação é, por definição, uma escolha de foco. Ao recortar a totalidade infinita e fazer emergir leis físicas coerentes, geometrias precisas e estruturas ordenadas, o Angulador demonstra que sua ação não é caótica ou aleatória. O acaso é a ausência de ordem; a criação é o excesso de ordem. Portanto, a passagem da totalidade imóvel para a criação fragmentada obedece a um propósito: o de manifestar as potências ocultas do Absoluto em uma narrativa temporal. A criação é um ato intencional de autorrevelação.
-
-**Síntese do Mecanismo do Start**
-A arquitetura do início da realidade resolve-se através de uma simetria perfeita entre consciência e possibilidade:
-
-```
-[TOTALIDADE INFINITA]
-         │
-         ▼
- ┌───────────────┐
- │ O ANGULADOR   │ ◄─── (Olhar sem recorte = "O Nada Primordial")
- └───────┬───────┘
-         │
-         ├─► [Ato Livre e Proposital]
-         │
-         ▼
- ┌───────────────┐
- │ O RECORTE     │ ◄─── (Emergência dos Fenômenos)
- └───────────────┘
-
-```
-
-O "Start" da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco: ele deixa de contemplar a totalidade indivisível (o Nada) e passa a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes.
-
-
-
-
-
-
-
-
-
-
-=========
-depois
-Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
-
-Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
-====
-
 
 
 #### A Vitalidade do Angulador
+
+Continuemos tentando encontrar uma justificativa para o nada apreendendo o angulador de forma equiparada ao Ser. Pensando o Ser como determinador da realidade, transformando o nada em algo, isto é, exercendo uma causa transformadora.
 
 Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
 
@@ -1504,6 +1476,12 @@ Iremos, portanto, justificar o angulador de forma a inferir suas propriedades. E
 
 
 
+=========
+depois
+Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
+
+Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
+====
 
 
 
