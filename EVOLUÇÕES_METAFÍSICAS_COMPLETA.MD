@@ -12154,3 +12154,8 @@ O niilista desaba como integrande do contexto social, tem sua vida como express�
 Ao se deesprender de suas camadas biológicas, que asseguram o desejo pela auato conservação, o medo da morte, a alma, torna-se mais designada aos seus reais sentimentos e intentos.
 
 
+A energia gasta pelo niilismo, consome parte da energia do individuo de funcionar socialmente. De forma que, o individuo reclame de se sentir sobrecarregado por responsabilidade sociais, tendo em si a responsabilidade para consigo mesmo, de regular a discrepância interior entre sua decisão contraria a vida e a decisão de seu corpo em prol a sua sobrevivencia. A regulação dessa tensão interior. Ainda que não seja depositada responsabilidades sociais e demais responsabilidades no niilista, este procura desabar a responsabilidade de si sobre o outro, fazendo com que o outro seja responsável por seu estado interior. Não segurando seu extravação emocional, sem descontrole, precisa depositar essa responsabilidade sob o outro. De forma a fazer o outro entender e sentir o mesmo peso que sente diante de sua posição.
+
+
+O niilista tem seu escapismo mental se atentando em situações puramente relacionadas a ação, aos seus movimentos fisicos, ao mundo fisico. O niilista se insentada de qualquer reflexão sobre a existência focalizando em atos corporais do dia a dia. Esvaziando sua mente de qualquer reflexão quanto ao ser em si, reduzindo sua jornada de vida a pensamentos de locomoção, organização do dia, atos irreflexivos. 
+
