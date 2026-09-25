@@ -12160,3 +12160,9 @@ A energia gasta pelo niilismo, consome parte da energia do individuo de funciona
 O niilista tem seu escapismo mental se atentando em situações puramente relacionadas a ação, aos seus movimentos fisicos, ao mundo fisico. O niilista se insentada de qualquer reflexão sobre a existência focalizando em atos corporais do dia a dia. Esvaziando sua mente de qualquer reflexão quanto ao ser em si, reduzindo sua jornada de vida a pensamentos de locomoção, organização do dia, atos irreflexivos. 
 
 O mal causado pelo niilista é uma tentativa de demonstrar seu absurdo interior, a aparente apaziguação da sociedade que continua apesar de sua decisão, é um deposito emocional, uma tentiva de depositar uma divida em si no outro, para que o outro a pague.
+
+
+
+## Alegoria
+
+A alma, ao se desprender do corpo, ganha uma enorme sensação de potencia, não há mais medo, não há mais instintos, há o desejo puro sendo instaurado, a alma se guia retamente em direção a sua aspiração ao seu desejo, sem a força intermediaria do corpo a regulando, a condicionando a auto preservação. Por isso, o mínimo ímpeto de auto anulação é possível que seja imediatamente manifestável pela alma, desapropriada de memorias, efetividade, instancias que a façam se deter no ato de realização imediata de seus desejos.
