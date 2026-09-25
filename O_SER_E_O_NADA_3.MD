@@ -1520,19 +1520,14 @@ Procuramos a pureza no absoluto por meio de seus aspectos relacionais. O univers
 Portanto, temos que desprover o indiferenciado de qualquer identidade. Trata-se de uma existência que não é nem o nada, nem o existente apontado de forma determinada. A identidade do Ser é o seu próprio existir, e esse existir não se relaciona à existência determinada ou ao nada; é um existir que é inferido de forma relacional, incapturável pela determinação, mas existente. Isso quer dizer que o Ser se faz sem o nada, sem existência como "A" ou "B", e sua melhor definição é relacional: é presença, é vida sem recorrer à nadificação ou à existência determinada.
 
 O indiferenciado, portanto, não é o existir angular da infinitude da possibilidade, mas está além da categoria da existência projetada. O indiferenciado só pode ser aplicado para além do contingente, pois não representa o criado do nada ou o angulado do nada.
+
+O relativo angulado em uma infinitude possui uma identidade; é uma existência possível em detrimento de outras possíveis, é um olhar da totalidade em detrimento de outros olhares. Porém, o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, sem unicidade ou singularidade é próprio da pureza absoluta, que só existe em sua ação de Ser, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz o seu próprio existir, o seu próprio ato de auto querer. Isto é, o Espírito indiferenciado é o próprio ato de existir; ele não se chama "o ato", mas é o próprio em si. Portanto, a palavra "Ser" não é o nome do indiferenciado, mas a sua forma de existência. Ele é, e sua identidade é o seu próprio ato de existir. Ele é, portanto, o verbo, e não o substantivo.
+
+O Ser é a identidade do Espírito que se curva mediante o próprio fundamento. A identidade não é a essência no sentido de ser uma unicidade, mas a identidade é a própria essência de modo que o Ser não se apropria de si mesmo e se nomeia como "Ser", mas simplesmente "é" em doação total de si. Portanto, nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem ser "um" existente, de forma que seja detectada somente a sua ação de Ser, somente o seu aspecto relacional. Faremos isso buscando aspectos relacionais no absoluto, e não entes específicos em sua estrutura. Estamos buscando o ato que é definido em essência por si mesmo. Não é o Espírito "A" ou "B", mas é o Espírito do existir. É quem existe, é o Ser.
+
+Aspectos como a autocausalidade podem nos levar a propriedades relacionais. Se há autocausalidade, infere-se uma ação em prol do existir: a ação do existente é existir, e o existente se nomeia por sua ação. Se existir é benéfico, o existente se nomeia por uma linguagem relacional e também intancional, tal como o amor, a benevolência e a retidão em favor da vida. E o Ser é a própria benevolência; ele não a "tem", ele a "é". Buscaremos, portanto, os aspectos relacionais para o absoluto, a fim de definir o Ser. 
+
 revisado
-O relativo angulado possui uma identidade; é uma existência possível em detrimento de outras possíveis, é um olhar da totalidade em detrimento de outros olhares. Porém, o nada não possui identidade nenhuma. Existir sem diferença, sem numerabilidade, sem unicidade ou singularidade é próprio da pureza absoluta, que só existe em sua ação de Ser, em seu aspecto relacional; em outras palavras, em um Espírito indiferenciado para si mesmo, ao qual nem mesmo se classifica como um Espírito dotado de identidade, mas como o próprio Espírito do Ser. O Espírito cuja identidade é tão pura que se faz o seu próprio existir, o seu próprio ato de autoquerer. Isto é, o Espírito indiferenciado é o próprio ato de existir; ele não se chama "o ato", mas é o próprio em si. Portanto, a palavra "Ser" não é o nome do indiferenciado, mas a sua forma de existência. Ele é, e sua identidade é o seu próprio ato de existir. Ele é, portanto, o verbo, e não o substantivo.
-
-O Ser não é a identidade do Espírito, mas é o fato de que esse Espírito habita sem identidade. A identidade não é a própria essência no sentido de ser uma unicidade, mas a identidade é a própria essência no sentido de não existir como identidade, de modo que o Ser não se apropria de si mesmo e se nomeia como "Ser", mas simplesmente "é" em doação total de si. Portanto, adiante, o foco de nossa investigação explanará como uma realidade (Espírito indiferenciado) pode emergir sem ser existente, de forma que seja detectada somente a sua ação de Ser, somente o seu aspecto relacional. Faremos isso buscando aspectos relacionais no absoluto, e não entes específicos em sua estrutura.
-
-O próprio conceito de nada ontológico, sob a ótica do referencial ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou do Espírito. Pois haveria o agente da angulação, seja ele uma ação ou uma determinação, no sentido de manifestação fenomênica. Dessa forma, estamos buscando não uma substância, mas o ato que é definido em essência por si mesmo. Não é o Espírito "A" ou "B", mas é o Espírito do existir. É quem existe, é o Ser.
-
-Aspectos como a autocausalidade podem nos levar a propriedades relacionais. Se há autocausalidade, infere-se uma ação em prol do existir: a ação do existente é existir, e o existente se nomeia por sua ação. Se existir é benéfico, o existente se nomeia por uma linguagem relacional, tal como o amor, a benevolência e a retidão em favor da vida. E o Ser é a própria benevolência; ele não a "tem", ele a "é". Buscaremos, portanto, os aspectos relacionais para o absoluto, a fim de definir o Ser.
-
-===
-error
-O relativo existe de forma inalcançável do ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo como "existente" ou como "nada", estamos, de fato, determinando-o. Ao atribuirmos existência ao indiferenciado, estamos tornando-o equivalente ao nada.
-===
 
 #### A Ação do Ser no Relativo
 
@@ -1545,6 +1540,18 @@ Se ao olharmos para o nada, nada existe, não estamos olhando para o nada, mas p
 A própria existência do Espírito, ainda que sem ação, já subentende o angulador do relativo. Por isso, não há o processo de "visualizar o nada que nada é", mas há o processo de liberdade. O nada é a própria inatividade do Espírito, é o produto da inação. O Espírito, somente por existir, já sacia o relativo e constrói o nada. O nada, portanto, é o ato da liberdade, e a liberdade expressa-se em forma de inação. O repousar do Espírito, ou o seu simples existir, subentende um referencial, ainda que sem ação. A inatividade também é uma expressão da liberdade, e ele se faz inativo consciente dessa ação.
 
 *Exemplo dogmático:* Se os olhos do Ser estão fechados, o produto dessa inação é o nada. Porém, quando se abrem, o produto é o todo. O Ser, portanto, não é o relativo, mas sua ação age sobre a relatividade de forma a construir o nada ou o ente. A sua imagem é tão altíssima para a razão que dela só enxergamos a ação do nada (que pode ser pensado porque é determinado e angulado) e, do Ser, enxergamos (com a visão humana que pensa em coisas determinadas) os aspectos relacionais, que é o amor. O amor sob o nada, o amor que subsiste e mantém seu referencial de forma a existir soberano para o absoluto; e de forma que transcende todas as coisas, exceto aquelas que também possuem o amor. Por isso, o Ser está em quem ama, e quem ama está n'Ele.
+
+
+
+
+===
+error
+O próprio conceito de nada ontológico, sob a ótica do referencial ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou do Espírito. Pois haveria o agente da angulação, seja ele uma ação ou uma determinação, no sentido de manifestação fenomênica. 
+
+O relativo existe de forma inalcançável do ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo como "existente" ou como "nada", estamos, de fato, determinando-o. Ao atribuirmos existência ao indiferenciado, estamos tornando-o equivalente ao nada.
+===
+
+
 
 #### A Infinitude do Indiferenciado
 
