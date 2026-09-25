@@ -1290,8 +1290,8 @@ Conclui-se, a partir das análises precedentes, que a investigação acerca do N
 Para fins especulativos e práticos, faz-se necessário introduzir uma categoria conceitual ordinariamente alheia às discussões sobre a vacuidade, mas que se revela quase apta a sustentar uma integridade ontológica não colapsável: **o Infinito da determinação**. Sob a luz desse conceito, a nulidade aparentemente passa a coexistir com seu oposto ontológico.
 
 Ao considerarmos a infinitude de uma realidade determinada e o nada como conceitos exatamente iguais, não haveria mais dualidade entre a realidade determinada e o nada, sendo o nada uma realidade determinada que foi infinitizada. Essa seria uma solução considerável que, aparentemente, uniria a existência ao nada de forma não excludente. Postula-se, pois, que a infinitude da forma do determinado ou a infinitude de um conjunto incontável de determinações em sua completude é ontologicamente indiscernível do nada, haja vista que a ausência de limites impede qualquer mensurabilidade ou predicação restritiva (havendo um número de formas infindáveis ou até mesmo uma forma de propriedades infinitas). O olhar direcionado à uma determinação infinitizada aparentemente coincide formalmente com o olhar lançado sobre o abismo do nada. Eis aqui uma tentativa metodológica para conceber um nada ontológico, prescindindo da mera suspensão do pensamento ou da recusa em representá-lo.
-revisado
-Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre a existência e o nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma **variação de angulação**. Diante da completude irrestrita — a infinitude pura —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
+
+Ao dissolvermos a oposição binária e excludente e erigirmos uma **duplicidade mútua e simultânea**, a tensão entre a existência e o nada deixa de residir em uma contradição de substâncias e passa a se configurar como uma aparente **variação de angulação**. Diante da completude irrestrita — a infinitude —, o que se descortina ao intelecto é o Nada; inversamente, ao aplicarmos um recorte delimitador sobre essa mesma infinitude, emerge a existência determinada.
 
 Porém, esta é uma visão infundada, visto que o olhar sobre a completude infinita não captura o nada, já que o nada não é coisa alguma. E a forma infinitizada deixa de ser forma. Isto é, uma identidade, ao se abrir ao infinito, vaza a sua identidade, de forma que só se sustente ao ser indiferenciada por essência. Isso quer dizer que, se infinitizarmos um número, há o devir do número que o faz perder seu contorno como número, tal como ocorreria ao infinitizarmos a identidade.
 
@@ -1303,42 +1303,42 @@ Com o fito de conferir inteligibilidade a esta tese, cumpre analisar primeiramen
 
 Consideremos, hipoteticamente, uma régua linear cuja extensão seja fixada em 30 centímetros; seus limites inicial e final são perfeitamente demarcados e cognoscíveis no espaço. Se, todavia, expandirmos idealmente esse instrumento a uma extensão geométrica infinita, a tentativa de perscrutar o seu término resultará no encontro com o nada. O fim da infinitude é intrinsecamente inalcançável. Conquanto a régua subsista na integridade de sua totalidade irrestrita, suas balizas limítrofes são absolutamente incapturáveis pelo aparato cognitivo. A tentativa de apreender o limite de uma extensão infinita traduz-se metafisicamente na equivalência ao nada, dada a radical impossibilidade de mensuração.
 
-Ao tentarmos acrescentar a infinitude a um ente recortado — isto é, ao dizermos que uma régua de trinta centímetros é infinita —, estamos diante de um antagonismo, pois o que tem trinta centímetros não pode ser infinito, uma vez que sua medida é angulada. Portanto, ou o ente está angulado e mensurado ou é infinito; não existe meio-termo. Sendo assim, uma régua infinita é uma régua não passível de ser visualizada. Consequentemente, aquilo que é considerado infinito necessariamente desapareceria.
+Ao tentarmos acrescentar a infinitude a um ente recortado — isto é, ao dizermos que uma régua de trinta centímetros é infinita —, estamos diante de um antagonismo, pois o que tem trinta centímetros não pode ser infinito, uma vez que sua medida é angulada. Portanto, ou o ente está angulado e mensurado ou é infinito; não existe meio-termo. Sendo assim, uma régua infinita é uma régua não passível de ser visualizada. Consequentemente, aquilo que é considerado infinito e ao mesmo tempo determinado necessariamente desapareceria.
 
-O Nada, por conseguinte, pode ser rigorosamente definido como a projeção analítica que resulta da tentativa da razão discursiva de predicar ou visualizar a **infinitude do horizonte da forma ou de um número infinito de formas**. Ele deixa de ser uma ausência de ser para se tornar a consequência cognitiva do exceder da forma para além da visão.
+O Nada, por conseguinte, pode ser assemelhado a projeção analítica que resulta da tentativa da razão discursiva de predicar ou visualizar a **infinitude do horizonte da forma ou de um número infinito de formas**. Ele deixa de ser uma ausência de ser para se tornar a consequência cognitiva do exceder da forma para além da visão.
 
 Analogamente, se observarmos uma temporalidade cuja duração estende-se infinitamente, a dissolução de marcos cronológicos faz a infinitude temporal sintetizar-se no **Atemporal**. Do mesmo modo, a infinitude do espaço sideral anula a própria localidade, colapsando no **Não-Espacial**. O infinito cronoespacial traduz-se, necessariamente, na suspensão do tempo e do espaço — isto é, em tempo nenhum e em lugar nenhum.
 
-**A Expansão ao Horizonte Transcendental**
+É preciso, todavia, reafirmar que um ente determinado não pode ser infinitizado no sentido quantitativo sem que, nesse processo, perca os contornos que o definem como o ente que é. Uma régua de trinta centímetros, por exemplo, não pode tornar-se infinita em extensão e, simultaneamente, conservar-se como uma régua de trinta centímetros. A infinitização quantitativa, nesse caso, alteraria precisamente a determinação que constitui o ente.
 
-Ao projetarmos o vetor da infinitude sobre o campo integral da determinação, contemplamos o Todo em sua plenitude contínua, perfeitamente isento de clivagens, fraturas ou recortes fenomênicos. Quando este Todo absoluto é mentalizado pela consciência humana, deparamo-nos com uma encruzilhada epistemológica: ou o intelecto realiza um recorte limitador, isolando um fragmento determinado que se configura como existência fenomênica, ou contempla a totalidade indeterminada — que, para a estrutura cognitiva finita, apresenta-se formal e ontologicamente idêntica ao Nada.
+Isso, porém, não significa que toda realidade espiritual esteja submetida ao mesmo tipo de limitação. Há atributos cuja infinitude não consiste em uma expansão indefinida de quantidade, extensão ou magnitude, mas em uma intensificação ou plenitude qualitativa. O amor, por exemplo, pode ser dito infinito não porque possua uma extensão espacial ilimitada, mas porque sua capacidade de amar não encontra um limite quantitativo que determine seu grau máximo.
 
-> A determinação é uma fratura no Infinito. O Ser determinado surge quando o intelecto recorta a completude. Sem o recorte, a luz plena do Infinito cega a razão, manifestando-se aparentemente como a vacuidade primordial.
+Desse modo, é necessário distinguir a infinitude que dissolve as determinações quantitativas de um ente da infinitude que expressa a plenitude de um predicado. Um ente determinado não pode ser infinitizado quantitativamente sem deixar de ser aquilo que é; entretanto, determinados predicados intencionais, relacionais e espirituais podem portar infinitude precisamente porque sua infinitude não exige a supressão da determinação, mas a ausência de um limite qualitativo último.
 
-Temos, portanto, a fundamentação de um **Nada Ontológico** — não como negação privativa da realidade, mas como a própria face do Infinito Absoluto quando apreendido em sua totalidade indivisível. Porém, essa faceta é falsa, uma vez que a definição do nada ontológico está apenas no olhar do angulador da infinitude, isto é, é apenas uma miragem, uma realidade imaginada.
+Ao projetarmos o vetor da infinitude sobre o campo integral da determinação, aparentemente contemplamos o Todo em sua plenitude contínua, perfeitamente isento de clivagens, fraturas ou recortes fenomênicos. Quando este Todo absoluto é mentalizado pela consciência humana, deparamo-nos com uma encruzilhada epistemológica: ou o intelecto realiza um recorte limitador, isolando um fragmento determinado que se configura como existência fenomênica, ou contempla a totalidade indeterminada — que, para a estrutura cognitiva finita, apresenta-se formal e ontologicamente idêntica ao Nada.
 
+No entanto, esse nada só pode ser imaginado. Ele não possui eficácia na realidade enquanto ontologia. Trata-se de um projétil lançado na consciência, uma imagem figurativa que existe apenas na mentalização daquele que a visualiza. Portanto, a frase:
 
+> “A determinação é uma fratura no Infinito. O Ser determinado surge quando o intelecto recorta a completude. Sem o recorte, a luz plena do Infinito cega a razão, manifestando-se aparentemente como a vacuidade primordial. Temos, portanto, a fundamentação de um **Nada Ontológico** — não como negação privativa da realidade, mas como a própria face do Infinito Absoluto quando apreendido em sua totalidade indivisível.”
 
-
-
-
-
-
-
-
-
-
-
-
-
+aparentemente faz algum sentido. Todavia, essa faceta é falsa, uma vez que a definição de um “nada ontológico” encontra-se apenas no olhar daquele que contempla a infinitude. Trata-se, portanto, de uma miragem produzida pela própria consciência: uma realidade apenas imaginada, sem qualquer fundamento ontológico efetivo.
 
 ### O ANGULADOR, A EMERGÊNCIA DOS FENÔMENOS E O RELATIVO
 
 #### A Tentativa do Angulador
 
+
+=========
+depois
 Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
 
-Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. No entanto, poderíamos considerar que o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e esta visão seria a infinitude. O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência humana enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação autodeterminada do Absoluto. Isso significa que o Nada só existiria em função de um **Observador**, que chamaremos daqui em diante de **Angulador**.
+Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
+====
+
+
+Continuaremos nossa busca pelo nada ontológico, desta vez levando a investigação até suas últimas consequências. Consideraremos, como hipótese, que o nada visualizado pelo angulador seja, de alguma forma, um nada justificável. Em primeira instancia, na ausência de qualquer sentido para eleger um angulador, poderíamos considerar que o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e esta visão seria a infinitude. O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação do observador. Isso significa que o Nada só existiria em função de um **Observador**, que chamaremos daqui em diante de **Angulador**.
+
+revisado
 
 Para o Absoluto, todas as infinitas possibilidades já existiriam implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la. Porém, o nada não pode ser um estado determinado, pois nada é, e não poderia ser enxergado se fosse nada. Dessa forma, a infinitude da determinação, sendo nada, não pode ser uma infinitude determinada.
 
@@ -1713,6 +1713,33 @@ Até a presente investigação, estabelecemos um passo a passo através do refin
 No entanto, o que se sugere para o absoluto não é a negação de nenhum ente, mas a afirmação da autoposição do Espírito. E essa afirmação já subentende a não-soberania. Isto é, o fato de não se produzir nada já faz com que seja necessário ser possível produzir. Pois, para haver a simples estadia inativa, é preciso que haja a possibilidade de ação, que não está resguardada como manifestação de nenhuma negatividade, mas é a própria liberdade. Uma liberdade que não é vivida em uma ontologia pobre, mas que é vivida em sua totalidade, não sendo definida por uma ontologia falsa.
 
 Portanto, agora que libertamos o Ser de toda ontologia falsa e clareamos o foco de nossa investigação, podemos aprofundar nossa busca, adentrando o próprio teor autocausal, a fim de investigar suas minúcias. Se antes permanecíamos perdidos em conceitos vagos, confundidos com a pureza absoluta, ou em realidades cuja existência era inferida a partir do mundo determinado, agora o campo de nossa investigação se encontra claro e nítido, permitindo-nos identificar os conflitos que ainda precisam ser resolvidos e os atributos que precisam ser esclarecidos.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
 
