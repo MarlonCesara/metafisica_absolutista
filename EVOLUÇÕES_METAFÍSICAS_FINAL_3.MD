@@ -1327,31 +1327,24 @@ aparentemente faz algum sentido. Todavia, essa faceta é falsa, uma vez que a de
 
 #### A Tentativa do Angulador
 
-
-=========
-depois
-Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
-
-Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
-====
-
-
 Continuaremos nossa busca pelo nada ontológico, desta vez levando a investigação até suas últimas consequências. Consideraremos, como hipótese, que o nada visualizado pelo angulador seja, de alguma forma, um nada justificável. Em primeira instancia, na ausência de qualquer sentido para eleger um angulador, poderíamos considerar que o nada é um **ângulo de visão** tomado pelo incausado. Isto é, conferimos uma visão ao Ser, e esta visão seria a infinitude. O Nada só seria "nada" porque representaria a totalidade que *não sofreu nenhum recorte*. Onde não há recorte, a consciência enxerga o vazio. Portanto, o Nada não é o Absoluto em si, mas a angulação do observador. Isso significa que o Nada só existiria em função de um **Observador**, que chamaremos daqui em diante de **Angulador**.
 
-revisado
-
-Para o Absoluto, todas as infinitas possibilidades já existiriam implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já é um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial é, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la. Porém, o nada não pode ser um estado determinado, pois nada é, e não poderia ser enxergado se fosse nada. Dessa forma, a infinitude da determinação, sendo nada, não pode ser uma infinitude determinada.
+Ao considerar o infinito da forma a máxima realização da determinação que sucumbiu todas as infinitas possibilidades já existiriam implicitamente. Dizer que existe "o Nada" em vez de uma possibilidade qualquer já seria um ato de determinação, uma escolha de perspectiva. Sem o Angulador, não há ângulo. O Nada primordial seria, em si, a visão inicial desse Angulador, que observa a totalidade antes de começar a recortá-la. Porém, o nada não pode ser um estado determinado, pois nada é, e não poderia ser enxergado se fosse nada. Dessa forma, a infinitude da determinação, sendo nada, não pode ser uma infinitude determinada. O nada, sendo uma reversão do determinado, ou uma visão cega do determinado, continua sendo o determinado numa via latente.
 
 Porém, ao continuarmos simulando o angulador como argumento convincente, interpretaríamos a propriedade viva que faltava: o **Angulador**. O Nada e o Angulador nasceram juntos e são homogêneos. O Nada é a totalidade vista pelo angulador, e o angulador é o portador dessa visão. O início de tudo não foi um vácuo que virou matéria, mas o despertar de uma consciência que começou a olhar para a infinitude de formas ou para a infinitude da forma.
 
-Ao contemplarmos a dimensão em sua infinitude, deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a infinitude do tempo, temos a atemporalidade; da mesma forma, se contemplamos a infinitude da determinação, temos o nada — não a atemporalidade ou a não-espacialidade, mas o próprio nada.
+Ao contemplarmos a dimensão determinada em sua infinitude,  deparamo-nos com a ausência de dimensão, pois uma dimensão infinita é imensurável e não predicável à consciência; é inconcebível, visto que não se enxerga o começo nem o fim, tampouco se tem o "dentro" ou o "fora". Ao contemplarmos a infinitude do tempo determinado, não temos a atemporalidade; da mesma forma, se contemplamos a infinitude da determinação, temos o nada — não a atemporalidade ou a não-espacialidade, mas o próprio nada. Ao eliminarmos a determinação pela infinitização, não produzimos estados atemporais, estados que estão além da dimensão ou estados indiferenciados, produzimos a desfiguração do determinado. 
 
-O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso recorte na totalidade que, na verdade, não pode ser recortada, pois é infinita; e existe não como uma necessidade ontológica. É capturado e tenta determinar-se por aquilo que observa, e não por uma necessidade absoluta. A própria infinitude, por si mesma, deveria sobressair em cada infinitude de forma, ou em cada parte da extensão da forma de atributos infinitos. A determinação A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as determinações ou o espaço de uma determinação infinita competindo pela sobressalência em um ângulo de uma forma ou do correspondente ao ângulo de uma forma. A escolha da infinitude envolve uma determinação de sobressalência, de angulação.
+O nada, portanto, seria o produto do observador, e não de si mesmo. Existe a partir de um ponto de vista angular, como resultado de uma falsa determinação, um falso olhar sob a infinitude do determinado que, na verdade, não pode ser visualizada, pois não existe. É capturado e tenta determinar-se por aquilo que observa, e não por uma necessidade absoluta. 
 
-Portanto, a sobressalência sobre a visão de fragmentos infinitos de formas precisa ser definida pelo observador, pois não possui definição ao ser delineada apenas pela totalidade infinita. Se a existência da forma A competisse em sobressalência com a existência da forma B, coexistindo ambas ao mesmo tempo para a infinitude, não teríamos a infinitude. Nem a forma A, nem a forma B. Pois as formas A e B, apresentadas ao mesmo tempo, não são nem A e B, nem A ou B. Isto é, não são uma infinitude e nem um recorte.
+#### A competição das formas 
+
+O verdadeiro infinito não seria colapsado em sua abrangência total. Ao miscigenarmos uma realidade determinada e uma realidade infinita, a própria infinitude, por si mesma, deveria sobressair em cada infinitude de forma, ou em cada parte da extensão da forma de atributos infinitos. A determinação A sobressai como A, manifestando-se por si mesma, enquanto B faz o mesmo. Temos, portanto, as determinações ou o espaço de uma determinação infinita competindo pela sobressalência para um angulador. A escolha da infinitude envolve uma determinação de sobressalência, de angulação.
+
+Portanto, a sobressalência sobre a visão de fragmentos infinitos de formas precisa ser definida pelo observador, pois não possui definição ao ser delineada apenas pela totalidade infinita. Se a existência da forma A competisse em sobressalência com a existência da forma B, coexistindo ambas ao mesmo tempo para a infinitude, não teríamos a infinitude, nem a forma A, nem a forma B. Pois as formas A e B, apresentadas ao mesmo tempo, não são nem A e B, nem A ou B. Isto é, não são uma infinitude e nem um recorte.
 
 Ao considerarmos A retrocedendo em forma infinitamente e B avançando em forma infinitamente, de modo que haja (...A, B...), temos, então, a sobressalência de forma alguma, ao passo que também não temos a infinitude apresentada, considerando uma ou mais determinações para o absoluto. Ao misturarmos todas as determinações em um caldeirão conceitual, não teríamos nem a infinitude, nem sequer um recorte de forma. Caso jogássemos infinitos números em um caldeirão, o infinito não permitiria a existência de números individuais: ao retirar algo com uma concha, não haveria número algum. Porém, ao colocarmos números finitos, haveria exatamente a quantidade de números inseridos.
-
+revisado
 Isso deve ser entendido de tal modo que o caldeirão fosse o absoluto, que sempre evidencia uma forma, um grupo de formas delimitado. Porém, ao inserirmos o disforme em decorrência do excesso de forma, não se apresenta forma alguma, ao passo que também não se apresenta uma forma determinada, sem um sentido para tal.
 
 *Ex: Ao se jogar infinitas formas num caldeirão, não haveria sopa alguma; porém, ao retirarmos uma colher de sopa, haveria uma ou mais letrinhas. Dessa forma, tudo é totalmente dependente de quem retira as formas. Tem-se, então, a relativização da determinação que não é um nada ontológico, mas é mais uma ilusão do nada ontológico, desta vez colocada sob um referencial que é a colher e o indivíduo que a usa.*
@@ -1428,6 +1421,15 @@ O "Start" da criação ocorre quando o Angulador, por um ato livre de sua vontad
 
 
 
+
+
+
+=========
+depois
+Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
+
+Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
+====
 
 
 
