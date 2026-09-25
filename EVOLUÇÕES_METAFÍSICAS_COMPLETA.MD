@@ -12150,3 +12150,7 @@ O niilista desaba como integrande do contexto social, tem sua vida como express�
 
 
 
+
+Ao se deesprender de suas camadas biológicas, que asseguram o desejo pela auato conservação, o medo da morte, a alma, torna-se mais designada aos seus reais sentimentos e intentos.
+
+
