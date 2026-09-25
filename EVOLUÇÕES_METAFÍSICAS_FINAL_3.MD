@@ -6795,3 +6795,6 @@ Essa separação é filosoficamente importante, porque **não é evidente que �
 
 
 O Ser não é uma realidade parcial, nem metafórica.
+
+
+Ao se dizer que o auto causar é uma diferença, pois designa a causa anterior antes do causado, caímos numa contradição de considerar o próprio Ser dessa forma, onde há um ato que vira a Ser, portanto, um ente prévio que não é, e seu efeito de Ser. A solução mais elegante é considerar a circularidade, uma bipolaridade entre o Ser estático e o vir a Ser constante em uma linha temporal infinita. Assim justificamos a temporalidade, as decisões, a liberdade do Ser de agir fora de seu contexto consumado.
