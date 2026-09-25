@@ -1393,14 +1393,17 @@ O relativo é um erro lógico; é o mesmo que falar sobre algo, porém esse algo
 
 A infinitude da totalidade determinada supostamente seria equivalente ao nada. Supostamente a existência determinada estaria nos olhos do observador e se trataria de uma existência imaginada, sem teor de verdade em si e para si, porém somente real para o angulador. O que se apresentaria seria uma existência em consonância com o visualizador. Uma existência que é real ao passo que obedece ao angulador, uma existência que carrega a vivacidade consigo emprestada do angulador, pois não é uma existência pronta, é uma existência ordenada por quem angula. Que existe segundo um comando, uma mentalização. Portanto, seria uma existência real através do angulador. Seria um nada, mais uma vez, relacional. Um nada parasitário ao angulador. Um nada que quase achou sua existencia garantia em função de se embutir a uma suposição de angulador, tal como teria feito tentando se apropriar de qualquer grau de existente se declarando a anulação do existente.
 
+O nada, portanto, seria o pico da determinação, seria a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas supostamente vivida em sua totalidade. O observador, ao escolher a infinitude da forma, supostamente, se justificaria por ela. No entanto, para uma realidade auto justificada, deveria haver também a ausência da determinação, isto é, de qualquer escolha para a forma. 
+
+Tal como, ao se escolher viver em um tempo infinito determinado, se tem a ausência concreta do tempo, um estado não literalmente atemporal, mas um não estado. Pois o que concretamente não possui medição não é tangível como determinado. 
+
+A infinitude determinada é um nada imaginado para o visualizador, mas não tem um nada em si que seja concreto e ontológico. Ao se segurar uma infinitude determinada, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo determinado inteiramente infinito, se vive tempo algum. Portanto, o nada seria supostamente igualável à infinitude da determinação.
+
+Para que a hipótese do angulador ao menos se aproximasse de algum, o angulador não deveria necessitar da ação da angulação, e o nada não deveria ser dito uma relativização da forma. O angulador deveria não necessitar de uma ação, a não ser simplesmente ser ele mesmo, e o nada não deveria existir, havendo somente a autoposição do angulador.
+
+Deveríamos explorar o angulador por outras vias que não designem mais o nada angulado. Cairíamos novamente na necessidade de inferir o Ser. Precisariamos investigar a estrutura interna do absoluto: **Ele possui liberdade? Sua escolha de soberania é uma ação? Ele é um fundamento vivo?**
+
 revisado
-
-O nada, portanto, seria o pico da determinação, é a possibilidade vista pelo ângulo de sua totalidade. E não somente vista, mas supostamente vivida em sua totalidade. Ao escolher a vida na infinitude da forma, deveria haver também a ausência da determinação, isto é, de qualquer escolha para a forma. 
-
-Tal como, ao se escolher viver em um tempo infinito, se tem a ausência concreta do tempo, um estado literalmente atemporal. Pois o que concretamente não possui medição não é tangível. A infinitude tem um nada imaginado para o visualizador, mas não tem um nada em si que seja concreto e ontológico. Ao se segurar uma infinitude, se segura algo que não tem dimensões. Nada se segura. Ao se viver um tempo inteiramente infinito, se vive tempo algum. Portanto, o nada é a infinitude da determinação.
-
-Para que a hipótese do angulador começasse a fazer sentido, o angulador não deveria necessitar da ação da angulação, e o nada não deveria ser chamado de relativo. O angulador deveria não necessitar de uma ação, a não ser simplesmente ser ele mesmo, e o nada não deveria existir, havendo somente a autoposição do angulador. Para isso, deveríamos explorar o angulador por outras vias que não designem mais o nada angulado. Cairíamos novamente na necessidade de inferir o Ser. Precisamos investigar a estrutura interna do absoluto: **Ele possui liberdade? Sua angulação é proposital? Ele é um fundamento vivo?**
-
 **1. A Justificativa Lógica para o Fundamento Vivo (Vitalidade)**
 Se o Absoluto fosse um mecanismo puramente estático ou uma lei matemática cega, ele estaria preso à sua própria imobilidade eterna. Uma lei mecânica não pode decidir mudar o seu próprio comportamento. O fato de existirem fenômenos dinâmicos (tempo, movimento, vida e consciência no universo) prova que a causa que os originou não pode ser inferior ao efeito. O Angulador é um fundamento vivo porque a inteligibilidade e o dinamismo do cosmos só podem emergir de uma fonte que já possua, em si mesma, o princípio da vida e da percepção.
 
