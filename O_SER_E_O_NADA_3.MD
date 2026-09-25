@@ -1421,47 +1421,34 @@ No entanto, para o Angulador necessariamente existente em função do nada, não
 
 A afirmação de que o *Start* da criação ocorre quando o Angulador, por um ato livre de sua vontade, decide mover o seu foco — deixando de contemplar a totalidade indivisível (o Nada) e passando a exercer recortes voluntários sobre o infinito, inaugurando o espaço, o tempo e a multiplicidade dos entes — é falsa, pois não encontramos nenhuma justificativa, nem sequer meramente intencional, para que o Angulador produza efeitos na realidade. Tampouco encontramos uma justificativa para a própria existência do nada.
 
-
-revisado
-
-
 #### A Vitalidade do Angulador
 
-Continuemos tentando encontrar uma justificativa para o nada apreendendo o angulador de forma equiparada ao Ser. Pensando o Ser como determinador da realidade que transforma o nada em algo, isto é, exercendo uma causa transformadora.
-
-=====
-error
-
-Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
-===
 Para avançarmos nesta investigação, precisamos refinar o conceito de Angulador. O Angulador não seria uma divisória ou uma engrenagem dentro do próprio Nada. Ele seria a própria capacidade de ter uma visão ou uma experiência — seja da totalidade ideal, seja de um fragmento determinado. O Angulador é o ponto que estabelece a realidade a partir de uma referência.
 
-Isso significa que a visão sobre o Nada é uma propriedade **daquele que apreende**, e não de uma ferramenta externa, como se houvesse uma lente gigante posicionada sobre o vazio. O Angulador é a instância que toma a realidade como ponto de partida através de um referencial particular; ele mentaliza e assume a propriedade do campo de experiência que se descortina diante de si. O ângulo, afinal, não pode residir no objeto observado (o Nada), mas sim no ato de olhar para ele.
+Isso significa que a visão sobre o Nada seria uma propriedade **daquele que apreende**, e não de uma ferramenta externa, como se houvesse uma lente gigante posicionada sobre o vazio. O Angulador seria a instância que toma a realidade como ponto de partida através de um referencial particular; ele mentaliza e assume a propriedade do campo de experiência que se descortina diante de si. O ângulo, afinal, não pode residir no objeto observado (o Nada), mas sim no ato de olhar para ele.
 
-A única forma de o Nada ter existido como o estado primordial da realidade é a presença prévia do Angulador nessa totalidade. O Angulador, portanto, **emerge antes de qualquer mundo fenomênico**. E ele é intrinsecamente vivo. Sua vitalidade não é deduzida porque o mundo fenomênico existe hoje, mas sim porque a própria ação de angular exige, por definição, o autor da visão. O elemento que gera o ângulo é vivo em si mesmo. Se o Angulador fosse um processo mecânico ou uma lei cega, o Absoluto ficaria perpetuamente travado na contemplação estática da totalidade, incapaz de qualquer movimento. A própria existência do dinamismo prova que o princípio gerador é dotado de uma visão ativa e intencional.
+O Nada existiria como o estado primordial da realidade é a presença prévia do Angulador nessa totalidade. O Angulador, portanto, **emergiria antes de qualquer mundo fenomênico**. E ele deveria ser intrinsecamente vivo. Sua vitalidade não seria deduzida porque o mundo fenomênico existe hoje, mas sim porque a própria ação de angular exige, por definição, o autor da visão. O elemento que gera o ângulo deveria ser vivo em si mesmo. Se o Angulador fosse um processo mecânico ou uma lei cega, o Absoluto ficaria perpetuamente travado na contemplação estática da totalidade, incapaz de qualquer movimento. A própria existência do dinamismo prova que o princípio gerador é dotado de uma visão ativa e intencional. Porém, a visão do angulador continua irracional, pois não há dinamismo em se visualizar o que não se existe para se visualizar. 
 
-A justificativa para a ação do Angulador não pode residir em uma necessidade externa, uma vez que o Nada deve existir de forma natural e primordial; portanto, o Angulador deve contemplar a totalidade por uma exigência de sua própria natureza. A razão pela qual o Angulador realiza essa contemplação inicial só pode ser encontrada **nele mesmo**. Afinal, no nível primordial, não existe nada exterior, nada anterior e nenhuma razão oculta pela qual o Absoluto deva ser como é, senão em si próprio. Assim, a causa da contemplação da totalidade habita exclusivamente no imo do Angulador.
+A justificativa para a ação do Angulador não pode residir em uma necessidade externa, uma vez que o Nada deve existir de forma natural e primordial; portanto, o Angulador deve contemplar a totalidade por uma exigência dada em sua própria natureza. A razão pela qual o Angulador realiza essa contemplação inicial só pode ser encontrada **nele mesmo**. Afinal, no nível primordial, não existe nada exterior, nada anterior e nenhuma razão oculta pela qual o Absoluto deva ser como é, senão em si próprio. Assim, a causa da contemplação da totalidade deveria habitar exclusivamente no imo do Angulador.
 
-Se tentarmos explicar esse ato puramente pela necessidade mecânica — argumentando que o Nada exige a contemplação do Angulador para validar sua totalidade —, devemos reconhecer que, embora esse processo seja semanticamente necessário, a razão profunda dessa observação ainda emana do próprio Angulador. O Angulador é, simultaneamente, **necessário e autodeterminante**. Ao mesmo tempo em que sua natureza o impele a contemplar a totalidade, ele é o senhor absoluto desse ato de contemplação. A necessidade não aniquila sua liberdade; pelo contrário, a razão pela qual ele direciona sua visão sobre o todo está inteiramente em si mesmo. A necessidade e a autodeterminação operam aqui como uma unidade indissociável.
+Se tentarmos explicar esse ato puramente pela necessidade mecânica — argumentando que o Nada exige a contemplação do Angulador para validar sua totalidade —, devemos reconhecer que, embora esse processo seja semanticamente necessário, a razão profunda dessa observação ainda emana do próprio Angulador. O Angulador é, simultaneamente, **necessário e autodeterminante**. Ao mesmo tempo em que sua natureza o impele a contemplar a totalidade, ele é o senhor absoluto desse ato de contemplação. A necessidade não aniquila sua liberdade; pelo contrário, a razão pela qual ele direciona sua visão sobre o todo deveria estar inteiramente em si mesmo. A necessidade e a autodeterminação operam aqui como uma unidade indissociável.
 
-Isso significa que, embora tudo comece inevitavelmente pela visão do Nada, o Observador retém em si mesmo a razão de ser de sua própria observação. Não há imposição: o ato de olhar é o próprio ser do Angulador em pleno exercício.
+Isso significa que, embora tudo aparentemente comece inevitavelmente pela visão do Nada, o Observador retém em si mesmo a razão de ser de sua própria observação. Não há imposição: o ato de olhar é o próprio ser do Angulador em pleno exercício. Desta forma, entendemos a ação como uma determinação, como uma diferença que faz com que o Absoluto exista sob condição determinada. O absoluto, somente existiria, portanto, se houvesse uma ação anterior de observação de uma realidade que nem mesmo teria aparato lógico para ser referenciada. 
 
-Encontramos, portanto, a trindade de propriedades que fundamenta o início de tudo:
+Encontramos, portanto, propriedades que visam fundamentar o início de tudo:
 
-1. **A Vitalidade:** O Angulador é o autor vivo da visão.
-2. **A Necessidade:** A exigência intrínseca de angular a totalidade em um primeiro momento.
-3. **A Autodeterminação:** O motivo da angulação residir exclusivamente em si mesmo.
+1. **A Vitalidade:** O Angulador deve ser o autor vivo da visão.
+2. **A Necessidade:** A exigência intrínseca de angular a totalidade em um primeiro momento não deve ser necessária.
+3. **A Autodeterminação:** O motivo da angulação residir exclusivamente em si mesmo e não pode vir de fonte exterior. 
 
-No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
+Não havendo, justificativa para um angulador que merge do nada, portanto, deveríamos buscar o angulador a partir do próprio Absoluto, não exclusivamente de um nada que figura uma ontologia vazia. O nada, desta forma, não serviu para justificar o angulador e nem mesmo a emergência de fenômenos. 
 
-#### A Evocação do Angulador para a Completude
+Sendo o nada, agora, existente em função da observação, ele aparentemente é sustentado pela visão, isto é, mantém-se existente enquanto referencial. Ao passo que aquilo que é referenciado se mantém como totalidade em função do observador; caso contrário, se desfaria em uma relativização. O nada, portanto, seria uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existência e observação. O nada se manteria existente para o referencial, ao passo que o referencial se manteria íntegro e completo através do observador.
 
-Sendo o nada, agora, existente em função da observação, ele é sustentado pela visão, isto é, mantém-se existente enquanto referencial. Ao passo que aquilo que é referenciado se mantém como totalidade em função do observador; caso contrário, se desfaria em uma relativização. O nada, portanto, é uma realidade que exige certa complexidade para sua subsistência. Exige uma dualidade entre existência e observação. O nada se mantém existente para o referencial como existente, ao passo que o referencial se mantém íntegro e completo através do observador.
+O nada, portanto, seria uma realidade dupla que abandona a si mesma e deixa somente o angulador — somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento. Porém a liberdade do angulador seria necessariamente capturada pela obrigatoriedade da angulação da completude.
 
-O nada, portanto, é uma realidade dupla que abandona a si mesma e deixa somente o angulador — somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento, não há razão para considerá-lo imutável, dada a liberdade de angulação do angulador.
-
-A introdução de uma nova camada é necessária ao nada. Ao adicionarmos a autovisão da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciência do nada, temos, portanto, uma angulação por um referencial de consciência. E essa propriedade sustenta o nada através do observador.
-
+A introdução de uma nova camada aparentemente é necessária ao nada. Ao adicionarmos a autovisão da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciência do nada, temos, portanto, uma angulação por um referencial de consciência. E essa propriedade sustentaria o nada através do observador.
+revisado
 E devemos tentar evocar as propriedades do observador através da investigação do próprio Absoluto. Devemos agora extrair propriedades necessárias do Absoluto, não mais do angulador que foi definido, mas ainda não explicado, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgência do angulador. Já que nossa substância elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessárias que serão agregadas à nossa substância elementar. Isto é, vamos extrair as propriedades necessárias à existência de um absoluto para testarmos se é possível extrair um angulador para a completude. Pois, até agora, inferimos o angulador como hipótese, de uma forma indireta.
 
 E até agora temos somente a completude existente ainda em seu marco zero. É necessário, portanto, extrair uma segunda dimensão do nada para extrairmos seu conceito para o pensamento. Ao pensar em nada, portanto, faz sentido pensar num ângulo referencial, num angulador. Porém, ainda não o temos. O que nos cabe agora é isolar o conceito de absoluto em suas minúcias para localizar o angulador. Temos, portanto, somente o conceito de Absoluto para explorar, já que o nada se fez insuficiente para explicar a si mesmo de forma isolada. Consideremos, portanto, ainda o conceito de nada sob a perspectiva do nada absoluto. Isto é, consideremos a perspectiva do nada como angulador, de forma a aplicar sobre ele a necessariedade e o que se infere sobre o absoluto para justificarmos o angulador.
@@ -1475,6 +1462,13 @@ Iremos, portanto, justificar o angulador de forma a inferir suas propriedades. E
 
 
 
+=====
+error
+
+Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
+===
+
+No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
 
 
 
