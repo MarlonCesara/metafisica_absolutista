@@ -1448,61 +1448,70 @@ Sendo o nada, agora, existente em função da observação, ele aparentemente é
 O nada, portanto, seria uma realidade dupla que abandona a si mesma e deixa somente o angulador — somente o agente da observação. Sendo o nada, portanto, uma visão determinada e necessária num primeiro momento. Porém a liberdade do angulador seria necessariamente capturada pela obrigatoriedade da angulação da completude.
 
 A introdução de uma nova camada aparentemente é necessária ao nada. Ao adicionarmos a autovisão da totalidade sobre si mesma, temos a evocação do angulador. Isto é, ao evocarmos uma propriedade que envolva a tomada de consciência do nada, temos, portanto, uma angulação por um referencial de consciência. E essa propriedade sustentaria o nada através do observador.
-revisado
-E devemos tentar evocar as propriedades do observador através da investigação do próprio Absoluto. Devemos agora extrair propriedades necessárias do Absoluto, não mais do angulador que foi definido, mas ainda não explicado, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgência do angulador. Já que nossa substância elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessárias que serão agregadas à nossa substância elementar. Isto é, vamos extrair as propriedades necessárias à existência de um absoluto para testarmos se é possível extrair um angulador para a completude. Pois, até agora, inferimos o angulador como hipótese, de uma forma indireta.
 
-E até agora temos somente a completude existente ainda em seu marco zero. É necessário, portanto, extrair uma segunda dimensão do nada para extrairmos seu conceito para o pensamento. Ao pensar em nada, portanto, faz sentido pensar num ângulo referencial, num angulador. Porém, ainda não o temos. O que nos cabe agora é isolar o conceito de absoluto em suas minúcias para localizar o angulador. Temos, portanto, somente o conceito de Absoluto para explorar, já que o nada se fez insuficiente para explicar a si mesmo de forma isolada. Consideremos, portanto, ainda o conceito de nada sob a perspectiva do nada absoluto. Isto é, consideremos a perspectiva do nada como angulador, de forma a aplicar sobre ele a necessariedade e o que se infere sobre o absoluto para justificarmos o angulador.
+E até agora temos somente a completude existente ainda em seu marco zero. É necessário, portanto, extrair uma segunda dimensão do nada para extrairmos seu conceito para o pensamento. Ao pensar em nada, portanto, faria sentido pensar num ângulo referencial, num angulador. Porém, ainda não o temos. O que nos cabe agora é isolar o conceito de absoluto em suas minúcias para tentar provar o angulador. Temos, portanto, somente o conceito de Absoluto para explorar, já que o nada se fez insuficiente para explicar a si mesmo de forma isolada. Consideremos a perspectiva do nada como angulador, de forma a aplicar sobre ele a necessariedade e o que se infere sobre o absoluto na tentativa de justificarmos o angulador.
 
-Iremos, então, explorar o Absoluto — o que existe realmente sob o nada — e considerar esse nada como o campo de liberdade do Absoluto, do Ser, da pureza fundamental. Se investigamos o nada e concluímos que ele carece de uma segunda parte para justificá-lo, agora vamos explorar o absoluto, o Ser, para que encontremos de novo o nada, de forma a complementá-lo. Isto é, exploramos o nada, agora exploraremos o angulador que vai de encontro ao nada e o angula para que o nada exista de fato.
+Iremos, então, explorar o Absoluto — o que existiria realmente adversamente ao nada — e tentaremos considerar esse nada como o campo de liberdade do Absoluto, do Ser, da pureza fundamental. Não mais como uma realidade a ser transformada. Porém, tentaremos considerar que a liberdade cria sem substancia prévia, isto é, o nada cederia lugar para a liberdade absoluta. 
 
-Iremos, portanto, justificar o angulador de forma a inferir suas propriedades. E o faremos em busca de aspectos relacionais para o relativo, aspectos relacionais estes que sejam a nossa infinitude. Isto é, procuraremos por propriedades espirituais que emergem no nada por serem absolutas e que, por se darem no contexto do nada, dispensam explicações. Porém, já é possível adiantar que o relativo não pode ser infinitizado, pois nem mesmo pode ser ontológico. Além disso, o angulador não é deduzido de inferência alguma do absoluto; é apenas uma forma de criar o nada imaginado, pelo fato de esse nada não poder ser ontológico.
-
-
-
-
-
-
-=====
-error
-
-Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
-===
-
-No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
-
-
-
-
-=========
-depois
-Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
-
-Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
-====
-
-
-
-
-
+E devemos tentar evocar as propriedades do observador através da investigação do próprio Absoluto. Devemos agora extrair propriedades necessárias do Absoluto, não mais do angulador que foi definido, mas ainda não explicado, pois o angulador ainda não se explica. E nem mesmo o nada, pois para que haja a completude é preciso que se explique a insurgência do angulador. Já que nossa substância elementar foi esgotada, extraiamos do conceito de absoluto as propriedades necessárias que serão agregadas à nossa substância elementar. Isto é, vamos extrair as propriedades necessárias à existência de um absoluto.
 
 #### O Nada e o Relativo
 
-Não havendo, até o momento, um embasamento para o nada, chamá-lo-emos de **relativo**, isto é, o nada enquanto portador de uma pendência referencial. O relativo, portanto, é aquilo que carece de um referenciador, algo cuja determinação somente pode ocorrer por meio de uma relação. Neste estágio da investigação, ele recebe a designação de relativo em razão do desconhecimento do angulador, encontrando-se ainda em um estado de não-atualização.
+Não havendo, até o momento, um embasamento suficiente para o nada — nem mesmo mediante a hipótese de um angulador que pudesse fundamentar a completude da infinitização da determinação —, exploraremos agora o conceito de **relativo**, isto é, o determinado enquanto portador de uma pendência referencial.
 
-Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentido definitivo. É um estado de suspensão, uma espera ontológica que somente se atualiza mediante o referencial fornecido pelo angulador. O relativo é o nada enquanto carece de um referencial; é a completude ainda não atualizada.
+O relativo é aquilo que carece de um referenciador; é algo cuja determinação somente pode ocorrer mediante uma relação. Neste estágio da investigação, ele recebe a designação de *relativo* justamente em razão do desconhecimento do angulador, encontrando-se, portanto, em um estado de não atualização.
 
-O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não-existência que aguarda uma justificação para seu referencial, justificação esta encontrada no próprio absoluto. O relativo não é o Ser, não é uma ontologia indiferenciada. Trata-se de uma realidade cuja segunda dimensão permanece ausente, uma realidade que somente alcança sua completude quando recebe seu referencial. Assim, chamaremos de relativo o vazio ontológico deixado pela ausência do angulador, isto é, a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
+Dessa forma, o relativo não constitui nem a completude nem o nada em seu sentido definitivo. Ele corresponde a um estado de suspensão: uma espécie de espera ontológica que somente se atualiza mediante o referencial fornecido pelo angulador. O relativo é, nesse sentido, o nada enquanto carece de um referencial; é a completude ainda não atualizada.
 
-O relativo, portanto, é um conceito que de certa forma nos aproxima da visão do que seria um nada ontológico, o qual aconteceria na ausência de qualquer justificação para o angulador. Ele não existe de fato; porém, passa a existir teoricamente ao deduzirmos o angulador. Para produzirmos o nada existente, continuemos com a investigação em busca do angulador. E desta vez investigaremos o indiferenciado como absoluto, examinando quais seriam suas propriedades. Ao introduzirmos o angulador, o relativo torna-se imediatamente algo, seja este algo o nada ou um recorte deste nada em possibilidade.
+O relativo é, portanto, um potencial que depende de um angulador. Trata-se de um potencial de existência ou de não existência que aguarda uma justificação para seu referencial. O relativo não é o Ser, nem constitui uma ontologia indiferenciada. Trata-se de uma realidade cuja segunda dimensão permanece ausente; uma realidade que somente alcança sua completude quando recebe o seu referencial.
 
-O relativo pode ser qualquer coisa, pode ser real, desde que haja um angulador, desde que no relativo haja uma propriedade pura, uma ontologia pura, tão pura que sobressaia somente a sua ação, servindo para vivificar o nada e dando-lhe sentido, substância e potencial no ato de sua angulação. Em conclusão, não chegamos a resposta alguma sobre um nada existente. O nada, sem o angulador, portanto, é ilógico e inconcebível. O angulador deve, necessariamente, ser puro e existir. Portanto, resta-nos a investigação sobre o indiferenciado para irmos ao encontro desse angulador. Se no indiferenciado houver um ente angulador, então teremos, portanto, o nada — ou a existência, caso também consigamos inferir a liberdade de ação para o angulador.
+Assim, chamaremos de **relativo** o vazio ontológico deixado pela ausência do angulador ou da angulação: a lacuna produzida pela inexistência de qualquer justificação lógica para esse referencial.
 
-Nossa busca, portanto, nos levou à necessidade de buscar no indiferenciado, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade mais simples imaginada, que é o nada. Dessa forma, busquemos uma maior complexidade para entendermos a existência do nada. E não há outro conceito em que poderíamos buscar essa complexidade, senão no indiferenciado considerado no âmbito absoluto. Precisamos achar a vida do nada, que se faz vida no nada, ou seja, que se faz absoluta e voluntariamente vida, ainda que necessária. Portanto, precisamos buscar o nada consciente, e essa consciência deve ser pura, isto é, indiferenciada.
+O relativo, portanto, aproxima-nos conceitualmente daquilo que poderia ser um nada ontológico, caso este pudesse ocorrer na ausência de qualquer justificação para o angulador. Ele não existe de fato; passa a existir apenas teoricamente, enquanto conceito deduzido a partir da hipótese do angulador. Ao introduzirmos o angulador, o relativo tornar-se-ia imediatamente algo: seja esse algo o próprio nada, seja um recorte desse nada enquanto possibilidade.
+
+O relativo poderia, em princípio, ser qualquer coisa. Poderia até mesmo ser real, desde que houvesse um angulado. Entretanto, a investigação ainda não nos conduz a nenhuma resposta definitiva acerca da existência de um nada. O nada, sem o angulador, permanece, portanto, ilógico e inconcebível. Se no indiferenciado houver um ente angulador, teremos, então, a possibilidade do nada — ou da existência, caso também consigamos inferir a liberdade de ação desse angulador.
+
+Poderíamos quase imaginar que o relativo constitui uma realidade vigente no Absoluto, justamente porque dispensa uma determinação já atualizada. Contudo, o relativo não é o indeterminado: ele é a **determinação em suspensão**.
+
+Nesse sentido, poderíamos estabelecer uma analogia: assim como o nada seria uma espécie de existência em suspensão, o relativo seria uma determinação em suspensão. Em ambos os casos encontramos uma forma relacional da nulidade: o nada dependeria da existência para ser concebido como sua negação, enquanto o relativo dependeria do determinado para ser concebido como aquilo cuja determinação ainda não foi atualizada.
+
+O relativo, portanto, não é o indeterminado. É o determinado sob concessão; é uma determinação colocada entre parênteses, uma espécie de nulidade da determinação que, supostamente, não a destrói, mas lhe permite permanecer em espera por sua atualização.
+
+Dizer isso equivale a afirmar que, ao negarmos o existente, algo dele ainda permaneceria como possibilidade de retorno à existência. Do mesmo modo, ao suspendermos a determinação, não necessariamente a destruímos: preservamos, ao menos conceitualmente, uma possibilidade de determinação futura.
+
+O relativo seria, assim, aquilo que permanece entre o determinado e sua atualização referencial: não é o nada absoluto, não é o indeterminado e tampouco é ainda uma determinação plenamente atualizada. É uma determinação cuja referência permanece suspensa, aguardando aquilo que poderá finalmente conceder-lhe um horizonte de existência ou de não existência.
+
+
+
+
+
+
+
+
+
+
+
+revisado
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### A SUBSTÂNCIA DO INDIFERENCIADO, A AÇÃO DO SER E A INFINITIZAÇÃO
 
 #### A Substância do Indiferenciado
+
+Nossa busca, portanto, nos levou à necessidade de buscar no Absoluto, dada a não obtenção de uma resposta satisfatória que explique até mesmo a realidade aparentemente mais simples imaginada, que é o nada. Dessa forma, busquemos uma maior complexidade para entendermos a existência do mundo. E não há outro conceito em que poderíamos buscar essa complexidade, senão no absoluto. Precisamos achar a vida do Absoluto.
 
 O indiferenciado, longe de ser o existente, está para além da existência convencional. O nada, nada é; e a existência é determinada. Portanto, a categoria do indiferenciado está para além da existência e para além do nada. Isso não significa que ele não existe ou que é nada, mas aborda um aspecto que o exclui de ambas as categorias. Usaremos o termo "Espírito" para exemplificar o não-fenomênico e aquilo que existe de modo distinto do nada. O Espírito, portanto, será inferido através dos aspectos relacionais.
 
@@ -6793,3 +6802,54 @@ O Ser não é uma realidade parcial, nem metafórica.
 
 
 Ao se dizer que o auto causar é uma diferença, pois designa a causa anterior antes do causado, caímos numa contradição de considerar o próprio Ser dessa forma, onde há um ato que vira a Ser, portanto, um ente prévio que não é, e seu efeito de Ser. A solução mais elegante é considerar a circularidade, uma bipolaridade entre o Ser estático e o vir a Ser constante em uma linha temporal infinita. Assim justificamos a temporalidade, as decisões, a liberdade do Ser de agir fora de seu contexto consumado.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+=====
+error
+
+
+
+
+
+Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
+===
+
+No nível do Absoluto, essas propriedades equivalem ao que chamamos, na filosofia tradicional, de **Incontingência** (existência necessária), **Consciência** (o fundamento vivo que percebe) e **Liberdade** (a capacidade de ser a causa de si mesmo). O Angulador não é uma engrenagem escrava de um processo; ele é a própria Consciência Livre que, ao contemplar o Todo, sustenta o Nada e prepara o espaço para o despertar da existência.
+
+
+===
+excesso
+
+Ao investigamos o nada como visualização da infinitude determinada concluímos que ele carece de uma segunda parte para justificá-lo. Agora exploraremos o angulador que iria de encontro ao nada e o angula para que o nada existisse de fato.
+
+Iremos, portanto, tentar justificar o angulador de forma a inferir suas propriedades. E o faremos em busca de aspectos relacionais para o relativo, aspectos relacionais estes que sejam a nossa infinitude. Isto é, procuraremos por propriedades espirituais que emergem no nada por serem absolutas e que, por se darem no contexto do nada, dispensam explicações. Porém, já é possível adiantar que o relativo não pode ser infinitizado, pois nem mesmo pode ser ontológico. Além disso, o angulador não é deduzido de inferência alguma do absoluto; é apenas uma forma de criar o nada imaginado, pelo fato de esse nada não poder ser ontológico.
+===
+
+=========
+depois
+Se o Nada é pensado como a infinitude, ele é determinado por essa mesma infinitude. A infinitude é imóvel, estável e intocada. Mas aqui surge o grande dilema metafísico: **como um infinito imóvel e sem vida pode despertar os fenômenos e dar o ponto de partida na criação?**
+
+Até agora, o ângulo da infinitude parecia uma opção para o nada ontológico. No entanto, para que ele mude de estado e dê origem ao fenômeno, ele precisaria ser autocausado, autoplenificado e autopersonalizado. O erro das filosofias tradicionais foi achar que o Nada seria nada por si mesmo. 
+====
+
+
+
+
+
+
