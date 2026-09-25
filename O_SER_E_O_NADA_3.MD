@@ -1427,11 +1427,14 @@ revisado
 
 #### A Vitalidade do Angulador
 
-Continuemos tentando encontrar uma justificativa para o nada apreendendo o angulador de forma equiparada ao Ser. Pensando o Ser como determinador da realidade, transformando o nada em algo, isto é, exercendo uma causa transformadora.
+Continuemos tentando encontrar uma justificativa para o nada apreendendo o angulador de forma equiparada ao Ser. Pensando o Ser como determinador da realidade que transforma o nada em algo, isto é, exercendo uma causa transformadora.
+
+=====
+error
 
 Perante a afirmação de que o início de tudo decorre de um ato livre, impõe-se uma questão crucial: **se o mundo fenomênico ainda não existia, como podemos afirmar que o Angulador possui liberdade, consciência ou vida, e não que ele seja apenas um processo mecânico, sem vida e necessário?**
-
-Para avançarmos nesta investigação, precisamos refinar o conceito de Angulador. O Angulador não é uma divisória ou uma engrenagem dentro do próprio Nada. Ele é a própria capacidade de ter uma visão ou uma experiência — seja da totalidade ideal, seja de um fragmento determinado. O Angulador é o ponto que estabelece a realidade a partir de uma referência.
+===
+Para avançarmos nesta investigação, precisamos refinar o conceito de Angulador. O Angulador não seria uma divisória ou uma engrenagem dentro do próprio Nada. Ele seria a própria capacidade de ter uma visão ou uma experiência — seja da totalidade ideal, seja de um fragmento determinado. O Angulador é o ponto que estabelece a realidade a partir de uma referência.
 
 Isso significa que a visão sobre o Nada é uma propriedade **daquele que apreende**, e não de uma ferramenta externa, como se houvesse uma lente gigante posicionada sobre o vazio. O Angulador é a instância que toma a realidade como ponto de partida através de um referencial particular; ele mentaliza e assume a propriedade do campo de experiência que se descortina diante de si. O ângulo, afinal, não pode residir no objeto observado (o Nada), mas sim no ato de olhar para ele.
 
