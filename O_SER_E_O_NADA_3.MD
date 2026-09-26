@@ -1527,8 +1527,6 @@ O Ser é a identidade do Espírito que se curva mediante o próprio fundamento. 
 
 Aspectos como a autocausalidade podem nos levar a propriedades relacionais. Se há autocausalidade, infere-se uma ação em prol do existir: a ação do existente é existir, e o existente se nomeia por sua ação. Se existir é benéfico, o existente se nomeia por uma linguagem relacional e também intancional, tal como o amor, a benevolência e a retidão em favor da vida. E o Ser é a própria benevolência; ele não a "tem", ele a "é". Buscaremos, portanto, os aspectos relacionais para o absoluto, a fim de definir o Ser. 
 
-
-
 #### Do nada relativo ao nada irreferenciável
 
 Para finalizar o modelo de criação a partir da liberdade e não de uma transformação de uma realidade ilógica, vamos imaginar um cenário em que descobrimos, numa alegoria ilógica, que o Ser angula o relativo e produz algo a partir disso. Porém, o faremos para tentar explicar como a soberania do Espírito por si só, sub entende a liberdade. Quando entendemos a liberdade sob a visão ficticia do relativo, conseguimos eliminar o relativo e ampliar a visão da liberdade, que antes dependia de uma fonte transformadora.
@@ -1551,24 +1549,31 @@ Agora, imaginemos que o relativo não exista, o relativo dá lugar ao verdadeiro
 
 Porém, somente sendo necessária o completo "Estar alheio", ou o completo repouso. O verdadeiro nada não precisa ser observado, referenciado ou transformado, só precisa que não pensemos sobre ele. E que a soberania, que nega a não soberania, seja transformada em não soberania pelo movimento criativo do Ser, pela criação do contingente. 
 
-O próprio movimentar-se do Espírito é o mesmo que a angulação de sua visão numa realidade ontológica falsa chamada nada. Isto é, a soberania é ainda mais livre que definir uma realidade chamada nada e dizer que o Espírito age sobre ela. Ao aprofundarmos o modelo do nada para a não referencialidade a ele, temos a liberdade criadora completa do Espírito.
+O próprio movimentar-se do Espírito é o mesmo que a angulação de sua visão numa realidade ontológica falsa chamada nada. Isto é, a soberania é ainda mais livre que definir uma realidade chamada nada e dizer que o Espírito age sobre ela. Ao aprofundarmos o modelo do nada para a não referencialidade a ele, temos a liberdade criadora completa do Espírito. Basta agora que exploramos outros aspectos do Espírito como a temporalidade do Espírito, pois se há liberdade, deve haver tempo para ação.
 
-Basta agora que exploramos outros aspectos do Espírito como a temporalidade do Espírito, pois se há liberdade, deve haver tempo para ação.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### A Infinitude do Indiferenciado - Parte 10
+
+Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não tem a mesma infinitude do determinado, a qual desaparece e é idêntica ao nada (pois não pode mais ser referida e torna-se um conceito ilógico, tal como o relativo). A infinitude do Espírito não sucumbe à nadificação, pois é de aspecto relacional, e não fenomênico. Por exemplo, ao citarmos um "amor infinito", ele não sucumbe, mas se realiza justamente por ser relacional. O indiferenciado já não é identificado como determinação; por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplicá-lo rumo a uma infinitude. Ele é infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado por ela. O amor não possui fronteiras; é puro.
 
 revisado
-
-===
-error
-O próprio conceito de nada ontológico, sob a ótica do referencial ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou do Espírito. Pois haveria o agente da angulação, seja ele uma ação ou uma determinação, no sentido de manifestação fenomênica. 
-
-O relativo existe de forma inalcançável do ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo como "existente" ou como "nada", estamos, de fato, determinando-o. Ao atribuirmos existência ao indiferenciado, estamos tornando-o equivalente ao nada.
-===
-
-
-
-#### A Infinitude do Indiferenciado
-
-Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não tem a mesma infinitude do fenômeno, a qual desaparece e é idêntica ao nada (pois não pode mais ser referida e torna-se um conceito ilógico, tal como o relativo). A infinitude do Espírito não sucumbe à nadificação, pois é de aspecto relacional, e não fenomênico. Por exemplo, ao citarmos um "amor infinito", ele não sucumbe, mas se realiza justamente por ser relacional. O indiferenciado já não é identificado como determinação; por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplicá-lo rumo a uma infinitude. Ele é infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado por ela. O amor não possui fronteiras; é puro.
 
 O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma "régua infinita", essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula. O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já não é propriamente nada, mas algo que carece de um referenciador, de um angulador. No entanto, já se faz possível entender que essa possibilidade não é viável; a autoposição do Espírito como existente já dispensaria o pronunciamento sobre qualquer outra coisa. Portanto, o verdadeiro nada é bem referenciado quando nem mesmo nos pronunciamos sobre ele.
 
@@ -1657,6 +1662,29 @@ Um objeto que perde os contornos não tem um devir, mas torna-se o próprio devi
 * *Exemplo 3:* Imagine que o nada tivesse o seu "em si" e "para si". O "para si" existe isoladamente. Somente o Espírito. O Espírito não é o "para si" do nada, pois o nada não existe para ter um "para si". E o "si" denomina uma determinação de uma unicidade. Para um. O amor, portanto, pode ser infinito, pois o amor não é "vários" ou não é "um". O amor como bem-querer não necessita de cerceamento, de fronteiras ou de numerações. O amor angula o nada simplesmente sendo para o todo. E não para "si". O amor é doação total. Portanto, o amor é o ato que se doa para o todo. Não há um "si" a fim de doar-se para uma unicidade. O amor se doa para a totalidade.
 
 O Ser é uma característica que denomina uma ontologia pura; porém, há uma definição ainda mais direta do incausado dada pela autocausalidade.
+
+
+
+
+
+
+
+
+
+===
+error
+O próprio conceito de nada ontológico, sob a ótica do referencial ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou do Espírito. Pois haveria o agente da angulação, seja ele uma ação ou uma determinação, no sentido de manifestação fenomênica. 
+
+O relativo existe de forma inalcançável do ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo como "existente" ou como "nada", estamos, de fato, determinando-o. Ao atribuirmos existência ao indiferenciado, estamos tornando-o equivalente ao nada.
+===
+
+
+
+
+
+
+
+
 
 ### O COLAPSO DO NADA E A SOBERANIA DO ESPÍRITO (O QUEM DO QUERER)
 
