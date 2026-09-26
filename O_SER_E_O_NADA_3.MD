@@ -1785,7 +1785,7 @@ Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não
 
 
 ### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO** - Parte 10
-revisado
+
 
 Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A auto-causalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
 
@@ -1808,7 +1808,12 @@ A questão que se coloca, então, é: **podemos falar em "causa" no Absoluto sem
 
 Não há, portanto, o causado; há o causar. Isto é, no Absoluto, o causar já é o próprio causado, de modo que o para-si do Absoluto constitui o seu próprio em-si, em uma diluição fundamental dessa distinção. Dessa forma, o Absoluto é o próprio causar. Contudo, por estarmos tratando de uma estrutura viva, o causar é o Ser. Auto causar é, nesse sentido, fazer Ser.
 
-## Introdução: Da Estrutura à Atividade
+Quando nos referimos ao Ser como uma realidade auto justificada, também desenvolvemos uma dupla fundamentação entre aquele que faz ser e o ente produto desta ação que é o ente sido.
+
+Temos, o mesmo conflito na auto causalidade, no qual o ente causador é o mesmo que é causado. No entanto, com a palavra causar nos referimos a um impulso cego, inanimado, tal como é o impulso de uma força que causa um impulso, porém, a palavra Ser, denota uma causa viva, que não é mais o causar, mas é o Ser em função de uma propriedade que a designa como Ser auto possuidor, auto consciente e auto dominante.
+
+A palavra Ser se difere de causar pois, para esta palavra existe propriedades personificadas. Isto é, que não designam forças naturais, mas pessoalidade, intencionalidade, vontade. Necessitamos, portanto, justificar a presença, a intencionalidade ou a vontade do causar, achar no causar atributos pessoais, para que o transformemos em Ser, para que criemos um novo conceito sobre o causar.
+
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o **modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana**. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua **própria causalidade**?
 
 Esta Proposição investiga precisamente esta questão fundamental: **Como o Absoluto é causa de si mesmo?** A resposta revelará que a autocausalidade absoluta não é um mero princípio abstrato, mas exige atributos que conduzem necessariamente à compreensão do Absoluto como **Espírito Pessoal** – realidade autoconsciente, autodominante e autoconhecedor.
@@ -1929,6 +1934,17 @@ A aplicação dos princípios causais ao próprio Absoluto revela que sua autoca
 **Síntese da Fundamentação:** O resultado é uma **demonstração necessária**: se aceitamos os princípios lógicos e causais, e se aceitamos a estrutura do Absoluto, então somos **logicamente compelidos** a conceber este Absoluto como Espírito Pessoal.
 
 ---
+
+## O conceito de Ser pela ótica relacional
+
+Ao nos referir a uma realidade intencional e auto governante, temos que o Ser, se faz Ser, de forma que o Ser é seu próprio produto, é o verbo. O Ser é o seu ato de Ser sem necessitar de um Ser finalizado, no sentido que há o Ser e não o sido, há o ato. E o ato, no contexto metafisico não pode ser confundido com um ato físico, isto é, o ato de causar não é um ato mecanico como a propulsão dada e o objeto propulsionado, a causa é intencional quando nos referimos ao Ser como uma realidade viva, então aquilo que faz ser tem como primeiro ato o desejo e não uma propulsão cosmica, portanto, temos a ação como desejo e o objeto formalizado da ação é o próprio desejo. No sentido de que o Ser é intencional por si, e se tem como a própria intencionalidade em pessoa que gira em direção ao seu existir ou a qualquer existir.
+
+Ao chamarmos essa intencionalidade de amor, um amor não direcionado a uma realidade, mas um amor que se faz pessoa, temos portanto que não há o ser como o ente, mas há a intenção como ente formalizado, em outras palavras, não há um Ser que é uma pessoa, há o amor que se faz a pessoa. No sentido de que o desejo se constitui seu próprio ente, seu próprio designo finalizado.
+
+O Ser, então, não forma o sido, forma a intenção e a intenção é seu ato finalizado, a intenção é o próprio sido.
+
+
+
 
 ## O Paradoxo da Essência Indiferenciada: A Tensão entre Existência e Auto-Relação
 
@@ -2891,7 +2907,7 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 ---
 
 
-
+11111111111111
 
 
 
