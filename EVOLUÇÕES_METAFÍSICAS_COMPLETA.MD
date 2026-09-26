@@ -12169,3 +12169,33 @@ A alma, ao se desprender do corpo, ganha uma enorme sensação de potencia, não
 
 
 O desespero é o principal sintoma do corpo do niilista, é o desespero que alimenta as ações de expressão, o desespero de uma vida interior escassa. É o desespero que o torna uma crinça que chora no contexto social pedindo socorro, por não suportar o peso de si mesma. Suas atitudes são o fato de não achar saídas por si só, são a batida na cela forte e desesperada, é a loucura mediante o desterro cruel que quer se encerrar, loucura tal que o permite tomar qualquer tipo de atitude que cause estranhamento na sociedade.
+
+
+
+### Autocausalidade e o Ser puro
+
+Ao analisar a autocausalidade, deixamos de olhar o mundo exclusivamente pelos olhos do físico contingente e passamos a explorar aspectos como intencionalidade, liberdade e autodeterminação.
+
+Porém, quando continuamos atribuindo características contingentes àquilo que ainda não foi explicado — especialmente no que diz respeito ao nada — acabamos explorando um ser no mundo, e não o Ser puro e em si.
+
+Ao atribuir intencionalidade a aspectos que parecem se misturar ou se fundir no Absoluto, como o nada, não encontramos ainda, de maneira suficientemente clara, os fatores propriamente espirituais. A investigação corre o risco de projetar categorias próprias do mundo contingente sobre aquilo que deveria ser compreendido em sua pureza.
+
+### O incausado
+
+Quando nos referimos ao incausado, estamos pensando em algo que não possui impulsos prévios que lhe deem um ponto de partida para a ação.
+
+O incausado não começa a agir porque algo anterior o impulsionou. Sua ação não depende de um início externo que lhe forneça a razão ou a força para agir.
+
+### A temporalidade autocausal
+
+Podemos pensar em uma circularidade viva, sem começo nem fim, como uma forma de temporalidade autocausal.
+
+Nela, o encontro é sempre o mesmo, mas se estende continuamente em uma linha de atualização. Não há um primeiro momento absoluto nem um momento final: há uma continuidade que deságua constantemente na própria atualidade.
+
+A autocausalidade, nesse sentido, não seria simplesmente uma causa que produziu a si mesma em algum momento inicial. Seria uma atualidade que permanece sendo produzida em si mesma, sem depender de um começo exterior.
+
+### A expressão como autossalvação
+
+A expressão pode ser compreendida como uma forma de autossalvação: uma breve sensação de alívio produzida ao retirar de si uma impressão interior.
+
+Aquilo que está interiormente contido encontra, na expressão, uma via de exteriorização. A expressão seria, portanto, uma passagem pela qual uma impressão interior deixa de permanecer encerrada em si mesma.
