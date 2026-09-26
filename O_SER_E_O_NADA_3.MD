@@ -1257,7 +1257,55 @@ Dessa forma, conclui-se que **ambos os conceitos guardam potencial**. A distinç
 
 Portanto, o nada jamais é destituído de conteúdo latente. Se o indeterminado, produzido a partir do determinado, guarda o potencial de tudo o que *pode ser*, o nada é o próprio invólucro do ser neutralizado, carregando intimamente em sua definição o peso e o potencial absoluto daquilo que ele oculta. Em síntese, tanto o nada como o indiferenciado produzido a partir do determinado são estados ou potenciais do negado ou do produto da obra-prima transformada. São um estado de uma suposta estabilidade para o todo ontológico. O indeterminado teria o potencial do determinado e é, em si, uma determinação; tal como o nada tem o potencial do todo e é, em si, um existente. Ambas as condições são um estado ilusório colocado provisoriamente na obra-prima que tentam transformar; são uma nuvem subjacente que perpassa provisoriamente o conceito que tentam omitir. São uma via errônea, ilógica, em direção aos conceitos fundamentais, uma via pela qual se tenta usar um atalho para se chegar a verdades fundamentais.
 
-#### A Problemática do Infinito e a Dualidade Perspectívica do Ente
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### A Problemática do Infinito e a Dualidade Perspectívica do Ente - Parte 9
 
 Quando atribuímos o conceito de infinito a coisas determinadas, elas parecem perder sua identidade enquanto determinações plenamente apresentáveis.
 
@@ -1481,29 +1529,7 @@ Dizer isso equivale a afirmar que, ao negarmos o existente, algo dele ainda perm
 
 O relativo seria, assim, aquilo que permanece entre o determinado e sua atualização referencial: não é o nada absoluto, não é o indeterminado e tampouco é ainda uma determinação plenamente atualizada. É uma determinação cuja referência permanece suspensa, aguardando aquilo que poderá finalmente conceder-lhe um horizonte de existência ou de não existência.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-### A SUBSTÂNCIA DO INDIFERENCIADO, A AÇÃO DO SER E A INFINITIZAÇÃO - Parte 9
+### A SUBSTÂNCIA DO INDIFERENCIADO, A AÇÃO DO SER E A INFINITIZAÇÃO 
 
 #### A Substância do Indiferenciado
 
@@ -1557,88 +1583,6 @@ Ao considerarmos, por outro lado, a não-possibilidade do nada ontológico — i
 
 Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justificaria. Porém, considerando que o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-#### A Infinitude do Indiferenciado - Parte 10
-
-Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não tem a mesma infinitude do determinado, a qual desaparece e é idêntica ao nada (pois não pode mais ser referida e torna-se um conceito ilógico, tal como o relativo). A infinitude do Espírito não sucumbe à nadificação, pois é de aspecto relacional, e não fenomênico. Por exemplo, ao citarmos um "amor infinito", ele não sucumbe, mas se realiza justamente por ser relacional. O indiferenciado já não é identificado como determinação; por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplicá-lo rumo a uma infinitude. Ele é infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado por ela. O amor não possui fronteiras; é puro.
-
-#### A liberdade do Indiferenciado
-
-Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas. Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação. O Espírito atua, portanto, em três dimensões ontológicas complementares:
-
-**1. Autocausalidade Vertical — Espírito Fundamentador**
-
-* *Definição:* qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
-* *Características para o Absoluto:*
-* **Incorruptibilidade:** o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
-* **Fundamentação:** o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
-
-* *Princípio:* "Eu Existo."
-* Trata-se da pura afirmação ontológica do Absoluto.
-
-**2. Autocausalidade Diagonal — Espírito Plenificador**
-
-* *Definição:* qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua própria existência e plenitude.
-* *Características para o Absoluto:*
-* **Despersonalização metafísica:** o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
-* **Autodeterminação essencial:** o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
-* *Exemplo:* o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
-
-* *Princípio:* "Escolho o que me realiza como Absoluto."
-
-**3. Autodeterminação Horizontal — Espírito Personalizador**
-
-* *Definição:* qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
-* *Características para o Absoluto:*
-* **Personalização:** manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
-* **Liberdade direcionada:** a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou de agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
-* *Exemplo:* pode não ser o momento de ser poético, mas, como isso é um aspecto da personalidade, pode ser realizado pela Alma do Absoluto.
-
-* *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa a minha identidade."
-
-Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal. Não por ser autodeterminado, mas por expressar-se em sua liberdade de forma totalmente livre, independente de escolhas semelhantes voltadas para a plenitude — isto é, para o existir em plenitude e totalidade, sem reservas de si, esboçando-se em totalidade e sem meios-termos.
-
-O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência. Imaginar o Ser como uma realidade ontológica falsa (que chamaremos de nada) ajuda a visualizá-lo como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginarmos o Ser como "nada Absoluto", temos uma realidade aparentemente determinada e pura para exercer a autocausalidade; depois, basta que extraiamos essa realidade ilógica, e ficamos somente com a pura substância do Ser.
-
-*A visão do amor:* um homem sem olhos, sem rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um "eu", mas o amor sendo o próprio "eu". O amor com olhos e sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor.
-
-
-
-
-
 #### A Infinitização do Relativo
 
 A infinitização da determinação dá-se como o nada angulado. Isso ocorre porque a existência da forma depende de sua essência. Não pode haver uma forma infinita; a angulação dessa infinitização é, portanto, o nada. Ao enxergar o relativo, temos a visão da infinitização da forma, do colapso da forma numa existência nula.
@@ -1670,7 +1614,7 @@ Por que os entes não resistem à infinitização? O ente determinado colapsa ao
 Se "A" é "A", e retiramos o "A", obtemos o "X". Tiramos, portanto, a terminologia, as expressões e a numerabilidade; isto é, infinitizamos "A" e o que temos é "X". Ou seja, coisa alguma.
 
 Ao aplicarmos a causa de "A ser A" e não "B", ou a causa de "A existir A" para o absoluto, temos, portanto, uma razão para "X", que se faz "X" segundo o angulador.
-revisado
+
 A infinitização dos entes determinados, portanto, encerra-se na perda da determinação. E isso não conserva o ente, mas o colapsa. Portanto, a relativização é a retirada da determinação para os entes causados. É a determinação elevada à sua máxima potência, à sua disformidade. Se existe tudo ao mesmo tempo, isso provoca a competição de formas para se impor: se a forma "A" se mostra "A", mas existe a forma "B" em seu lugar, até haver o "X". Portanto, temos a nadificação, que é a indefinição. É a infinitude de formas que se opõe, resultando na não-forma, ou na forma indefinida (o relativo).
 
 Ao retirarmos a forma de "A", "A" torna-se "X", e "X" são todas as formas possíveis. Sendo todas as formas possíveis, "X" é a infinitização que colapsa. Essa infinitização existe angularmente: ao ser olhada pela totalidade é nada, e ao ser recortada em uma forma, é algo.
@@ -1681,34 +1625,11 @@ Um objeto que perde os contornos não tem um devir, mas torna-se o próprio devi
 
 * *Exemplo 1:* Dentro do buraco negro, a matéria já não existe, mas o universo se comporta como se ela existisse. Um objeto infinitamente pequeno é um objeto inexistente. A matéria, ao perder os seus contornos, colapsa. Portanto, o buraco negro teria a memória da matéria que se anulou, de forma até mesmo a ejetar essa matéria anulada (se assim se comportasse conforme as leis físicas). Dessa forma, o peso do buraco negro seria causado pela memorização do universo, que continua o comportamento da matéria mesmo após o seu colapso. Isto é, o buraco negro interage com uma não-realidade. O universo grava a densidade da matéria antes de ser colapsada e o espaço que ela ocupava. Portanto, o buraco negro comporta-se tal como no momento antes de a matéria colapsar; porém, a própria matéria em si não existe mais. Temos, portanto, o comportamento da gravidade como memória, como informação da matéria colapsada, onde o universo "grava" como deveria ser o seu comportamento antes de a matéria colapsar. *(Referências Científicas: O Princípio Holográfico postula que a informação sobre a matéria fica "gravada" na superfície bidimensional do buraco negro. O Paradoxo da Informação sugere que a massa e a informação do que colapsou não somem, mas permanecem como uma "memória" que o espaço-tempo lê através da gravidade).*
 
-* *Exemplo 2:* Imagine uma pessoalidade individualizada, isto é, um Espírito individualizado; ao perder sua identidade, ele seria relativo. Somente um sentimento, um bem-querer pode ser infinito. Uma pessoa não pode perder os seus contornos de pessoa a fim de extravasar a forma. Porém, um sentimento que é puro e não tem forma pode representar uma pessoa. A forma (a unicidade) não pode ser infinita sem que colapse. A não ser que essa forma seja a de todo o bem-querer em pessoalidade.
+* *Exemplo 2:* Imagine uma pessoalidade individualizada, isto é, um Espírito individualizado; ao perder sua identidade, ele seria relativo. Somente um sentimento, um bem-querer pode ser infinito. A forma (a unicidade) não pode ser infinita sem que colapse. A não ser que essa forma seja a de todo o bem-querer.
 
 * *Exemplo 3:* Imagine que o nada tivesse o seu "em si" e "para si". O "para si" existe isoladamente. Somente o Espírito. O Espírito não é o "para si" do nada, pois o nada não existe para ter um "para si". E o "si" denomina uma determinação de uma unicidade. Para um. O amor, portanto, pode ser infinito, pois o amor não é "vários" ou não é "um". O amor como bem-querer não necessita de cerceamento, de fronteiras ou de numerações. O amor angula o nada simplesmente sendo para o todo. E não para "si". O amor é doação total. Portanto, o amor é o ato que se doa para o todo. Não há um "si" a fim de doar-se para uma unicidade. O amor se doa para a totalidade.
 
 O Ser é uma característica que denomina uma ontologia pura; porém, há uma definição ainda mais direta do incausado dada pela autocausalidade.
-
-
-
-
-
-
-
-
-
-===
-error
-O próprio conceito de nada ontológico, sob a ótica do referencial ou sob uma ótica relacional, já subentenderia a necessidade do indiferenciado, ou do Espírito. Pois haveria o agente da angulação, seja ele uma ação ou uma determinação, no sentido de manifestação fenomênica. 
-
-O relativo existe de forma inalcançável do ponto de vista determinístico, pois nem mesmo pode ser capturado ou nomeado como existente. Ao nomeá-lo como "existente" ou como "nada", estamos, de fato, determinando-o. Ao atribuirmos existência ao indiferenciado, estamos tornando-o equivalente ao nada.
-===
-
-
-
-
-
-
-
-
 
 ### O COLAPSO DO NADA E A SOBERANIA DO ESPÍRITO (O QUEM DO QUERER)
 
@@ -1725,7 +1646,7 @@ Não há um meio-termo entre "A" e "não-A" quando se elimina a identidade de "A
 O relativo não tem ordem, não tem permanência, não tem causa, não é nem mesmo um estado. Não é nem mesmo o nada. É uma realidade pendente de referencial que não se sustenta por si só. É um erro lógico, que se resolve quando se aborda o absoluto determinado e se encontra uma ausência de referencial.
 
 Em uma hipótese errônea, ao tornar o relativo Absoluto, imediatamente o relativo ganha contornos: a própria estadia do Espírito, dada pela autocausalidade (a sua própria inação), configura o relativo em nada. Porém, o relativo não seria nem mesmo o nada sem um contorno, sem o olhar do angulador. O relativo é uma realidade que deve ser vivida ou vista para ser definida. O relativo é a realidade unidimensional, a infinitude ou a totalidade recortada. Para que essa hipótese fizesse sentido, o relativo não precisaria de contornos (pois o nada não necessita de atributos) e não necessitaria ser recortado ou visualizado, pois isso é transformar uma substância em visão, e o nada não se transforma. A única forma de fazer sentido é o absoluto em soberania sendo uma realidade relacional; não havendo nenhum limite de ação ou nenhuma ontologia determinada como configuração inicial, ele teria a sua autoposição como liberdade completa de ação, e não como geradora de uma matéria determinada que pudesse ser transformada em algo através de um processo de reversão da nadificação.
-
+revisado
 Isto é, o relativo é uma indefinição: nem mesmo é o recorte, nem mesmo é a totalidade infinitizada e anulada. Já o nada, na hipótese errônea, seria uma definição que possui complexidade, pois possuiria uma bidimensionalidade. Necessitaria do Espírito e da sua visão sobre a sua infinitização. O Espírito e a sua soberania mediante as formas (ainda infinitizadas) não possuiriam total liberdade, tendo um substrato ontológico no qual seriam obrigados a operar necessariamente.
 
 Em uma hipótese ainda errônea, o nada ontológico necessita de qualquer reação ou da não-reação. Simplesmente, em função de o angulador estar lá, o nada já se angula pela inatividade do angulador. O relativo abandona tal estado quando absolutizado, pois o referenciador necessariamente já está lá. E a inação deste faz-se "nada Absoluto". O que quer dizer que somente o angulador operando e existindo já configura a posição do estado nadificado da possibilidade.
@@ -1792,6 +1713,78 @@ Até a presente investigação, estabelecemos um passo a passo através do refin
 No entanto, o que se sugere para o absoluto não é a negação de nenhum ente, mas a afirmação da autoposição do Espírito. E essa afirmação já subentende a não-soberania. Isto é, o fato de não se produzir nada já faz com que seja necessário ser possível produzir. Pois, para haver a simples estadia inativa, é preciso que haja a possibilidade de ação, que não está resguardada como manifestação de nenhuma negatividade, mas é a própria liberdade. Uma liberdade que não é vivida em uma ontologia pobre, mas que é vivida em sua totalidade, não sendo definida por uma ontologia falsa.
 
 Portanto, agora que libertamos o Ser de toda ontologia falsa e clareamos o foco de nossa investigação, podemos aprofundar nossa busca, adentrando o próprio teor autocausal, a fim de investigar suas minúcias. Se antes permanecíamos perdidos em conceitos vagos, confundidos com a pureza absoluta, ou em realidades cuja existência era inferida a partir do mundo determinado, agora o campo de nossa investigação se encontra claro e nítido, permitindo-nos identificar os conflitos que ainda precisam ser resolvidos e os atributos que precisam ser esclarecidos.
+
+#### A Infinitude do Indiferenciado 
+
+Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não tem a mesma infinitude do determinado, a qual desaparece e é idêntica ao nada (pois não pode mais ser referida e torna-se um conceito ilógico, tal como o relativo). A infinitude do Espírito não sucumbe à nadificação, pois é de aspecto relacional, e não fenomênico. Por exemplo, ao citarmos um "amor infinito", ele não sucumbe, mas se realiza justamente por ser relacional. O indiferenciado já não é identificado como determinação; por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplicá-lo rumo a uma infinitude. Ele é infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado por ela. O amor não possui fronteiras; é puro.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### A liberdade do Indiferenciado
+
+Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas. Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação. O Espírito atua, portanto, em três dimensões ontológicas complementares:
+
+**1. Autocausalidade Vertical — Espírito Fundamentador**
+
+* *Definição:* qualidade do ente de agir incorruptivelmente, isto é, em prol de sua própria existência e do sistema que o sustenta.
+* *Características para o Absoluto:*
+* **Incorruptibilidade:** o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+* **Fundamentação:** o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
+
+* *Princípio:* "Eu Existo."
+* Trata-se da pura afirmação ontológica do Absoluto.
+
+**2. Autocausalidade Diagonal — Espírito Plenificador**
+
+* *Definição:* qualidade do ente de agir segundo escolhas que se fundamentam necessariamente em direção à sua própria existência e plenitude.
+* *Características para o Absoluto:*
+* **Despersonalização metafísica:** o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+* **Autodeterminação essencial:** o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
+* *Exemplo:* o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
+
+* *Princípio:* "Escolho o que me realiza como Absoluto."
+
+**3. Autodeterminação Horizontal — Espírito Personalizador**
+
+* *Definição:* qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
+* *Características para o Absoluto:*
+* **Personalização:** manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
+* **Liberdade direcionada:** a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou de agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+* *Exemplo:* pode não ser o momento de ser poético, mas, como isso é um aspecto da personalidade, pode ser realizado pela Alma do Absoluto.
+
+* *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa a minha identidade."
+
+Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal. Não por ser autodeterminado, mas por expressar-se em sua liberdade de forma totalmente livre, independente de escolhas semelhantes voltadas para a plenitude — isto é, para o existir em plenitude e totalidade, sem reservas de si, esboçando-se em totalidade e sem meios-termos.
+
+O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência. Imaginar o Ser como uma realidade ontológica falsa (que chamaremos de nada) ajuda a visualizá-lo como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginarmos o Ser como "nada Absoluto", temos uma realidade aparentemente determinada e pura para exercer a autocausalidade; depois, basta que extraiamos essa realidade ilógica, e ficamos somente com a pura substância do Ser.
+
+*A visão do amor:* um homem sem olhos, sem rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um "eu", mas o amor sendo o próprio "eu". O amor com olhos e sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor.
+
+
+
+
 
 
 
