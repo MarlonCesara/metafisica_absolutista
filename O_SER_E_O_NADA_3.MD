@@ -1813,7 +1813,7 @@ O Espírito da plenitude participa tanto da autofundamentação quanto da person
 
 
 
-### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO**
+### **O PROBLEMA DA CAUSALIDADE NO ABSOLUTO** - Parte 10
 
 Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A auto-causalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
 
