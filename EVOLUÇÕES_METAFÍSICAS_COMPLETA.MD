@@ -12168,7 +12168,9 @@ O mal causado pelo niilista é uma tentativa de demonstrar seu absurdo interior,
 A alma, ao se desprender do corpo, ganha uma enorme sensação de potencia, não há mais medo, não há mais instintos, há o desejo puro sendo instaurado, a alma se guia retamente em direção a sua aspiração ao seu desejo, sem a força intermediaria do corpo a regulando, a condicionando a auto preservação. Por isso, o mínimo ímpeto de auto anulação é possível que seja imediatamente manifestável pela alma, desapropriada de memorias, efetividade, instancias que a façam se deter no ato de realização imediata de seus desejos.
 
 
-O desespero é o principal sintoma do corpo do niilista, é o desespero que alimenta as ações de expressão, o desespero de uma vida interior escassa. É o desespero que o torna uma crinça que chora no contexto social pedindo socorro, por não suportar o peso de si mesma. Suas atitudes são o fato de não achar saídas por si só, são a batida na cela forte e desesperada, é a loucura mediante o desterro cruel que quer se encerrar, loucura tal que o permite tomar qualquer tipo de atitude que cause estranhamento na sociedade.
+O desespero é o principal sintoma do corpo do niilista, é o desespero que alimenta as ações de expressão, o desespero de uma vida interior escassa. É o desespero que o torna uma crinça que chora no contexto social pedindo socorro, por não suportar o peso de si mesma. Suas atitudes são o fato de não achar saídas por si só, são a batida na cela forte e desesperada, é a loucura mediante o desterro cruel que quer se encerrar, loucura tal que o permite tomar qualquer tipo de atitude que cause estranhamento na sociedade. O niilista tem o temor parecido com o temor que antecede um inviduo de se jogar num abismo escuro e sem fim. 
+
+O niilista precisa constantemente de imagens de si mesmo superiores, acha o sucesso completo na materia como escapismo do pessimismo interior sobre si.
 
 
 
