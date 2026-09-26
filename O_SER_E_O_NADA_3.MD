@@ -1551,6 +1551,28 @@ Porém, somente sendo necessária o completo "Estar alheio", ou o completo repou
 
 O próprio movimentar-se do Espírito é o mesmo que a angulação de sua visão numa realidade ontológica falsa chamada nada. Isto é, a soberania é ainda mais livre que definir uma realidade chamada nada e dizer que o Espírito age sobre ela. Ao aprofundarmos o modelo do nada para a não referencialidade a ele, temos a liberdade criadora completa do Espírito. Basta agora que exploramos outros aspectos do Espírito como a temporalidade do Espírito, pois se há liberdade, deve haver tempo para ação.
 
+Quando consideramos uma "régua infinita", essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula. O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da determinação. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já não é propriamente nada, mas algo que carece de um referenciador, de um angulador. No entanto, já se faz possível entender que essa possibilidade não é viável; a autoposição do Espírito como existente já dispensaria o pronunciamento sobre qualquer outra coisa. Portanto, o verdadeiro nada é bem referenciado quando nem mesmo nos pronunciamos sobre ele.
+
+Ao considerarmos, por outro lado, a não-possibilidade do nada ontológico — isto é, para o absoluto não há o nada, há o absoluto ainda sem inferência, sem a possibilidade de ser determinado ou de ser um nada absoluto —, o que poderíamos extrair desse estado (onde não haveria nada a se considerar) é somente o seu aspecto relacional. Este "não haver" de qualquer possibilidade inferível torna-se relacional e autocausado. A sua permanência como absoluto necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão n'Ele mesmo.
+
+Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justificaria. Porém, considerando que o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1573,13 +1595,7 @@ O próprio movimentar-se do Espírito é o mesmo que a angulação de sua visão
 
 Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não tem a mesma infinitude do determinado, a qual desaparece e é idêntica ao nada (pois não pode mais ser referida e torna-se um conceito ilógico, tal como o relativo). A infinitude do Espírito não sucumbe à nadificação, pois é de aspecto relacional, e não fenomênico. Por exemplo, ao citarmos um "amor infinito", ele não sucumbe, mas se realiza justamente por ser relacional. O indiferenciado já não é identificado como determinação; por isso, não pode ser levado a um nível infinito de determinações. Não há como multiplicá-lo rumo a uma infinitude. Ele é infinito no sentido relacional de intensidade, constância, retidão, etc. O amor não possui uma dimensão para que seja enquadrado e nomeado por ela. O amor não possui fronteiras; é puro.
 
-revisado
-
-O nada se qualifica pela infinitização da possibilidade. Por exemplo, quando consideramos uma "régua infinita", essa régua perde seus contornos e dimensões e, nesse sentido, torna-se nada. A infinitização do ente determinado o anula. O nada, portanto, é um estado de angulação da totalidade, no qual o angulador (Espírito) concebe a totalidade sem recortes. O nada é, assim, a infinitude da possibilidade. Porém, sem o angulador que define o recorte ou a totalidade, o nada é apenas o "relativo": já não é propriamente nada, mas algo que carece de um referenciador, de um angulador. No entanto, já se faz possível entender que essa possibilidade não é viável; a autoposição do Espírito como existente já dispensaria o pronunciamento sobre qualquer outra coisa. Portanto, o verdadeiro nada é bem referenciado quando nem mesmo nos pronunciamos sobre ele.
-
-Ao considerarmos, por outro lado, a não-possibilidade do nada ontológico — isto é, para o absoluto não há o nada, há o absoluto ainda sem inferência, sem a possibilidade de ser determinado ou de ser um nada absoluto —, o que poderíamos extrair desse estado (onde não haveria nada a se considerar) é somente o seu aspecto relacional. Este "não haver" de qualquer possibilidade inferível torna-se relacional e autocausado. A sua permanência como absoluto necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão n'Ele mesmo.
-
-Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justificaria. Porém, considerando que o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Por sua vez, o Espírito pode alcançar a infinitização sem se anular, pois é relacional. Um amor pode ser infinito, por exemplo, sem perder sua identidade; já uma realidade dimensional, ao ganhar infinitude, perde seus contornos perante um observador.
+#### A liberdade do Indiferenciado
 
 Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas. Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação. O Espírito atua, portanto, em três dimensões ontológicas complementares:
 
@@ -1619,9 +1635,13 @@ O Espírito da plenitude participa tanto da autofundamentação quanto da person
 
 *A visão do amor:* um homem sem olhos, sem rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um "eu", mas o amor sendo o próprio "eu". O amor com olhos e sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor.
 
+
+
+
+
 #### A Infinitização do Relativo
 
-A infinitização da possibilidade — ou, mais exatamente, da forma, ou da determinação — dá-se como o nada angulado. Isso ocorre porque a existência da forma depende de sua essência. Não pode haver uma forma infinita; a angulação dessa infinitização é, portanto, o nada. Ao enxergar o relativo, temos a visão da infinitização da forma, do colapso da forma numa existência nula.
+A infinitização da determinação dá-se como o nada angulado. Isso ocorre porque a existência da forma depende de sua essência. Não pode haver uma forma infinita; a angulação dessa infinitização é, portanto, o nada. Ao enxergar o relativo, temos a visão da infinitização da forma, do colapso da forma numa existência nula.
 
 O nada é uma existência que não se sustenta em forma; isto é, não se visualiza mais A, B ou C. Na infinitização da forma, visualiza-se a nulidade ou o recorte, e não se vê a forma infinitizada de maneira exposta, mas sim a infinitude da forma colapsada. Portanto, através da angulação da totalidade, não se vê o conteúdo do nada (que é a forma infinitizada), mas vê-se apenas o colapso. Ao passo que, para uma realidade indiferenciada, ver-se-ia a extensão infinita.
 
@@ -1635,7 +1655,11 @@ O nada, portanto, é um estado de angulação da totalidade, no qual o angulador
 
 Ao imaginarmos o nada para o absoluto de forma que não possamos pensar nesse nada, mas somente no absoluto, temos unicamente o remanescente do aspecto relacional: o absoluto é apenas autocausado, ele só possui o aspecto relacional. Ao considerarmos o "Absoluto" sem que o nada o seja, o absoluto torna-se relacional, autocausado. Ao imaginarmos o nada para o absoluto — isto é, o não-referenciado, a completa inexistência, ou não nos pronunciarmos sobre algo que possa dar vazão ao sentido.
 
-Como exemplo, imaginemos que o nada existe para que abordemos de forma mais clara o aspecto relacional do absoluto a partir de uma base determinada (que neutralizaremos depois), e imaginemos que ele é um "nada absoluto". Porém, para que esse nada exista, é necessário um sentido. A sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão n'Ele mesmo. Ao retirarmos a existência do nada para o absoluto, resta como necessário apenas o sentido, isto é, só o autoquerer. Somente a autodeterminação que se fez "nada absoluto" e não outra coisa. Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. Dessa forma, o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica. E, se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Isto é, se o nada absoluto autodeterminou-se "nada absoluto", ele o faz por si mesmo, e não por uma obrigação mecânica. Ao retirarmos o produto autodeterminado, temos apenas a autodeterminação: a autocausalidade.
+Como exemplo, imaginemos que o nada existe para que abordemos de forma mais clara o aspecto relacional do absoluto a partir de uma base determinada (que neutralizaremos depois), e imaginemos que ele é um "nada absoluto". Porém, para que esse nada exista, é necessário um sentido. A sua permanência como nada necessita de um sentido; e, ainda que esse sentido seja a própria obrigatoriedade de "Ser", ele só pode encontrar fundamento no próprio Absoluto. Não há uma natureza exterior pela qual o Absoluto deva ser, senão n'Ele mesmo. Ao retirarmos a existência do nada para o absoluto, resta como necessário apenas o sentido, isto é, só o auto querer. Ainda que o Absoluto deva "Existir", essa obrigatoriedade é imposta por ele mesmo. Portanto, não se trata de uma autodeterminação mecânica, mas de uma autodeterminação no sentido da retidão de intenção ou da incorruptibilidade. 
+
+Dessa forma, ao imaginar que o Nada, quando Absoluto, confere um ângulo a si mesmo que o justifica, de forma o aspecto relacional sobressaia no nada para que o nada possa se esvanecer e deixar o aspecto relacional soberano. Se o nada angulado não existe, somente o aspecto relacional do nada impera, que é o Espírito. Isto é, para ficar mais fácil de entender, se o nada absoluto se auto causa "nada absoluto", ele o faz por si mesmo, e não por uma obrigação mecânica. Ao retirarmos nada, temos apenas a autocausalidade.
+
+O nada serve de fundo para servir de forma que imaginemos a atuação da auto causalidade sobre si mesma, ao retirarmos o nada, temos a visão clara desse fecho ontológico. Exemplo: a auto causalidade produz um ente chamado nada, de forma que exista a causa e o efeito que é o nada, ao retirarmos o nada, o efeito se volta para a própria causa, produzindo um circulo infinito entre causa e efeito sem intermediação do nada. Esse é o aspecto relacional do Absoluto.
 
 A autocausalidade, no nível indiferenciado, já não distingue a causa da identidade da causa da existência; a causa é a mesma para ambas as situações, que estão unidas no ser — isto é, na pureza. Portanto, ao retirarmos o nada absoluto que nos ajudou a pensar, sobra somente o absoluto com o aspecto relacional (sem o objeto ao qual ele se relacionaria, que seria o nada). O nada absoluto e autocausal é um nada que causa o seu próprio existir, que é intenção de Ser; e, ao eliminarmos o nada, que é uma realidade falsa e determinada, resta-nos somente a intenção de Ser. Precisamos imaginar o nada ontológico para conseguirmos imaginar de forma mais clara um aspecto relacional no nada — um nada que, mais tarde, sucumbirá e deixará apenas o puro amor para o Absoluto.
 
@@ -1645,8 +1669,8 @@ Por que os entes não resistem à infinitização? O ente determinado colapsa ao
 
 Se "A" é "A", e retiramos o "A", obtemos o "X". Tiramos, portanto, a terminologia, as expressões e a numerabilidade; isto é, infinitizamos "A" e o que temos é "X". Ou seja, coisa alguma.
 
-Ao aplicarmos a causa de "A ser A" e não "B", ou a causa de "A existir A" para o absoluto, temos, portanto, uma razão para "X", que se faz "X" segundo o angulador. Sendo X = Nada, temos somente o angulador.
-
+Ao aplicarmos a causa de "A ser A" e não "B", ou a causa de "A existir A" para o absoluto, temos, portanto, uma razão para "X", que se faz "X" segundo o angulador.
+revisado
 A infinitização dos entes determinados, portanto, encerra-se na perda da determinação. E isso não conserva o ente, mas o colapsa. Portanto, a relativização é a retirada da determinação para os entes causados. É a determinação elevada à sua máxima potência, à sua disformidade. Se existe tudo ao mesmo tempo, isso provoca a competição de formas para se impor: se a forma "A" se mostra "A", mas existe a forma "B" em seu lugar, até haver o "X". Portanto, temos a nadificação, que é a indefinição. É a infinitude de formas que se opõe, resultando na não-forma, ou na forma indefinida (o relativo).
 
 Ao retirarmos a forma de "A", "A" torna-se "X", e "X" são todas as formas possíveis. Sendo todas as formas possíveis, "X" é a infinitização que colapsa. Essa infinitização existe angularmente: ao ser olhada pela totalidade é nada, e ao ser recortada em uma forma, é algo.
