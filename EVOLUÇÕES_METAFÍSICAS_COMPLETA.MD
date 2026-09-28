@@ -12201,3 +12201,17 @@ A autocausalidade, nesse sentido, não seria simplesmente uma causa que produziu
 A expressão pode ser compreendida como uma forma de autossalvação: uma breve sensação de alívio produzida ao retirar de si uma impressão interior.
 
 Aquilo que está interiormente contido encontra, na expressão, uma via de exteriorização. A expressão seria, portanto, uma passagem pela qual uma impressão interior deixa de permanecer encerrada em si mesma.
+
+
+A destruição natural tem como objetivo a destruição do próprio ar. Destruir o oxigênio significa permitir que uma empresa monopolize sua venda, tornando o ser humano dependente da compra até mesmo daquilo que naturalmente lhe é indispensável.
+
+Destruir a natureza também significa impedir que o ser humano plante e produza seus próprios alimentos, tornando-o dependente de empresas que, por meio do dinheiro e da concentração de recursos, possam criar ambientes artificiais de produção, elevando o custo daquilo que antes poderia ser produzido naturalmente.
+
+**Circularidade viva, sem começo ou fim.**
+
+É a temporalidade autocausal, na qual o encontro permanece o mesmo, mas se estende continuamente em uma linha de atualização.
+
+Não há começo nem fim: há uma continuidade que deságua na própria atualidade.
+
+
+A degradação ambiental que impede a rota migratoria de animais, a livre proliferação da fauna, toda construção de cidades se concentra em exceder o necessário para o humano em prol de um acumulo material. Toda a atividade que interefere e modifica a natureza de forma a desfigurar o sentido desta.
