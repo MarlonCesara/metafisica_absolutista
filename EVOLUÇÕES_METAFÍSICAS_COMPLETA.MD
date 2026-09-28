@@ -12215,3 +12215,7 @@ Não há começo nem fim: há uma continuidade que deságua na própria atualida
 
 
 A degradação ambiental que impede a rota migratoria de animais, a livre proliferação da fauna, toda construção de cidades se concentra em exceder o necessário para o humano em prol de um acumulo material. Toda a atividade que interefere e modifica a natureza de forma a desfigurar o sentido desta.
+
+
+
+No começo, nos primordios, quando a terra era vasta, e o ser humano não tinha duros trabalhos. Um grupo de niilistas se reuniu, e como força de expressão, tomaram as terras, e fizeram as pessoas trabalharem pelo que a terra antes os dava de graça e em abundancia. Pois queriam moetrar o peso de uma vida niilista, queriam fazer o outro sentir o peso que sentiam. E assim se fez os meios de produção controlados, as terras, os desmatamentos, as devastações, tudo como tentativa de dominar o que é simples, o que é belo, o que é leve, para fazer o outro sentir o peso emocional do niilismo.
