@@ -12219,3 +12219,46 @@ A degradação ambiental que impede a rota migratoria de animais, a livre prolif
 
 
 No começo, nos primordios, quando a terra era vasta, e o ser humano não tinha duros trabalhos. Um grupo de niilistas se reuniu, e como força de expressão, tomaram as terras, e fizeram as pessoas trabalharem pelo que a terra antes os dava de graça e em abundancia. Pois queriam moetrar o peso de uma vida niilista, queriam fazer o outro sentir o peso que sentiam. E assim se fez os meios de produção controlados, as terras, os desmatamentos, as devastações, tudo como tentativa de dominar o que é simples, o que é belo, o que é leve, para fazer o outro sentir o peso emocional do niilismo.
+
+
+## Anexos e Notas Futuras
+
+## Notas sobre o Niilismo (Para uso futuro)
+
+*Eliminação do niilismo:*
+Isso evita o niilismo (negar o mundo) e também evita o realismo ingênuo (atribuir ao mundo um fundamento que ele não tem).
+
+**Superação das Dicotomias Redutoras:**
+* **Contra o fenomenalismo:** O Absoluto não se reduz a suas manifestações particulares.
+* **Contra o niilismo:** O Absoluto não é puro vazio ou ausência.
+* **Via Mediana:** O Absoluto é **Presença Pura** que existe por essência, é plenamente positiva e mantém-se em ato permanente.
+
+1. **Materialismo:** só reconhece o Nada₁ (não há Deus, apenas matéria).
+2. **Niilismo:** afirma o Nada₂ (não há ser, apenas devir ou texto).
+3. **Misticismo:** tenta afirmar o Nada₃ como objeto, mas recai em contradição.
+
+| **Teoria** | **Fundamento** | **Determinação** | **Espírito** | **Problema que resolvemos** |
+| --- | --- | --- | --- | --- |
+| **Parmenidismo** | Ser (pleno, imóvel) | Ilusão | Inexistente | Não explica a aparência da multiplicidade |
+| **Neoplatonismo** | Uno (além do ser) | Emanação | Inteligível | Introduz processo no fundamento |
+| **Cristianismo** | Deus pessoal | Criação | Consciência infinita | Introduz escolha, tempo, vontade |
+| **Hegelianismo** | Espírito absoluto | Autodiferenciação | Sujeito-objeto | Introduz movimento lógico e história |
+| **Niilismo** | Nada | Construção linguística | Inexistente | Não explica coerência nem estabilidade |
+| **Nosso Sistema** | Indiferenciado | Referência vazia | Autopresença | Evita todos os problemas acima |
+
+* Preserva a intuição do Absoluto como não-dual.
+* Explica o relativo sem introduzir diferença real no fundamento.
+* Evita o niilismo (pois a coerência não precisa de fundamento).
+* Evita o dogmatismo (pois nada se afirma positivamente).
+* Permite chamar o Absoluto de "espírito" sem cair em antropomorfismo.
+
+**O Niilismo como Fuga do Ser e Sintoma Relacional** — 
+
+O niilista não precisa ser rico para fazer com que o outro seja miserável pelo voto, mas pela sensação de valor. Pois o sintoma não é aplacado pelo requinte, mas pela sensação de autovalor ampliada pelo privilégio, seja este privilégio um baixo requinte, mas o diferencial entre o que o niilista recebe e o que o outro recebe, ainda que sejam ambos recebendo pouco, serve ao niilista em sua atribuição de valor, provando que o seu ímpeto não é realmente pelo luxo, mas pelo aplacar de seu sintoma de perda de valor.
+
+O membro de uma facção é acima de tudo alguém que compra a própria possibilidade ampliada de morte, isto é, aumenta a periculosidade de sua vida num jogo de mata-mata, no qual, no menor erro, pode ser morto. Portanto, as facções não só propiciam ao niilista a sua expressão social, quanto são o próprio expor ao suicídio. É como um jogo de mata-mata no qual o indivíduo sabe que corre grande risco de vida. O niilismo não necessariamente se expressa pelo antagonismo à vida em forma de tendência ao suicídio, porém, como uma forma de concordância, o corpo, para aliviar-se, rende-se ao ideal da alma, de forma que o indivíduo nem mesmo tente recorrer ao tempo que lhe resta de vida para mudar sua postura.
+
+O niilista é como um indivíduo que olha de uma janela a festa do mundo, a alegria da vida, e precisa ser o senhor de engenho que cessa toda a alegria com trabalhos pesados, formando uma elite na qual imagina uma superioridade. Desta forma, o niilista acaba com a festa aparente da vida, deixando com que a alegria do homem fique ocultada por seu rosto cansado, privado de seu lazer e dos bens disponíveis, belezas naturais, etc. O niilista, por vezes, sente grande mal-estar em ver o manifestar da alegria social, a alegria de infância da sociedade ao simples proveito dos bens que a natureza oferece.
+
+**Sobre o Niilismo:** O niilista frequentemente adere a uma postura de ressentimento para justificar a si mesmo mediante sua postura relutante.
+
