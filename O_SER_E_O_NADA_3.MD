@@ -7429,7 +7429,7 @@ Portanto, há dois seres que se dissolveram no Ser de modo ficiticio, que repres
 O amor perfeito suporta uma rejeição eterna, o amor de uma dualiadade talvez não. Então, com a dualidade, é possível a aniquilação da alma nova.
 
 
-
+Adao e eva sao inseparaveis, por isso a dualidade nao se rompe.
 
 
 
