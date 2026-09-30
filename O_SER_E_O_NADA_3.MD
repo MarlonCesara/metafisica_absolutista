@@ -7410,7 +7410,23 @@ Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não
 
 
 
+Os Sous se relacionam de forma que, o sou sendo uma individualização do auto querer absoluto, considerando que, o auto querer absooluto não é determiando, é redido ao que é, é o querer de pura doação que não vem de uma pessoa, mas é o querer não lateral, que não é representado por uma fonte unica, mas pela propria qualidade do querer operante em si mesma.
 
+Já o querer individual, nao necessariamente nem mesmo é um querer, mas se qualifica como o sou, no sentido de que, o auto querer é voluntário no sou, de forma que, portanto o auto querer, se apropria de si na plenitude. Não havendo o auto querer, há a individualização da liberdade sob o comando de nenhum auto querer. Há, o auto não querer, que é o desejo por não si, que na verdade é o mesmo que o não querer. Isto é, o sou niilista se configura como o não querer, a liberdade sem o executor. E a liberdade sem o executor é definida pelo não sentido.
+
+Não havendo o autor auto causal do sou, há a liberdade sem o auto controle, auto domínio, auto conhecimento, auto presença. Porém, a individualidade deverir na união de uma dualidade. isto é, para que exista deve haver o consentimento do existir. 
+
+A existência do sou é um auto querer individual, sem o auto querer, cuja personalidade é individual não a personalidade pura do amor sem identidade. Isto é, o individuo sem a auto governança não se sustenta, pois o individuo é pura auto governança.  
+
+A pura auto governança é pura a todos os individuos. Sem a auto governança o individuo inexiste, existe dependente da auto governancia de outrem. Existe de uma projeção, que não se controla a si, mas é sustentada por outra governança. 
+
+Não havendo a dualidade de sustentação, o corpo do niilista é sustentado, havendo o pecado original, por dois entes que não existem mas doam suas visões. Entao a alma sobrevive ate que estes entes se separem. Porem, ao se separarem há a aniquilação da alma. 
+
+As almas são o auto querer individualizado, o auto querer é algo relacional, uma alma pura. Portanto, pode transpassar outras almas, no que se refere a espacialidade e dimesionalidade, quando imaginamos que todas as almas são uma realidade só, imaginamos essas almas sendo seres determinados, dimensionaais. Mas sendo seres relacionais, quando as almas se dispoem sem o corpo, podem ser puras, umas as outrsa, de forma que a revelação de cada uma é relacional. 
+
+Portanto, há dois seres que se dissolveram no Ser de modo ficiticio, que representam este Ser quando o quesito é criar almas a partir de uma dualidade que sustenta essas almas, e não se separa para que as destruam.
+
+O amor perfeito suporta uma rejeição eterna, o amor de uma dualiadade talvez não. Então, com a dualidade, é possível a aniquilação da alma nova.
 
 
 
