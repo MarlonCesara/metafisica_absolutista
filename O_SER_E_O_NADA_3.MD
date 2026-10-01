@@ -361,7 +361,7 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-## OS PRINCÍPIOS FUNDAMENTAIS DO ABSOLUTO E A AUTO CAUSALIDADE - Proposição 4
+## OS PRINCÍPIOS FUNDAMENTAIS DO ABSOLUTO - Proposição 4
 
 ### 1. A Necessidade Lógica de um Fundamento Absoluto
 
@@ -389,22 +389,34 @@ A aplicação regressiva desses princípios conduz à postulação irrefutável 
 
 * **Não é anterior a si mesmo, sua auto causalidade é interna:** A auto causalidade não pode ser anterior a si mesma de forma que o Absoluto cause-se a si mesmo sendo anterior ou exterior a si, mas a auto causalidade é interna, de forma que não represente uma fonte criadora anterior ao absoluto, mas de forma que atue como liberdade absoluta. Isto é, Se absoluto é causa de si mesmo, não significa que existe um segundo absoluto que o causou, mas que o próprio absoluto é responsável e autor de si como natureza que coage para sua existencia e age a partir do ato de existir. Isto quer dizer que se auto causar-se não é se transferir para uma fonte anterior a si, mas é ser autor de si no sentido de fazer-se ser, consentir com o próprio ato de existir e ser esse consentimento.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### A Autocausalidade como Substância do Absoluto - Proposição 5
+
+* **Não é anterior a si mesmo, sua auto causalidade é interna:** A auto causalidade não pode ser anterior a si mesma de forma que o Absoluto cause-se a si mesmo sendo anterior ou exterior a si, mas a auto causalidade é interna, de forma que não represente uma fonte criadora anterior ao absoluto, mas de forma que atue como liberdade absoluta. Isto é, Se absoluto é causa de si mesmo, não significa que existe um segundo absoluto que o causou, mas que o próprio absoluto é responsável e autor de si como natureza que coage para sua existencia e age a partir do ato de existir. Isto quer dizer que se auto causar-se não é se transferir para uma fonte anterior a si, mas é ser autor de si no sentido de fazer-se ser, consentir com o próprio ato de existir e ser esse consentimento.
+
 Desta visão surge o conceito de Ser, que é puramente auto causar-se. Porém, este auto causar-se é o próprio ato de auto causar. Da mesma forma que o conceito de "Ser", é o ente que se causa, no sentido que se constrói. O ente, no sentido de Ser é sua própria construção. O Ser é seu ato de Ser. Tal como o causar-se é seu ato de causar. Ambos os conceitos convergem em uma mesma realidade. A realidade que se faz e é seu próprio ato de fazer-se.
 
 Desta forma, a realidade absoluta é o seu próprio ato de construção. O ato de Ser não constrói um ente externo a si, mas o Ser é o próprio ato, no sentido de que o Ser é o seu agir Ser e não o ente originado deste processo.
-
-
-
-
-
-
-
-
-
-
-
-
-### 2. A Autocausalidade como a Verdadeira Substância do Espírito
 
 O principio da auto causalidade ainda pouco explorado  atua como a verdadeira pedra angular para traçar as características do Espírito, eliminando a necessidade de recorrer à inferência indireta — isto é, a tentativa de deduzir o Ser apenas a partir do mundo contingente ou defini-lo estritamente pelo que ele *não é* (a ausência de causa externa).
 
@@ -422,11 +434,32 @@ A dinâmica do "causar-se" constitui um *fecho ontológico* perfeito. Nessa estr
 
 Os conceitos de "causar-se" e "Ser" são inseparáveis e mutuamente explicativos. O "causar-se" implica, inevitavelmente, em "ser o causar". Se o Absoluto é o autor de si mesmo, a ação de causar funde-se integralmente com o agente. Não existe um agente anterior à ação, nem um produto final que repouse após ela: **o agente é o próprio ato de causar em andamento**.
 
+Temos portanto a definição de causar-se, isto é, o agente é o ato de ser e não o agente construído. Tal como o Ser é o ato de Ser e não o agente resultante deste processo.
+
+O auto causal, e o Ser, são portanto, idênticos, são o mesmo conceito expressados em formas diferentes. Auto causar-se e ser o Verbo, são o mesmo conceito sob perspectivas de expressões diferentes.
 
 
-revisado
 
-## A Presença do Ser
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## A indiferenciação do Ser - Proposição 6
 
 
 
