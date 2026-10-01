@@ -379,6 +379,10 @@ A aplicação regressiva desses princípios conduz à postulação irrefutável 
 * **É perfeitamente indiferenciado:** Sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem de forma absoluta. Não há em seu interior qualquer distinção, dualidade ou fragmentação que rompa sua pureza fundamental.
 * **É inegável e insubstituível:** O Absoluto não pode ser negado, diminuído ou acrescido, dada a sua soberania e autossuficiência plena. A afirmação de um ente determinado implica, naturalmente, a negação de todas as possibilidades que lhe são incompatíveis. No entanto, a negação do Absoluto não abre espaço para uma possibilidade alternativa. Qualquer "alternativa" concebível ao Absoluto já constituiria alguma determinação do real, reivindicando para si mesma a condição de absoluto. Assim, enquanto o ser contingente pode ser negado em favor de outro, o Absoluto não pode ser substituído. O "não-absoluto" jamais constitui uma alternativa viável ao Absoluto.
 
+revisar 
+
+*Não é auto determinado, pois não pode possuir diferenças internas em si, pois toda a escolha entre demais escolhas, isto é, toda determinação de uma condição ou realidade é uma negação e uma suposição de mais realidades a se considerar, portanto, sendo absoluto, só pode ser a única condição absoluta. Não havendo uma escolha entre alternativas ou um ato de escolha. Portanto ,se houvesse a auto determinação, o absoluto deveria se escolher para se-lo, portanto, haveria uma causa anterior ao próprio absoluto, se conclui definitivamente que o absoluto é necessariamente auto causado e não auto determinado.
+
 ### 2. A Autocausalidade como a Verdadeira Substância do Espírito
 
 Embora os princípios acima tenham sido amplamente debatidos ao longo da história da filosofia, há um princípio ainda pouco explorado que atua como a verdadeira pedra angular para traçar as características do Espírito, eliminando a necessidade de recorrer à inferência indireta — isto é, a tentativa de deduzir o Ser apenas a partir do mundo contingente ou defini-lo estritamente pelo que ele *não é* (a ausência de causa externa).
