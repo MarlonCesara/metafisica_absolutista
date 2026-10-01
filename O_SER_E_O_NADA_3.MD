@@ -412,9 +412,7 @@ A aplicação regressiva desses princípios conduz à postulação irrefutável 
 
 ### A Autocausalidade como Substância do Absoluto - Proposição 5
 
-* **Não é anterior a si mesmo, sua auto causalidade é interna:** A auto causalidade não pode ser anterior a si mesma de forma que o Absoluto cause-se a si mesmo sendo anterior ou exterior a si, mas a auto causalidade é interna, de forma que não represente uma fonte criadora anterior ao absoluto, mas de forma que atue como liberdade absoluta. Isto é, Se absoluto é causa de si mesmo, não significa que existe um segundo absoluto que o causou, mas que o próprio absoluto é responsável e autor de si como natureza que coage para sua existencia e age a partir do ato de existir. Isto quer dizer que se auto causar-se não é se transferir para uma fonte anterior a si, mas é ser autor de si no sentido de fazer-se ser, consentir com o próprio ato de existir e ser esse consentimento.
-
-Desta visão surge o conceito de Ser, que é puramente auto causar-se. Porém, este auto causar-se é o próprio ato de auto causar. Da mesma forma que o conceito de "Ser", é o ente que se causa, no sentido que se constrói. O ente, no sentido de Ser é sua própria construção. O Ser é seu ato de Ser. Tal como o causar-se é seu ato de causar. Ambos os conceitos convergem em uma mesma realidade. A realidade que se faz e é seu próprio ato de fazer-se.
+Da auto causalidade surge o conceito de Ser, que é puramente auto causar-se. Porém, este auto causar-se é o próprio ato de auto causar. Da mesma forma que o conceito de "Ser", é o ente que se causa, no sentido que se constrói. O ente, no sentido de Ser é sua própria construção. O Ser é seu ato de Ser. Tal como o causar-se é seu ato de causar. Ambos os conceitos convergem em uma mesma realidade. A realidade que se faz e é seu próprio ato de fazer-se.
 
 Desta forma, a realidade absoluta é o seu próprio ato de construção. O ato de Ser não constrói um ente externo a si, mas o Ser é o próprio ato, no sentido de que o Ser é o seu agir Ser e não o ente originado deste processo.
 
@@ -438,12 +436,13 @@ Temos portanto a definição de causar-se, isto é, o agente é o ato de ser e n
 
 O auto causal, e o Ser, são portanto, idênticos, são o mesmo conceito expressados em formas diferentes. Auto causar-se e ser o Verbo, são o mesmo conceito sob perspectivas de expressões diferentes.
 
+Por uma via argumentativa inversa, o conceito de Ser também nos conduz de volta à autocausalidade. O Ser não é uma entidade inerte que repousa em sua existência, mas a ação fervilhante e contínua de construir-se, fazer-se e querer-se. Sendo absoluto, O termo **“Ser” torna-se sinônimo exato de **“causar-se”** no estado de ser presente.
 
+Se o Ser fosse compreendido como um ato que resulta em um "Sou" definitivo e cristalizado, ele deixaria de ser ação e passaria a ser estático. O Ser não pode ser reduzido a um resultado fechado, pois é essencialmente relacional: é a tendência inesgotável a si mesmo. O "fazer-se" denota a intenção viva. Essa intenção não resulta na construção estática de um "Sou", mas concretiza-se continuamente no próprio ato de querer — um querer que doa a si mesmo a manutenção de sua existência.
 
+Em suma, o Ser é o agente sendo o próprio e perpétuo efeito de seu desejo de si. Há apenas o verbo criador, e o agente é indissociável desse verbo. É imperativo distinguir o **"Ser"** (o ato de autocriação contínuo, o gerúndio da existência) do **"Sou"** (o ente finalizado, determinado e estático). O Absoluto não é um "Sou" cristalizado entre outros; Ele é o ato puro, vivo e contínuo de autocausar-se.
 
-
-
-
+Como o Absoluto é indiferenciado, não é restrito por uma substância predeterminada. Sua substância é a própria capacidade ativa de se autocausar. O Absoluto não é o "causado", mas o eterno "causar". O fim último dessa ação é a substância pura e inefável. Na ausência de um molde prévio, o próprio fundamento é o ato contínuo de fundar-se. Autocausar-se é autocriar-se, resultando na convergência onde o ato de realizar-se já é a própria realidade pura.
 
 
 
@@ -461,18 +460,28 @@ O auto causal, e o Ser, são portanto, idênticos, são o mesmo conceito express
 
 ## A indiferenciação do Ser - Proposição 6
 
-
-
-
-Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o *desejo* ou a *vontade* do agente.
-
 Para alcançar a definição exata do Ser, devemos ancorar a análise no princípio autocausal. O conceito tradicional de "Ser", inicialmente, não detalha sua própria substância, mas aponta para a indistinção fundamental entre sua causa e seu fundamento. O Ser designa uma realidade que é a sua própria essência. O nome "Ser" representa a fusão da fundamentação com a identidade em um fecho ontológico, onde o fundamento é a própria determinação. O Absoluto não é um ente determinado "A" ou "B"; ele é um *ser ente* — o ato puro de existir.
+
+Para exemplificar consideremos que o ente determinado tem existencia e forma, existe como A, e não como B. Porém, se esse ente sobrevivesse a uma indeterminação de sua forma, ao retirarmos a forma de A, temos o existir de A, que não é mais A, é o existir. E a identidade de A se faz seu próprio ato de existir. Portanto, isto define o Ser, uma indiferença fundamental entre a determinação e a forma.
+
+
+
+
+
+
+
+
+
+
+
+
+## A qualidade da ação do Ser como presença operante - Proposição 7
 
 Uma vez que não há espaço externo ou matéria prévia para sofrer o impacto de uma ação física, essa autocausalidade não pode ser compreendida sob a categoria de "movimento". O movimento pressupõe determinação temporal e dimensional — a transição de uma potência para um ato em um meio preexistente. No Absoluto, não há o que ser movido. A ação primordial não se concretiza como um acidente (uma alteração) num substrato anterior.
 
 Sob a ótica determinista, a ação é vista como um movimento acionado por um fator externo (como a força que arremessa um objeto). A autoação poderia ser erroneamente imaginada como um movimento físico que se inicia sem causa mecânica. Contudo, no Absoluto, o "movimento" não pode ser físico. Qualquer movimento produz oscilações e altera o estado indiferenciado anterior. O movimento do Ser, portanto, deve ser puro: não move algo fora de si e não produz mutação em si. Em síntese, não é um movimento espacial ou físico, mas a afirmação perene de sua própria realidade indiferenciada.
 
-### 4. A Emergência da Presença e a Intencionalidade do Fazer-se
+Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o *desejo* ou a *vontade* do agente.
 
 Ao analisarmos o Ser sob a ótica do autocausal, inferimos imediatamente uma causa que é idêntica ao seu próprio causar — um Ser que é o seu próprio "construir Ser". O termo Ser designa não apenas uma realidade idêntica a si mesma, mas faz uma analogia clara à vontade imperante. Como a palavra "causar" nos lembra, não se trata de um impulso cego. O autocausado não é um mecanismo fortuito; se há autocausalidade, há uma intencionalidade. Mediante a análise da autocausalidade, inferimos a presença fundamental que é autora do próprio causar-se. O Ser é o causar-se sob a tutela absoluta de uma **autopresença**.
 
@@ -484,21 +493,39 @@ Na física contingente, o que causa o movimento é um impulso anterior. No conte
 
 Inferimos, assim, que a substância do Ser emana diretamente do princípio autocausal. A ação não atua sobre uma "coisa", pois não há nada a ser movido, nem gera um "produto" separado. O desejo é a ação prévia e simultânea à atividade. O causar-se é validado por essa intencionalidade imanente. O Ser é uma inclinação que se concretiza em si mesma — o amor inefável voltado para a própria plenitude de si mesmo.
 
-### 5. O Verbo Primordial: A Distinção Ontológica entre o "Ser" e o "Sou"
 
-Por uma via argumentativa inversa, o conceito de Ser também nos conduz de volta à autocausalidade. O Ser não é uma entidade inerte que repousa em sua existência, mas a ação fervilhante e contínua de construir-se, fazer-se e querer-se. Sendo absoluto, O termo **“Ser” torna-se sinônimo exato de **“causar-se”** no estado de ser presente.
 
-Se o Ser fosse compreendido como um ato que resulta em um "Sou" definitivo e cristalizado, ele deixaria de ser ação e passaria a ser estático. O Ser não pode ser reduzido a um resultado fechado, pois é essencialmente relacional: é a tendência inesgotável a si mesmo. O "fazer-se" denota a intenção viva. Essa intenção não resulta na construção estática de um "Sou", mas concretiza-se continuamente no próprio ato de querer — um querer que doa a si mesmo a manutenção de sua existência.
 
-Em suma, o Ser é o agente sendo o próprio e perpétuo efeito de seu desejo de si. Há apenas o verbo criador, e o agente é indissociável desse verbo. É imperativo distinguir o **"Ser"** (o ato de autocriação contínuo, o gerúndio da existência) do **"Sou"** (o ente finalizado, determinado e estático). O Absoluto não é um "Sou" cristalizado entre outros; Ele é o ato puro, vivo e contínuo de autocausar-se.
 
-Como o Absoluto é indiferenciado, não é restrito por uma substância predeterminada. Sua substância é a própria capacidade ativa de se autocausar. O Absoluto não é o "causado", mas o eterno "causar". O fim último dessa ação é a substância pura e inefável. Na ausência de um molde prévio, o próprio fundamento é o ato contínuo de fundar-se. Autocausar-se é autocriar-se, resultando na convergência onde o ato de realizar-se já é a própria realidade pura.
 
-### 6. A Abertura Dialética Proporcionada pela Autocausalidade
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+###  A Abertura Dialética Proporcionada pela Autocausalidade - Proposição 8
 
 A mudança de perspectiva trazida pelo princípio da autocausalidade abre um horizonte dialético profundo. Tendo superado a inferência indireta, podemos agora investigar a natureza íntima desse fundamento vivo: que tipo de realidade emerge quando o Ser é compreendido como ato puro de autoposição, e não apenas como o início de uma cadeia de efeitos?
 
-Ao reconhecer que o Absoluto é essencialmente um ato de auto causar, somos levados a investigar as dimensões de sua liberdade, sua intencionalidade e os requisitos para que opere como tal (como autodomínio, onisciência e onipresença). 
+Ao reconhecer que o Absoluto é essencialmente um ato de auto causar, e que o impulso da auto causalidade é sua presença de forma que seja o que é pela própria intenção, somos levados a investigar as dimensões de sua liberdade (dada a existencia da intenção e da atuação desta), sua intencionalidade (dada sua necessidade de Ser imposta por si mesmo) e os requisitos para que opere como tal (como autodomínio, onisciência e onipresença). 
 
 Podemos estabelecer um breve preâmbulo no qual, partindo das determinações já demonstradas acerca do Absoluto, infiramos as propriedades necessárias de sua liberdade absoluta e, a partir delas, investiguemos de que modo tais propriedades conduzem à inteligibilidade da Pessoa no Absoluto, tal como esta se manifesta na unidade trinitária referida pela tradição religiosa. A inferência pode ser formulada nos seguintes termos:  
 
@@ -518,9 +545,22 @@ Esta inferência desdobra, em termos ontológicos, o mistério da Trindade, dist
 
 Neste último vetor, assumir a autoposição soberana é, em si, a negação ativa de uma "não soberania". A não soberania significaria existir de forma atrelada ou compulsória a qualquer determinação temporal — como, por exemplo, a obrigação de originar a criação do mundo. Ao assumir a autoposição de sua pureza como única realidade estritamente necessária, o Absoluto nega a necessidade da criação. Isso estabelece o Ser como autor de sua própria soberania, exercendo sua liberdade volitiva ao escolher fundamentar-se sem depender do contingente, possuindo o total domínio para ser ou não ser a causa do que é exterior a Si.
 
-### 7. O Horizonte da Criação e a Soberania do Espírito perante o "Nada"
+Podemos avançar para a distinção fundamental da ação destes três níveis de liberdade, que nos indicam três pessoas distintas. E podemos indicar também a qualidade da temporalidade do auto causal.
 
-A necessidade existencial do Ser não opera como um mecanismo cego ou uma obrigação compulsória. Sendo essencialmente intencional, a existência do Absoluto é o fruto direto de sua perfeição, de seu autodomínio e de sua liberdade radical, e nunca o resultado de uma imposição.
+Ao considerarmos que a ação fundamentadora é necessariamente direcionada a fundamentação sem traços de personalização, temos uma pessoa que age por si só, de forma inviolável. Portanto, uma pessoa de intuito distinto. Ao passo que o personalizador, executou a ação da fundamentação mas somente tem sua ação instaurada na temporalidade perpendicular a ação fundamentadora. Já a pessoa da plenitude tem sua ação para a personalização e para a fundamentação de forma a representar uma pessoa intermediadora.
+
+
+Ao considerarmos o fazer-se Ser, uma circularidade viva em um fecho ontológico, pois o que é feito Ser por si mesmo, pressupoe uma ação interna, tal como pressupoe um eterno presente, de forma que o causar-se é uma ação, ao passo que é uma ação acabada. De forma que, temos uma linha temporal infinita no angulo horizontal em que o causar-se opera de forma a fazer-ze, de forma atualizar-se. E essa atualizaçao do Ser que vai de encontro consigo mesmo tem seu momento presente finalizado onde é o que é, e não seu vir a ser. Portanto, temos uma linha infinita horizontal de uma circularidade viva onde o Ser se torna o que é constantemente ao passo que uma linha perpendicular também viva onde o ser é no presente. 
+
+Isto é, ao passo que o ser se torna ser, ele é ser.
+
+A autocausalidade do Espírito é um ato único, eterno e não temporal, no qual causa e efeito coincidem plenamente, sem regressão causal.
+O Espírito já é plenamente si mesmo em ato puro, não havendo um “antes” em que precisasse tornar-se aquilo que é.
+Quando essa autocausalidade é pensada temporalmente, ela se reverbera como um processo infinito de automanifestação, no qual o Espírito continuamente se sustenta e se manifesta.
+Assim, surge uma circularidade ontológica, em que o que causa, o que busca e o que é alcançado permanecem essencialmente o mesmo: o que busca já é o buscado.
+A temporalidade é, portanto, a expressão dinâmica da eterna atualidade do Espírito, que se manifesta como devir sem perder sua identidade absoluta.
+
+Podemos pensar também sobre a intencionalidade do Ser, a necessidade existencial do Ser não opera como um mecanismo cego ou uma obrigação compulsória. Sendo essencialmente intencional, a existência do Absoluto é o fruto direto de sua perfeição, de seu autodomínio e de sua liberdade radical, e nunca o resultado de uma imposição.
 
 No que tange à Criação, o princípio da autocausalidade esclarece que o Absoluto não cria a partir de um material preexistente. Sua liberdade criativa decorre da mais completa ausência de limitações ontológicas exteriores. É crucial compreender que não existe um "campo de ação" independente, um receptáculo vazio chamado *nada*, no qual o Absoluto precise adentrar ou interagir para moldar a realidade.
 
@@ -529,6 +569,20 @@ A mesma dinâmica autocausal que estabelece a soberania exclusiva do Espírito t
 O ato de causar-se exige, por necessidade lógica incontornável: a **autopresença** (o estar plenamente ciente de si), o **autoconhecimento** (a apreensão absoluta do próprio ato) e o **autodomínio** (a capacidade de efetivar a ação de forma irrestrita).
 
 Estas considerações prévias constituem apenas uma breve exposição das propriedades que podem ser inferidas a partir do princípio autocausal. Ademais, cumpre adiantar que essa mesma via investigativa permite desvelar questões metafísicas ainda mais complexas, tais como a origem primária da Criação, a natureza da temporalidade do Espírito e a intencionalidade intrínseca ao Ser.
+
+
+
+
+
+
+
+
+
+
+
+
+## A necessidade de trilhar primeiramente a via apofática - Proposição 9
+
 
 Contudo, para que o aprofundamento no princípio autocausal atinja sua precisão máxima, torna-se imperativo provar, por meio de um rigoroso escrutínio lógico, que o "nada" não possui qualquer densidade ontológica ou capacidade de resistência perante o Absoluto. Deve-se demonstrar que o nada absoluto é uma impossibilidade conceitual estrita: por ser inteiramente desprovido de propriedades, não pode ser considerado incausado, tampouco autocausado. O único palco metafísico verdadeiro e incontestável é a soberania inesgotável da Vontade do Espírito, que opera em absoluta liberdade, sem qualquer barreira limitante, abismo ou substrato que restrinja o seu eterno *Fazer-se*.
 
@@ -591,7 +645,45 @@ Portanto, não desanime diante do caminho apofático. O esforço será frutífer
 
 
 
-## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL** - Proposição 5
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+revisado
+
+
+## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL** - Proposição 10
 
 ### **A Necessidade de uma Purificação do Olhar: Introdução ao Caminho Apofático**
 Agora que compreendemos brevemente a estrutura da auto causalidade deveríamos avançar para uma profundidade ainda maior. Perguntas como qual é o *conteúdo* do Espírito? O que é, em sua essência mais íntima, essa realidade que chamamos de Ser absoluto? Como o Espírito age? Como Se relaciona com o tempo? Como exerce Sua liberdade? O *quê* é a substância pura que subjaz a todas as determinações, o solo ontológico do qual tudo brota? Devem ser respondidas de forma detalhada e de todos os ângulos cabíveis. 
