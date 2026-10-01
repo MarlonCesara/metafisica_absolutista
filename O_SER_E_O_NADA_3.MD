@@ -469,13 +469,17 @@ Para exemplificar consideremos que o ente determinado tem existencia e forma, ex
 
 
 
+## A não negação do Ser - Proposição 7
+
+Ao considerarmos negar um ente determinado, isto não destroi o Absoluto, porem, ao negarmos o absoluto, isto não é uma possibilidade lógica. Vamos dar o exemplo seguinte: Há o ente A, B, C que são contigentes e estão no contexto absoluto. Ao negarmos A, estamos afirmando B e C. Ao negarmos A, B, C estamos afirmando Absoluto. Porem, ao negarmos o Absoluto não estamos afirmando algo.
+
+Portanto, não há como produzir uma realidade através da negação do Absoluto, neste sentido o Absoluto não pode ser reduzido, negado e nem acrescentado.
 
 
 
 
 
-
-## A qualidade da ação do Ser como presença operante - Proposição 7
+## A qualidade da ação do Ser como presença operante - Proposição 8
 
 Uma vez que não há espaço externo ou matéria prévia para sofrer o impacto de uma ação física, essa autocausalidade não pode ser compreendida sob a categoria de "movimento". O movimento pressupõe determinação temporal e dimensional — a transição de uma potência para um ato em um meio preexistente. No Absoluto, não há o que ser movido. A ação primordial não se concretiza como um acidente (uma alteração) num substrato anterior.
 
@@ -521,7 +525,7 @@ Inferimos, assim, que a substância do Ser emana diretamente do princípio autoc
 
 
 
-###  A Abertura Dialética Proporcionada pela Autocausalidade - Proposição 8
+###  A Abertura Dialética Proporcionada pela Autocausalidade - Proposição 9
 
 A mudança de perspectiva trazida pelo princípio da autocausalidade abre um horizonte dialético profundo. Tendo superado a inferência indireta, podemos agora investigar a natureza íntima desse fundamento vivo: que tipo de realidade emerge quando o Ser é compreendido como ato puro de autoposição, e não apenas como o início de uma cadeia de efeitos?
 
@@ -568,7 +572,7 @@ A mesma dinâmica autocausal que estabelece a soberania exclusiva do Espírito t
 
 O ato de causar-se exige, por necessidade lógica incontornável: a **autopresença** (o estar plenamente ciente de si), o **autoconhecimento** (a apreensão absoluta do próprio ato) e o **autodomínio** (a capacidade de efetivar a ação de forma irrestrita).
 
-Estas considerações prévias constituem apenas uma breve exposição das propriedades que podem ser inferidas a partir do princípio autocausal. Ademais, cumpre adiantar que essa mesma via investigativa permite desvelar questões metafísicas ainda mais complexas, tais como a origem primária da Criação, a natureza da temporalidade do Espírito e a intencionalidade intrínseca ao Ser.
+Estas considerações prévias constituem apenas uma breve exposição das propriedades que podem ser inferidas a partir do princípio autocausal.
 
 
 
@@ -581,7 +585,11 @@ Estas considerações prévias constituem apenas uma breve exposição das propr
 
 
 
-## A necessidade de trilhar primeiramente a via apofática - Proposição 9
+
+
+
+
+## A necessidade de trilhar primeiramente a via apofática - Proposição 10
 
 
 Contudo, para que o aprofundamento no princípio autocausal atinja sua precisão máxima, torna-se imperativo provar, por meio de um rigoroso escrutínio lógico, que o "nada" não possui qualquer densidade ontológica ou capacidade de resistência perante o Absoluto. Deve-se demonstrar que o nada absoluto é uma impossibilidade conceitual estrita: por ser inteiramente desprovido de propriedades, não pode ser considerado incausado, tampouco autocausado. O único palco metafísico verdadeiro e incontestável é a soberania inesgotável da Vontade do Espírito, que opera em absoluta liberdade, sem qualquer barreira limitante, abismo ou substrato que restrinja o seu eterno *Fazer-se*.
@@ -683,7 +691,7 @@ Portanto, não desanime diante do caminho apofático. O esforço será frutífer
 revisado
 
 
-## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL** - Proposição 10
+## **O CONTEÚDO DO ESPÍRITO E A ONTOLOGIA DO NADA RELACIONAL** - Proposição 11
 
 ### **A Necessidade de uma Purificação do Olhar: Introdução ao Caminho Apofático**
 Agora que compreendemos brevemente a estrutura da auto causalidade deveríamos avançar para uma profundidade ainda maior. Perguntas como qual é o *conteúdo* do Espírito? O que é, em sua essência mais íntima, essa realidade que chamamos de Ser absoluto? Como o Espírito age? Como Se relaciona com o tempo? Como exerce Sua liberdade? O *quê* é a substância pura que subjaz a todas as determinações, o solo ontológico do qual tudo brota? Devem ser respondidas de forma detalhada e de todos os ângulos cabíveis. 
@@ -699,6 +707,22 @@ No entanto, essa experiência do nada é crucial. Ao contemplarmos o nada, somos
 É diante do nada que a pergunta fundamental emerge com toda a sua força: *por que existe algo em vez de nada?* Esta pergunta, que Leibniz considerava a primeira da filosofia, só pode ser devidamente formulada após termos contemplado a possibilidade real do nada. Se não passamos por essa investigação, corremos o risco de tomar o ser como um dado óbvio, como algo que "está aí" sem maiores questionamentos. A grandeza da pergunta exige a grandeza do abismo que a antecede.
 
 O nada, portanto, é a primeira janela a ser limpa. Não porque ele contenha alguma verdade positiva, mas porque sua contemplação nos livra da ilusão de que o ser finito é autossuficiente. Ao encararmos o nada, nossa mente se desapega das determinações particulares e se abre para a possibilidade de algo que seja para além de toda determinação — algo que não possa não existir, algo cuja essência é o próprio existir.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### A Substância Absoluta e o Incausado
 
