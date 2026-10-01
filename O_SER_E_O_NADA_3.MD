@@ -374,14 +374,35 @@ Inicialmente, o Absoluto é inferido a partir dos princípios causais clássicos
 A aplicação regressiva desses princípios conduz à postulação irrefutável de um **Fundamento Absoluto** que cumpre os seguintes preceitos ontológicos:
 
 * **Existe por si mesmo:** Satisfaz as causas existenciais sem exigir qualquer antecedente causal.
+
 * **É identicamente si mesmo de modo necessário:** Satisfaz as causas identitárias sem depender de determinações ou contornos externos.
+
 * **É a causa sustentadora:** Atua como o alicerce contínuo de toda a existência e de toda identidade contingente.
+
 * **É perfeitamente indiferenciado:** Sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem de forma absoluta. Não há em seu interior qualquer distinção, dualidade ou fragmentação que rompa sua pureza fundamental.
+
 * **É inegável e insubstituível:** O Absoluto não pode ser negado, diminuído ou acrescido, dada a sua soberania e autossuficiência plena. A afirmação de um ente determinado implica, naturalmente, a negação de todas as possibilidades que lhe são incompatíveis. No entanto, a negação do Absoluto não abre espaço para uma possibilidade alternativa. Qualquer "alternativa" concebível ao Absoluto já constituiria alguma determinação do real, reivindicando para si mesma a condição de absoluto. Assim, enquanto o ser contingente pode ser negado em favor de outro, o Absoluto não pode ser substituído. O "não-absoluto" jamais constitui uma alternativa viável ao Absoluto.
 
-revisar 
+* **É condição absoluta, não havendo outra alternativa se não a si mesmo:** Não é auto determinado, pois não pode possuir diferenças internas em si, pois toda a escolha entre demais escolhas, isto é, toda determinação de uma condição ou realidade é uma negação e uma suposição de mais realidades a se considerar, portanto, sendo absoluto, só pode ser a única condição absoluta. Conclui-se, portanto, que o Absoluto não é autodeterminado, mas necessariamente autocausado: ele não escolhe ser aquilo que é, pois não há outra possibilidade absoluta diante dele; ele é necessariamente aquilo que é por sua própria natureza. Não é autodeterminado, pois não pode possuir diferenças internas em si. Toda escolha entre alternativas, isto é, toda determinação de uma condição ou realidade em detrimento de outras, implica a negação de possibilidades distintas e, portanto, a suposição de que haveria outras realidades possíveis a serem consideradas. O Absoluto, porém, sendo absoluto, só pode constituir-se como a única condição absoluta, não havendo nele qualquer alternativa entre a qual escolher, nem um ato de escolha propriamente dito.
 
-*Não é auto determinado, pois não pode possuir diferenças internas em si, pois toda a escolha entre demais escolhas, isto é, toda determinação de uma condição ou realidade é uma negação e uma suposição de mais realidades a se considerar, portanto, sendo absoluto, só pode ser a única condição absoluta. Não havendo uma escolha entre alternativas ou um ato de escolha. Portanto ,se houvesse a auto determinação, o absoluto deveria se escolher para se-lo, portanto, haveria uma causa anterior ao próprio absoluto, se conclui definitivamente que o absoluto é necessariamente auto causado e não auto determinado.
+* **Não é causado por escolha externa ou ação externa anterior ou exterior a si mesmo:** Não havendo uma escolha entre alternativas ou um ato de escolha. Portanto ,se houvesse a auto determinação, o absoluto deveria se escolher para sê-lo, portanto, haveria uma causa anterior ao próprio absoluto, se conclui definitivamente que o absoluto só pode ser necessariamente auto causado e não auto determinado. Assim, se houvesse autodeterminação, o Absoluto teria de escolher a si mesmo para ser aquilo que é. Nesse caso, porém, o próprio ato de escolha constituiria uma determinação anterior à sua condição de Absoluto, introduzindo uma causa ou fundamento anterior ao próprio Absoluto. Isso seria contraditório com a própria noção de Absoluto. 
+
+* **Não é anterior a si mesmo, sua auto causalidade é interna:** A auto causalidade não pode ser anterior a si mesma de forma que o Absoluto cause-se a si mesmo sendo anterior ou exterior a si, mas a auto causalidade é interna, de forma que não represente uma fonte criadora anterior ao absoluto, mas de forma que atue como liberdade absoluta. Isto é, Se absoluto é causa de si mesmo, não significa que existe um segundo absoluto que o causou, mas que o próprio absoluto é responsável e autor de si como natureza que coage para sua existencia e age a partir do ato de existir. Isto quer dizer que se auto causar-se não é se transferir para uma fonte anterior a si, mas é ser autor de si no sentido de fazer-se ser, consentir com o próprio ato de existir e ser esse consentimento.
+
+Desta visão surge o conceito de Ser, que é puramente auto causar-se.
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### 2. A Autocausalidade como a Verdadeira Substância do Espírito
 
