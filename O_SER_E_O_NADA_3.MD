@@ -469,11 +469,56 @@ Para exemplificar consideremos que o ente determinado tem existencia e forma, ex
 
 
 
+
+
+
+
+
+
+
+
+
+
 ## A não negação do Ser - Proposição 7
 
 Ao considerarmos negar um ente determinado, isto não destroi o Absoluto, porem, ao negarmos o absoluto, isto não é uma possibilidade lógica. Vamos dar o exemplo seguinte: Há o ente A, B, C que são contigentes e estão no contexto absoluto. Ao negarmos A, estamos afirmando B e C. Ao negarmos A, B, C estamos afirmando Absoluto. Porem, ao negarmos o Absoluto não estamos afirmando algo.
 
 Portanto, não há como produzir uma realidade através da negação do Absoluto, neste sentido o Absoluto não pode ser reduzido, negado e nem acrescentado.
+
+
+
+
+
+
+
+
+## A pureza total do Ser
+
+A tradição teológica frequentemente concebe a substância de uma realidade incausada em termos de uma pureza originária ou, de maneira ainda mais rigorosa, através da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causas.
+
+Para que o cosmos causado exista, exige-se uma realidade puríssima, livre de propriedades contingentes e de determinações prévias. Ou seja, o incausado deve possuir primazia ontológica e eficácia causal, constituindo-se como o fundamento último sem o qual a explicação da realidade vigente permanece fatalmente incompleta.
+
+A esse incausado ontológico — a realidade cuja existência é tão pura que sua determinação se funde à sua própria fundamentação — damos o nome de "Ser". Trata-se de uma realidade que não pode ser categorizada como "A" ou "B"; sua identidade é o seu próprio ato de existir. Nesse contexto, em que a identidade do existente coincide plenamente com a sua existência, o Ser emerge como o signo de sua própria autofundamentação. O incausado ontológico que justifica o causado é, de forma necessária, simples e desprovido de delimitações conceituais: sua essência é o seu próprio fundamento, o *ipsum esse subsistens*.
+
+O inefável, por definição, dispensa propriedades e transcende qualquer predicação. Se um princípio carece de delimitações acidentais ou deterministas, não há nele nenhuma "balança ontológica" que precise ser inclinada por um agente externo. Ele simplesmente *é*, mantendo-se imune à exigência de uma *ratio sufficiens* (razão suficiente) heterônoma.
+
+Uma realidade completamente pura é diferente de uma realidade não existente, pois a realidade não existente não pode ter teor de pureza, pois não existe. A total pureza justifica o Absoluto sendo o que é, sem causa externa ou anterior. Subsiste por si mesmo e a partir de si. Não usando nenhuma fonte exterior ou anterior para retirar substancia para fazer-se.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -589,10 +634,17 @@ Estas considerações prévias constituem apenas uma breve exposição das propr
 
 
 
+
+
+
+
+
+
+
 ## A necessidade de trilhar primeiramente a via apofática - Proposição 10
 
 
-Contudo, para que o aprofundamento no princípio autocausal atinja sua precisão máxima, torna-se imperativo provar, por meio de um rigoroso escrutínio lógico, que o "nada" não possui qualquer densidade ontológica ou capacidade de resistência perante o Absoluto. Deve-se demonstrar que o nada absoluto é uma impossibilidade conceitual estrita: por ser inteiramente desprovido de propriedades, não pode ser considerado incausado, tampouco autocausado. O único palco metafísico verdadeiro e incontestável é a soberania inesgotável da Vontade do Espírito, que opera em absoluta liberdade, sem qualquer barreira limitante, abismo ou substrato que restrinja o seu eterno *Fazer-se*.
+Para que o aprofundamento no princípio autocausal atinja sua precisão máxima, torna-se imperativo provar, por meio de um rigoroso escrutínio lógico, que o "nada" não possui qualquer densidade ontológica ou capacidade de resistência perante o Absoluto. Deve-se demonstrar que o nada absoluto é uma impossibilidade conceitual estrita: por ser inteiramente desprovido de propriedades, não pode ser considerado incausado, tampouco autocausado. O único palco metafísico verdadeiro e incontestável é a soberania inesgotável da Vontade do Espírito, que opera em absoluta liberdade, sem qualquer barreira limitante, abismo ou substrato que restrinja o seu eterno *Fazer-se*.
 
 Antes, porém, de prosseguirmos rumo a essa investigação mais profunda, é preciso trilhar a via apofática. Isso significa desobstruir o horizonte de compreensão do Absoluto, expurgando extravios e conceitos ilógicos. Tal purificação filosófica será alcançada justamente ao atravessarmos uma investigação precisa e rigorosa sobre o conceito de "nada".
 
@@ -726,13 +778,16 @@ O nada, portanto, é a primeira janela a ser limpa. Não porque ele contenha alg
 
 #### A Substância Absoluta e o Incausado
 
-A tradição teológica frequentemente concebe a substância de uma realidade incausada em termos de uma pureza originária ou, de maneira ainda mais rigorosa, através da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causas.
 
-Para que o cosmos causado exista, exige-se uma realidade puríssima, livre de propriedades contingentes e de determinações prévias. Ou seja, o incausado deve possuir primazia ontológica e eficácia causal, constituindo-se como o fundamento último sem o qual a explicação da realidade vigente permanece fatalmente incompleta.
 
-A esse incausado ontológico — a realidade cuja existência é tão pura que sua determinação se funde à sua própria fundamentação — damos o nome de "Ser". Trata-se de uma realidade que não pode ser categorizada como "A" ou "B"; sua identidade é o seu próprio ato de existir. Nesse contexto, em que a identidade do existente coincide plenamente com a sua existência, o Ser emerge como o signo de sua própria autofundamentação. O incausado ontológico que justifica o causado é, de forma necessária, simples e desprovido de delimitações conceituais: sua essência é o seu próprio fundamento, o *ipsum esse subsistens*.
 
-O inefável, por definição, dispensa propriedades e transcende qualquer predicação. Se um princípio carece de delimitações acidentais ou deterministas, não há nele nenhuma "balança ontológica" que precise ser inclinada por um agente externo. Ele simplesmente *é*, mantendo-se imune à exigência de uma *ratio sufficiens* (razão suficiente) heterônoma.
+
+
+
+
+
+ddddddddddddd
+
 
 Nesta etapa da investigação, o objetivo consiste em dissecar a natureza exata desse estrato inefável, testando se os conceitos tradicionalmente invocados como absolutos podem, em última instância, sustentar e definir a arquitetura do incausado.
 
