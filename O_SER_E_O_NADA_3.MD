@@ -361,7 +361,7 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-## OS PRINCÍPIOS FUNDAMENTAIS DO ABSOLUTO E A NATUREZA DA SUBSTÂNCIA PRIMORDIAL - Proposição 4
+## OS PRINCÍPIOS FUNDAMENTAIS DO ABSOLUTO E A AUTO CAUSALIDADE - Proposição 4
 
 ### 1. A Necessidade Lógica de um Fundamento Absoluto
 
@@ -389,9 +389,9 @@ A aplicação regressiva desses princípios conduz à postulação irrefutável 
 
 * **Não é anterior a si mesmo, sua auto causalidade é interna:** A auto causalidade não pode ser anterior a si mesma de forma que o Absoluto cause-se a si mesmo sendo anterior ou exterior a si, mas a auto causalidade é interna, de forma que não represente uma fonte criadora anterior ao absoluto, mas de forma que atue como liberdade absoluta. Isto é, Se absoluto é causa de si mesmo, não significa que existe um segundo absoluto que o causou, mas que o próprio absoluto é responsável e autor de si como natureza que coage para sua existencia e age a partir do ato de existir. Isto quer dizer que se auto causar-se não é se transferir para uma fonte anterior a si, mas é ser autor de si no sentido de fazer-se ser, consentir com o próprio ato de existir e ser esse consentimento.
 
-Desta visão surge o conceito de Ser, que é puramente auto causar-se.
+Desta visão surge o conceito de Ser, que é puramente auto causar-se. Porém, este auto causar-se é o próprio ato de auto causar. Da mesma forma que o conceito de "Ser", é o ente que se causa, no sentido que se constrói. O ente, no sentido de Ser é sua própria construção. O Ser é seu ato de Ser. Tal como o causar-se é seu ato de causar. Ambos os conceitos convergem em uma mesma realidade. A realidade que se faz e é seu próprio ato de fazer-se.
 
-
+Desta forma, a realidade absoluta é o seu próprio ato de construção. O ato de Ser não constrói um ente externo a si, mas o Ser é o próprio ato, no sentido de que o Ser é o seu agir Ser e não o ente originado deste processo.
 
 
 
@@ -406,23 +406,32 @@ Desta visão surge o conceito de Ser, que é puramente auto causar-se.
 
 ### 2. A Autocausalidade como a Verdadeira Substância do Espírito
 
-Embora os princípios acima tenham sido amplamente debatidos ao longo da história da filosofia, há um princípio ainda pouco explorado que atua como a verdadeira pedra angular para traçar as características do Espírito, eliminando a necessidade de recorrer à inferência indireta — isto é, a tentativa de deduzir o Ser apenas a partir do mundo contingente ou defini-lo estritamente pelo que ele *não é* (a ausência de causa externa).
+O principio da auto causalidade ainda pouco explorado  atua como a verdadeira pedra angular para traçar as características do Espírito, eliminando a necessidade de recorrer à inferência indireta — isto é, a tentativa de deduzir o Ser apenas a partir do mundo contingente ou defini-lo estritamente pelo que ele *não é* (a ausência de causa externa).
 
 Esse novo princípio estabelece uma definição afirmativa e direta que revela a substância do Espírito: 
 
 **O Absoluto é causa de si mesmo. Embora não haja uma substância absoluta predeterminada que o componha, a própria autocausalidade atua como sua substância.**
 
-Esse postulado demonstra que, a partir do fator autocausal, podemos extrair todas as propriedades essenciais do Espírito. Compreender o Absoluto apenas como *incausado* ainda nos aprisiona a uma lógica de cadeia causal, pois define a realidade primordial pelo que vem "antes" dela (ou pela ausência desse antes), falhando em defini-la por aquilo que ela é *em si mesma*.
+Esse postulado demonstra que, a partir do fator autocausal, podemos extrair todas as propriedades essenciais do Absoluto. Compreender o Absoluto apenas como *incausado* ainda nos aprisiona a uma lógica de cadeia causal, pois define a realidade primordial pelo que vem "antes" dela (ou pela ausência desse antes), falhando em defini-la por aquilo que ela é *em si mesma*.
 
 O Absoluto, portanto, não é apenas passivamente incausado, mas ativamente **autocausado**. Não existe uma natureza externa que o obrigue a ser o que é, e não há "material" que o componha senão o seu próprio ato. Ainda que o Absoluto possua um modo de ser necessário, esse modo é eleito e sustentado por Ele mesmo. A necessidade do estatuto absoluto é autocausada; jamais poderia ser imposta por uma fonte externa.
 
 Isso exige uma mudança de paradigma na argumentação: não devemos definir o Absoluto apenas pela ausência de um causador externo, mas sim pela **presença soberana de um causador interno**.
 
-### 3. O Fecho Ontológico e a Dinâmica do Conceito "Ser"
-
 A dinâmica do "causar-se" constitui um *fecho ontológico* perfeito. Nessa estrutura, a ação não gera um "causado" que lhe seja externo ou separado; ao contrário, o ato de causar fecha-se rigorosamente em si mesmo, de modo que o próprio *causar* torna-se a substância. Desta ação autossuficiente, derivamos todas as características necessárias para definir o Ser.
 
-Os conceitos de "causar-se" e "Ser" são inseparáveis e mutuamente explicativos. O "causar-se" implica, inevitavelmente, em "ser o causar". Se o Absoluto é o autor de si mesmo, a ação de causar funde-se integralmente com o agente. Não existe um agente anterior à ação, nem um produto final que repouse após ela: **o agente é o próprio ato de causar em andamento**. Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o *desejo* ou a *vontade* do agente.
+Os conceitos de "causar-se" e "Ser" são inseparáveis e mutuamente explicativos. O "causar-se" implica, inevitavelmente, em "ser o causar". Se o Absoluto é o autor de si mesmo, a ação de causar funde-se integralmente com o agente. Não existe um agente anterior à ação, nem um produto final que repouse após ela: **o agente é o próprio ato de causar em andamento**.
+
+
+
+revisado
+
+## A Presença do Ser
+
+
+
+
+Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o *desejo* ou a *vontade* do agente.
 
 Para alcançar a definição exata do Ser, devemos ancorar a análise no princípio autocausal. O conceito tradicional de "Ser", inicialmente, não detalha sua própria substância, mas aponta para a indistinção fundamental entre sua causa e seu fundamento. O Ser designa uma realidade que é a sua própria essência. O nome "Ser" representa a fusão da fundamentação com a identidade em um fecho ontológico, onde o fundamento é a própria determinação. O Absoluto não é um ente determinado "A" ou "B"; ele é um *ser ente* — o ato puro de existir.
 
