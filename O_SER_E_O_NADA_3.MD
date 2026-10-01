@@ -7408,7 +7408,7 @@ Não digo que a infinitude do Espírito seja igual a nada, pois o Espírito não
 
 
 
-
+O amor do Ser é tão puro que se instaura na finalidade dos entes, ainda que estes não se direcionem, o ato que os mantém tem a intenção do amor.
 
 Os Sous se relacionam de forma que, o sou sendo uma individualização do auto querer absoluto, considerando que, o auto querer absooluto não é determiando, é redido ao que é, é o querer de pura doação que não vem de uma pessoa, mas é o querer não lateral, que não é representado por uma fonte unica, mas pela propria qualidade do querer operante em si mesma.
 
@@ -7427,7 +7427,6 @@ As almas são o auto querer individualizado, o auto querer é algo relacional, u
 Portanto, há dois seres que se dissolveram no Ser de modo ficiticio, que representam este Ser quando o quesito é criar almas a partir de uma dualidade que sustenta essas almas, e não se separa para que as destruam.
 
 O amor perfeito suporta uma rejeição eterna, o amor de uma dualiadade talvez não. Então, com a dualidade, é possível a aniquilação da alma nova.
-
 
 Adao e eva sao inseparaveis, por isso a dualidade nao se rompe.
 
