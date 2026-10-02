@@ -7670,4 +7670,4 @@ Adao e eva sao inseparaveis, por isso a dualidade nao se rompe.
 
 
 
-
+Só um aspecto qualitativo como o amor pode portar a pureza absoluta.
