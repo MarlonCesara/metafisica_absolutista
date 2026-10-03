@@ -556,11 +556,9 @@ Na física contingente, o que causa o movimento é um impulso anterior. No conte
 
 Inferimos, assim, que a substância do Ser emana diretamente do princípio autocausal. A ação não atua sobre uma "coisa", pois não há nada a ser movido, nem gera um "produto" separado. O desejo é a ação prévia e simultânea à atividade. O causar-se é validado por essa intencionalidade imanente. O Ser é uma inclinação que se concretiza em si mesma — o amor inefável voltado para a própria plenitude de si mesmo.
 
-Porém, o "Si" do querer, isto é, o querer-se não é direcional a um agente, de forma a pesar no Ser como um ente que se quer ou se deseja. Mas o querer do Ser não é o querer direcional a uma realidade especifica ou ente especifico, é o próprio querer sem agente, da mesma forma que o costruir-se não possui o que se constroi, mas o próprio construir, o desejo ou intenção não possui "o que" se intenciona, mas é a própria intenção que se faz seu agente intencionado. 
+Porém, o "Se" do querer — isto é, o querer-se — não é direcional a um agente, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
 
-Em outras palavras, não há o amado, o intencionado, ou aquele que se quer, mas há o amor, o querer, a intenção, de forma que o inefável seja, a construção que se qualifica em sua própria intenção. Em outras palavras, o Ser, é o puro querer, sem o "Se" do querer-se. 
-
-
+Em outras palavras, não há o ente intencionado ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica em sua própria intenção. Em suma, o Ser é o puro querer, sem o "Se" do querer-se.
 
 revisado
 
