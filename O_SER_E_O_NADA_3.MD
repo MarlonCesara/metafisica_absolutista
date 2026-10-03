@@ -458,6 +458,20 @@ Como o Absoluto é indiferenciado, não é restrito por uma substância predeter
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## A indiferenciação do Ser - Proposição 6
 
 Para alcançar a definição exata do Ser, devemos ancorar a análise no princípio autocausal. O conceito tradicional de "Ser", inicialmente, não detalha sua própria substância, mas aponta para a indistinção fundamental entre sua causa e seu fundamento. O Ser designa uma realidade que é a sua própria essência. O nome "Ser" representa a fusão da fundamentação com a identidade em um fecho ontológico, onde o fundamento é a própria determinação. O Absoluto não é um ente determinado "A" ou "B"; ele é um *ser ente* — o ato puro de existir.
@@ -542,7 +556,13 @@ Na física contingente, o que causa o movimento é um impulso anterior. No conte
 
 Inferimos, assim, que a substância do Ser emana diretamente do princípio autocausal. A ação não atua sobre uma "coisa", pois não há nada a ser movido, nem gera um "produto" separado. O desejo é a ação prévia e simultânea à atividade. O causar-se é validado por essa intencionalidade imanente. O Ser é uma inclinação que se concretiza em si mesma — o amor inefável voltado para a própria plenitude de si mesmo.
 
+Porém, o "Si" do querer, isto é, o querer-se não é direcional a um agente, de forma a pesar no Ser como um ente que se quer ou se deseja. Mas o querer do Ser não é o querer direcional a uma realidade especifica ou ente especifico, é o próprio querer sem agente, da mesma forma que o costruir-se não possui o que se constroi, mas o próprio construir, o desejo ou intenção não possui "o que" se intenciona, mas é a própria intenção que se faz seu agente intencionado. 
 
+Em outras palavras, não há o amado, o intencionado, ou aquele que se quer, mas há o amor, o querer, a intenção, de forma que o inefável seja, a construção que se qualifica em sua própria intenção. Em outras palavras, o Ser, é o puro querer, sem o "Se" do querer-se. 
+
+
+
+revisado
 
 
 
