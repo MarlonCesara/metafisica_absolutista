@@ -704,7 +704,7 @@ revisado
 
 
 
-
+parte 2
 
 
 
@@ -903,6 +903,7 @@ O amor é a intenção, o querer, que não necessita de um mediador entre o quer
 
 
 
+parte 2
 
 
 
@@ -923,97 +924,6 @@ O amor é a intenção, o querer, que não necessita de um mediador entre o quer
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-revisado
-
-
-
-###  A Abertura Dialética Proporcionada pela Autocausalidade - Proposição 9
-
-A mudança de perspectiva trazida pelo princípio da autocausalidade abre um horizonte dialético profundo. Tendo superado a inferência indireta, podemos agora investigar a natureza íntima desse fundamento vivo: que tipo de realidade emerge quando o Ser é compreendido como ato puro de autoposição, e não apenas como o início de uma cadeia de efeitos?
-
-Ao reconhecer que o Absoluto é essencialmente um ato de auto causar, e que o impulso da auto causalidade é sua presença de forma que seja o que é pela própria intenção, somos levados a investigar as dimensões de sua liberdade (dada a existencia da intenção e da atuação desta), sua intencionalidade (dada sua necessidade de Ser imposta por si mesmo) e os requisitos para que exerça sua liberdade (como autodomínio, onisciência e onipresença). Também podemos investigar as dimensões desta liberdade, a temporalidade do Ser e sua capacidade criadora.
-
-Para instigar o leitor, podemos estabelecer um breve preâmbulo no qual, partindo das determinações já demonstradas acerca do Absoluto, infiramos as propriedades necessárias de sua liberdade absoluta e, a partir delas, investiguemos de que modo tais propriedades conduzem à inteligibilidade da Pessoa no Absoluto, tal como esta se manifesta na unidade trinitária referida pela tradição religiosa. A inferência pode ser formulada nos seguintes termos:  
-
-Não existindo materialidade prévia, o próprio princípio autocausal assume o papel de substância. Essa substância-ação direciona-se irremediavelmente para o existir pleno, desdobrando-se em três vetores dialéticos principais. Essa dinâmica opera através de:
-
-* **Ação Fundamentadora (Eixo Vertical):** Refere-se ao direcionamento puro e absoluto para o simples fato de existir como Ser, sustentando a raiz de toda a realidade.
-* **Ação Plenificadora (Eixo Diagonal):** Representa o direcionamento constante para a plenitude do Ser, fundamentando a decisão dualística primordial entre o Ser e o não-Ser. Essa ação garante que o Absoluto concorra invariavelmente para a afirmação do Ser, uma vez que é ontologicamente impossível agir ou originar qualquer coisa a partir do não-Ser.
-* **Ação Personalizadora / Liberdade (Eixo Horizontal):** Perpassando a necessidade existencial, esta ação abre-se para a vastidão de opções contingentes, constituindo o campo onde se manifesta a liberdade absoluta de escolha. O Absoluto converge para a sua existência soberana, negando pela sua auto posição todas as alternativas incompatíveis com a não soberania.
-
-Temos, dessa forma, a **ação plenificadora como uma intersecção vital**: a plenitude opera simultaneamente tanto na ação fundamentadora quanto na ação personalizadora, unindo-as em uma única operação de atualização e perfeição do Ser.
-
-Esta inferência desdobra, em termos ontológicos, o mistério da Trindade, distinguindo as diferentes ações da liberdade no âmbito do Absoluto a partir de seu simples ato de Ser:
-
-* **A liberdade de fundar-se como se é** (ação fundamentadora).
-* **A liberdade de consentir com o que se é** (ação plenificadora), garantindo que a ação de ser seja uma afirmação plena, indivisível e não diminuída.
-* **A liberdade para autojustificar sua posição soberana** em um nível de escolha (ação personalizadora). A liberdade de existir sem criar, um modo de existencia fundamental que se dá sem que necessite negar a não soberania. Em outras palavras sem precisar negar o criar.
-
-Neste último vetor, assumir a autoposição soberana é, em si, a negação ativa de uma "não soberania". A não soberania significaria existir de forma atrelada ou compulsória a qualquer determinação temporal — como, por exemplo, a obrigação de originar a criação do mundo. Ao assumir a autoposição de sua pureza como única realidade estritamente necessária, o Absoluto nega a necessidade da criação. Isso estabelece o Ser como autor de sua própria soberania, exercendo sua liberdade volitiva ao escolher fundamentar-se sem depender do contingente, possuindo o total domínio para ser ou não ser a causa do que é exterior a Si.
-
-Podemos avançar para a distinção fundamental da ação destes três níveis de liberdade, que nos indicam três pessoas distintas. E podemos indicar também a qualidade da temporalidade do auto causal.
-
-Ao considerarmos que a ação fundamentadora é necessariamente direcionada a fundamentação sem traços de personalização, temos uma pessoa que age por si só, de forma inviolável. Portanto, uma pessoa de intuito distinto. Ao passo que o personalizador, executou a ação da fundamentação mas somente tem sua ação instaurada na temporalidade perpendicular a ação fundamentadora. Já a pessoa da plenitude tem sua ação para a personalização e para a fundamentação de forma a representar uma pessoa intermediadora.
-
-
-Ao considerarmos o fazer-se Ser, uma circularidade viva em um fecho ontológico, pois o que é feito Ser por si mesmo, pressupoe uma ação interna, tal como pressupoe um eterno presente, de forma que o causar-se é uma ação, ao passo que é uma ação acabada. De forma que, temos uma linha temporal infinita no angulo horizontal em que o causar-se opera de forma a fazer-ze, de forma atualizar-se. E essa atualizaçao do Ser que vai de encontro consigo mesmo tem seu momento presente finalizado onde é o que é, e não seu vir a ser. Portanto, temos uma linha infinita horizontal de uma circularidade viva onde o Ser se torna o que é constantemente ao passo que uma linha perpendicular também viva onde o ser é no presente. 
-
-Isto é, ao passo que o ser se torna ser, ele é ser.
-
-A autocausalidade do Espírito é um ato único, eterno e não temporal, no qual causa e efeito coincidem plenamente, sem regressão causal.
-O Espírito já é plenamente si mesmo em ato puro, não havendo um “antes” em que precisasse tornar-se aquilo que é.
-Quando essa autocausalidade é pensada temporalmente, ela se reverbera como um processo infinito de automanifestação, no qual o Espírito continuamente se sustenta e se manifesta.
-Assim, surge uma circularidade ontológica, em que o que causa, o que busca e o que é alcançado permanecem essencialmente o mesmo: o que busca já é o buscado.
-A temporalidade é, portanto, a expressão dinâmica da eterna atualidade do Espírito, que se manifesta como devir sem perder sua identidade absoluta.
-
-Podemos pensar também sobre a intencionalidade do Ser, a necessidade existencial do Ser não opera como um mecanismo cego ou uma obrigação compulsória. Sendo essencialmente intencional, a existência do Absoluto é o fruto direto de sua perfeição, de seu autodomínio e de sua liberdade radical, e nunca o resultado de uma imposição.
-
-No que tange à Criação, o princípio da autocausalidade esclarece que o Absoluto não cria a partir de um material preexistente. Sua liberdade criativa decorre da mais completa ausência de limitações ontológicas exteriores. É crucial compreender que não existe um "campo de ação" independente, um receptáculo vazio chamado *nada*, no qual o Absoluto precise adentrar ou interagir para moldar a realidade.
-
-A mesma dinâmica autocausal que estabelece a soberania exclusiva do Espírito também lhe confere a onipotência para não permanecer confinado em uma autoposição solitária. O Espírito, em sua liberdade horizontal, possui a capacidade volitiva de abdicar da exclusividade do existir absoluto, doando livremente o estatuto da existência e permitindo a emanação da criação contingente.
-
-O ato de causar-se exige, por necessidade lógica incontornável: a **autopresença** (o estar plenamente ciente de si), o **autoconhecimento** (a apreensão absoluta do próprio ato) e o **autodomínio** (a capacidade de efetivar a ação de forma irrestrita).
-
-Estas considerações prévias constituem apenas uma breve exposição das propriedades que podem ser inferidas a partir do princípio autocausal.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-revisadooo
 
 # A NATUREZA PESSOAL DO AUTOCAUSAL
 
@@ -1343,6 +1253,41 @@ O Ser transcende o que é, no sentido de que é um Ser na forma mais pura, que �
 | **Essência** | Vinculada à determinação. | Pura, preservada mesmo na total indiferenciação. |
 
 ---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+parte 3
+
+
 
 ## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
 
@@ -1948,6 +1893,137 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 AQUIIIII
 
 ## A necessidade de trilhar primeiramente a via apofática - Proposição 10
@@ -2068,6 +2144,161 @@ No entanto, essa experiência do nada é crucial. Ao contemplarmos o nada, somos
 É diante do nada que a pergunta fundamental emerge com toda a sua força: *por que existe algo em vez de nada?* Esta pergunta, que Leibniz considerava a primeira da filosofia, só pode ser devidamente formulada após termos contemplado a possibilidade real do nada. Se não passamos por essa investigação, corremos o risco de tomar o ser como um dado óbvio, como algo que "está aí" sem maiores questionamentos. A grandeza da pergunta exige a grandeza do abismo que a antecede.
 
 O nada, portanto, é a primeira janela a ser limpa. Não porque ele contenha alguma verdade positiva, mas porque sua contemplação nos livra da ilusão de que o ser finito é autossuficiente. Ao encararmos o nada, nossa mente se desapega das determinações particulares e se abre para a possibilidade de algo que seja para além de toda determinação — algo que não possa não existir, algo cuja essência é o próprio existir.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+revisado
+
+
+
+###  A Abertura Dialética Proporcionada pela Autocausalidade - Proposição 9
+
+A mudança de perspectiva trazida pelo princípio da autocausalidade abre um horizonte dialético profundo. Tendo superado a inferência indireta, podemos agora investigar a natureza íntima desse fundamento vivo: que tipo de realidade emerge quando o Ser é compreendido como ato puro de autoposição, e não apenas como o início de uma cadeia de efeitos?
+
+Ao reconhecer que o Absoluto é essencialmente um ato de auto causar, e que o impulso da auto causalidade é sua presença de forma que seja o que é pela própria intenção, somos levados a investigar as dimensões de sua liberdade (dada a existencia da intenção e da atuação desta), sua intencionalidade (dada sua necessidade de Ser imposta por si mesmo) e os requisitos para que exerça sua liberdade (como autodomínio, onisciência e onipresença). Também podemos investigar as dimensões desta liberdade, a temporalidade do Ser e sua capacidade criadora.
+
+Para instigar o leitor, podemos estabelecer um breve preâmbulo no qual, partindo das determinações já demonstradas acerca do Absoluto, infiramos as propriedades necessárias de sua liberdade absoluta e, a partir delas, investiguemos de que modo tais propriedades conduzem à inteligibilidade da Pessoa no Absoluto, tal como esta se manifesta na unidade trinitária referida pela tradição religiosa. A inferência pode ser formulada nos seguintes termos:  
+
+Não existindo materialidade prévia, o próprio princípio autocausal assume o papel de substância. Essa substância-ação direciona-se irremediavelmente para o existir pleno, desdobrando-se em três vetores dialéticos principais. Essa dinâmica opera através de:
+
+* **Ação Fundamentadora (Eixo Vertical):** Refere-se ao direcionamento puro e absoluto para o simples fato de existir como Ser, sustentando a raiz de toda a realidade.
+* **Ação Plenificadora (Eixo Diagonal):** Representa o direcionamento constante para a plenitude do Ser, fundamentando a decisão dualística primordial entre o Ser e o não-Ser. Essa ação garante que o Absoluto concorra invariavelmente para a afirmação do Ser, uma vez que é ontologicamente impossível agir ou originar qualquer coisa a partir do não-Ser.
+* **Ação Personalizadora / Liberdade (Eixo Horizontal):** Perpassando a necessidade existencial, esta ação abre-se para a vastidão de opções contingentes, constituindo o campo onde se manifesta a liberdade absoluta de escolha. O Absoluto converge para a sua existência soberana, negando pela sua auto posição todas as alternativas incompatíveis com a não soberania.
+
+Temos, dessa forma, a **ação plenificadora como uma intersecção vital**: a plenitude opera simultaneamente tanto na ação fundamentadora quanto na ação personalizadora, unindo-as em uma única operação de atualização e perfeição do Ser.
+
+Esta inferência desdobra, em termos ontológicos, o mistério da Trindade, distinguindo as diferentes ações da liberdade no âmbito do Absoluto a partir de seu simples ato de Ser:
+
+* **A liberdade de fundar-se como se é** (ação fundamentadora).
+* **A liberdade de consentir com o que se é** (ação plenificadora), garantindo que a ação de ser seja uma afirmação plena, indivisível e não diminuída.
+* **A liberdade para autojustificar sua posição soberana** em um nível de escolha (ação personalizadora). A liberdade de existir sem criar, um modo de existencia fundamental que se dá sem que necessite negar a não soberania. Em outras palavras sem precisar negar o criar.
+
+Neste último vetor, assumir a autoposição soberana é, em si, a negação ativa de uma "não soberania". A não soberania significaria existir de forma atrelada ou compulsória a qualquer determinação temporal — como, por exemplo, a obrigação de originar a criação do mundo. Ao assumir a autoposição de sua pureza como única realidade estritamente necessária, o Absoluto nega a necessidade da criação. Isso estabelece o Ser como autor de sua própria soberania, exercendo sua liberdade volitiva ao escolher fundamentar-se sem depender do contingente, possuindo o total domínio para ser ou não ser a causa do que é exterior a Si.
+
+Podemos avançar para a distinção fundamental da ação destes três níveis de liberdade, que nos indicam três pessoas distintas. E podemos indicar também a qualidade da temporalidade do auto causal.
+
+Ao considerarmos que a ação fundamentadora é necessariamente direcionada a fundamentação sem traços de personalização, temos uma pessoa que age por si só, de forma inviolável. Portanto, uma pessoa de intuito distinto. Ao passo que o personalizador, executou a ação da fundamentação mas somente tem sua ação instaurada na temporalidade perpendicular a ação fundamentadora. Já a pessoa da plenitude tem sua ação para a personalização e para a fundamentação de forma a representar uma pessoa intermediadora.
+
+
+Ao considerarmos o fazer-se Ser, uma circularidade viva em um fecho ontológico, pois o que é feito Ser por si mesmo, pressupoe uma ação interna, tal como pressupoe um eterno presente, de forma que o causar-se é uma ação, ao passo que é uma ação acabada. De forma que, temos uma linha temporal infinita no angulo horizontal em que o causar-se opera de forma a fazer-ze, de forma atualizar-se. E essa atualizaçao do Ser que vai de encontro consigo mesmo tem seu momento presente finalizado onde é o que é, e não seu vir a ser. Portanto, temos uma linha infinita horizontal de uma circularidade viva onde o Ser se torna o que é constantemente ao passo que uma linha perpendicular também viva onde o ser é no presente. 
+
+Isto é, ao passo que o ser se torna ser, ele é ser.
+
+A autocausalidade do Espírito é um ato único, eterno e não temporal, no qual causa e efeito coincidem plenamente, sem regressão causal.
+O Espírito já é plenamente si mesmo em ato puro, não havendo um “antes” em que precisasse tornar-se aquilo que é.
+Quando essa autocausalidade é pensada temporalmente, ela se reverbera como um processo infinito de automanifestação, no qual o Espírito continuamente se sustenta e se manifesta.
+Assim, surge uma circularidade ontológica, em que o que causa, o que busca e o que é alcançado permanecem essencialmente o mesmo: o que busca já é o buscado.
+A temporalidade é, portanto, a expressão dinâmica da eterna atualidade do Espírito, que se manifesta como devir sem perder sua identidade absoluta.
+
+Podemos pensar também sobre a intencionalidade do Ser, a necessidade existencial do Ser não opera como um mecanismo cego ou uma obrigação compulsória. Sendo essencialmente intencional, a existência do Absoluto é o fruto direto de sua perfeição, de seu autodomínio e de sua liberdade radical, e nunca o resultado de uma imposição.
+
+No que tange à Criação, o princípio da autocausalidade esclarece que o Absoluto não cria a partir de um material preexistente. Sua liberdade criativa decorre da mais completa ausência de limitações ontológicas exteriores. É crucial compreender que não existe um "campo de ação" independente, um receptáculo vazio chamado *nada*, no qual o Absoluto precise adentrar ou interagir para moldar a realidade.
+
+A mesma dinâmica autocausal que estabelece a soberania exclusiva do Espírito também lhe confere a onipotência para não permanecer confinado em uma autoposição solitária. O Espírito, em sua liberdade horizontal, possui a capacidade volitiva de abdicar da exclusividade do existir absoluto, doando livremente o estatuto da existência e permitindo a emanação da criação contingente.
+
+O ato de causar-se exige, por necessidade lógica incontornável: a **autopresença** (o estar plenamente ciente de si), o **autoconhecimento** (a apreensão absoluta do próprio ato) e o **autodomínio** (a capacidade de efetivar a ação de forma irrestrita).
+
+Estas considerações prévias constituem apenas uma breve exposição das propriedades que podem ser inferidas a partir do princípio autocausal.
+
+
 
 
 
