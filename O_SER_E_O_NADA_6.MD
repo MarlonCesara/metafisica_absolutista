@@ -522,7 +522,7 @@ Isto quer dizer que o auto causar designa o mesmo sentido que o Ser. Ambos neces
 
 
 
-### A Qualidade da Ação do Ser como Presença Operante (Proposição 6)
+### A Qualidade da Ação do Ser como Presença Operante 
 
 **1. A Ação Pura, sem Movimento e sem Matéria**
 Uma vez que não há espaço externo ou matéria prévia para sofrer o impacto de uma ação física, essa autocausalidade não pode ser compreendida sob a categoria de "movimento". O movimento pressupõe determinação temporal e dimensional — a transição de uma potência para um ato em um meio preexistente. No Absoluto, não há o que ser movido. A ação primordial não se concretiza como um acidente (uma alteração) num substrato anterior.
@@ -547,9 +547,35 @@ Porém, o "se" do querer — isto é, o querer-se — não é direcional a um ag
 
 Em outras palavras, não há o ente intencionado ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica em sua própria intenção. Em suma, o Ser é o puro querer, sem o "se" do querer-se.
 
----
 
-## CAPÍTULO VII
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+revisar
+
 
 ### A Autocausalidade do Absoluto e a Falsa Dupla Exigência
 
@@ -564,7 +590,7 @@ Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundame
 
 E essa autocausalidade não justifica sua determinação e sua fundamentação de maneira dissociada. Isto é, não há uma pergunta destinada a responder por que o Absoluto é absoluto e outra destinada a responder por que o Absoluto existe. Há, portanto, uma única questão: indagar o Absoluto enquanto autor de sua própria indiferenciação e de sua própria pureza. Ao inferir que o Absoluto é causa de si mesmo, concluímos que não há uma segunda natureza exterior ou anterior segundo a qual ele deva ser, nem uma razão exterior ou anterior pela qual ele deva ser como é. Isto nos leva a concluir que ele mesmo é a razão para sua estadia.
 
-Se o Absoluto é nada, é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é substância, é necessário que isso se justifique em si da mesma forma. Até mesmo num estado de indeterminação total, onde não há forma, esta indeterminação necessitaria de uma causa para ser como tal e não uma determinação específica. Porém, se a Causa Identitária é o que determina o que algo é, como o Absoluto — que é o próprio indiferenciado — pode ter uma "Causa Identitária"? A resposta exige uma purificação do conceito de causa quando elevado ao Absoluto: a causa colapsa na Necessidade, e a essência colapsa na Indiferenciação.
+Se o Absoluto é uma realidade "A", é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é uma realidade "B", é necessário que isso se justifique em si da mesma forma. Até mesmo num estado de indeterminação total, onde não há forma, esta indeterminação necessitaria de uma causa para ser como tal e não uma determinação específica. Porém, se a Causa Identitária é o que determina o que algo é, como o Absoluto — que é o próprio indiferenciado — pode ter uma "Causa Identitária"? A resposta exige uma purificação do conceito de causa quando elevado ao Absoluto: a causa colapsa na Necessidade, e a essência colapsa na Indiferenciação.
 
 **2. A Transmutação da Causa Identitária no Absoluto: Necessidade e Indeterminação**
 *O Conflito Lógico:*
@@ -656,10 +682,6 @@ O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais co
 A causalidade no Absoluto manifesta-se como autodeterminação radical: O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também determina sua própria estrutura, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua liberdade.
 
 **Conclusão:** A aplicação dos princípios causais ao próprio Absoluto revela que sua autocausalidade exige autoconhecimento, autodomínio e autopresença em grau máximo — atributos que constituem personalidade plena. Portanto, o Absoluto deve ser compreendido como Espírito Pessoal, não como princípio impessoal. A análise demonstra que a autocausalidade pura exige personalidade, e que o Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto). A síntese da fundamentação demonstra, necessariamente, que se aceitamos os princípios lógicos e causais, somos logicamente compelidos a conceber este Absoluto como Espírito Pessoal.
-
----
-
-## CAPÍTULO VIII
 
 ### O Conceito de Ser pela Ótica Relacional e O Paradoxo da Essência Indiferenciada
 
@@ -884,11 +906,44 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 > *"O Espírito é o agir do invisível, a pureza que é. O Espírito do Ser é a identidade do querer, e não o querer de uma identidade. O Espírito do absoluto é o querer sem identidade, que se faz idêntico a si mesmo, idêntico ao amor."*
 
 
-Perfeito. Seguirei exatamente com o mesmo rigor absoluto: preservando palavra por palavra, conceito por conceito, sem omitir ou resumir absolutamente nada, apenas elevando a gramática, a fluidez e aplicando a estrutura de livro.
 
-Aqui está a **Parte 2**. Leia com atenção e, assim que estiver de acordo, me dê o **"ok"** para eu enviar a última parte (Parte 3).
 
----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # CAPÍTULO II: O ESPÍRITO COMO AUTOPRESENÇA
 
