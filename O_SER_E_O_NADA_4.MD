@@ -629,7 +629,7 @@ revisado
 
 
 
-
+revisado
 
 
 
@@ -637,15 +637,15 @@ revisado
 
 A mudança de perspectiva trazida pelo princípio da autocausalidade abre um horizonte dialético profundo. Tendo superado a inferência indireta, podemos agora investigar a natureza íntima desse fundamento vivo: que tipo de realidade emerge quando o Ser é compreendido como ato puro de autoposição, e não apenas como o início de uma cadeia de efeitos?
 
-Ao reconhecer que o Absoluto é essencialmente um ato de auto causar, e que o impulso da auto causalidade é sua presença de forma que seja o que é pela própria intenção, somos levados a investigar as dimensões de sua liberdade (dada a existencia da intenção e da atuação desta), sua intencionalidade (dada sua necessidade de Ser imposta por si mesmo) e os requisitos para que exerça sua liberdade como tal (como autodomínio, onisciência e onipresença). 
+Ao reconhecer que o Absoluto é essencialmente um ato de auto causar, e que o impulso da auto causalidade é sua presença de forma que seja o que é pela própria intenção, somos levados a investigar as dimensões de sua liberdade (dada a existencia da intenção e da atuação desta), sua intencionalidade (dada sua necessidade de Ser imposta por si mesmo) e os requisitos para que exerça sua liberdade (como autodomínio, onisciência e onipresença). Também podemos investigar as dimensões desta liberdade, a temporalidade do Ser e sua capacidade criadora.
 
-Podemos estabelecer um breve preâmbulo no qual, partindo das determinações já demonstradas acerca do Absoluto, infiramos as propriedades necessárias de sua liberdade absoluta e, a partir delas, investiguemos de que modo tais propriedades conduzem à inteligibilidade da Pessoa no Absoluto, tal como esta se manifesta na unidade trinitária referida pela tradição religiosa. A inferência pode ser formulada nos seguintes termos:  
+Para instigar o leitor, podemos estabelecer um breve preâmbulo no qual, partindo das determinações já demonstradas acerca do Absoluto, infiramos as propriedades necessárias de sua liberdade absoluta e, a partir delas, investiguemos de que modo tais propriedades conduzem à inteligibilidade da Pessoa no Absoluto, tal como esta se manifesta na unidade trinitária referida pela tradição religiosa. A inferência pode ser formulada nos seguintes termos:  
 
-Não existindo materialidade prévia, o próprio princípio autocausal assume o papel de substância. Essa substância-ação direciona-se irremediavelmente para o existir pleno, desdobrando-se em três vetores dialéticos principais. O Absoluto converge para a sua existência, negando pela sua autoposição todas as alternativas incompatíveis. Essa dinâmica opera através de:
+Não existindo materialidade prévia, o próprio princípio autocausal assume o papel de substância. Essa substância-ação direciona-se irremediavelmente para o existir pleno, desdobrando-se em três vetores dialéticos principais. Essa dinâmica opera através de:
 
 * **Ação Fundamentadora (Eixo Vertical):** Refere-se ao direcionamento puro e absoluto para o simples fato de existir como Ser, sustentando a raiz de toda a realidade.
 * **Ação Plenificadora (Eixo Diagonal):** Representa o direcionamento constante para a plenitude do Ser, fundamentando a decisão dualística primordial entre o Ser e o não-Ser. Essa ação garante que o Absoluto concorra invariavelmente para a afirmação do Ser, uma vez que é ontologicamente impossível agir ou originar qualquer coisa a partir do não-Ser.
-* **Ação Personalizadora / Liberdade (Eixo Horizontal):** Perpassando a necessidade existencial, esta ação abre-se para a vastidão de opções contingentes, constituindo o campo onde se manifesta a liberdade absoluta de escolha. 
+* **Ação Personalizadora / Liberdade (Eixo Horizontal):** Perpassando a necessidade existencial, esta ação abre-se para a vastidão de opções contingentes, constituindo o campo onde se manifesta a liberdade absoluta de escolha. O Absoluto converge para a sua existência soberana, negando pela sua auto posição todas as alternativas incompatíveis com a não soberania.
 
 Temos, dessa forma, a **ação plenificadora como uma intersecção vital**: a plenitude opera simultaneamente tanto na ação fundamentadora quanto na ação personalizadora, unindo-as em uma única operação de atualização e perfeição do Ser.
 
@@ -653,7 +653,7 @@ Esta inferência desdobra, em termos ontológicos, o mistério da Trindade, dist
 
 * **A liberdade de fundar-se como se é** (ação fundamentadora).
 * **A liberdade de consentir com o que se é** (ação plenificadora), garantindo que a ação de ser seja uma afirmação plena, indivisível e não diminuída.
-* **A liberdade para autojustificar sua posição soberana** em um nível de escolha (ação personalizadora).
+* **A liberdade para autojustificar sua posição soberana** em um nível de escolha (ação personalizadora). A liberdade de existir sem criar, um modo de existencia fundamental que se dá sem que necessite negar a não soberania. Em outras palavras sem precisar negar o criar.
 
 Neste último vetor, assumir a autoposição soberana é, em si, a negação ativa de uma "não soberania". A não soberania significaria existir de forma atrelada ou compulsória a qualquer determinação temporal — como, por exemplo, a obrigação de originar a criação do mundo. Ao assumir a autoposição de sua pureza como única realidade estritamente necessária, o Absoluto nega a necessidade da criação. Isso estabelece o Ser como autor de sua própria soberania, exercendo sua liberdade volitiva ao escolher fundamentar-se sem depender do contingente, possuindo o total domínio para ser ou não ser a causa do que é exterior a Si.
 
