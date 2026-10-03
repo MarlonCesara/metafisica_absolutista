@@ -704,6 +704,27 @@ Estas considerações prévias constituem apenas uma breve exposição das propr
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## A necessidade de trilhar primeiramente a via apofática - Proposição 10
 
 
