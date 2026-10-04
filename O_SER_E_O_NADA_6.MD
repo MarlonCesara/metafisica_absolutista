@@ -1166,25 +1166,20 @@ Para que o conceito se aplique ao Absoluto, precisamos redefinir radicalmente as
 * **No sentido comum:** conhecer é compreendido como um ato pelo qual um sujeito apreende um objeto que é distinto de si mesmo.
 * **No Absoluto:** não existe a dualidade entre sujeito e objeto, tampouco há um ato sucessivo de conhecer. A "autotransparência" significa que não há nele absolutamente nada oculto, nada inconsciente, e nada que não seja imediatamente presente a si. Trata-se de uma "luminosidade" sem fonte externa e sem alvo — a própria ausência de opacidade. Isso não é o conhecimento entendido como um ato, mas sim o conhecimento como **identidade**: o Absoluto não *se conhece* (como quem investiga a si próprio); ele *é* a sua própria inteligibilidade. De modo que o conhecimento não é o causado, isto é, aquilo que foi instaurado, mas o próprio instaurar. Não há, no Absoluto, uma realidade conhecida que lhe seja extrínseca, pois o Absoluto não conhece algo distinto de si: há, simplesmente, o conhecer. O conhecimento pertence ao próprio ato indiferenciado e integra uma identidade absolutamente indiscernível de seu fundamento. O conhecer, portanto, não se dirige a um objeto que lhe seja exterior; ele é o próprio conhecido. Assim, no Absoluto, não há distinção entre o conhecer e aquilo que é conhecido, pois ambos coincidem no mesmo ato. Isto é, o objeto do conhecimento encerra-se no próprio ato de conhecer. Temos, portanto, o conhecer como um ato que não depende de qualquer realidade ou conhecimento externo para se completar, pois encontra em seu próprio autoconhecimento a sua plena consumação.
 
-revisado
-
 **Autodomínio (Não Divisão Interna):**
 
 * **No sentido comum:** o autodomínio é o controle que nós exercemos sobre as nossas paixões, os nossos impulsos ou sobre as partes conflitantes de nós mesmos.
 * **No Absoluto:** não há partes, não há conflito, não há absolutamente nada a ser controlado. O "autodomínio" aqui significa a ausência de qualquer divisão interna que pudesse, de alguma forma, gerar tensão ou contradição. O Absoluto não domina a si mesmo porque não há em si nada que precise ser dominado. Ele é simplesmente uno, e essa unidade não é algo que foi conquistado, mas é a própria natureza inabalável do seu ser. Isto indica que o Absoluto não é o dominado, mas o próprio dominar que se encerra em seu ato. Assim como o Ser se encerra em seu próprio ato para constituir-se como seu próprio fundamento, o dominar do Ser constitui-se no próprio ato de seu autocontrole.
 
-revisado
 **Autopresença (Identidade Absoluta):**
 
 * **No sentido comum:** a autopresença é a experiência que nós temos de nós mesmos atuando como sujeitos conscientes.
-* **No Absoluto:** não há "experiência" nem existe a figura de um "sujeito" apartado. A autopresença, neste contexto, significa que o Absoluto não é algo que *existe* separadamente do seu *existir*; ele é a coincidência total e imediata entre o ser e o ser-para-si. Diferente do sujeito humano, que sempre carrega uma distância entre si mesmo e a experiência que tem de si, no Absoluto essa distância ontológica é rigorosamente nula.
+* **No Absoluto:** não há "experiência" nem existe a figura de um "sujeito" apartado. A autopresença, neste contexto, significa que o Absoluto não é algo que *existe* separadamente do seu *existir*; ele é a coincidência total e imediata entre o ser e o ser-para-si. Diferente do sujeito humano, que sempre carrega uma distância entre si mesmo e a experiência que tem de si, no Absoluto essa distância ontológica é rigorosamente nula. Isto é, a consciência do Absoluto não é consciência de si no sentido de estar sob a perspectiva de um ente; não há, portanto, um ente que se reconhece como ente, tomando a si mesmo como unidade diante de si. Há, antes, a consciência que se encerra em si mesma, fazendo-se consciência da própria consciência, e não consciência de um consciente. Temos, portanto, a presença na presença, e não a presença do presente.
 
 ## 4. O Espírito como Autopresença Absoluta
 
 **A definição final:** Com base nessas reinterpretações rigorosas, nós chegamos a uma definição de "espírito" que se aplica perfeitamente ao Absoluto:
-**Espírito é a autopresença absoluta que não admite divisão, opacidade ou exterioridade.**
-
-Os dons de suas caracteristicas pessoas coagem com sua própria indiferenciação. O absoluto é Espírito, de forma que, este Espírito acompanha, em seus dons e caractersiticas, a sua indiferenciação.
+**Espírito é a autopresença absoluta que não admite divisão, opacidade ou exterioridade.** Os dons de suas características pessoais convergem com sua própria indiferenciação. O Absoluto é Espírito, de forma que este Espírito acompanha, em seus dons e características, a sua própria indiferenciação.
 
 Isso significa que existe:
 
@@ -1194,37 +1189,32 @@ Isso significa que existe:
 * **Sem opacidade:** não há nele nada que não seja imediatamente claro, nada que precise ser revelado ou descoberto posteriormente.
 * **Sem exterioridade:** não há um "fora" dele; ele não está presente *para* algo exterior, ele é a presença pura em si mesma.
 
-## 5. Por que "Espírito" Ainda é um Termo Adequado
-
-Mesmo diante de uma redefinição tão radical, nós justificamos o uso do termo "espírito" pelo fato de ele carregar conotações fundamentais que outras palavras não abarcam:
+Justifica-se o uso do termo "espírito" pelo fato de ele carregar conotações fundamentais que outras palavras não abarcam:
 
 * **Vida:** o Absoluto não é uma abstração morta, uma fórmula lógica fria ou uma estrutura inerte. Ele é "vivo" — não no sentido biológico, mas por ser ativamente presente e pleno.
 * **Inteligibilidade:** o Absoluto não é irracional ou caótico. Ele é, na verdade, a própria condição de possibilidade da inteligibilidade.
 * **Não mecanicidade:** o termo afasta em definitivo a redução do Absoluto a um mecanismo cego ou a uma lei puramente automática.
 * **Tradição:** o conceito conecta-se à tradição filosófica (presente em pensadores como Plotino, Eckhart e Hegel) que buscou incessantemente pensar o fundamento como algo que está além da matéria e da forma, estabelecendo-se como uma realidade inteligível e integralmente presente a si.
 
-## 6. Espírito e Pessoalidade
+## 5. Como a concepção de Espírito implica a pessoalidade do Absoluto?
 
-**As distinções necessárias:** Surge então a pergunta: essa concepção implica pessoalidade?
+Isso não significa compreender a pessoa do Absoluto como um sujeito consciente dotado de vontade, deliberação e escolha, pois atribuir ao Absoluto tais determinações nos moldes da subjetividade finita introduziria nele limitações que lhe são incompatíveis.
 
-* **No sentido forte** (compreendendo a pessoa como um sujeito consciente dotado de vontade, deliberação e escolha): não. Atribuir isso ao Absoluto introduziria determinações finitas inaceitáveis.
-* **No sentido fraco** (compreendendo a pessoa como um centro inabalável de identidade, de presença e de autorrelação): talvez. Se nós entendermos a "pessoalidade" puramente como a autopresença absoluta e a não divisão, o termo pode perfeitamente ser usado.
+A pessoalidade do Absoluto deve ser compreendida em um sentido mais originário: como **autopresença absoluta, autoconhecimento, autodeterminação, autodomínio e autorrelação**, sem que isso implique uma divisão entre sujeito e objeto, entre aquele que conhece e aquilo que é conhecido, ou entre aquele que age e o próprio ato.
 
-A formulação mais segura e rigorosa é a seguinte: **o Absoluto é mais do que uma pessoa (pois transcende todas as determinações da pessoalidade finita), mas não é menos do que uma pessoa (pois possui uma interioridade e uma presença que a mera impessoalidade não consegue capturar).**
+Assim, se compreendermos a pessoalidade não como uma estrutura psicológica ou como a existência de um indivíduo separado, mas como a **interioridade absolutamente não dividida do Ser consigo mesmo**, então o termo *Espírito* pode ser empregado de maneira rigorosa. O Espírito não designa, nesse caso, um sujeito que se coloca diante de si mesmo, mas o próprio Absoluto enquanto **autopresença e auto relação sem exterioridade**.
 
-## 7. Espírito e Escolha (Um Aprofundamento)
+É nesse sentido que a concepção de Espírito implica pessoalidade: não porque o Absoluto seja uma pessoa entre outras, nem porque possua uma consciência semelhante à humana, mas porque sua realidade não é uma exterioridade cega e impessoal. Há nele uma **interioridade absoluta**, na qual conhecer, estar presente a si, determinar-se e ser coincidem sem oposição.
 
-A questão da escolha reaparece aqui de forma crucial e inadiável. Se o Absoluto é espírito, ele escolheu criar o mundo ou decidiu ser aquilo o que ele é? A nossa posição filosófica é firme: **o Absoluto não escolhe, simplesmente porque não há escolha a ser feita**. Isso demonstra que ele repousa muito além da estrutura de escolha que rege o mundo determinado. O Absoluto não é uma vontade carente que decide; ele é a própria necessidade ontológica que torna possível a existência da vontade e da escolha no domínio daquilo que é indiferenciado.
+A formulação mais segura, portanto, seria: **o Absoluto é mais do que uma pessoa, porque transcende todas as determinações próprias da pessoalidade finita; mas não é menos do que pessoa, porque nele há uma interioridade, uma autopresença e uma autorrelação que a mera impessoalidade não é capaz de exprimir.**
 
-## 8. Síntese da Décima Proposição
-
-**O Absoluto é espírito no sentido de uma autopresença absoluta, desprovido de qualquer psicologia ou escolha.**
-A designação do termo "espírito" indica de forma clara que o Absoluto não é tido como mecânico ou cego. Contudo, ele exige ser purificado de todas as determinações psicológicas mundanas. O Absoluto não efetua escolhas porque não existem alternativas reais à sua perfeição; a sua espiritualidade é idêntica à sua necessidade absoluta. Ele é mais do que uma pessoa e, ao mesmo tempo, não é menos. Esta proposição preserva de maneira intacta a intuição de um fundamento ontológico vivo e inteligível sem introduzir quaisquer contradições.
-
-## 9. Por que Esta Proposição é Fundamental
+**O Absoluto é espírito no sentido de uma autopresença absoluta, desprovido de qualquer psicologia ou escolha.**A designação do termo "espírito" indica de forma clara que o Absoluto não é tido como mecânico ou cego. Contudo, ele exige ser purificado de todas as determinações psicológicas mundanas. O Absoluto não efetua escolhas porque não existem alternativas reais à sua perfeição; a sua espiritualidade é idêntica à sua necessidade absoluta. Ele é mais do que uma pessoa e, ao mesmo tempo, não é menos. Esta proposição preserva de maneira intacta a intuição de um fundamento ontológico vivo e inteligível sem introduzir quaisquer contradições.
 
 A noção de "espírito" compreendida como autopresença absoluta responde diretamente à objeção de que o Absoluto seria uma mera abstração vazia. O Absoluto não é uma abstração formal, mas sim uma realidade plenamente presente a si mesma. Ele não é um mecanismo cego, mas possui toda a densidade e o peso do que é vivo. Sem a compreensão desta proposição, o sistema fatalmente reduziria o fundamento a um princípio lógico vazio. Com ela, nós temos a consolidação de um fundamento que é, simultaneamente, indiferenciado e pleno, inabalavelmente estável e essencialmente vivo.
 
+## 6. Espírito e Escolha (Um Aprofundamento)
+
+A questão da escolha reaparece aqui de forma crucial e inadiável. Se o Absoluto é espírito, ele escolheu criar o mundo ou decidiu ser aquilo o que ele é? A nossa posição filosófica é firme: **o Absoluto não escolhe, simplesmente porque não há escolha a ser feita**. Isso demonstra que ele repousa muito além da estrutura de escolha que rege o mundo determinado. O Absoluto não é uma vontade carente que decide; ele é a própria necessidade ontológica que torna possível a existência da vontade e da escolha no domínio daquilo que é indiferenciado.
 
 
 
@@ -1249,6 +1239,15 @@ A noção de "espírito" compreendida como autopresença absoluta responde diret
 
 
 
+
+
+
+
+
+
+
+
+revisado
 
 # O ESPÍRITO INDIFERENCIADO E A TRANSCENDÊNCIA DO SER
 
