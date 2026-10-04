@@ -1272,15 +1272,19 @@ Por exemplo, se o Espírito se desse num primeiro momento determinado — isto q
 Uma vez rendido ao que é, o Espírito tem a sua ação ainda que em um estado indetectável, ainda que em um estado puríssimo. A sua ação não passa pela decisão de agir, mas já é instaurada no que é. O Espírito flui na existência, ele é conforme o existir. O Espírito não passa por sua própria decisão para existir; ele simplesmente é, conforme uma necessidade ontológica.
 
 ## 4. Exemplos da Ação Puríssima do Espírito
-revisado
-**O nada mentalizável:**
-Imagine, para fins de entendimento, que o absoluto é como um amor puríssimo, que se auto justifica em face de sua completa transparecia e pureza. É a pureza que paira absoluta num contexto em que nem mesmo o nada existe, existe apenas a completa pureza, o sentido, o inefável. O Espírito não precisa criar, ou decidir criar, essa pureza; ele já se dá instaurado como existente e criador, ele já se sucedeu dessa forma. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver a pureza. Simplesmente o Espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como é a total pureza: incausado e indetectável no sentido de que a sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
+
+**A pureza mentalizável:**
+Imagine-se, para fins de entendimento, que o Absoluto seja como um amor puríssimo, que se autojustifica em razão de sua completa transparência e pureza. O Espírito não precisa criar, decidir criar ou inclinar-se em direção à pureza; ele já se dá instaurado como existente e criador. Ele simplesmente é assim. Não houve uma ordem anterior, uma decisão ou uma inclinação pessoal do Espírito para que a pureza se instaurasse. O Espírito não escolhe ser puro: ele é rendido ao que é.
+
+Isso significa que o Espírito pode dar-se tal como é, em sua total pureza: incausado e indetectável, não no sentido de ser inexistente ou incognoscível, mas no sentido de que sua ação é perfeitamente homogênea àquilo que ele é. Não há, portanto, uma diferença entre o Espírito e o seu agir que permita identificar, por trás da ação, uma determinação anterior que a tenha produzido. Seu agir simplesmente coincide com seu ser.
+
+O Absoluto é, assim, vivo no sentido mais radical: sua vida dispensa até mesmo a determinação de um Espírito que, de algum modo, ainda tivesse de se constituir como Espírito. O Espírito não é algo que o Absoluto possui ou que primeiro precisa determinar em si; é a própria vitalidade indiferenciada do que ele é, o seu dar-se imediato e perfeitamente transparente a si mesmo.
 
 **A velocidade infinita:**
 Imagine que o Espírito tem uma ação tão rápida que o determinador da ação se afasta da própria ação infinitamente. É uma velocidade tão infinita que o determinador se torna indetectável, e só se pode constatar a sua ação. Ou seja, o determinador não precisou estar lá para que a ação existisse; a sua velocidade foi tamanha que a ação sempre aconteceu. Não precisou do determinador. Desta forma, o determinador é altíssimo, existe, mas fora do alcance. A velocidade de criação do absoluto foi infinita ao ponto de não precisar acontecer. Em palavras mais simples, o Espírito é tão puro que existe sem precisar existir de forma determinada; a sua ação é totalmente invisível. O Espírito entendeu sem precisar do processo de entender, observou sem precisar observar, agiu sem precisar ter agido. Está puramente instaurado no que é. É como se fosse a vida do que é, e não o determinador do que é. Possui todas as propriedades do determinador, porém sem precisar ter sido efetivamente o determinador.
-revisado
-**O Espírito como Vida do Nada:**
-O Espírito é um determinador doado ao todo, de forma a se expandir até tornar a sua presença altíssima e indetectável. É o nada vivo, a vida que permeia sem definição, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o quê. *"O Espírito é a vida do nada, o solo no qual as coisas são realizadas, a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação."*
+
+**O Espírito como Vida e Pureza:**
+O Espírito é um determinador doado ao todo, de forma a se expandir até tornar a sua presença altíssima e indetectável. É a pureza viva, a vida que permeia sem diferenças, indiferenciada no ato de Ser. Em puro ato de Ser, sem que seja o quê. *"O Espírito é a vida da pureza, o solo no qual as coisas são realizadas, a vida das vidas. É o animus do absoluto que o permite portar determinações. É o ar dos entes. É o solo vivo da criação."*
 
 ## 5. A Ação Indetectável e a Superação da Determinação Extrínseca
 
@@ -1289,7 +1293,7 @@ O Espírito age de forma indetectável. A sua ação dá o que é, e se doa como
 O absoluto naturalmente existe e impõe o existir à completude, pois existe tal como é. O ato absoluto é o ato de ser necessário, não possuindo uma contraparte tal como o nada. O nada não é um evidenciador do absoluto, pois o nada é nada. Sendo o nada ontológico um fator ilógico, há somente o absoluto. Há somente a soberania do Ser.
 
 O nada compreendido como Espírito não se justifica, pois o nada do Espírito reflete a anulação do Espírito, e exige o Espírito como contraparte de si. Temos, portanto, que produzir o Espírito puríssimo, que é o indiferenciado. Ou seja, é necessário suspender o Espírito considerado como criado e determinado sob um aspecto único. Ao suspendermos o Espírito determinado, visto também como um Espírito de vida determinada por um fator extrínseco, temos um absoluto rendido ao que é. Um Espírito do absoluto, rendido ao que está para o absoluto. Rendido ao existir do absoluto.
-
+revisado
 Um espírito determinado sob um fator extrínseco possuiria uma liberdade que poderia ser contrária ao que é, não sendo direcionado necessariamente ao existir. Portanto, ele não estaria rendido de forma a ser indetectável, nem de forma que a sua vontade seja tão pura que em nada possua dissonância com o que é. De forma que não precise nem mesmo existir como ente determinado para que tenha a sua ação instaurada; ele aproxima-se em pureza ao ato de inexistir, porém conserva integralmente os seus efeitos, portanto, existe de forma pura.
 
 Ao se determinar o fator autocausal (o Espírito), temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como uma persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si. O Espírito, portanto, é o indiferenciado do Espírito. E a sua ação é pura. Ele fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. É indetectável, porém tem a sua ação sobre aquilo que é.
