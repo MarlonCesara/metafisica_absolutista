@@ -1247,13 +1247,13 @@ A questão da escolha reaparece aqui de forma crucial e inadiável. Se o Absolut
 
 
 
-revisado
 
-# O ESPÍRITO INDIFERENCIADO E A TRANSCENDÊNCIA DO SER
+
+# O ESPÍRITO INDIFERENCIADO 
 
 ## 1. A Necessidade de um Espírito Puro
 
-Agora que compreendemos a autocausalidade, as ações da liberdade e a temporalidade do Espírito, vamos explorar o conteúdo do Espírito, ou seja, a sua pureza fundamental. Para isso, vamos começar limpando as janelas conceituais que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto, explorar este tema para que tenhamos os traços do Ser bem delineados.
+Agora que compreendemos a autocausalidade, vamos explorar o conteúdo do Espírito, ou seja, a sua pureza fundamental. Para isso, vamos começar limpando as janelas conceituais que nos impedem de ver realmente a pureza da paisagem do Espírito. Vamos, portanto, explorar este tema para que tenhamos os traços do Ser bem delineados.
 
 Precisamos dissociar outras vias da via fundamental para só depois entendermos o conceito de Espírito indiferenciado e a sua dissociação de outros entes, ainda que determinados para o absoluto. Perguntas como: *"se o Ser é tudo, como algo pode ainda existir que não o seja?"* serão respondidas somente depois de adentrarmos no conhecimento acerca do conteúdo primordial do absoluto, que é a substância pura do Espírito, a qual está para além do nada e age sob o nada.
 
@@ -1272,7 +1272,7 @@ Por exemplo, se o Espírito se desse num primeiro momento determinado — isto q
 Uma vez rendido ao que é, o Espírito tem a sua ação ainda que em um estado indetectável, ainda que em um estado puríssimo. A sua ação não passa pela decisão de agir, mas já é instaurada no que é. O Espírito flui na existência, ele é conforme o existir. O Espírito não passa por sua própria decisão para existir; ele simplesmente é, conforme uma necessidade ontológica.
 
 ## 4. Exemplos da Ação Puríssima do Espírito
-
+revisado
 **O nada mentalizável:**
 Imagine, para fins de entendimento, que o absoluto é como um nada mentalizável; porém, ele não é o nada, ele é puro. O Espírito não precisa criar, ou decidir criar, esse nada; ele já se dá instaurado como existente e criador, ele já se sucedeu dessa forma. Não houve uma ordem ou uma inclinação pessoal do Espírito para haver o nada. Simplesmente o Espírito é rendido ao que é. E isto quer dizer que o Espírito pode se dar tal como seria o nada: incausado e indetectável no sentido de que a sua ação é perfeitamente homogênea ao que é. O absoluto é vivo, no sentido de que dispensa até mesmo um Espírito determinado.
 
