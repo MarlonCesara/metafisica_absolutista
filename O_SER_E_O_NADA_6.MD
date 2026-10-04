@@ -766,19 +766,19 @@ Se o Absoluto é uma realidade "A", é necessário que o motivo de ser como tal 
 **O Conflito Lógico:**
 No domínio dos seres contingentes, a Causa Identitária atua como um princípio de determinação: ela explica por que "A" possui atributos específicos e limitados que o distinguem de "B". No entanto, ao elevarmos o pensamento ao Absoluto, deparamo-nos com um impasse: o Absoluto, por definição, é o Indiferenciado, o fundo sem limites e sem oposição. Logo, aplicar a categoria de "Causa Identitária" ao Absoluto, no seu sentido comum, seria forçar uma determinação sobre aquilo que antecede toda forma. Para resolver essa tensão, a noção de *causa sui* (causa de si) identitária no Absoluto deve ser despida de qualquer função determinadora e reinterpretada sob duas chaves absolutas:
 
-1. **A Causa Identitária é a Pura Necessidade:** No Absoluto, a Causa Identitária não é um "ato" que escolhe ou molda uma essência. Ela é, puramente, a Necessidade. Dizer que o Absoluto é "causa de sua própria essência" significa dizer que a sua essência não poderia não ser o que é. A causalidade, aqui, perde seu caráter produtivo e torna-se um atestado de modalidade ontológica absoluta: o Absoluto é Necessário.
+1. **A Causa Identitária é a Pura Necessidade:** No Absoluto, a Causa Identitária não é um "ato" que escolhe ou molda uma essência. Ela é, puramente, o auto causar. Dizer que o Absoluto é "causa de sua própria essência" significa dizer que a sua essência não poderia não ser o que é. A causalidade, aqui, perde seu caráter produtivo e torna-se um atestado de modalidade ontológica absoluta: o Absoluto é Necessário.
 2. **A Essência do Absoluto é a Própria Indiferenciação:** Se a Causa Identitária do Absoluto não produz determinação, o que ela "funda"? Funda a impossibilidade de limitação. A "essência" do Absoluto não é uma configuração de atributos ("A" em oposição a "B"), mas o fato insuperável de ser o Fundo Indiferenciado.
-3. **A Inexistência da Causa de Determinação no Absoluto:** O Absoluto não causa a si mesmo como "algo" (um ente determinado no tempo e no espaço). O processo de determinação pertence exclusivamente à Manifestação (o mundo dos efeitos). Portanto, o Absoluto é causa de sua própria essência (Necessidade), mas é rigorosamente incausado em termos de determinação, pois nele não habitam formas, distinções ou limites a serem causados.
+3. **A Inexistência da Causa de Determinação no Absoluto:** O Absoluto não causa a si mesmo como "algo" (um ente determinado no tempo e no espaço). O processo de determinação pertence exclusivamente à Manifestação (o mundo dos efeitos). Portanto, o Absoluto é causa de sua própria substância, mas é rigorosamente incausado em termos de determinação, pois nele não habitam formas, distinções ou limites a serem causados.
 
 **Síntese Final:**
-Enquanto no ente contingente a Causa Identitária responde à pergunta "Por que isto é desta forma definida?", no Absoluto ela cessa de ser uma pergunta relacional e afirma-se como um axioma de necessidade: "O Indeterminado é necessariamente Indeterminado". A autocausalidade do Absoluto não é o ato de dar forma a si mesmo, mas a invulnerabilidade absoluta de sua própria infinitude sem forma.
+Enquanto no ente contingente a Causa Identitária responde à pergunta "Por que isto é desta forma definida?", no Absoluto afirma-se como um axioma de necessidade: "O Indeterminado é necessariamente Indeterminado". A autocausalidade do Absoluto não é o ato de dar forma a si mesmo, mas a invulnerabilidade absoluta de sua própria infinitude indiferente.
 
 ### 3. As Três Propriedades Essenciais da Autocausalidade Absoluta
 
 **I. Autofundamentação (Causa Existencial de Si)**
 
 * **Definição:** O Absoluto encontra em si mesmo a razão suficiente para sua existência.
-* **Característica:** Não é contingente — sua essência implica necessariamente sua existência.
+* **Característica:** Não é contingente — sua essência implica necessariamente em sua fundamentação.
 * **Consequência:** Elimina qualquer regressão infinita; é o fundamento último. Se o Absoluto dependesse de algo externo, não seria absoluto.
 
 **II. Autoindiferenciado (Causa Essencial de Si)**
@@ -788,7 +788,6 @@ Enquanto no ente contingente a Causa Identitária responde à pergunta "Por que 
 1. *Autoexistência:* Estar presente em si mesmo completamente.
 2. *Autonomia:* Ter domínio total sobre sua própria natureza.
 3. *Autoconsciência:* Conhecer-se integralmente para poder definir-se.
-
 
 * **Consequência:** Fundamenta a liberdade metafísica no nível mais radical. Explica como o Absoluto mantém seu estatuto (não é caótico ou aleatório). Mostra que o Absoluto não é apenas um "Ser estático", mas um Ser ativo que se autogoverna.
 
@@ -813,7 +812,7 @@ Para que uma realidade seja autocausada, ela necessariamente precisa:
 
 1. **Conhecer-se integralmente** – para que possa escolher conscientemente sua própria natureza.
 2. **Dominar-se completamente** – para executar com pleno poder o ato causal.
-3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua determinação não seria integral, mas parcial e incompleta.
+3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua auto causalidade não seria integral, mas parcial e incompleta.
 
 Esta tríplice exigência corresponde aos atributos clássicos da divindade compreendidos em sua relação com a autocausalidade:
 
@@ -827,7 +826,6 @@ Esta tríade é a definição mesma de uma pessoalidade plena. Um princípio imp
 
 * **Energia cósmica:** Cega, sem consciência ou propósito. O Espírito Transcende por ser autoconsciente e autodirigido.
 * **Lei matemática:** Abstrata, não existe por si mesma. O Espírito Transcende por ser realidade concreta e autoexistente.
-* **Substância indiferenciada:** Passiva, sem interioridade. O Espírito Transcende por ser atividade pura e interioridade absoluta.
 * **Campo quântico:** Determinístico ou aleatório. O Espírito Transcende por ser livre e autocausal.
 
 ### 5. Espírito Absoluto como Presença Autofundante
@@ -844,7 +842,7 @@ O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais co
 
 * **Contra o fenomenalismo:** O Absoluto não se reduz a suas manifestações particulares.
 * **Contra o niilismo:** O Absoluto não é puro vazio ou ausência.
-* **Via Mediana:** O Absoluto é Presença Pura que existe por essência, é plenamente positiva e mantém-se em ato permanente.
+* **Via Mediana:** O Absoluto é Presença Pura que existe por si mesma, é plenamente positiva e mantém-se em ato permanente.
 
 ### 6. Implicações Metafísicas Radicais
 
@@ -852,7 +850,7 @@ O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais co
 * **Possibilidade e Impossibilidade como Atos do Espírito:** Os domínios do possível e do impossível não são limites externos, mas expressões da soberania do Espírito. O "impossível" (como a contradição) existe como negação interna que o Espírito supera em sua totalidade.
 * **A Realidade como Autocomunicação:** O mundo contingente não é uma emanação necessária, mas ato livre de autodoação do Absoluto. A criação é expressão de liberdade, não de necessidade.
 
-**A Hierarquia dos Níveis de Causalidade e a Autodeterminação Absoluta:**
+**A Hierarquia dos Níveis de Causalidade Absoluta:**
 
 * **Absoluto:** Causalidade Constitutiva (Fundamento de toda realidade). Relação: Autofundante.
 * **Possível:** Causalidade Formal/Estrutural (Leis matemáticas, princípios lógicos). Relação: Derivada e sustentada.
@@ -862,22 +860,20 @@ A causalidade no Absoluto manifesta-se como autodeterminação radical: O Absolu
 
 **Conclusão:** A aplicação dos princípios causais ao próprio Absoluto revela que sua autocausalidade exige autoconhecimento, autodomínio e autopresença em grau máximo — atributos que constituem personalidade plena. Portanto, o Absoluto deve ser compreendido como Espírito Pessoal, não como princípio impessoal. A análise demonstra que a autocausalidade pura exige personalidade, e que o Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto). A síntese da fundamentação demonstra, necessariamente, que se aceitamos os princípios lógicos e causais, somos logicamente compelidos a conceber este Absoluto como Espírito Pessoal.
 
----
-
 ## O Conceito de Ser pela Ótica Relacional e O Paradoxo da Essência Indiferenciada
 
 ### 1. O Conceito de Ser pela Ótica Relacional
 
-Ao nos referirmos a uma realidade intencional e autogovernante, temos que o Ser se faz Ser, de forma que o Ser é seu próprio produto, é o verbo. O Ser é o seu ato de Ser sem necessitar de um Ser finalizado, no sentido de que há o Ser e não o sido; há o ato. E o ato, no contexto metafísico, não pode ser confundido com um ato físico; isto é, o ato de causar não é um ato mecânico como a propulsão dada e o objeto propulsionado. A causa é intencional quando nos referimos ao Ser como uma realidade viva. Então aquilo que faz ser tem como primeiro ato o desejo e não uma propulsão cósmica; portanto, temos a ação como desejo e o objeto formalizado da ação é o próprio desejo. No sentido de que o Ser é intencional por si, e tem-se como a própria intencionalidade em pessoa que gira em direção ao seu existir ou a qualquer existir.
+Ao nos referirmos a uma realidade intencional e autogovernante, temos que o Ser se faz Ser, de forma que o Ser é seu próprio produto, é o verbo. O Ser é o seu ato de Ser sem necessitar de um Ser finalizado, no sentido de que há o Ser e não o sido; há o ato. E o ato, no contexto metafísico, não pode ser confundido com um ato físico; isto é, o ato de causar não é um ato mecânico como a propulsão dada e o objeto propulsionado. A causa é intencional quando nos referimos ao Ser como uma realidade viva. Então aquilo que faz ser tem como primeiro ato o desejo e não uma propulsão cósmica; portanto, temos a ação como desejo e o objeto formalizado da ação é o próprio desejo. No sentido de que o Ser é intencional por si, e tem-se como a própria intencionalidade em pessoa que está em direção ao seu existir.
 
 Ao chamarmos essa intencionalidade de amor — um amor não direcionado a uma realidade externa, mas um amor que se faz pessoa — temos, portanto, que não há o ser como o ente, mas há a intenção como ente formalizado. Em outras palavras, não há um Ser que é uma pessoa, há o amor que se faz a pessoa. No sentido de que o desejo constitui seu próprio ente, seu próprio desígnio finalizado.
 
-O Ser, então, não forma o sido, forma a intenção, e a intenção é seu ato finalizado; a intenção é o próprio sido.
+O Ser, então, não forma o sou, forma a intenção, e a intenção é seu ato finalizado; a intenção é o próprio sou.
 
 ### 2. O Paradoxo da Essência Indiferenciada: A Tensão entre Existência e Autorrelação
 
 A formulação do Absoluto como Espírito Pessoal e Indiferenciado Estável conduz a investigação metafísica a um de seus conflitos mais profundos. Ao elevarmos a razão ao seu limite estrutural, deparamo-nos com uma tensão ontológica e linguística incontornável: o problema da Indiferenciação como Essência e o enigma da reflexividade não-dual.
-
+revisado
 **O Colapso entre Essência e Existência:**
 Se o Absoluto é o Indiferenciado, ele carece de uma "identidade" no sentido comum do termo. A identidade fenomênica ou lógica constitui-se sempre pela demarcação e pela negação (A é A precisamente porque não é B). O Absoluto, contudo, não possui um "outro" em relação ao qual possa se diferenciar. Desprovido de contornos e limites que o definam por exclusão, o Absoluto não possui atributos separáveis.
 
@@ -910,14 +906,14 @@ Esta resolução permite avançar a arquitetura do tratado sem violar os princí
 
 Isto não quer dizer que o Absoluto se identifique mais com a essência do que com o fundamento. Quer dizer que é necessária uma palavra mais adequada para nomear essa fusão. Pois dizer que o Ser é indiferenciado significa dizer que ele não é como a forma ou como o determinado, mas isso ainda não diz respeito ao nome próprio desse ato de não ser como o determinado. O indiferenciado é uma tentativa de representar o Ser a partir da visão de uma forma determinada que foi destruída. Isto é, ele só é indiferenciado porque houve, anteriormente, o diferenciado. Equivale, portanto, a dizer que o Ser não é como um ente dotado de forma.
 
-Dessa forma, o termo mais direto seria Ser, pois ele designa as duas realidades unidas. Porém, ainda não há uma palavra que nos permita compreender o Ser sem concebê-lo como uma união entre identidade e fundamento. Isto é, o Absoluto possui o ato de fazer, e esse ato é o próprio feito. Temos, então, a forma como ato de fazer e o fundamento como sendo também esse mesmo ato. Há, portanto, a ação como o próprio produto da ação.
+Dessa forma, o termo mais direto seria Ser, pois ele designa as duas realidades unidas. Porém, ainda não há uma palavra que nos permita compreender o Ser sem concebê-lo como uma união entre identidade e fundamento. Isto é, o Absoluto possui o ato de ser, e esse ato é o próprio feito. Temos, então, a forma como ato de ser e o fundamento como sendo também esse mesmo ato. Há, portanto, a ação como o próprio produto da ação.
 
 A palavra Ser, portanto, também denota o existente tendo como forma o próprio existir. Isto é, a identidade é o existir, e o fundamento também é o existir. Algo é identificado por existir e é fundamentado pela mesma identificação. Ainda assim, temos o Ser como uma palavra dotada de dois significados que se fundam em uma só palavra. A palavra Ser denota, para o nosso pensamento, a forma e a fundamentação conjuntamente, mas ainda não conseguimos conceber uma palavra que não nos faça pensar na união de duas coisas, e sim em uma única coisa, uma essência que não comporte qualquer dualidade.
 
 O Ser é uma palavra que tenta representar essa união. Porém, como signo mental, ainda denota uma tentativa de reunir, em um som ou em uma imagem mental, dois significados. Deve haver, portanto, um processo pelo qual não seja necessário unir duas coisas em uma, ainda que continuemos imaginando duas coisas unidas. Deve haver uma palavra que designe uma coisa só, sem que sequer precisemos pensar que havia duas coisas separadas que posteriormente se uniram.
 
 ### 5. O Amor como Ato Fundante Sem Sujeito/Objeto
-
+revisado
 Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se, por não produzir um produto distinto de si, tem como produto mais imediato o próprio querer-se, a intenção por si mesma.
 
 O causar-se, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
