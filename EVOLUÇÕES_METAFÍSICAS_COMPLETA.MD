@@ -12262,3 +12262,4 @@ O niilista é como um indivíduo que olha de uma janela a festa do mundo, a aleg
 
 **Sobre o Niilismo:** O niilista frequentemente adere a uma postura de ressentimento para justificar a si mesmo mediante sua postura relutante.
 
+O niilista é apaixonado pela riqueza no sentido que a riqueza se torne a si, de forma que a riqueza seja o seu amor, no sentido que seu eu se desloca para a riqueza.
