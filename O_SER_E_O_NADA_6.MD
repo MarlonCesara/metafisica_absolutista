@@ -873,7 +873,7 @@ O Ser, então, não forma o sou, forma a intenção, e a intenção é seu ato f
 ### 2. O Paradoxo da Essência Indiferenciada: A Tensão entre Existência e Autorrelação
 
 A formulação do Absoluto como Espírito Pessoal e Indiferenciado Estável conduz a investigação metafísica a um de seus conflitos mais profundos. Ao elevarmos a razão ao seu limite estrutural, deparamo-nos com uma tensão ontológica e linguística incontornável: o problema da Indiferenciação como Essência e o enigma da reflexividade não-dual.
-revisado
+
 **O Colapso entre Essência e Existência:**
 Se o Absoluto é o Indiferenciado, ele carece de uma "identidade" no sentido comum do termo. A identidade fenomênica ou lógica constitui-se sempre pela demarcação e pela negação (A é A precisamente porque não é B). O Absoluto, contudo, não possui um "outro" em relação ao qual possa se diferenciar. Desprovido de contornos e limites que o definam por exclusão, o Absoluto não possui atributos separáveis.
 
@@ -913,31 +913,22 @@ A palavra Ser, portanto, também denota o existente tendo como forma o próprio 
 O Ser é uma palavra que tenta representar essa união. Porém, como signo mental, ainda denota uma tentativa de reunir, em um som ou em uma imagem mental, dois significados. Deve haver, portanto, um processo pelo qual não seja necessário unir duas coisas em uma, ainda que continuemos imaginando duas coisas unidas. Deve haver uma palavra que designe uma coisa só, sem que sequer precisemos pensar que havia duas coisas separadas que posteriormente se uniram.
 
 ### 5. O Amor como Ato Fundante Sem Sujeito/Objeto
-revisado
-Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se, por não produzir um produto distinto de si, tem como produto mais imediato o próprio querer-se, a intenção por si mesma.
 
-O causar-se, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
+Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se sem o "se", por não produzir um produto distinto de si, tem como produto mais imediato o próprio querer-se (sem o objeto que se quer), a intenção sem o ente cristalizado exterior à própria intenção.
+
+O auto causar, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
 
 Em nível metafísico, não é necessária uma ação exercida sobre um objeto, pois não há transformação de um objeto. Não há ação sobre algo. Há ação pura. Essa ação não é o movimento de um membro, mas o movimento do querer. Se fosse o movimento de algo, existiria não a criação a partir do nada, mas a transformação do nada em algo. Portanto, trata-se de um movimento do querer. Sendo o movimento do querer, temos que a identidade do querer, concomitantemente à sua própria ação, deveria inevitavelmente chamar-se amor.
 
 O amor é a intenção, o querer, que não necessita de um mediador entre o querer e aquilo que é querido para ser compreendido. O amor designa simultaneamente a qualidade e o sujeito da qualidade, executando uma operação inversa àquela realizada pela palavra Ser. Na palavra amor, podemos identificar o autor da ação de querer junto à própria ação. O amor, visto como pessoa, é também fundamento. Dessa forma, "o Amor" não é um conceito que designa uma dualidade fundida, mas um conceito do qual uma dualidade pode ser extraída mediante a distinção de uma pessoa.
 
+Em termos mais claros, quando imaginamos o autocausar-se, temos em nossa mente a tentativa de unir a ação ao próprio agente. Entretanto, ainda não concebemos essa união de maneira verdadeiramente indiferenciada. O próprio conceito de **Ser**, embora procure nos remeter à ideia de uma realidade pura e fundamental, ainda nos conduz à representação de uma ação que se refere a um agente, fazendo com que mentalizemos, inevitavelmente, uma certa dualidade entre aquele que age e aquilo que é produzido por sua ação.
 
+Por isso, parece-nos quase inimaginável conceber uma realidade que, ao mesmo tempo, **é aquilo que constrói, é o próprio ato de construir e é o querer pelo qual se constrói**. É precisamente nesse ponto que a noção de **amor** oferece uma via de compreensão particularmente significativa.
 
+Ao afirmarmos simplesmente que **o Ser é amor**, compreendendo esse amor no sentido de *ágape*, ainda não dispomos de um conceito cujas características metafísicas possamos explorar plenamente. Trata-se, nesse momento, de uma intuição fundamental, cujo significado mais preciso somente poderá ser alcançada ao término da investigação metafísica. Contudo, esse conceito nos permite vislumbrar uma realidade na qual não há separação entre aquele que age e o próprio ato pelo qual a realidade se constitui.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+O amor é querer; e, sendo querer, é também pessoalidade. Assim, a noção de amor nos oferece uma maneira de conceber uma realidade que não apenas **age sobre si mesma**, mas que **é, em sua própria realidade, o agente, o ato e o querer**. É nessa direção que a unidade procurada pela investigação metafísica encontra sua expressão mais radical.
 
 
 
@@ -995,15 +986,13 @@ A pessoalidade configura-se como a forma mais alta do ser, caracterizando-se pel
 
 Exploraremos primeiramente a autoconsciência, acrescentando a ela também a necessidade do autodomínio, do autoconhecimento, da autopresença e da liberdade.
 
-A autoconsciência consiste na presença viva. O autoconhecimento é o ato de conhecer a si mesmo totalmente, a fim de determinar-se também em totalidade. A liberdade, por sua vez, é a capacidade de fundar-se, plenificar-se e personalizar-se. Já a intencionalidade define-se como o próprio ato de ser necessário.
+A autoconsciência consiste na presença viva. O autoconhecimento é o ato de conhecer a si mesmo totalmente, a fim de causar-se também em totalidade. A liberdade, por sua vez, é a capacidade de fundar-se, plenificar-se e personalizar-se. Já a intencionalidade define-se como o próprio ato de ser necessário.
 
 Deste modo, estabelecemos as seguintes propriedades:
 
 > * **Está em tudo:** O Absoluto encontra-se presente completamente em si mesmo, através de uma presença viva.
 > * **Sabe tudo:** O Absoluto conhece a si mesmo inteiramente para que possa haver a ação.
 > * **Domínio:** O Absoluto tudo pode em si mesmo.
-> 
-> 
 
 A análise dessas propriedades autocausais do Absoluto nos conduz inevitavelmente a uma conclusão radical: a autocausalidade pura exige, intrinsecamente, liberdade e pessoalidade. Como estabelecido anteriormente, o Absoluto possui autoconhecimento, autodomínio e presença no seu grau máximo. Estas propriedades, tomadas em sua plenitude, constituem precisamente aquilo que reconhecemos como a **personalidade** ou o "Espírito do Absoluto".
 
@@ -1011,23 +1000,23 @@ A análise dessas propriedades autocausais do Absoluto nos conduz inevitavelment
 
 Ao contrário das concepções impessoais acerca do Absoluto, a autocausalidade exige rigorosamente:
 
-* **Liberdade metafísica radical:** A capacidade de autodeterminação desprovida de condicionamentos externos de qualquer natureza.
-* **Consciência integral:** O conhecimento imediato e completo de sua própria essência e de seus próprios atos.
+* **Liberdade metafísica radical:** A capacidade de auto causar desprovida de condicionamentos externos de qualquer natureza.
+* **Consciência integral:** O conhecimento imediato e completo de sua própria natureza e de seus próprios atos.
 * **Vontade unificada:** A atividade direcionada inteiramente a si mesma como fim último e bem supremo.
 
 São exatamente estes atributos que diferenciam radicalmente o Absoluto das seguintes instâncias:
 
 1. Das **forças impessoais** (como a energia cósmica ou os campos quânticos).
 2. Dos **princípios abstratos** (como as leis matemáticas ou as regras lógicas).
-3. Das **substâncias inertes** (como a matéria bruta ou a substância indiferenciada).
+3. Das **substâncias inertes** (como a matéria bruta).
 
-## 2. A Tríade da Autodeterminação: Conhecer, Dominar e Estar Presente
+## 2. A Tríade da Auto causalidade: Conhecer, Dominar e Estar Presente
 
-Para que uma realidade se autodetermine, ela precisa, necessariamente, cumprir três condições:
+Para que uma realidade se auto cause, ela precisa, necessariamente, cumprir três condições:
 
 1. **Conhecer-se:** para que possa escolher conscientemente a sua própria natureza;
-2. **Dominar-se:** para conseguir executar, com pleno poder, o ato de autodeterminação;
-3. **Estar presente em si por inteiro:** pois, se alguma parte de si estivesse ausente ou inconsciente, a sua determinação não seria integral, mas sim parcial e incompleta.
+2. **Dominar-se:** para conseguir executar, com pleno poder, o ato auto causal;
+3. **Estar presente em si por inteiro:** pois, se alguma parte de si estivesse ausente ou inconsciente, o seu ato auto causal não seria integral, mas sim parcial e incompleto.
 
 Somente uma realidade que reúne de forma simultânea o autoconhecimento, o autodomínio e a autopresença total pode verdadeiramente fundar a si mesma. Essa tríade de atributos é justamente aquilo que caracteriza uma **pessoalidade plena** – um Espírito que é, ao mesmo tempo, o sujeito, o ato e o fundamento de sua própria existência. Explicando por vias mais claras: para que uma realidade efetivamente se autogoverne, essa realidade necessariamente deve conhecer-se para eleger a si própria como soberana, autodominar-se para realizar a condição dessa soberania e ter autopresença para que seja, de fato, uma realidade viva em si mesma. Afinal, se não estivesse presente na totalidade de si, ela jamais poderia determinar-se por inteira.
 
@@ -1042,7 +1031,7 @@ O Absoluto, atuando como uma realidade autocausal, transcende os conceitos conve
 É exatamente desta tríade que surge o que denominamos de **Espírito Absoluto** — a forma mais pura e radical de pessoalidade, na qual o ser, o conhecer e o agir coincidem perfeitamente numa unidade indissolúvel e perfeita.
 
 **Fundamento Autocausal e a Noção de "Presença"**
-O Absoluto, enquanto realidade autocausada, não requer qualquer justificação externa — nem pelo "nada", nem pela fenomenalidade, e muito menos por qualquer outra categoria derivada. A sua existência revela-se autoevidente em sua **autofundamentação**, na sua **autodeterminação** e em sua **autocontinuidade**. Esta tríade causal demonstra uma natureza que transcende de forma definitiva a mera abstração conceitual, apontando, assim, para uma **presença ontológica primordial**.
+O Absoluto, enquanto realidade autocausada, não requer qualquer justificação externa — nem pelo "nada", nem pela fenomenalidade, e muito menos por qualquer outra categoria derivada. A sua existência revela-se autoevidente em sua autofundamentação, que se realiza inseparavelmente de sua autodeterminação, e em sua **autocontinuidade**. Esta tríade causal demonstra uma natureza que transcende de forma definitiva a mera abstração conceitual, apontando, assim, para uma **presença ontológica primordial**.
 
 Para compreender essa natureza, é preciso fazer as seguintes distinções vitais:
 
@@ -1074,8 +1063,8 @@ Essa resolução ocorre através de uma terceira via radical, que é a **Presen�
 
 Considerando que a autocausalidade implica autoconhecimento (onisciência), autodomínio (onipotência) e autopresença (onipresença), infere-se que o Absoluto não constitui uma força impessoal, mas sim um **princípio pessoal** em seu nível mais radical. Nós definimos essa pessoalidade metafísica diretamente como **Espírito**:
 
-1. **Espírito como Autoconsciência Causal:** O Absoluto não "tem" autoconsciência como se esta fosse um atributo que lhe foi acrescentado; **ele é a própria autoconsciência em ato**. A sua autodeterminação é, de modo simultâneo, um ato de conhecimento de si mesmo — não no sentido discursivo, mas como uma **identidade pura entre o ser e o conhecer-se**.
-2. **Espírito como Liberdade Metafísica:** A autodeterminação implica na capacidade de autoafirmação para além da determinação. O Absoluto não está obrigado a ser "A" ou "não-A"; **ele define a si mesmo como indiferenciado mediante o ato livre proveniente de sua própria natureza autocausada**.
+1. **Espírito como Autoconsciência Causal:** O Absoluto não "tem" autoconsciência como se esta fosse um atributo que lhe foi acrescentado; **ele é a própria autoconsciência em ato**. A sua auto causalidade é, de modo simultâneo, um ato de conhecimento de si mesmo — não no sentido discursivo, mas como uma **identidade pura entre o ser e o conhecer-se**.
+2. **Espírito como Liberdade Metafísica:** A auto causalidade implica na capacidade de autoafirmação para além da determinação. O Absoluto não está obrigado a ser "A" ou "não-A"; **ele define a si mesmo como indiferenciado mediante o ato livre proveniente de sua própria natureza autocausada**.
 3. **Espírito como Unidade Dinâmica:** Enquanto os entes que são derivados encontram-se sujeitos à distinção entre essência e existência, o Espírito Absoluto **é essência e existência formando uma unidade indivisa**. Essa unidade não se mostra estática, mas é profundamente **ativa** — tratando-se de um eterno autoestabelecimento.
 
 **Por que utilizar o termo "Espírito" e não "Substância" ou "Energia"?**
@@ -1084,13 +1073,13 @@ Considerando que a autocausalidade implica autoconhecimento (onisciência), auto
 * A ideia de **Energia** remete a um princípio físico ou impessoal, enquanto o Absoluto é uma interioridade absoluta (ainda que se trate de uma interioridade não humana).
 * Apenas o conceito de **Espírito** é capaz de captar a síntese de autoconsciência, liberdade e atividade imanente.
 
-## 6. A Autodeterminação como Essência do Absoluto e a Personalidade
+## 6. A Auto causalidade como Essência do Absoluto e a Personalidade
 
 Diante de tudo isso, atesta-se que o Absoluto não é um "vazio que se preenche", mas sim uma **presença** que:
 
-* **Autoexiste:** Não deriva de nada externo; a sua existência é inteiramente autofundada.
-* **Autodetermina-se:** A sua aparente "indiferenciação" é, na verdade, a própria liberdade metafísica – a capacidade de se diferenciar sem perder a unidade.
-* **Autossustenta-se:** A "forma" (manifestação) não é acrescentada a ele de fora, mas emana diretamente da sua natureza autoconsciente.
+* **Auto existe:** Não deriva de nada externo; a sua existência é inteiramente autofundada.
+* **Auto causa:** A sua aparente "indiferenciação" é, na verdade, a própria liberdade metafísica – a capacidade de se diferenciar sem perder a unidade.
+* **Auto sustenta:** A sua estadia como Absoluto não é acrescentada a ele de fora, mas emana diretamente da sua natureza autoconsciente.
 
 **A Personalidade como Estrutura da Autocausalidade:**
 
@@ -1111,7 +1100,7 @@ A tentativa de fundamentar a realidade revela que o não fenômeno ou o campo fe
 Toda esta análise demonstra, de forma inequívoca, que a autocausalidade pura exige a personalidade: não pode haver autocausalidade sem autoconhecimento, autodomínio e autopresença. O Absoluto não é "algo" (um objeto), mas sim "Alguém" (um Sujeito absoluto). A noção de Espírito capta muito melhor esta realidade do que conceitos impessoais, abstrações vazias ou metáforas físicas.
 
 Portanto, a autocausalidade nos conduz necessariamente à concepção do Absoluto como **Espírito Pessoal** — a realidade viva, consciente e livre que fundamenta toda a existência.
-
+revisado
 > *"O Espírito é o agir do invisível, a pureza que é. O Espírito do Ser é a identidade do querer, e não o querer de uma identidade. O Espírito do absoluto é o querer sem identidade, que se faz idêntico a si mesmo, idêntico ao amor."*
 
 
