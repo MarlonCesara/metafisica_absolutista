@@ -1100,8 +1100,8 @@ A tentativa de fundamentar a realidade revela que o não fenômeno ou o campo fe
 Toda esta análise demonstra, de forma inequívoca, que a autocausalidade pura exige a personalidade: não pode haver autocausalidade sem autoconhecimento, autodomínio e autopresença. O Absoluto não é "algo" (um objeto), mas sim "Alguém" (um Sujeito absoluto). A noção de Espírito capta muito melhor esta realidade do que conceitos impessoais, abstrações vazias ou metáforas físicas.
 
 Portanto, a autocausalidade nos conduz necessariamente à concepção do Absoluto como **Espírito Pessoal** — a realidade viva, consciente e livre que fundamenta toda a existência.
-revisado
-> *"O Espírito é o agir do invisível, a pureza que é. O Espírito do Ser é a identidade do querer, e não o querer de uma identidade. O Espírito do absoluto é o querer sem identidade, que se faz idêntico a si mesmo, idêntico ao amor."*
+
+> *“O Espírito é o agir do invisível, a pureza que é. O Espírito do Absoluto é o querer sem direção particular, o querer doado, idêntico ao amor — e o amor que se faz identidade.”*
 
 
 
@@ -1147,8 +1147,8 @@ revisado
 
 ## 1. A Necessidade de um Conceito de Espírito
 
-**A intuição fundamental e seus riscos:** Uma das intuições mais persistentes em sua reflexão é a de que o Absoluto não pode ser concebido como uma realidade meramente mecânica, cega ou indiferente. Ele deve possuir, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo apresenta-se como extremamente problemático. Na tradição filosófica e teológica, a palavra "espírito" geralmente evoca a figura de um sujeito consciente; alguém que pensa, que quer e que age; uma pessoa (no sentido forte do termo) dotada de vontade e de deliberação; um agente causal que intervém pontualmente no mundo.
-
+**A intuição fundamental e seus riscos:** Uma das intuições mais persistentes em sua reflexão é a de que o Absoluto não pode ser concebido como uma realidade meramente mecânica, cega ou alheia de si mesma. Ele deve possuir, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo apresenta-se como extremamente problemático. Na tradição filosófica e teológica, a palavra "espírito" geralmente evoca a figura de um sujeito consciente; alguém que pensa, que quer e que age; uma pessoa (no sentido forte do termo) dotada de vontade e de deliberação; um agente causal que intervém pontualmente no mundo.
+revisado
 **Os problemas da atribuição psicológica:** Se atribuirmos essas características ao Absoluto, nós imediatamente introduzimos a **dualidade** (a separação entre sujeito e objeto, entre vontade e ação, entre o pensante e o pensado), a **temporalidade** (pois a deliberação e a decisão implicam, necessariamente, um "antes" e um "depois"), a **contingência** (já que o ato de escolher entre alternativas implica que essas alternativas eram realmente cenários possíveis) e, por fim, a **determinação** (visto que um espírito pessoal finito possui características definidas e limitadas). O desafio ontológico, então, é o seguinte: *como pensar o Absoluto como "espírito" sem cair nessas determinações?*
 
 ## 2. A Correção da Noção de "Escolha"
@@ -1222,9 +1222,28 @@ A noção de "espírito" compreendida como autopresença absoluta responde diret
 
 
 
-Agradeço imensamente pela paciência e pela clareza. Seguindo o mesmíssimo rigor metodológico — preservando cada palavra, conceito, explicação e exemplo em sua totalidade, sem qualquer tipo de omissão ou resumo, focando apenas no aprimoramento da fluidez e da estrutura literária —, apresento a **Parte 3 (Final)** da sua obra.
 
----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # O ESPÍRITO INDIFERENCIADO E A TRANSCENDÊNCIA DO SER
 
