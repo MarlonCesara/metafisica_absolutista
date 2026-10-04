@@ -1147,8 +1147,8 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 
 ## 1. A Necessidade de um Conceito de Espírito
 
-**A intuição fundamental e seus riscos:** Uma das intuições mais persistentes em sua reflexão é a de que o Absoluto não pode ser concebido como uma realidade meramente mecânica, cega ou alheia de si mesma. Ele deve possuir, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo apresenta-se como extremamente problemático. Na tradição filosófica e teológica, a palavra "espírito" geralmente evoca a figura de um sujeito consciente; alguém que pensa, que quer e que age; uma pessoa (no sentido forte do termo) dotada de vontade e de deliberação; um agente causal que intervém pontualmente no mundo.
-revisado
+**A intuição fundamental e seus riscos:** O Absoluto não pode ser concebido como uma realidade meramente mecânica, cega ou alheia de si mesma. Ele deve possuir, de algum modo, uma dimensão que justifique ser chamado de "espírito". No entanto, esse termo apresenta-se como extremamente problemático. Na tradição filosófica e teológica, a palavra "espírito" geralmente evoca a figura de um sujeito consciente; alguém que pensa, que quer e que age; uma pessoa (no sentido forte do termo) dotada de vontade e de deliberação; um agente causal que intervém pontualmente no mundo.
+
 **Os problemas da atribuição psicológica:** Se atribuirmos essas características ao Absoluto, nós imediatamente introduzimos a **dualidade** (a separação entre sujeito e objeto, entre vontade e ação, entre o pensante e o pensado), a **temporalidade** (pois a deliberação e a decisão implicam, necessariamente, um "antes" e um "depois"), a **contingência** (já que o ato de escolher entre alternativas implica que essas alternativas eram realmente cenários possíveis) e, por fim, a **determinação** (visto que um espírito pessoal finito possui características definidas e limitadas). O desafio ontológico, então, é o seguinte: *como pensar o Absoluto como "espírito" sem cair nessas determinações?*
 
 ## 2. A Correção da Noção de "Escolha"
@@ -1164,13 +1164,16 @@ Para que o conceito se aplique ao Absoluto, precisamos redefinir radicalmente as
 **Conhecimento (Autotransparência Total):**
 
 * **No sentido comum:** conhecer é compreendido como um ato pelo qual um sujeito apreende um objeto que é distinto de si mesmo.
-* **No Absoluto:** não existe a dualidade entre sujeito e objeto, tampouco há um ato sucessivo de conhecer. A "autotransparência" significa que não há nele absolutamente nada oculto, nada inconsciente, e nada que não seja imediatamente presente a si. Trata-se de uma "luminosidade" sem fonte externa e sem alvo — a própria ausência de opacidade. Isso não é o conhecimento entendido como um ato, mas sim o conhecimento como **identidade**: o Absoluto não *se conhece* (como quem investiga a si próprio); ele *é* a sua própria inteligibilidade.
+* **No Absoluto:** não existe a dualidade entre sujeito e objeto, tampouco há um ato sucessivo de conhecer. A "autotransparência" significa que não há nele absolutamente nada oculto, nada inconsciente, e nada que não seja imediatamente presente a si. Trata-se de uma "luminosidade" sem fonte externa e sem alvo — a própria ausência de opacidade. Isso não é o conhecimento entendido como um ato, mas sim o conhecimento como **identidade**: o Absoluto não *se conhece* (como quem investiga a si próprio); ele *é* a sua própria inteligibilidade. De modo que o conhecimento não é o causado, isto é, aquilo que foi instaurado, mas o próprio instaurar. Não há, no Absoluto, uma realidade conhecida que lhe seja extrínseca, pois o Absoluto não conhece algo distinto de si: há, simplesmente, o conhecer. O conhecimento pertence ao próprio ato indiferenciado e integra uma identidade absolutamente indiscernível de seu fundamento. O conhecer, portanto, não se dirige a um objeto que lhe seja exterior; ele é o próprio conhecido. Assim, no Absoluto, não há distinção entre o conhecer e aquilo que é conhecido, pois ambos coincidem no mesmo ato. Isto é, o objeto do conhecimento encerra-se no próprio ato de conhecer. Temos, portanto, o conhecer como um ato que não depende de qualquer realidade ou conhecimento externo para se completar, pois encontra em seu próprio autoconhecimento a sua plena consumação.
+
+revisado
 
 **Autodomínio (Não Divisão Interna):**
 
 * **No sentido comum:** o autodomínio é o controle que nós exercemos sobre as nossas paixões, os nossos impulsos ou sobre as partes conflitantes de nós mesmos.
-* **No Absoluto:** não há partes, não há conflito, não há absolutamente nada a ser controlado. O "autodomínio" aqui significa a ausência de qualquer divisão interna que pudesse, de alguma forma, gerar tensão ou contradição. O Absoluto não domina a si mesmo porque não há em si nada que precise ser dominado. Ele é simplesmente uno, e essa unidade não é algo que foi conquistado, mas é a própria natureza inabalável do seu ser.
+* **No Absoluto:** não há partes, não há conflito, não há absolutamente nada a ser controlado. O "autodomínio" aqui significa a ausência de qualquer divisão interna que pudesse, de alguma forma, gerar tensão ou contradição. O Absoluto não domina a si mesmo porque não há em si nada que precise ser dominado. Ele é simplesmente uno, e essa unidade não é algo que foi conquistado, mas é a própria natureza inabalável do seu ser. Isto indica que o Absoluto não é o dominado, mas o próprio dominar que se encerra em seu ato. Assim como o Ser se encerra em seu próprio ato para constituir-se como seu próprio fundamento, o dominar do Ser constitui-se no próprio ato de seu autocontrole.
 
+revisado
 **Autopresença (Identidade Absoluta):**
 
 * **No sentido comum:** a autopresença é a experiência que nós temos de nós mesmos atuando como sujeitos conscientes.
@@ -1180,6 +1183,8 @@ Para que o conceito se aplique ao Absoluto, precisamos redefinir radicalmente as
 
 **A definição final:** Com base nessas reinterpretações rigorosas, nós chegamos a uma definição de "espírito" que se aplica perfeitamente ao Absoluto:
 **Espírito é a autopresença absoluta que não admite divisão, opacidade ou exterioridade.**
+
+Os dons de suas caracteristicas pessoas coagem com sua própria indiferenciação. O absoluto é Espírito, de forma que, este Espírito acompanha, em seus dons e caractersiticas, a sua indiferenciação.
 
 Isso significa que existe:
 
