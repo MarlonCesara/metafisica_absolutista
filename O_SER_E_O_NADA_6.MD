@@ -1453,17 +1453,15 @@ O Absoluto não se limita à dicotomia entre ser e não-ser da positividade dete
 refazer a parte abaixo
 
 
-revisar
+
 
 ## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
 
 ### Introdução: Da Natureza à Ação
 Após estabelecer o Absoluto como Espírito Pessoal, cuja auto causalidade exige autoconhecimento (onisciência), autodomínio (onipotência) e auto presença total (onipresença). Esta Proposição investigará a relação deste Espírito com as realidades contingentes que dele emanam. Antes, porém, é necessário compreender a estrutura interna da ação do Absoluto: **como o Espírito Pessoal exerce sua liberdade metafísica?** Esta Proposição investiga precisamente esta questão fundamental: **Quais são as dimensões da ação do Absoluto enquanto ser auto causal e pessoal?** A resposta revelará que a liberdade do Absoluto não é unidimensional, mas se desdobra em três modos distintos e complementares de auto fundamentação, os quais correspondem a três Pessoas distintas.
 
-
 ### A Necessidade do Absoluto e a Irrevogabilidade do Ser
 O Absoluto é exatamente o que é, sendo todo ele mesmo de tal forma que existe necessariamente como Absoluto. O não absoluto não se apresenta como uma opção viável, pois qualquer tentativa de conceber o não absoluto terminaria por reintroduzir um absoluto ilógico. O não absoluto constitui apenas uma via ilógica para se referir ao absoluto, uma construção que se enquadra num sistema ilógico. Portanto, considerar o não absoluto implicaria admitir uma parte potencialmente integradora do absoluto no próprio absoluto, o que é contraditório. O absoluto não pode ser capturado por um pensamento ilógico de natureza pragmática. Dessa forma, o Absoluto **existe necessariamente**. E, por existir necessariamente, é pleno em si mesmo, não possuindo uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena precisamente no que significa ser absoluto. Sua abrangência é total sobre si mesmo, de modo que a **plenitude lhe é indissociável**.
-
 
 ### A intencionalidade do absoluto. 
 
@@ -1480,7 +1478,7 @@ A resposta, porém, é que o Absoluto é perfeito: sua não contingência não e
 A não contingência, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafísica, mas a liberdade metafísica se molda em favor de sua não contingência, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, em oposição ao argumento da liberdade metafísica, a seguinte objeção poderia ser formulada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecânico. Porém, o absoluto é perfeito, no sentido de que, sua não contingência não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogável, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutível. Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavelmente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contingência é descartada como necessária para sua amplitude de liberdade. A não contingência, portanto, não é sistemática, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogável. A não contingência é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
 
 ###  As Três Dimensões da Ação do Espírito
-Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológicas complementares:
+Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (auto causalidade do Absoluto) atua em três dimensões ontológicas complementares:
 
 ####  Autocausalidade Vertical (Espírito Fundamentador)
 * **Definição:** Qualidade do ente de agir incorruptivelmente, isto é, em prol de sua existência e do sistema que o sustenta.
@@ -1493,7 +1491,7 @@ Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento i
 * **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
 * **Características para o Absoluto:**
     * **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
-    * **Autodeterminação Essencial:** O Espírito age como princípio determinista (autodeterminação) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
+    * **Autodeterminação Essencial:** O Espírito age como princípio auto causal de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
     * *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
 * **Princípio:** *"Escolho o que me realiza como Absoluto. Se houvesse a opção de escolher entre Ser e não Ser, escolheria irrevogavelmente Ser. Realizo-me escolhendo a favor da plenitude daquilo que sou."*
 
@@ -1510,8 +1508,8 @@ Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento i
 | Dimensão | Espírito como... | Princípio | Modo de Ação |
 | :--- | :--- | :--- | :--- |
 | **Vertical** | Fundamentador | "Eu Existo" (Autoafirmação ontológica) | Incorruptível, necessário |
-| **Diagonal** | Plenificador | "Escolho o que me realiza" (Autodeterminação) | Despersonalizado, perfeccionista |
-| **Horizontal** | Personalizador | "Sigo minha identidade" (Automanifestação) | Livre, pessoal, relacional, personalizado |
+| **Diagonal** | Plenificador | "Escolho o que me realiza" (Auto plenificação) | Despersonalizado, perfeccionista |
+| **Horizontal** | Personalizador | "Sigo minha identidade" (Auto personalização) | Livre, pessoal, relacional, personalizado |
 
 ### As Três Pessoas do Espírito Absoluto
 A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo.
@@ -1531,7 +1529,7 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
     * **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
 * **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
 * **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
-
+revisado
 **III. A Liberdade Personalizante (Espírito Personificador)**
 * **Atributos:**
     * **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
