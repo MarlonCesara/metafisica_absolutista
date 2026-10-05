@@ -12267,3 +12267,6 @@ O niilista é apaixonado pela riqueza no sentido que a riqueza se torne a si, de
 
 
 O rico nao tem o maior requinte, o minimo do luxo, o maior privilégio, a vida eterna, não tem o consentimento, a autorização para a entrada na vida eterna. Necessita de todos os adornos pois reconhece-se como necessitado de uma substituição e tem a impressao que o mundo inteiro precisa lhe retaliar, de lhe proporcionar isso. Pensa-se ser o enganador do mundo, quando é o auto enganador.
+
+
+A expressão é a forma de auto salvação. Uma breve sensação de alivio ao retirar de si a má impressão interior. O voto na direita transferir o peso existencial. O niilista transfere, arremessa seu peso existencial na sociedade através do seu voto, não querendo progresso ou uma nova modalidade de governo, mas objetivando uma destruição do sentido do mundo, dos bens naturais, da boa convivência do mundo que o atormenta, a paz o machuca. 
