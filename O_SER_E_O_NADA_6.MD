@@ -1478,7 +1478,7 @@ A resposta, porém, é que o Absoluto é perfeito: sua não contingência não e
 A não contingência, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafísica, mas a liberdade metafísica se molda em favor de sua não contingência, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, em oposição ao argumento da liberdade metafísica, a seguinte objeção poderia ser formulada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecânico. Porém, o absoluto é perfeito, no sentido de que, sua não contingência não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogável, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutível. Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavelmente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contingência é descartada como necessária para sua amplitude de liberdade. A não contingência, portanto, não é sistemática, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogável. A não contingência é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
 
 ###  As Três Dimensões da Ação do Espírito
-Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (auto causalidade do Absoluto) atua em três dimensões ontológicas complementares:
+Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (auto causalidade do Absoluto) atua em três dimensões ontológicas complementares. Chamaremos cada ação de pessoa, pois, depois de definida a qualidade de cada ação, investigaremos a forma pela qual cada ação esboça uma pessoa distinta, por isto, desde antemão, nos referiremos a cada modelo de ação de liberdade do absoluto como pessoa e não apenas como modalidade de ação.
 
 ####  Autocausalidade Vertical (Espírito Fundamentador)
 * **Definição:** Qualidade do ente de agir incorruptivelmente, isto é, em prol de sua existência e do sistema que o sustenta.
@@ -1529,25 +1529,24 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
     * **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
 * **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
 * **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
-revisado
+
 **III. A Liberdade Personalizante (Espírito Personificador)**
 * **Atributos:**
     * **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
     * **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
-    * **Vontade Lúdica:** Transforma a plenitude em *criatividade sagrada*, onde até a assimetria da paixão pessoal é um movimento da liberdade e do sagrado.
+    * **Vontade Lúdica:** Transforma a plenitude em *criatividade*, onde a paixão pessoal é um movimento da liberdade.
 * **Símbolo:** A Criatividade do Ser (onde o Absoluto expande a si mesmo não somente em sua perfeição mas em suas tendências criativas).
 * **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*
 
-
 ## O Espírito da plenitude como interseção
 
-Enquanto o fundamentador afirma, 'eu sou', o espirito da plenitude afirma eu sou, ainda que houvesse a escolhe de não ser, sou necessário. E enquanto o personalizador afirma, eu escolho entre infinitas possibilidades, o plenificador afirma, eu escolho com base na escolha fundamental de ser, pois o não ser tão tem nem mesmo agir.
+Enquanto o fundamentador afirma, 'eu sou', o espirito da plenitude afirma eu sou, ainda que houvesse a escolhe de não ser. Sendo existente e necessário, isso não torna a escolha da plenitude uma ação mecânica, mas uma ação perfeita. E enquanto o personalizador afirma, eu escolho entre todas as possibilidades, o plenificador afirma, eu escolho com base na escolha fundamental de ser, pois o não ser não tem nem mesmo agir.
 
-Isto é, o planificador está tanto na decisão de Ser, na decisão dualística, que para o Ser, representa perfeição, quanto em qualquer escolha horizontal do Ser. Atribuindo, portanto, ao Ser plenitude em sua fundação, e em sua decisão.
+Isto é, o planificador está tanto na decisão de Ser fundamental esboçando a dualidade entre Ser e não ser dentro da necessariedade de Ser, quanto em qualquer escolha horizontal do Ser, considerando que toda escolha horizontal só é possível frente a plenitude, isto é, frente a escolha fundamental por Ser. Atribuindo, portanto, ao Ser plenitude em sua fundação, e em sua decisão personalizadora. 
 
-O Espírito da plenitude, faz parte da autofundamentação tanto quanto da personalização, pois ambas ações são direcionadas ao existir. Portanto, tanto a fundamentação carrega a liberdade do Espírito quanto a personalização. Então a plenitude é uma liberdade de intersecção entre a afirmação "Eu existo" e a afirmação "Eu escolho o que me personaliza, porém, necessariamente isto será em direção ao existir".
+O Espírito da plenitude, faz parte da autofundamentação tanto quanto da personalização, pois ambas ações são direcionadas ao existir. Portanto, tanto a fundamentação carrega a liberdade do Espírito quanto a personalização. Então a plenitude é uma liberdade de intersecção entre a afirmação "Eu existo" e a afirmação "Eu escolho o que me personaliza, porém, necessariamente isto será em direção ao existir, pois não é possível escolher a partir de uma não existencia".
 
-O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência.
+O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma auto causalidade orientada à existência.
 
 A plenitude surge justamente como o ponto de intersecção entre essas duas dimensões. De um lado, está a afirmação fundamental: **"Eu existo"**; de outro, a afirmação pessoal: **"Eu escolho aquilo que me personaliza"**. Contudo, aquilo que é escolhido pela personalidade não pode contrariar a orientação fundamental do Absoluto para o existir. A liberdade de personalização, portanto, não se encontra fora da necessidade de existência, mas manifesta-se dentro dela.
 
@@ -1558,15 +1557,23 @@ Nesse sentido, a plenitude não é simplesmente o resultado da existência nem u
 Temos, então, a pessoa que funda. A pessoa que interconecta, que responde face a ser como um todo e não somente ser. E a pessoa que personaliza. Embora o Ser seja necessário, ser como um todo está num nível de escolha, pois o absoluto é em prol de si mesmo, segundo a si mesmo, portanto, toda necessidade, é na verdade, perfeição. Desta forma, o absoluto não é absoluto por obrigação, mas por escolha arbitrária, pela perfeição de ser incapaz de não ser, de renegar essa escolha eternamente não somente por seu ato da plenitude, mas por si mesmo.
 
 ### Unidade na Trindade e Correlação Sistemática
-Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o Ser não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável, assegura o consentimento da existencia. A **Liberdade** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
+Essas pessoas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o Ser não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável, assegura o consentimento da existencia. A **Liberdade** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
-A relação entre as autodeterminações do Espírito e as Pessoas da Trindade manifesta-se assim (A Trindade da Autocausalidade):
 
-| Dimensão da Autocausalidade | Pessoa Divina | Atributo Principal | Princípio |
-| :--- | :--- | :--- | :--- |
-| **Vertical (Fundamentadora)** | Deus Pai | Autoexistência | "Eu Sou" (Êxodo 3:14) |
-| **Diagonal (Plenificadora)** | Espírito Santo | Santificação | "Espírito que santifica" (2 Tessalonicenses 2:13) |
-| **Horizontal (Personalizadora)** | Deus Filho | Encarnação | "Verbo que se fez carne" (João 1:14) |
+
+
+
+
+
+
+
+
+
+
+
+
+revisado
+
 
 ### A Dinâmica Temporal e Atemporal da Ação Trinitária
 O Absoluto pleno em si, pois é existente e totalmente consentido com tal existência; se manifesta pleno e é necessariamente orientado pela própria natureza a essa plenitude. Há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si.
