@@ -12270,3 +12270,7 @@ O rico nao tem o maior requinte, o minimo do luxo, o maior privilégio, a vida e
 
 
 A expressão é a forma de auto salvação. Uma breve sensação de alivio ao retirar de si a má impressão interior. O voto na direita transferir o peso existencial. O niilista transfere, arremessa seu peso existencial na sociedade através do seu voto, não querendo progresso ou uma nova modalidade de governo, mas objetivando uma destruição do sentido do mundo, dos bens naturais, da boa convivência do mundo que o atormenta, a paz o machuca. 
+
+
+
+Atualidades: o BC só diminuí os juros se cortar gastos com assistencialismo, portanto, se deduz que, a sintomática é transferida, o rico, desta forma, abandona parte de seus ganhos em juros em prol de ver a miséria, portanto, o interesse real não é o lucro, mas a transferência de sintomática. 
