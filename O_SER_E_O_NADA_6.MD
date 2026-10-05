@@ -486,42 +486,6 @@ A palavra Ser difere ligeiramente do termo "auto causar" pois, ao Ser, ligamos m
 
 Isto quer dizer que o auto causar designa o mesmo sentido que o Ser. Ambos necessitam de intencionalidade; porém, o termo autocausar não é um termo compacto, necessita do pronome "auto" para que se entenda o verbo causar como autor de si mesmo, já o Ser tem este entendimento da ação instaurado de forma singular. O Ser não só é, como se faz Ser. O causar, por si só, é um ato ao qual falta o fecho ontológico onde a ação se debruça sobre si mesma e forma o que é a partir de si mesma. Isto é, o Ser é o auto causar em uma só palavra.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ### A Qualidade da Ação do Ser como Presença Operante 
 
 **1. A Ação Pura, sem Movimento e sem Matéria**
@@ -1103,46 +1067,6 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 
 > *“O Espírito é o agir do invisível, a pureza que é. O Espírito do Absoluto é o querer sem direção particular, o querer doado, idêntico ao amor — e o amor que se faz identidade.”*
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 # O ESPÍRITO COMO AUTOPRESENÇA
 
 ## 1. A Necessidade de um Conceito de Espírito
@@ -1215,39 +1139,6 @@ A noção de "espírito" compreendida como autopresença absoluta responde diret
 ## 6. Espírito e Escolha (Um Aprofundamento)
 
 A questão da escolha reaparece aqui de forma crucial e inadiável. Se o Absoluto é espírito, ele escolheu criar o mundo ou decidiu ser aquilo o que ele é? A nossa posição filosófica é firme: **o Absoluto não escolhe, simplesmente porque não há escolha a ser feita**. Isso demonstra que ele repousa muito além da estrutura de escolha que rege o mundo determinado. O Absoluto não é uma vontade carente que decide; ele é a própria necessidade ontológica que torna possível a existência da vontade e da escolha no domínio daquilo que é indiferenciado.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 # O ESPÍRITO INDIFERENCIADO 
 
@@ -1598,8 +1489,6 @@ Assim, a distinção entre essas três dimensões não seria uma simples divisã
 O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência. Imaginar o Ser como uma realidade ontológica falsa (que chamaremos de nada) ajuda a visualizá-lo como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginarmos o Ser como "nada Absoluto", temos uma realidade aparentemente determinada e pura para exercer a autocausalidade; depois, basta que extraiamos essa realidade ilógica, e ficamos somente com a pura substância do Ser.
 
 *A visão do amor:* um homem sem olhos, sem rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um "eu", mas o amor sendo o próprio "eu". O amor com olhos e sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor.
-
-
 
 ## ** A ESTRUTURA DA AUTOCAUSALIDADE E A AÇÃO TRINITÁRIA**
 
