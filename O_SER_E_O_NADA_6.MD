@@ -1296,10 +1296,10 @@ O nada compreendido como Espírito não se justifica, pois o nada do Espírito r
 
 Um espírito determinado sob um fator extrínseco possuiria uma liberdade que poderia ser contrária ao que é, não sendo direcionado necessariamente ao existir. Portanto, ele não estaria rendido de forma a ser indetectável, nem de forma que a sua vontade seja tão pura que em nada possua dissonância com o que é. De forma que não precise nem mesmo existir como ente determinado para que tenha a sua ação instaurada; ele é a pureza absoluta e conserva integralmente os seus efeitos, portanto, existe de forma pura.
 
-Ao se determinar o fator autocausal (o Espírito), temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como uma persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si. O Espírito, portanto, é o Espírito indiferenciado. E a sua ação é pura. Ele fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. Tem a sua ação sobre aquilo que é.
-revisado
-## 6. As Duas Faces do Absoluto e o Fluxo da Existência
+Ao se determinar o fator autocausal (o Espírito), temos uma determinação para o Espírito que foge à esfera de ser uma realidade autocausal, pois careceria de uma determinação extrínseca. Ao determinarmos o Espírito como uma persona influente, com tendências únicas, também precisaríamos retirar essas tendências de um conteúdo extrínseco a si. O Espírito, portanto, é o Espírito indiferenciado. E a sua ação é pura. Ele fundamenta-se, plenifica-se e personaliza-se com pureza absoluta. Tem a sua ação sobre aquilo que é. Porém não devemos confundir o termo indiferenciado ou indeterminado como aspecto de uma pessoalidade, a pureza é a condição da soberania absoluta.
 
+## 6. As Duas Faces do Absoluto e o Fluxo da Existência
+revisado
 O fator autocausal é na medida em que é por si mesmo. Portanto, temos a ação autocausal, que é dividida em três esferas distintas, e o campo de ação do autocausal, que é o próprio absoluto. São duas faces de uma mesma realidade: o absoluto é autocausal no sentido de ser espiritualmente ativo em si mesmo, ao passo que dispõe de si nessa autocausalidade, que é a liberdade no âmbito autocausal.
 
 Para justificar um Espírito autocausal, não se pode recorrer a um Espírito que nada é, pois o nada, apesar de primeiramente parecer não possuir atributos, não possui pessoalidade para realizar a autocausalidade. Temos, portanto, que há um Espírito puríssimo, aquele que dispensa qualquer determinação de si, no sentido de que o Espírito não é uma unidade mandante no absoluto — ou seja, ele não se identifica como um "Sou", mas identifica-se como o "Ser", aquilo que paira sobre o absoluto em seu próprio ato de Ser. O Espírito que age sem precisar ordenar está adequado ao que é, e é condizente com o que é.
@@ -1594,7 +1594,21 @@ Estas três dimensões não dividem o Absoluto, mas revelam a riqueza interna de
 
 O resultado é uma **estrutura metafísica coerente** que demonstra como a liberdade do Absoluto, enquanto Espírito Pessoal autocausal, necessariamente se desdobra em três dimensões de ação — fundamentação, plenificação e personalização — todas unificadas por um amor indestrutível que é a própria expressão de sua existência necessária e plena.
 
----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
