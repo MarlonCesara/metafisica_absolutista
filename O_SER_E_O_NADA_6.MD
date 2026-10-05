@@ -1378,9 +1378,9 @@ Entretanto, **essa libertação da determinação não significa o abandono de s
 
 ## 13. A Presença Relacional e o Ser Criacional
 
-A ação divina não opera sob a carência de um objetivo a ser alcançado, pois o Absoluto já é a consumação de todos os fins. O seu "estar presente" é, portanto, uma doação contínua, um transbordamento de sua plenitude indiferenciada. Quando afirmamos que o seu Ser é relacional e criacional, não o reduzimos à dependência daquilo que Ele cria ou com o qual se relaciona. Pelo contrário, a criação e a relação são ecos de uma vitalidade ontológica tão imensurável que não pode ser contida na mera imobilidade.
-revisado
-Nessa transcendência, o "agir" e o "ser" colapsam em uma única e indivisível realidade. No mundo contingente e fenomênico, agir implica sair de si, transitar da potência ao ato, sofrer alteração e consumir-se no tempo. No Espírito Absoluto, agir é permanecer perfeitamente em si mesmo, enquanto a profundidade dessa própria permanência irradia a possibilidade de existência para tudo o que é determinado. Ele não precisa "mover-se" ou "decidir-se" cronologicamente para criar; a sua simples **Presença Autofundante** já é o ato criador que o sustenta e o permite dar o início à criação do mundo contingente.
+A ação do Ser não opera sob a carência de um objetivo a ser alcançado, pois o Absoluto já é a consumação de todos os fins. O seu "estar presente" é, portanto, uma doação contínua, um transbordamento de sua plenitude indiferenciada. Quando afirmamos que o seu Ser é relacional e criacional, não o reduzimos à dependência daquilo que Ele cria ou com o qual se relaciona. Pelo contrário, a criação e a relação são ecos de uma vitalidade ontológica tão imensurável que não pode ser contida na mera imobilidade.
+
+O "agir" e o "ser" colapsam em uma única e indivisível realidade. No mundo contingente e fenomênico, agir implica sair de si, transitar da potência ao ato, sofrer alteração e consumir-se no tempo. No Espírito Absoluto, agir é permanecer perfeitamente em si mesmo, enquanto a profundidade dessa própria permanência irradia a possibilidade de existência para tudo o que é determinado. Ele não precisa "mover-se" ou "decidir-se" cronologicamente para criar; a sua simples **Presença Autofundante** já é o ato criador que o sustenta e o permite dar o início à criação do mundo contingente.
 
 É precisamente por isso que a sua presença transgride o sentido usual do Ser em ação. Trata-se de uma **ação em repouso absoluto** e de um **repouso absolutamente ativo**. Ele relaciona-se com a multiplicidade e com as diferenças do mundo sem violar ou fragmentar a sua unidade indiferenciada. Ele instaura o tempo sem jamais se sujeitar às suas métricas.
 
@@ -1390,15 +1390,30 @@ Desta forma, o Espírito não é apenas o alicerce estático do universo ou um p
 
 ## 14. Síntese da Proposição
 
-O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação transcende a positividade determinada. Ao transgredir a lógica clássica em sua constante necessidade de diferenciações, o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula o seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a essência de sua própria presença inabalável.
+O Absoluto não se limita à dicotomia entre ser e não-ser da positividade determinada. Ao transgredir a lógica clássica em sua constante necessidade de diferenciações, o Absoluto eleva-se a um estado de positividade pura e indiferenciada. Esta transgressão não anula o seu "ato de ser", mas o plenifica, demonstrando que o Ser pode livrar-se de qualquer determinação formal sem, sob nenhuma hipótese, abandonar a natureza de sua própria presença inabalável.
 
-| **Categoria** | **Ontologia Clássica (Determinação)** | **Ontologia do Absoluto (Indiferenciação)** |
-| --- | --- | --- |
-| **Status do Ser** | Opõe-se estritamente ao Não-Ser. | Engloba o Ser sem possibilidade de diminuição ou acréscimo. |
-| **Positividade** | Adquirida pela forma e exclusão (é A, logo não é B). | Adquirida pela transgressão lógica (abrangência total). |
-| **Essência** | Vinculada à determinação. | Pura, preservada mesmo na total indiferenciação. |
 
----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1438,6 +1453,7 @@ O Absoluto não se limita à dicotomia entre ser e não-ser. A sua afirmação t
 refazer a parte abaixo
 
 
+revisar
 
 ## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
 
