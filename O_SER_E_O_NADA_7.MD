@@ -531,184 +531,6 @@ Em outras palavras, não há o ente intencionado ou o ente que quer a si mesmo. 
 
 
 
-
-
-
-
-
-
-
-
-### A Autocausalidade do Absoluto e a Falsa Dupla Exigência
-
-As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua própria causalidade?
-
-Esta questão investiga precisamente isto: Como o Absoluto é causa de si mesmo? A resposta revelará que a autocausalidade absoluta não é um mero princípio abstrato, mas exige atributos que conduzem necessariamente à compreensão do Absoluto como Espírito Pessoal – realidade autoconsciente, autodominante e autoconhecedora.
-
-**1. A Exigência da Dupla Fundamentação**
-A aplicação dos princípios causais ao próprio Absoluto revela uma exigência dupla e radical. Dado que o Absoluto existe, segue-se, por necessidade lógica, que ele é autocausal. Pois uma causa é exigida não apenas para a existência, mas igualmente para a essência de todo ente. Ou seja, requer-se tanto um fundamento para o ser (causa existencial) quanto um fundamento para o ser assim (causa essencial). Se A é A, há uma razão para que A exista, assim como há uma razão para que A exista precisamente como A e não como B. Ambas as modalidades de causalidade denotam o Absoluto como motivo de sua existência, tal como razão de si, como se dá. Isto é, o Absoluto não é somente causa primária de sua existência, mas é causa primária também de sua determinação.
-
-Consequentemente, se o Absoluto existe, sua autodeterminação e sua autofundamentação são indissociáveis. Portanto, sendo o Absoluto existente e, por definição, a totalidade, não pode haver explicação para sua existência e sua identidade a não ser em si mesmo: ele é, necessariamente, autojustificado.
-
-E essa autocausalidade não justifica sua determinação e sua fundamentação de maneira dissociada. Isto é, não há uma pergunta destinada a responder por que o Absoluto é absoluto e outra destinada a responder por que o Absoluto existe. Há, portanto, uma única questão: indagar o Absoluto enquanto autor de sua própria indiferenciação e de sua própria pureza. Ao inferir que o Absoluto é causa de si mesmo, concluímos que não há uma segunda natureza exterior ou anterior segundo a qual ele deva ser, nem uma razão exterior ou anterior pela qual ele deva ser como é. Isto nos leva a concluir que ele mesmo é a razão para sua estadia.
-
-Se o Absoluto é uma realidade "A", é necessário que o motivo de ser como tal esteja em si mesmo; se o Absoluto é uma realidade "B", é necessário que isso se justifique em si da mesma forma. Até mesmo num estado de indeterminação total, onde não há forma, esta indeterminação necessitaria de uma causa para ser como tal e não uma determinação específica. Porém, se a Causa Identitária é o que determina o que algo é, como o Absoluto — que é o próprio indiferenciado — pode ter uma "Causa Identitária"? A resposta exige uma purificação do conceito de causa quando elevado ao Absoluto: a causa colapsa na Necessidade, e a essência colapsa na Indiferenciação.
-
-**2. A Transmutação da Causa Identitária no Absoluto: Necessidade e Indeterminação**
-*O Conflito Lógico:*
-No domínio dos seres contingentes, a Causa Identitária atua como um princípio de determinação: ela explica por que "A" possui atributos específicos e limitados que o distinguem de "B". No entanto, ao elevarmos o pensamento ao Absoluto, deparamo-nos com um impasse: o Absoluto, por definição, é o Indiferenciado, o fundo sem limites e sem oposição. Logo, aplicar a categoria de "Causa Identitária" ao Absoluto, no seu sentido comum, seria forçar uma determinação sobre aquilo que antecede toda forma. Para resolver essa tensão, a noção de *causa sui* (causa de si) identitária no Absoluto deve ser despida de qualquer função determinadora e reinterpretada sob duas chaves absolutas:
-
-1. **A Causa Identitária é a Pura Necessidade:** No Absoluto, a Causa Identitária não é um "ato" que escolhe ou molda uma essência. Ela é, puramente, a Necessidade. Dizer que o Absoluto é "causa de sua própria essência" significa dizer que a sua essência não poderia não ser o que é. A causalidade, aqui, perde seu caráter produtivo e torna-se um atestado de modalidade ontológica absoluta: o Absoluto é Necessário.
-2. **A Essência do Absoluto é a Própria Indiferenciação:** Se a Causa Identitária do Absoluto não produz determinação, o que ela "funda"? Funda a impossibilidade de limitação. A "essência" do Absoluto não é uma configuração de atributos ("A" em oposição a "B"), mas o fato insuperável de ser o Fundo Indiferenciado.
-3. **A Inexistência da Causa de Determinação no Absoluto:** O Absoluto não causa a si mesmo como "algo" (um ente determinado no tempo e no espaço). O processo de determinação pertence exclusivamente à Manifestação (o mundo dos efeitos). Portanto, o Absoluto é causa de sua própria essência (Necessidade), mas é rigorosamente incausado em termos de determinação, pois nele não habitam formas, distinções ou limites a serem causados.
-
-*Síntese Final:*
-Enquanto no ente contingente a Causa Identitária responde à pergunta "Por que isto é desta forma definida?", no Absoluto ela cessa de ser uma pergunta relacional e afirma-se como um axioma de necessidade: "O Indeterminado é necessariamente Indeterminado". A autocausalidade do Absoluto não é o ato de dar forma a si mesmo, mas a invulnerabilidade absoluta de sua própria infinitude sem forma.
-
-**3. As Três Propriedades Essenciais da Autocausalidade Absoluta**
-**I. Autofundamentação (Causa Existencial de Si)**
-
-* Definição: O Absoluto encontra em si mesmo a razão suficiente para sua existência.
-* Característica: Não é contingente — sua essência implica necessariamente sua existência.
-* Consequência: Elimina qualquer regressão infinita; é o fundamento último. Se o Absoluto dependesse de algo externo, não seria absoluto.
-
-**II. Autoindiferenciado (Causa Essencial de Si)**
-
-* Definição: O Absoluto define sua própria pureza; é causa de ser precisamente o que é.
-* Exigências Constitutivas: 1. Autoexistência: Estar presente em si mesmo completamente. 2. Autonomia: Ter domínio total sobre sua própria natureza. 3. Autoconsciência: Conhecer-se integralmente para poder definir-se.
-* Consequência: Fundamenta a liberdade metafísica no nível mais radical. Explica como o Absoluto mantém seu estatuto (não é caótico ou aleatório). Mostra que o Absoluto não é apenas um "Ser estático", mas um Ser ativo que se autogoverna.
-
-**III. Autocontinuidade (Causa Continuada de Si)**
-
-* Definição: O Absoluto sustenta a si mesmo perpetuamente; sua existência não é um ato único, mas um processo contínuo de autossustentação.
-* Característica: Persistência ativa, não mera permanência passiva.
-* Consequência: Garante que o Absoluto não se dissolva ou degrade. Mostra que a existência, permanência e essência são autocausadas e autocontinuadas.
-
-**4. A Natureza Pessoal da Autocausalidade**
-A análise das três propriedades autocausais conduz a uma conclusão inevitável: a autocausalidade pura exige personalidade. Se uma realidade precisa definir a si mesma, essa realidade só pode estar viva, pois não há nada externo, paralelo ou anterior a ela para configurá-la — é ela que detém o poder de escolher a si própria. As exigências de autoconhecimento, autodomínio e autopresença em grau máximo constituem precisamente o que reconhecemos como pessoalidade ou "Espírito".
-
-Ainda que não haja possibilidade de escolha para o Absoluto necessário, o Absoluto é absoluto por si mesmo. Sua necessidade não exclui o fundamento vivo, pois a causa é inerente ao próprio Absoluto. Isso significa que a realidade causadora já integra aquilo que o Absoluto é.
-
-Ao considerarmos o nada como uma realidade fictícia, admitida apenas para fins investigativos, ao definir um nada para absoluto, este nada ganharia contornos, chegando, paradoxalmente, a assumir a propriedade de autocausalidade. Se há nada, o sentido de haver nada e não outra coisa só poderia estar no próprio Absoluto. Porém, sendo o nada uma necessariedade, ainda assim seu sentido estaria para o Absoluto, no entanto, não no sentido de um agir mecânico, mas no sentido de uma retidão de intenção a favor do existir.
-
-Dizer que o sentido do que há para o absoluto está fora de si, ou é causado por uma necessidade, é um erro. Não há necessidade pela qual o absoluto deva ser se não Nele mesmo. Não há razão ou fundamentação que parta de algo a não ser do próprio Absoluto. Não existe uma forma para que Ele seja, senão com razão inerente a ele mesmo. Se é nada, a razão está no próprio Nada, e se nada é nada, a razão paira livre e absoluta. Então, desta forma, traçamos os primeiros contornos do Ser. Ainda que haja uma necessidade para o Absoluto — a necessidade de Ser —, essa necessidade é de autoria do próprio Absoluto, pois não há lugar ou princípio externo de onde pudesse provir qualquer obrigatoriedade, necessidade ou determinação, tampouco uma natureza à qual o Absoluto devesse submeter-se para ser.
-
-*O Argumento da Personalidade Necessária:*
-Para que uma realidade seja autocausada, ela necessariamente precisa:
-
-1. **Conhecer-se integralmente** – para que possa escolher conscientemente sua própria natureza.
-2. **Dominar-se completamente** – para executar com pleno poder o ato causal.
-3. **Estar presente em si por inteiro** – pois, se alguma parte de si estivesse ausente ou inconsciente, sua determinação não seria integral, mas parcial e incompleta.
-
-Esta tríplice exigência corresponde aos atributos clássicos da divindade compreendidos em sua relação com a autocausalidade:
-
-* Onisciência corresponde ao autoconhecimento.
-* Onipotência corresponde ao autodomínio, poder sobre si.
-* Onipresença corresponde a estar inteiro em tudo de si (autopresença total).
-Esta tríade é a definição mesma de uma pessoalidade plena. Um princípio impessoal não poderia satisfazer estas exigências.
-
-*Diferenciação do Absoluto-Espírito:*
-
-* **Energia cósmica:** Cega, sem consciência ou propósito. O Espírito Transcende por ser autoconsciente e autodirigido.
-* **Lei matemática:** Abstrata, não existe por si mesma. O Espírito Transcende por ser realidade concreta e autoexistente.
-* **Substância indiferenciada:** Passiva, sem interioridade. O Espírito Transcende por ser atividade pura e interioridade absoluta.
-* **Campo quântico:** Determinístico ou aleatório. O Espírito Transcende por ser livre e autocausal.
-
-**5. Espírito Absoluto como Presença Autofundante**
-O Absoluto, enquanto realidade autocausal, transcende conceitos convencionais como "energia" e "nada", manifestando-se primordialmente como Presença. Esta presença não é um mero estado ontológico estático, mas uma atividade autofundante que contém em si os princípios de:
-
-*A Tríade da Presença Autofundante:*
-
-1. Automanifestação: Existência por si mesma, não derivada.
-2. Autoapropriação: Posse plena e domínio de sua própria natureza.
-3. Autotransparência: Conhecimento imediato de si como fundamento.
-
-*Superação das Dicotomias Redutoras:*
-
-* Contra o fenomenalismo: O Absoluto não se reduz a suas manifestações particulares.
-* Contra o niilismo: O Absoluto não é puro vazio ou ausência.
-* Via Mediana: O Absoluto é Presença Pura que existe por essência, é plenamente positiva e mantém-se em ato permanente.
-
-**6. Implicações Metafísicas Radicais**
-
-* O Indiferenciado é Pessoal: O Indiferenciado não é um vazio, mas a profundidade inesgotável do Espírito Autocausal, precisamente porque é sujeito absoluto.
-* Possibilidade e Impossibilidade como Atos do Espírito: Os domínios do possível e do impossível não são limites externos, mas expressões da soberania do Espírito. O "impossível" (como a contradição) existe como negação interna que o Espírito supera em sua totalidade.
-* A Realidade como Autocomunicação: O mundo contingente não é uma emanação necessária, mas ato livre de autodoação do Absoluto. A criação é expressão de liberdade, não de necessidade.
-
-*A Hierarquia dos Níveis de Causalidade e a Autodeterminação Absoluta:*
-
-* **Absoluto:** Causalidade Constitutiva (Fundamento de toda realidade). Relação: Autofundante.
-* **Possível:** Causalidade Formal/Estrutural (Leis matemáticas, princípios lógicos). Relação: Derivada e sustentada.
-* **Físico:** Causalidade Eficiente (Fenômenos naturais, eventos temporais). Relação: Mediata e contingente.
-
-A causalidade no Absoluto manifesta-se como autodeterminação radical: O Absoluto não apenas contém a possibilidade e a impossibilidade, mas também determina sua própria estrutura, fazendo com que a distinção entre elas seja, em última instância, uma manifestação de sua liberdade.
-
-**Conclusão:** A aplicação dos princípios causais ao próprio Absoluto revela que sua autocausalidade exige autoconhecimento, autodomínio e autopresença em grau máximo — atributos que constituem personalidade plena. Portanto, o Absoluto deve ser compreendido como Espírito Pessoal, não como princípio impessoal. A análise demonstra que a autocausalidade pura exige personalidade, e que o Absoluto não é "algo" (objeto), mas "Alguém" (Sujeito absoluto). A síntese da fundamentação demonstra, necessariamente, que se aceitamos os princípios lógicos e causais, somos logicamente compelidos a conceber este Absoluto como Espírito Pessoal.
-
-### O Conceito de Ser pela Ótica Relacional e O Paradoxo da Essência Indiferenciada
-
-**1. O Conceito de Ser pela Ótica Relacional**
-Ao nos referirmos a uma realidade intencional e autogovernante, temos que o Ser se faz Ser, de forma que o Ser é seu próprio produto, é o verbo. O Ser é o seu ato de Ser sem necessitar de um Ser finalizado, no sentido de que há o Ser e não o sido; há o ato. E o ato, no contexto metafísico, não pode ser confundido com um ato físico; isto é, o ato de causar não é um ato mecânico como a propulsão dada e o objeto propulsionado. A causa é intencional quando nos referimos ao Ser como uma realidade viva. Então aquilo que faz ser tem como primeiro ato o desejo e não uma propulsão cósmica; portanto, temos a ação como desejo e o objeto formalizado da ação é o próprio desejo. No sentido de que o Ser é intencional por si, e tem-se como a própria intencionalidade em pessoa que gira em direção ao seu existir ou a qualquer existir.
-
-Ao chamarmos essa intencionalidade de amor — um amor não direcionado a uma realidade externa, mas um amor que se faz pessoa — temos, portanto, que não há o ser como o ente, mas há a intenção como ente formalizado. Em outras palavras, não há um Ser que é uma pessoa, há o amor que se faz a pessoa. No sentido de que o desejo constitui seu próprio ente, seu próprio desígnio finalizado.
-
-O Ser, então, não forma o sido, forma a intenção, e a intenção é seu ato finalizado; a intenção é o próprio sido.
-
-**2. O Paradoxo da Essência Indiferenciada: A Tensão entre Existência e Autorrelação**
-A formulação do Absoluto como Espírito Pessoal e Indiferenciado Estável conduz a investigação metafísica a um de seus conflitos mais profundos. Ao elevarmos a razão ao seu limite estrutural, deparamo-nos com uma tensão ontológica e linguística incontornável: o problema da Indiferenciação como Essência e o enigma da reflexividade não-dual.
-
-*O Colapso entre Essência e Existência:*
-Se o Absoluto é o Indiferenciado, ele carece de uma "identidade" no sentido comum do termo. A identidade fenomênica ou lógica constitui-se sempre pela demarcação e pela negação (A é A precisamente porque não é B). O Absoluto, contudo, não possui um "outro" em relação ao qual possa se diferenciar. Desprovido de contornos e limites que o definam por exclusão, o Absoluto não possui atributos separáveis.
-
-Consequentemente, a sua essência não se distingue da sua existência. No mundo dos entes contingentes, *o que* algo é (essência) distingue-se do *fato de que* é (existência). No Absoluto, essa fronteira desmorona. O seu existir é o seu próprio ser; a sua presença absoluta é, de forma imanente e indistinta, a sua própria configuração.
-
-*O Vazio Linguístico da Reflexividade Não-Dual:*
-O conflito agrava-se ao confrontarmos este colapso com a necessidade de autoexplicação. O Absoluto envolve uma explicação para si mesmo (a autofundamentação e a autodeterminação). Para purificar essa autoexplicação de qualquer traço de dualidade (causa vs. efeito), utilizamos o termo Necessidade. A Necessidade atesta que o Absoluto não poderia não ser. No entanto, o termo "Necessidade" lida primariamente com a modalidade do existir, mas deixa uma lacuna estrutural no que tange à interioridade do Absoluto. Existe um abismo linguístico insuperável: não há uma palavra na linguagem humana que se refira à relação do Absoluto consigo mesmo sem insinuar uma dualidade.
-
-Nossa linguagem e nossa lógica são intrinsecamente transitivas e relacionais. Para pensar em "relação", pressupomos um sujeito que se relaciona e um objeto com o qual se relaciona. Como pode o Absoluto relacionar-se consigo mesmo, conhecer-se ou fundamentar-se sem se bifurcar internamente num "eu que funda" e num "eu que é fundado"? O Absoluto exige uma reflexividade pura, uma intimidade consigo mesmo que não crie divisões.
-
-*A Resolução: A Indiferenciação como Essência Positiva:*
-A resolução deste impasse exige uma inversão da perspectiva habitual. A inclinação natural do pensamento é encarar a "indiferenciação" como uma negação — a mera ausência de diferenças, uma falta de atributos ou um vácuo de identidade. Contudo, para que o sistema se sustente sem contradição, a indiferenciação deve ser alçada a um novo patamar ontológico.
-
-A resposta ao conflito formula-se da seguinte maneira: O Absoluto, ainda que radicalmente indiferenciado, tem na própria Indiferenciação a sua Essência. A Indiferenciação não é o "nada" ou a perda de uma essência, mas a Essência Positiva e Plena do Absoluto. A sua identidade é exatamente a ausência de distinção. Quando perguntamos qual é a natureza que o Absoluto sustenta na sua relação não-dual consigo mesmo, a resposta é a permanência do seu estado não-dividido.
-
-Ao tomar a Indiferenciação como Essência:
-
-* A relação do Absoluto consigo mesmo não precisa de uma "ação" que conecte duas partes, pois a relação é a própria coincidência imediata.
-* A autocausalidade (o motivo de ser como é) fundamenta-se sem cindir o Absoluto, pois o que ele eternamente afirma, conhece e domina (em sua pessoalidade) é a inviolabilidade de sua própria unidade sem limites.
-
-*Síntese do Conflito:*
-Esta resolução permite avançar a arquitetura do tratado sem violar os princípios da Lógica Assimétrica:
-
-1. **Inseparabilidade Ontológica:** No Absoluto, essência e existência são rigorosamente a mesma coisa. O fato de ele existir é indivisível da forma como existe (o Indiferenciado).
-2. **O Limite do Logos:** Aceita-se o silêncio da linguagem diante da autorrelação absoluta. A ausência de uma palavra exata para descrever a "reflexividade não-dual" confirma a transcendência da realidade tratada.
-3. **A Essência Revelada:** A indeterminação não é uma falha ontológica que precise ser preenchida por formas. A Indiferenciação é o ato máximo, a essência mesma do Fundamento. O Absoluto não carece de identidade; a sua Indiferenciação *é* a sua identidade invulnerável.
-
-Isto não quer dizer que o Absoluto se identifique mais com a essência do que com o fundamento. Quer dizer que é necessária uma palavra mais adequada para nomear essa fusão. Pois dizer que o Ser é indiferenciado significa dizer que ele não é como a forma ou como o determinado, mas isso ainda não diz respeito ao nome próprio desse ato de não ser como o determinado. O indiferenciado é uma tentativa de representar o Ser a partir da visão de uma forma determinada que foi destruída. Isto é, ele só é indiferenciado porque houve, anteriormente, o diferenciado. Equivale, portanto, a dizer que o Ser não é como um ente dotado de forma.
-
-Dessa forma, o termo mais direto seria Ser, pois ele designa as duas realidades unidas. Porém, ainda não há uma palavra que nos permita compreender o Ser sem concebê-lo como uma união entre identidade e fundamento. Isto é, o Absoluto possui o ato de fazer, e esse ato é o próprio feito. Temos, então, a forma como ato de fazer e o fundamento como sendo também esse mesmo ato. Há, portanto, a ação como o próprio produto da ação.
-
-A palavra Ser, portanto, também denota o existente tendo como forma o próprio existir. Isto é, a identidade é o existir, e o fundamento também é o existir. Algo é identificado por existir e é fundamentado pela mesma identificação. Ainda assim, temos o Ser como uma palavra dotada de dois significados que se fundam em uma só palavra. A palavra Ser denota, para o nosso pensamento, a forma e a fundamentação conjuntamente, mas ainda não conseguimos conceber uma palavra que não nos faça pensar na união de duas coisas, e sim em uma única coisa, uma essência que não comporte qualquer dualidade.
-
-O Ser é uma palavra que tenta representar essa união. Porém, como signo mental, ainda denota uma tentativa de reunir, em um som ou em uma imagem mental, dois significados. Deve haver, portanto, um processo pelo qual não seja necessário unir duas coisas em uma, ainda que continuemos imaginando duas coisas unidas. Deve haver uma palavra que designe uma coisa só, sem que sequer precisemos pensar que havia duas coisas separadas que posteriormente se uniram.
-
-Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se, por não produzir um produto distinto de si, tem como produto mais imediato o próprio querer-se, a intenção por si mesma.
-
-O causar-se, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
-
-Em nível metafísico, não é necessária uma ação exercida sobre um objeto, pois não há transformação de um objeto. Não há ação sobre algo. Há ação pura. Essa ação não é o movimento de um membro, mas o movimento do querer. Se fosse o movimento de algo, existiria não a criação a partir do nada, mas a transformação do nada em algo. Portanto, trata-se de um movimento do querer. Sendo o movimento do querer, temos que a identidade do querer, concomitantemente à sua própria ação, deveria inevitavelmente chamar-se amor.
-
-O amor é a intenção, o querer, que não necessita de um mediador entre o querer e aquilo que é querido para ser compreendido. O amor designa simultaneamente a qualidade e o sujeito da qualidade, executando uma operação inversa àquela realizada pela palavra Ser. Na palavra amor, podemos identificar o autor da ação de querer junto à própria ação. O amor, visto como pessoa, é também fundamento. Dessa forma, "o Amor" não é um conceito que designa uma dualidade fundida, mas um conceito do qual uma dualidade pode ser extraída mediante a distinção de uma pessoa.
-
-
-
-
-
-o texto abaixo é o mesmo texto acima porem corrigido
-
-=====================================================
-
-
 ## A Autocausalidade do Absoluto e a Falsa Dupla Exigência
 
 As Proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua própria causalidade?
@@ -1340,117 +1162,132 @@ O Absoluto não se limita à dicotomia entre ser e não-ser da positividade dete
 
 
 
-
-refazer a parte abaixo
-
-
-
-
-## **A LIBERDADE E INTENCIONALIDADE DO ABSOLUTO**
+## **A LIBERDADE E A INTENCIONALIDADE DO ABSOLUTO**
 
 ### Introdução: Da Natureza à Ação
-Após estabelecer o Absoluto como Espírito Pessoal, cuja auto causalidade exige autoconhecimento (onisciência), autodomínio (onipotência) e auto presença total (onipresença). Esta Proposição investigará a relação deste Espírito com as realidades contingentes que dele emanam. Antes, porém, é necessário compreender a estrutura interna da ação do Absoluto: **como o Espírito Pessoal exerce sua liberdade metafísica?** Esta Proposição investiga precisamente esta questão fundamental: **Quais são as dimensões da ação do Absoluto enquanto ser auto causal e pessoal?** A resposta revelará que a liberdade do Absoluto não é unidimensional, mas se desdobra em três modos distintos e complementares de auto fundamentação, os quais correspondem a três Pessoas distintas.
 
-### A Necessidade do Absoluto e a Irrevogabilidade do Ser
-O Absoluto é exatamente o que é, sendo todo ele mesmo de tal forma que existe necessariamente como Absoluto. O não absoluto não se apresenta como uma opção viável, pois qualquer tentativa de conceber o não absoluto terminaria por reintroduzir um absoluto ilógico. O não absoluto constitui apenas uma via ilógica para se referir ao absoluto, uma construção que se enquadra num sistema ilógico. Portanto, considerar o não absoluto implicaria admitir uma parte potencialmente integradora do absoluto no próprio absoluto, o que é contraditório. O absoluto não pode ser capturado por um pensamento ilógico de natureza pragmática. Dessa forma, o Absoluto **existe necessariamente**. E, por existir necessariamente, é pleno em si mesmo, não possuindo uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena precisamente no que significa ser absoluto. Sua abrangência é total sobre si mesmo, de modo que a **plenitude lhe é indissociável**.
+Após estabelecer o Absoluto como Espírito Pessoal, cuja autocausalidade exige autoconhecimento (onisciência), autodomínio (onipotência) e autopresença total (onipresença), esta proposição investigará a relação deste Espírito com as realidades contingentes que dele emanam. Antes, porém, é necessário compreender a estrutura interna da ação do Absoluto: como o Espírito Pessoal exerce sua liberdade metafísica? Esta proposição investiga precisamente esta questão fundamental: Quais são as dimensões da ação do Absoluto enquanto ser autocausal e pessoal? A resposta revelará que a liberdade do Absoluto não é unidimensional, mas se desdobra em três modos distintos e complementares de autofundamentação, os quais correspondem a três Pessoas distintas.
 
-### A intencionalidade do absoluto. 
+### A Necessidade Ontológica do Absoluto e a Irrevogabilidade do Ser
 
-O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção. Pois o não absoluto embarcaria um absoluto ilógico. O não absoluto é uma via ilógica para absoluto, de forma que se enquadre num sistema ilógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no próprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento ilógico pragmático. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena no que se refere a absoluto. Sua cobertura é total a si mesmo, desta forma, a plenitude é indissociável de si.
+O Absoluto é exatamente o que é, sendo todo ele mesmo de tal forma que existe necessariamente como Absoluto. O não absoluto não se apresenta como uma opção viável, pois qualquer tentativa de conceber o não absoluto terminaria por reintroduzir um absoluto ilógico. O não absoluto constitui apenas uma via ilógica para se referir ao absoluto, uma construção que se enquadra num sistema ilógico. Portanto, considerar o não absoluto implicaria admitir uma parte potencialmente integradora do absoluto no próprio absoluto, o que é contraditório. O absoluto não pode ser capturado por um pensamento ilógico de natureza pragmática. Dessa forma, o Absoluto existe necessariamente. E, por existir necessariamente, é pleno em si mesmo, não possuindo uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena precisamente no que significa ser absoluto. Sua abrangência é total sobre si mesmo, de modo que a plenitude lhe é indissociável.
+
+### A Intencionalidade Inerente do Absoluto
+
+O absoluto é tal como se é, é todo a si mesmo, de forma que seja o absoluto necessariamente. O não absoluto não é uma opção, pois o não absoluto embarcaria um absoluto ilógico. O não absoluto é uma via ilógica para o absoluto, de forma que se enquadre num sistema ilógico. Portanto, ao considerar o não absoluto, temos uma parte potencialmente integradora de absoluto no próprio absoluto, e isto não faz sentido. O absoluto não se captura por um pensamento ilógico pragmático. Desta forma, o absoluto necessariamente existe. E, portanto, é pleno de si mesmo, não possui uma existência aleatória, difusa, disforme ou parcial. Sua existência é plena no que se refere a ser absoluto. Sua cobertura é total a si mesmo; desta forma, a plenitude é indissociável de si.
 
 ### A Intencionalidade do Absoluto e a Liberdade Metafísica
-A não contingência não é um fator que sistematize o Absoluto de maneira a suprimir sua liberdade metafísica. Pelo contrário, a liberdade metafísica se configura em favor dessa não contingência, estabelecendo uma intencionalidade que é necessariamente orientada para a plenitude e para a vida. 
+
+A não contingência não é um fator que sistematize o Absoluto de maneira a suprimir sua liberdade metafísica. Pelo contrário, a liberdade metafísica se configura em favor dessa não contingência, estabelecendo uma intencionalidade que é necessariamente orientada para a plenitude e para a vida.
 
 #### Objeção e Resposta: A Liberdade e a Não Contingência
+
 Contra o argumento da liberdade metafísica, poderia ser formulada a seguinte objeção: *"Se a liberdade do Absoluto não inclui a possibilidade do não absoluto, então sua liberdade seria incompleta, tornando-o um ente parcialmente mecânico."*
 
-A resposta, porém, é que o Absoluto é perfeito: sua não contingência não exprime limitação, mas perfeição — um amor, um compromisso com a liberdade e com a vida que é tão firme e convicto que a possibilidade do não absoluto é simplesmente descartada. Trata-se de **um amor indestrutível**. Isso significa que o Absoluto é livre em si mesmo: fundamenta-se, plenifica-se e personaliza-se, e sua intenção está irrevogavelmente dirigida à vida, não por estar aprisionado, mas por perfeição. A possibilidade da contingência é descartada como requisito para a amplitude de sua liberdade. A não contingência, portanto, não é algo sistemático no sentido de uma ausência de ação, de um condicionamento inerte e sem vida. Ela é perfeição: um querer pela vida que é irrevogável. A não contingência é pessoalidade, é a incorruptibilidade em sentido espiritual. Não representa uma ausência de liberdade, mas sim a **liberdade de ser a si mesmo de modo irrevogável**.
+A resposta, porém, é que o Absoluto é perfeito: sua não contingência não exprime limitação, mas perfeição — um amor, um compromisso com a liberdade e com a vida que é tão firme e convicto que a possibilidade do não absoluto é simplesmente descartada. Trata-se de um amor indestrutível. Isso significa que o Absoluto é livre em si mesmo: fundamenta-se, plenifica-se e personaliza-se, e sua intenção está irrevogavelmente dirigida à vida, não por estar aprisionado, mas por perfeição. A possibilidade da contingência é descartada como requisito para a amplitude de sua liberdade. A não contingência, portanto, não é algo sistemático no sentido de uma ausência de ação, de um condicionamento inerte e sem vida. Ela é perfeição: um querer pela vida que é irrevogável. A não contingência é pessoalidade, é a incorruptibilidade em sentido espiritual. Não representa uma ausência de liberdade, mas sim a liberdade de ser a si mesmo de modo irrevogável.
 
-A não contingência, não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafísica, mas a liberdade metafísica se molda em favor de sua não contingência, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, em oposição ao argumento da liberdade metafísica, a seguinte objeção poderia ser formulada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecânico. Porém, o absoluto é perfeito, no sentido de que, sua não contingência não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento a liberdade e a vida irrevogável, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutível. Isto quer dizer que, o absoluto é livre em si, se fundamenta se plenifica e se personaliza, e sua intenção é irrevogavelmente direcionado a vida, não por aprisionamento, mas por perfeição. A possibilidade de contingência é descartada como necessária para sua amplitude de liberdade. A não contingência, portanto, não é sistemática, no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que, é um querer pela vida irrevogável. A não contingência é pessoalidade, é a incorruptibilidade no sentido Espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
+A não contingência não é um fator que sistematize o absoluto de forma a lhe retirar a liberdade metafísica, mas a liberdade metafísica se molda em favor de sua não contingência, de forma a estabelecer sua intencionalidade que é necessariamente voltada em favor da plenitude, da vida. Em termos mais simples, em oposição ao argumento da liberdade metafísica, a seguinte objeção poderia ser formulada: Se a liberdade do absoluto não abarca o não absoluto, então sua liberdade não seria completa, e isto o tornaria um ente parcialmente mecânico. Porém, o absoluto é perfeito, no sentido de que sua não contingência não é uma expressão de limitação, mas de perfeição, de um amor, um condicionamento à liberdade e à vida irrevogável, tão firme e convicto que a possibilidade de não absoluto é descartada. Isto é, um amor indestrutível. Isto quer dizer que o absoluto é livre em si, fundamenta-se, plenifica-se e personaliza-se, e sua intenção é irrevogavelmente direcionada à vida, não por aprisionamento, mas por perfeição. A possibilidade de contingência é descartada como necessária para sua amplitude de liberdade. A não contingência, portanto, não é sistemática no sentido de uma não ação, de um condicionamento sem vida, mas é perfeição, no sentido de que é um querer pela vida irrevogável. A não contingência é pessoalidade, é a incorruptibilidade no sentido espiritual. Não é uma não liberdade, mas é a liberdade de ser a si irrevogavelmente.
 
-###  As Três Dimensões da Ação do Espírito
-Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (auto causalidade do Absoluto) atua em três dimensões ontológicas complementares. Chamaremos cada ação de pessoa, pois, depois de definida a qualidade de cada ação, investigaremos a forma pela qual cada ação esboça uma pessoa distinta, por isto, desde antemão, nos referiremos a cada modelo de ação de liberdade do absoluto como pessoa e não apenas como modalidade de ação.
+### As Três Dimensões da Ação do Espírito
 
-####  Autocausalidade Vertical (Espírito Fundamentador)
+Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como esta intencionalidade se desdobra em modos distintos de ação. O Espírito (autocausalidade do Absoluto) atua em três dimensões ontológicas complementares. Chamaremos cada ação de pessoa, pois, depois de definida a qualidade de cada ação, investigaremos a forma pela qual cada ação esboça uma pessoa distinta. Por isto, desde antemão, nos referiremos a cada modelo de ação de liberdade do absoluto como pessoa e não apenas como modalidade de ação.
+
+#### Autocausalidade Vertical (Espírito Fundamentador)
+
 * **Definição:** Qualidade do ente de agir incorruptivelmente, isto é, em prol de sua existência e do sistema que o sustenta.
 * **Características para o Absoluto:**
-    * **Incorruptibilidade:** O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
-    * **Fundamentação:** O Espírito age como princípio de sustentação ontológica (autofundamentação).
-* **Princípio:** *"Eu Existo e me realizo no ato livre de existir como fundametador"* (pura afirmação ontológica).
+* **Incorruptibilidade:** O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+* **Fundamentação:** O Espírito age como princípio de sustentação ontológica (autofundamentação).
+
+* **Princípio:** *"Eu Existo e me realizo no ato livre de existir como fundamentador"* (pura afirmação ontológica).
 
 #### Autocausalidade Diagonal (Espírito Plenificador)
-* **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
+
+* **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo à sua existência e plenitude.
 * **Características para o Absoluto:**
-    * **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
-    * **Autodeterminação Essencial:** O Espírito age como princípio auto causal de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
-    * *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
+* **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+* **Autodeterminação Essencial:** O Espírito age como princípio autocausal de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
+* *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
+
+
 * **Princípio:** *"Escolho o que me realiza como Absoluto. Se houvesse a opção de escolher entre Ser e não Ser, escolheria irrevogavelmente Ser. Realizo-me escolhendo a favor da plenitude daquilo que sou."*
 
 #### Autodeterminação Horizontal (Espírito Personalizador)
+
 * **Definição:** Qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
 * **Características para o Absoluto:**
-    * **Personalização:** Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).
-    * **Liberdade Direcionada:** A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma particular a sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.
-    * *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
+* **Personalização:** Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).
+* **Liberdade Direcionada:** A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma particular à sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.
+* *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
+
 * **Princípio:** *"Entre escolhas equivalentes rumo à plenitude, sigo o que expressa minha identidade."*
 
 ### Tabela Sistemática: As Três Dimensões da Ação Divina
 
 | Dimensão | Espírito como... | Princípio | Modo de Ação |
-| :--- | :--- | :--- | :--- |
+| --- | --- | --- | --- |
 | **Vertical** | Fundamentador | "Eu Existo" (Autoafirmação ontológica) | Incorruptível, necessário |
-| **Diagonal** | Plenificador | "Escolho o que me realiza" (Auto plenificação) | Despersonalizado, perfeccionista |
-| **Horizontal** | Personalizador | "Sigo minha identidade" (Auto personalização) | Livre, pessoal, relacional, personalizado |
+| **Diagonal** | Plenificador | "Escolho o que me realiza" (Autoplenificação) | Despersonalizado, perfeccionista |
+| **Horizontal** | Personalizador | "Sigo minha identidade" (Autopersonalização) | Pessoal, personalizado |
 
 ### As Três Pessoas do Espírito Absoluto
+
 A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo.
 
 **I. O Poder Fundante (Espírito Fundamentador)**
+
 * **Atributos:**
-    * **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
-    * **Inabalabilidade:** Não se curva a contingências; sua natureza é *autossustentação pura*.
-    * **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
+* **Força Impetuosa:** É a manifestação crua do ato de existir, a potência primordial que afirma *"Eu Sou"* sem mediação.
+* **Inabalabilidade:** Não se curva a contingências; sua natureza é autossustentação pura.
+* **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
+
 * **Símbolo:** O Trovão (a irrupção incontestável do Ser).
 * **Princípio:** *"Antes de toda forma, há a fortaleza que a sustenta."*
 
 **II. A Sabedoria Plenificadora (Espírito Realizador)**
+
 * **Atributos:**
-    * **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
-    * **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.
-    * **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
+* **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
+* **Serenidade Ativa:** Não é passividade, mas ação sem esforço — como um mestre que dança sem pisar fora do ritmo.
+* **Beleza Necessária:** Toda sua manifestação é economia perfeita; nada falta, nada sobra.
+
+
 * **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
 * **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
 
 **III. A Liberdade Personalizante (Espírito Personificador)**
+
 * **Atributos:**
-    * **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
-    * **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
-    * **Vontade Lúdica:** Transforma a plenitude em *criatividade*, onde a paixão pessoal é um movimento da liberdade.
+* **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas por personalidade.
+* **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
+* **Vontade Lúdica:** Transforma a plenitude em criatividade, onde a paixão pessoal é um movimento da liberdade.
+
 * **Símbolo:** A Criatividade do Ser (onde o Absoluto expande a si mesmo não somente em sua perfeição mas em suas tendências criativas).
 * **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*
 
-## O Espírito da plenitude como interseção
+### O Espírito da Plenitude como Interseção
 
-Enquanto o fundamentador afirma, 'eu sou', o espirito da plenitude afirma eu sou, ainda que houvesse a escolhe de não ser. Sendo existente e necessário, isso não torna a escolha da plenitude uma ação mecânica, mas uma ação perfeita. E enquanto o personalizador afirma, eu escolho entre todas as possibilidades, o plenificador afirma, eu escolho com base na escolha fundamental de ser, pois o não ser não tem nem mesmo agir.
+Enquanto o fundamentador afirma 'eu sou', o espírito da plenitude afirma 'eu sou, ainda que houvesse a escolha de não ser'. Sendo existente e necessário, isso não torna a escolha da plenitude uma ação mecânica, mas uma ação perfeita. E enquanto o personalizador afirma 'eu escolho entre todas as possibilidades', o plenificador afirma 'eu escolho com base na escolha fundamental de ser', pois o não ser não tem nem mesmo o agir.
 
-Isto é, o planificador está tanto na decisão de Ser fundamental esboçando a dualidade entre Ser e não ser dentro da necessariedade de Ser, quanto em qualquer escolha horizontal do Ser, considerando que toda escolha horizontal só é possível frente a plenitude, isto é, frente a escolha fundamental por Ser. Atribuindo, portanto, ao Ser plenitude em sua fundação, e em sua decisão personalizadora. 
+Isto é, o plenificador está tanto na decisão de Ser fundamental, esboçando a dualidade entre Ser e não ser dentro da necessidade de Ser, quanto em qualquer escolha horizontal do Ser, considerando que toda escolha horizontal só é possível frente à plenitude, isto é, frente à escolha fundamental por Ser. Atribuindo, portanto, ao Ser plenitude em sua fundação, e em sua decisão personalizadora.
 
-O Espírito da plenitude, faz parte da autofundamentação tanto quanto da personalização, pois ambas ações são direcionadas ao existir. Portanto, tanto a fundamentação carrega a liberdade do Espírito quanto a personalização. Então a plenitude é uma liberdade de intersecção entre a afirmação "Eu existo" e a afirmação "Eu escolho o que me personaliza, porém, necessariamente isto será em direção ao existir, pois não é possível escolher a partir de uma não existencia".
+O Espírito da plenitude faz parte da autofundamentação tanto quanto da personalização, pois ambas as ações são direcionadas ao existir. Portanto, tanto a fundamentação carrega a plenitude do Espírito quanto a personalização. Então a plenitude é uma liberdade de intersecção entre a afirmação "Eu existo" e a afirmação "Eu escolho o que me personaliza, porém, necessariamente isto será em direção ao existir, pois não é possível escolher a partir de uma não existência".
 
-O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma auto causalidade orientada à existência.
+O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autocausalidade orientada à existência.
 
 A plenitude surge justamente como o ponto de intersecção entre essas duas dimensões. De um lado, está a afirmação fundamental: **"Eu existo"**; de outro, a afirmação pessoal: **"Eu escolho aquilo que me personaliza"**. Contudo, aquilo que é escolhido pela personalidade não pode contrariar a orientação fundamental do Absoluto para o existir. A liberdade de personalização, portanto, não se encontra fora da necessidade de existência, mas manifesta-se dentro dela.
 
 Assim, a plenitude é o espaço ontológico no qual necessidade e liberdade deixam de aparecer como opostos. A necessidade de existir fornece o fundamento da liberdade, enquanto a liberdade de personalizar determina a forma pela qual essa existência se expressa. O Espírito, portanto, é simultaneamente fundamentador e personalizador: afirma **"Eu existo"** e, a partir dessa afirmação, pode dizer **"Eu escolho"** — mas sempre dentro da orientação irrevogável para o existir.
 
-Nesse sentido, a plenitude não é simplesmente o resultado da existência nem um objetivo externo a ela; é a própria convergência entre a afirmação do existir e a liberdade de consentir com esse esse existir.
+Nesse sentido, a plenitude não é simplesmente o resultado da existência nem um objetivo externo a ela; é a própria convergência entre a afirmação do existir e a liberdade de consentir com esse existir.
 
-Temos, então, a pessoa que funda. A pessoa que interconecta, que responde face a ser como um todo e não somente ser. E a pessoa que personaliza. Embora o Ser seja necessário, ser como um todo está num nível de escolha, pois o absoluto é em prol de si mesmo, segundo a si mesmo, portanto, toda necessidade, é na verdade, perfeição. Desta forma, o absoluto não é absoluto por obrigação, mas por escolha arbitrária, pela perfeição de ser incapaz de não ser, de renegar essa escolha eternamente não somente por seu ato da plenitude, mas por si mesmo.
+Temos, então, a pessoa que funda. A pessoa que interconecta, que responde face a ser como um todo e não somente ser. E a pessoa que personaliza. Embora o Ser seja necessário, ser como um todo está num nível de escolha, pois o absoluto é em prol de si mesmo, segundo a si mesmo, portanto, toda necessidade é, na verdade, perfeição. Desta forma, o absoluto não é absoluto por obrigação, mas por escolha arbitrária, pela perfeição de ser incapaz de não ser, de renegar essa escolha eternamente por seu ato da plenitude.
 
 ### Unidade na Trindade e Correlação Sistemática
-Essas pessoas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o Ser não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável, assegura o consentimento da existencia. A **Liberdade** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
-#### A liberdade do Indiferenciado
+Essas pessoas não são divisões, mas **modos de relação do Espírito consigo mesmo**: O **Poder** (Fundamentador) garante que o Ser não desmorone. A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável, assegura o consentimento da existência. A **Alma** (Personalizador) introduz a personalidade no cosmo. Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
+
+#### A Liberdade do Indiferenciado
 
 Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas. Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação. O Espírito atua, portanto, em três dimensões ontológicas complementares:
 
@@ -1460,7 +1297,6 @@ Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autoc
 * *Características para o Absoluto:*
 * **Incorruptibilidade:** o Absoluto é necessariamente direcionado à sua própria existência e plenitude.
 * **Fundamentação:** o Espírito atua como princípio de sustentação ontológica, isto é, como autofundamentação.
-
 * *Princípio:* "Eu Existo."
 * Trata-se da pura afirmação ontológica do Absoluto.
 
@@ -1471,7 +1307,6 @@ Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autoc
 * **Despersonalização metafísica:** o Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
 * **Autodeterminação essencial:** o Espírito age como princípio determinista, ou seja, como autodeterminação de forma despersonalizada e necessariamente direcionada à plenitude do ente já fundamentado.
 * *Exemplo:* o Espírito incorruptível não possui aspectos pessoais definidos de maneira particular; seus dons e tendências são relativos à plenitude.
-
 * *Princípio:* "Escolho o que me realiza como Absoluto."
 
 **3. Autodeterminação Horizontal — Espírito Personalizador**
@@ -1479,55 +1314,61 @@ Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autoc
 * *Definição:* qualidade do ente de determinar-se na total amplitude de sua estrutura pessoal.
 * *Características para o Absoluto:*
 * **Personalização:** manifesta-se em direção à plenitude segundo os acidentes de uma personalidade (Alma).
-* **Liberdade direcionada:** a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de maneira perfeita à sua plenitude e existência ou de agir passionalmente em determinada circunstância, segundo a perspectiva de seus aspectos individuais.
+* **Liberdade direcionada:** a decisão do Absoluto é tomada segundo uma persona (Alma), independentemente de essa persona se direcionar de uma maneira ou de outra à sua plenitude e existência, age segundo a perspectiva de seus aspectos individuais.
 * *Exemplo:* pode não ser o momento de ser poético, mas, como isso é um aspecto da personalidade, pode ser realizado pela Alma do Absoluto.
-
 * *Princípio:* "Entre caminhos equivalentes rumo à plenitude, sigo o que expressa a minha identidade."
-
+revisado
 Assim, a distinção entre essas três dimensões não seria uma simples divisão de atributos, mas uma distinção nos próprios modos pelos quais o Espírito se relaciona consigo mesmo: primeiro como fundamento da existência, depois como orientação necessária à plenitude e, por fim, como autodeterminação pessoal. Não por ser autodeterminado, mas por expressar-se em sua liberdade de forma totalmente livre, independente de escolhas semelhantes voltadas para a plenitude — isto é, para o existir em plenitude e totalidade, sem reservas de si, esboçando-se em totalidade e sem meios-termos.
 
 O Espírito da plenitude participa tanto da autofundamentação quanto da personalização, pois ambas as dimensões estão orientadas, em última instância, para o existir. A fundamentação não é, portanto, desprovida de liberdade, assim como a personalização não é uma liberdade desvinculada da necessidade de existir. Ambas constituem modos distintos de uma mesma autodeterminação orientada à existência. Imaginar o Ser como uma realidade ontológica falsa (que chamaremos de nada) ajuda a visualizá-lo como um ente, de forma que consigamos retirar-lhe o aspecto relacional. Isto é, ao imaginarmos o Ser como "nada Absoluto", temos uma realidade aparentemente determinada e pura para exercer a autocausalidade; depois, basta que extraiamos essa realidade ilógica, e ficamos somente com a pura substância do Ser.
 
-*A visão do amor:* um homem sem olhos, sem rosto, com uma mão no coração segurando uma enorme luz. Seus olhos são totalmente transparentes, reluzindo somente o amor, sem um "eu", mas o amor sendo o próprio "eu". O amor com olhos e sem olhos. O amor com rosto e sem rosto. Só o amor. Uma mistura de assombro e encanto. De extrema paz e temor.
-
-## ** A ESTRUTURA DA AUTOCAUSALIDADE E A AÇÃO TRINITÁRIA**
+## **A ESTRUTURA DA AUTOCAUSALIDADE E A AÇÃO TRINITÁRIA**
 
 ### **As Três Dimensões da Ação do Espírito**
+
 O Espírito (autodeterminação do Absoluto) atua em três dimensões ontológicas complementares:
 
-**1. Auto causalidade Vertical (Espírito Fundamentador)**
+**1. Autocausalidade Vertical (Espírito Fundamentador)**
+
 * **Definição:** Qualidade do ente de agir incorruptivelmente, isto é, em prol de sua existência e do sistema que o sustenta.
 * **Características para o Absoluto:**
-    * **Incorruptibilidade:** O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
-    * **Fundamentação:** O Espírito age como princípio de sustentação ontológica (autofundamentação).
+* **Incorruptibilidade:** O Absoluto é necessariamente direcionado à sua própria existência e plenitude.
+* **Fundamentação:** O Espírito age como princípio de sustentação ontológica (autofundamentação).
+
 * **Princípio:** *"Eu Existo"* (pura afirmação ontológica).
 
-**2. Auto causalidade Diagonal (Espírito Plenificador)**
-* **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo a sua existência e plenitude.
+**2. Autocausalidade Diagonal (Espírito Plenificador)**
+
+* **Definição:** Qualidade do ente de agir segundo escolhas que se fundamentam necessariamente rumo à sua existência e plenitude.
 * **Características para o Absoluto:**
-    * **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
-    * **Auto causalidade Essencial:** O Espírito age como princípio causal (auto causalidade) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
-    * *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
+* **Despersonalização Metafísica:** O Absoluto se constrói sem tendências vinculadas a uma persona específica, de modo que suas escolhas são fundamentadas em uma retidão direcionada à própria existência e plenitude. A personalidade do agente ativo é definida pela própria retidão e plenitude de suas ações.
+* **Autocausalidade Essencial:** O Espírito age como princípio causal (autocausalidade) de forma despersonalizada e direcionada necessariamente à plenitude do ente já fundamentado.
+* *Exemplo:* O Espírito Incorruptível não tem aspectos pessoais definidos de forma que seus dons e tendências são relativos à plenitude.
+
 * **Princípio:** *"Escolho o que me realiza como Absoluto."*
 
-**3. Auto causalidade Horizontal (Espírito Personalizador)**
+**3. Autocausalidade Horizontal (Espírito Personalizador)**
+
 * **Definição:** Qualidade do ente de causar-se na total amplitude de sua estrutura pessoal.
 * **Características para o Absoluto:**
-    * **Personalização:** Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).
-    * **Liberdade Direcionada:** A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma perfeita a sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.
-    * *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
+* **Personalização:** Manifesta-se rumo à plenitude segundo acidentes de uma personalidade (Alma).
+* **Liberdade Direcionada:** A decisão do Absoluto é tomada segundo uma persona (Alma) independentemente se esta persona se direcionaria de forma perfeita à sua plenitude e existência ou de forma passional em determinada circunstância e sob a visão de seus aspectos individuais.
+* *Exemplo:* Não está no momento de ser engraçado, porém, como é aspecto da personalidade, isto é feito pela Alma do Absoluto.
+
 * **Princípio:** *"Entre caminhos equivalentes rumo à plenitude, sigo o que expressa minha identidade."*
 
 #### **Tabela: As Três Dimensões da Ação Divina**
 
 | Dimensão | Espírito como... | Princípio | Modo de Ação |
-| :--- | :--- | :--- | :--- |
+| --- | --- | --- | --- |
 | **Vertical** | Fundamentador | "Eu Existo" (Autoafirmação ontológica) | Incorruptível, necessário |
-| **Diagonal** | Plenificador | "Escolho o que me realiza" (Auto realização) | Despersonalizado, perfeccionista |
-| **Horizontal** | Personalizador | "Sigo minha identidade" (Automanifestação) | Livre, pessoal, relacional |
+| **Diagonal** | Plenificador | "Escolho o que me realiza" (Autorealização) | Despersonalizado, perfeccionista |
+| **Horizontal** | Personalizador | "Sigo minha identidade" (Automanifestação) | Pessoal, criativo |
 
 ### **Conclusão da Ação: A Unidade Trinitária da Ação Divina**
+
 Esta tríplice dimensão da ação do Espírito não representa uma divisão, mas uma **unidade dinâmica** que manifesta a plenitude do Ser divino:
+
 1. **Como Fundamentador,** O Espírito é o **doador da vida** - fonte incriada de toda existência.
 2. **Como Plenificador,** O Espírito é a **direção à plenitude** - razão e sabedoria que estrutura a realidade.
 3. **Como Personalizador,** O Espírito é a **pessoalidade** - amor pessoal e dom que personaliza.
@@ -1537,34 +1378,45 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 ### **AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 
 #### **As Pessoas da Autocausalidade Divina**
-A análise das dimensões da auto causalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, ou seja, modos de auto consentimento para com sua própria soberania absoluta.
+
+A análise das dimensões da autocausalidade revela que o Espírito Absoluto se manifesta em três pessoas ou modos de relação consigo mesmo, ou seja, modos de autoconsentimento para com sua própria soberania absoluta.
 
 **1. O Poder Fundante (Espírito Fundamentador)**
+
 * **Atributos:**
-    * **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
-    * **Inabalabilidade:** Não se curva a contingências; sua natureza é *autonomia pura*.
-    * **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
+* **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
+* **Inabalabilidade:** Não se curva a contingências; sua natureza é *autonomia pura*.
+* **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
+
+
 * **Símbolo:** O Trovão (a irrupção incontestável do Ser).
 * **Princípio:** *"Antes de toda forma, há a fortaleza que a causa."*
 
 **2. A Sabedoria Plenificadora (Espírito Realizador)**
+
 * **Atributos:**
-    * **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
-    * **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.
-    * **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
+* **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
+* **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.
+* **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
+
+
 * **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
 * **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
 
-**3. A Liberdade Personalizante (Espírito personificador)**
+**3. A Liberdade Personalizante (Espírito Personificador)**
+
 * **Atributos:**
-    * **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
-    * **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
-    * **Vontade Lúdica:** Transforma a plenitude em *criatividade sagrada*, onde até a assimetria da paixão pessoal é um movimento da liberdade e do sagrado.
+* **Criatividade Irrestrita:** Cria nuances mesmo onde a perfeição já está garantida — não por necessidade, mas *por personalidade*.
+* **Paixão Ontológica:** Escolhe *como* se manifestar, tingindo o necessário com as cores do desejo.
+* **Vontade Lúdica:** Transforma a plenitude em *criatividade*, onde a paixão pessoal é um movimento da liberdade.
+
 * **Símbolo:** A Criatividade do Ser (onde o Absoluto expande a si mesmo não somente em sua perfeição mas em suas tendências criativas).
 * **Princípio:** *"Não bastasse ser perfeito — quero sê-lo do meu modo."*
 
 #### **Unidade na Trindade e Correlação Sistemática**
+
 Essas personas não são divisões, mas **modos de relação do Espírito consigo mesmo**:
+
 * O **Poder** (Fundamentador) garante que o universo não desmorone.
 * A **Sabedoria** (Plenificador) assegura que cada movimento seja impecável.
 * A **Personalidade** (Personalizador) introduz a personalidade no cosmo.
@@ -1572,11 +1424,10 @@ Essas personas não são divisões, mas **modos de relação do Espírito consig
 Juntas, elas revelam que o Absoluto não é mera abstração, mas **Vida em grau máximo** — simultaneamente fundamento, realização e personalidade.
 
 ### **A Ação Trinária, Plenitude e Acidentes**
-A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. Enquanto o Espírito Perfeito age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
+A forma de ação do Espírito plenificador está sempre ligada à perfeição; porém, a ação do Espírito personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração, mas não necessariamente à ação direta pela perfeição absoluta. O Espírito plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito Perfeito detém a ação que está desligada de traços pessoais como os de uma personalidade. 
 
-
-
+> Enquanto o Espírito da plenitude age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
 
 
