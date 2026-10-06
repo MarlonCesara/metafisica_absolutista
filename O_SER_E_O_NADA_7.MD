@@ -1637,7 +1637,7 @@ O tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito.
 No Espírito, ao contrário, o tempo todo é vivência imediata, há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva) tal como um observador neste mundo. O Espírito é o próprio tempo em toda sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado.
 
 Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio) como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade é posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
-revisado
+
 ### **A Atualidade do Espírito e a Infinitude Atemporal: Princípios Indiscerníveis**
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e atualidade (fluxo eventual) compartilham propriedades essenciais:
@@ -1738,19 +1738,29 @@ O Ser está presente em tudo (onipresença), tudo conhece (onisciência) e tudo 
 
 
 
-revisado
 
 ### **A Dinâmica Temporal e Atemporal da Ação Trinitária**
 
-O Absoluto pleno em si, pois é existente e totalmente consentido com tal existência; se manifesta pleno e é necessariamente orientado pela própria natureza a essa plenitude. Há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si.
+O Absoluto pleno em si, pois é existente e totalmente consentido com tal existência; se manifesta pleno e é necessariamente orientado pela própria natureza a essa plenitude. Há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal progressiva para se dar como fundamento e plenitude de si.
 
-Porém, este atemporal não é uma ausência de tempo como se fosse uma forma colapsada do tempo em uma infinitude, mas é uma consumação, e está consumação. Por isto, está além do temporal, não no sentido que não é mais temporal, mas no sentido que ultrapassou a totalidade do tempo para um momento único, no qual se consome futuro, presente e passado.
+Porém, este atemporal não é uma ausência de tempo como se fosse uma forma colapsada do tempo em uma infinitude determinada, mas é uma consumação, e está consumação. Por isto, está além do temporal, não no sentido que não é mais temporal, mas no sentido que ultrapassou a totalidade do tempo para um momento único, no qual se consome futuro, presente e passado, no sentido de seu início, seu meio e seu fim.
 
-Porém, uma ação personalizadora necessita ser temporal. A plenitude atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois a plenitude já satisfaz o sentido do Absoluto como tal. A forma personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude.
+
+Porém, uma ação personalizadora necessita ser temporal. A plenitude fundamentadora atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois a plenitude fundamentadora já satisfaz o sentido do Absoluto como tal. A ação personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito da plenitude pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude. Isto quer dizer que, a ação na plenitude pode agir temporalmente ou atemporalmente, pode agir na ação fundamental de instauração do fundamentador e agir na ação personalizadora que só se dá atemporalmente. Porém, a ação personalizadora permanece inerte mediante a ação fundamentadora.
 
 Isto significa que a ação do Espírito da plenitude está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular. A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o Fundamentador e o Personalizador que é o Espírito da plenitude.
 
-O ato de plenitude atemporal coincide com o ato de personalização da ação do Espírito. Desse modo, há um mar do Espírito já instaurado, ao mesmo tempo em que existe uma ação que jorra constantemente nesse mar. Temos, portanto, uma força fundamental instaurada e o seu fluxo contínuo, que a percorre completamente, mas que conserva, dentro dela mesma, a distinção de sua própria ação.
+Isto aponta que, a ação do fundamentador, embora tenha a plenitude, não aceita personalização e isto gera uma pessoa, pois sua ação é totalmente voltada para a fundamentação, para o ser fundamentado e pleno. Consideremos, então está ação, não uma propriedade mecanica, mas uma personalidade, pois se dá confome a natureza absoluta e não conforme uma mecanica sem auto atuação. Portanto, o fundamentador só fundamenta, em razão de si, e isto indica, uma personalidade distinta da ação que personaliza.
+
+Temos que, o personalizador, pode fundamentar, mas não é ativo somente na fundamentação. Portanto, o personalizador, atua como o fundamentador, mas se difere da pessoalidade do mesmo. O personalizador não se atem ao ato cosumado da fundamentação, apesar de poder participar deste.
+
+Tendo portanto, uma ação isolada, temos uma pessoalidade fixa para a fundamentamentação da qual compartilha a ação personalizadora, porém, não é em si a pessoalidade fundamentadora, apesar de participar dela.
+
+O personalizador, no entanto, não se restringe somente a fundamentação, não é sua personalidade somente fundamentar, não está em sua pessoa o ato exclusivo e unico de fundamentar, portanto, o personalizador é uma só pessoa com o fundamentador, mas ao mesmo tempo tem sua ação libertaria mais abrangente.
+
+O ato de plenitude fundamentada atemporal é instaurado juntamente com o ato de personalização da ação do Espírito, porem nesta instauração o ato da personalização não esta ativo, mas esta presente. 
+revisado
+Desse modo, há um mar do Espírito já instaurado, ao mesmo tempo em que existe uma ação que jorra constantemente nesse mar. Temos, portanto, uma força fundamental instaurada e o seu fluxo contínuo, que a percorre completamente, mas que conserva, dentro dela mesma, a distinção de sua própria ação.
 
 Exemplo: o fundamentador é como um mar, enquanto o personalizador é o rumo da correnteza. Ambos são um só, possuem uma única direção rumo à continuidade das águas, e esse objetivo comum os une. Em toda a extensão do mar sempre houve a correnteza; porém, na ação instauradora do próprio mar, houve a ação do fundamentador. O ato da completude atemporal é vivo, mas sua vida existe em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer, em qualquer âmbito e temporalidade, essa força que já foi instaurada atemporalmente, como uma correnteza que se move em um ponto específico de um mar antes imóvel, porém vivo. Assim como gotas que caem e reverberam em ondas sobre um mar calmo, O fundamentador é o mar calmo, enquanto o Espírito personalizador é o decidir do cair da gota, que provoca reverberações acidentais dentro da plenitude instaurada.
 
