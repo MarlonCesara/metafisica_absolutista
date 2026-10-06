@@ -1670,7 +1670,7 @@ Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumad
 1. **Atemporalidade:** A consumação do tempo, o "lugar" metafísico onde todo o tempo está presente num único ato de ser. Não é ausência de tempo, mas sua plenitude sintética.
 2. **Temporalidade:** A sucessão de momentos, a dimensão na qual o tempo se desdobra e se apresenta como sequência, duração e história.
 3. **Autocausalidade:** A capacidade do Espírito de ser causa de si mesmo, o que confere uma dimensão *exterior* ao tempo. É a fonte incausada absoluta que causa a si mesma e pode determinar a realidade.
-revisado
+
 Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. Deste modo, temos uma consumação não estática ou pré-formatada, mas viva em si e presente em qualquer instante. Desta forma, advém uma realidade atemporal viva e frutífera, um solo fértil para o *start* do fenômeno no tempo do Espírito. Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o início fenomênico.
 
 Vamos citar o seguinte exemplo: ao imaginarmos uma régua infinita, temos uma não-régua, isto é, a infinitização retira as demarcações da régua e a destrói enquanto régua. Nesse sentido, o tempo fenomênico opera: ao imaginarmos um tempo infinito, ele não pode se apresentar todo sem colapsar, tal como a régua; isto é, não se apresenta todo sem deixar de ser tempo. No mundo fenomênico, só se podem ver recortes da realidade. Portanto, o presente só é constatado como recorte de uma progressão temporal que avança. 
@@ -1684,7 +1684,7 @@ No tempo do Espírito, o presente está em toda a linha temporal, já sobreposta
 O paradoxo se aprofunda: como algo pode "iniciar" num ser para quem tudo já está consumado? O Espírito, mesmo dispondo de todo o tempo consumado, possui uma linha temporal diferente do tempo que pode "iniciar" do ponto de vista fenomênico. O Espírito pode dar início ao tempo fenomênico precisamente porque não parte de um estado atemporal *estático* — o tempo em si já existe como dimensão do Ser. A ação do Espírito de Ser é consumada no que tange a se realizar, mas não é estática. O ato de ser é puro ato de plenitude de atividade.
 
 O universo "mancharia" a consumação inicial somente se concebêssemos o Espírito como realidade estática e fechada, como uma esfera perfeita que nada pode receber nem emitir. Porém, a linha temporal do Espírito existe como *potência ativa*, não como completude inerte.
-revisado
+
 Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda vivo e hábil para ação. O tempo do Espírito não passa de modo banalizado ou inanimado. O tempo do Espírito é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, porém, simultaneamente em toda sua extensão (um presente que não exclui o passado e o futuro, mas os contém numa síntese perfeita).
 
 Podemos comparar a capacidade de ação do Espírito ao observador linear: neste instante, eu ou você podemos executar uma ação, pois estamos num ponto específico do tempo; num ponto passado, não podemos executar nenhuma ação e nem num ponto futuro, somente num presente. Caso o tempo todo estivesse consumado e realizado para o observador (diluído numa eternidade sem centro), este também não poderia executar nenhuma ação. Mas sendo toda extensão um momento presente, o observador está apto para agir, pois é vivo. Dessa forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciência, não haveria mais ação. Porém, a consciência está para todo o tempo, e tem poder de ação sobre ele. A consciência divina é o próprio leito do tempo.
@@ -1692,8 +1692,6 @@ Podemos comparar a capacidade de ação do Espírito ao observador linear: neste
 > **Exemplo do Corredor e a Água:** Digamos que alguém percorra toda uma rua, e nessa corrida, possa ter bebido água em um bebedouro enquanto corria. Ao acabar de correr, não pode beber mais água, pois o tempo da oportunidade passou e já percorreu o caminho em que poderia tê-lo feito. Desta forma, pode-se interpretar erroneamente o Espírito sob um tempo consumado: Ele já teria percorrido toda a "rua" e as oportunidades estariam para trás. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim, temos seu potencial de ação em todo o percurso preservado. Ele está simultaneamente em todos os pontos, e a decisão é sempre presente.
 
 ### **O Observador Eterno: A Subjetividade que Constitui o Tempo**
-
-> **Exemplo ilustrativo da Sala e do Quadro:** O tempo passou, porém o observador ainda continua observando. E o observador não precisa "começar a observar" para observar — por isso, o observador *sempre* observou. Se alguém sempre esteve numa sala observando um quadro, não há um momento em que "começou"; a observação é coextensiva à sua presença.
 
 O Espírito como Observador absoluto:
 
@@ -1703,22 +1701,18 @@ O Espírito como Observador absoluto:
 
 Isto resolve o problema da objeção sobre quando o Espírito "despertou" ou esteve autoconsciente pela primeira vez (uma pergunta mal formulada). Pois, se sempre esteve autoconsciente e está consumado, em qual momento sua autoconsciência poderia determinar o universo? A objeção dita que sua consciência consumada já teria vivido toda a temporalidade e decidido não agir, pois teria se dado segundo sua consumação.
 
-A resposta é que o tempo fenomênico pode se consumar (ter um *start* e um final) ao compararmos o Espírito com o universo finito. Porém, ao pensarmos no Espírito, que é vivo, o Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de ser inativo após a observação da totalidade de si. O ato de observar não é um evento que se conclui. O Espírito pode esgotar o tempo no que tange à observação de seus conteúdos possíveis (onisciência), mas não esgota a *ação* observadora. O infinito do Espírito continua sua vivência autoconsciente a partir da infinitude. A infinitude não é um ponto de chegada, mas o solo. Temos então uma linha de continuidade a partir da consumação.
+A resposta é que o tempo fenomênico pode ter um *start* e um final. Porém, ao pensarmos no Espírito, que é vivo, o Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de ser inativo após a observação da totalidade de si. O ato de observar não é um evento que se conclui. O Espírito pode esgotar o tempo no que tange à observação de seus conteúdos possíveis (onisciência), mas não esgota a *ação* observadora. O infinito do Espírito continua sua vivência autoconsciente a partir da infinitude. A infinitude não é um ponto de chegada, mas o solo. Temos então uma linha de continuidade a partir da consumação.
 
 Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estância de "Infinito consciente". Este infinito consciente tem uma linha perpendicular sobre si, que é a continuação da consciência, o ato perene de estar consciente. É a diferença entre saber tudo (consumado) e viver tudo (eterno presente que se renova).
-
-> **A Metáfora do Olho no Espelho:** Um olho observou totalmente a si mesmo num espelho, contemplando cada detalhe. Isso é a "sabedoria". Porém, o ato da observação continua. O olho não se cansa de ver e contemplar, pois o observar não cessa. A visão da totalidade temporal não esgota a ação do Espírito, não cega. Atribui-lhe uma base de observação natural que se projeta a favor de uma nova temporalidade. Sob a eternidade do Espírito, há sempre renovação, porque o conhecimento pleno é amor, e o amor é vitalidade, é frescor, é atualidade, é vivo.
 
 E quando foi que a consumação da sabedoria do Espírito deu origem à primeira observação posterior à infinitude previamente observada? Ao considerarmos que a totalidade vivida ainda está operante, temos a renovação constante da infinitude observada. O "quando" aqui não é cronológico, mas ontológico. A renovação age, portanto, sobre toda a esfera de tempo.
 
 Temos uma **infinitude diagonal e uma horizontal**: a infinitude pré-existente (a totalidade do que pode ser conhecido) e uma infinitude que se estende desta como renovação (a novidade perene). Nessa renovação constante há um tempo em que pode se dar o *start* do fenômeno. Para além da infinitude observada, há o observador indo em prol de uma infinitude observada *perpendicular*. O movimento é para dentro, na profundidade inesgotável do Ser.
 
 > **A Metáfora do Músico e da Biblioteca:** O Espírito observou a infinitude; em cada observação, o observador não se esgota e continua observando ainda que o tempo passe. É como um músico que conhece perfeitamente uma partitura, mas a executa com frescor e novidade a cada vez. O observador viveu a infinitude, mas nunca se esgota do novo. Dentro da sua consumação da observação há vida, não estaticidade. Desta forma, para todo tempo, temos um tempo perpendicular vivificado infinitamente. O teor de vida do Espírito causa uma linha que cruza a infinitude.
-> Gera-se um acúmulo de observação consumado, ao passo que temos uma observação viva sobreposta a esse acúmulo. É a diferença entre uma biblioteca que contém todos os livros (onisciência) e uma mente que lê esses livros eternamente (vida divina).
+> Gera-se um acúmulo de observação consumado, ao passo que temos uma observação viva sobreposta a esse acúmulo. É a diferença entre uma biblioteca que contém todos os livros (onisciência) e uma mente que lê esses livros eternamente (atualização).
 
-Deus está presente em tudo (onipresença), tudo conhece (onisciência) e tudo pode (onipotência). Ele não só conhece a si mesmo de uma forma temporal/atemporal, como vive o eterno presente do Espírito, sendo o observador vivo.
-
-
+O Ser está presente em tudo (onipresença), tudo conhece (onisciência) e tudo pode (onipotência). Ele não só conhece a si mesmo de uma forma temporal/atemporal, como vive o eterno presente do Espírito, sendo o observador vivo.
 
 
 
@@ -1743,6 +1737,8 @@ Deus está presente em tudo (onipresença), tudo conhece (onisciência) e tudo p
 
 
 
+
+revisado
 
 ### **A Dinâmica Temporal e Atemporal da Ação Trinitária**
 
