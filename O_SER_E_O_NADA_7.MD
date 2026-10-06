@@ -1631,15 +1631,13 @@ O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limi
 **Formulação Final:** O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
 
 ### **A Circularidade Viva do Espírito e a Temporalidade Linear**
-revisado
-Ao usarmos a comparação do Espírito como um círculo que se desdobra no tempo e se repete infinitamente numa linha reta, tendemos a pensar (somos levados a imaginar) que seu autodomínio, autopresença e autoconhecimento percorrem os elos à medida que o tempo avança em sua internalidade. Porém, essa é uma visão mundana do tempo.
 
-Pois o tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito. No universo presente, a **temporalidade linear do fenômeno** é percorrida pelo observador de uma forma linear, não é vivenciada simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde; à medida que o tempo avança, o observador obtém um novo tempo e o tempo passado se vai.
+O tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito. No universo presente, a **temporalidade linear do fenômeno** é percorrida pelo observador de uma forma linear, não é vivenciada simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde; à medida que o tempo avança, o observador obtém um novo tempo e o tempo passado se vai.
 
 No Espírito, ao contrário, o tempo todo é vivência imediata, há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva) tal como um observador neste mundo. O Espírito é o próprio tempo em toda sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado.
 
-Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio) como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade não é duração infinita, mas a posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
-
+Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio) como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade é posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
+revisado
 ### **A Atualidade do Espírito e a Infinitude Atemporal: Princípios Indiscerníveis**
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e atualidade (fluxo eventual) compartilham propriedades essenciais:
@@ -1649,17 +1647,13 @@ Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência 
 * **Ausência de dimensões absolutas:** Nem a atualidade nem a infinitude podem ser delimitados espacial ou temporalmente.
 * **Dependência de um segundo termo:** O infinito só é definível em relação à atualidade (ex.: infinitude em progressão vs. infinitude consumada). A atualidade só é reconhecível em contraste com o infinito (ex.: infinito vs. progressão infinita).
 
-
-* **Dualidade Necessária:** Sem dualidade, ambos colapsam. O infinito é ininteligível sem o fluxo eventual; a eventualidade em sua integralidade é indistinguível do infinito.
+* **Dualidade Necessária:** Sem dualidade, ambos colapsam. O infinito é ininteligível sem o fluxo de atualidade eventual; a eventualidade em sua integralidade é indistinguível do infinito temporal consumado.
 
 **O ato único do Espírito**, em outras palavras, consiste na **transcendência do temporal**. Desse modo, o tempo pode ser percorrido como uma linha infinita, e, ao adentrarmos a dimensão temporal infinita na tentativa de medi-la, o resultado obtido é **o ato único do Ser** – um ato que compreendemos como **atemporal**.
 
 Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contém uma dimensão medível, temos o atemporal, ou seja, uma experiência que extravasa o tempo.
 
 ### **A Experiência da Infinitude**
-
-* **Abstração e Sentimento:** A infinitude não é uma dimensão mensurável, mas uma experiência abstrata:
-* *Exemplo:* Um sentimento de plenitude transcendente (êxtase) é a infinitude manifesta como emoção.
 
 ### **O Problema da Temporalidade Divina: Introdução ao Paradoxo**
 
@@ -1672,7 +1666,7 @@ A presente proposição busca transcender essa dicotomia, propondo uma terceira 
 A circularidade do Espírito temporal não é uma circularidade morta ou estática, uma repetição vazia do mesmo — **ela é viva**. Essa vivacidade implica que o Espírito pode agir sob qualquer tempo, conferindo uma camada não linear à temporalidade. Isto significa que o tempo tende à sua consumação, mas não é aprisionado por ela. A consumação não é um ponto final que aniquila o movimento, mas uma plenitude que contém em si a potência do novo.
 
 Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumada —, a partir da própria consumação emerge uma nova dimensão. Há, portanto, três características fundamentais que se delineiam a partir dessa compreensão:
-
+revisado
 1. **Atemporalidade:** A consumação do tempo, o "lugar" metafísico onde todo o tempo está presente num único ato de ser. Não é ausência de tempo, mas sua plenitude sintética.
 2. **Temporalidade:** A sucessão de momentos, a dimensão na qual o tempo se desdobra e se apresenta como sequência, duração e história.
 3. **Autocausalidade:** A capacidade do Espírito de ser causa de si mesmo, o que confere uma dimensão *exterior* ao tempo. É a fonte incausada absoluta que causa a si mesma e pode determinar a realidade.
