@@ -1941,6 +1941,8 @@ Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é u
 
 Tal como não há contradição entre as pessoas do Espírito, são a mesma pessoa que se manifestam de forma atemporal e temporal. A temporalidade faz existir modos distintos de ação, que se fazem pessoalidade no modo de ação, que distinguem em ação e pessoalidade, mas que não fragmentam, pois a pessoalidade é nome dado a pratica da ação temporal e atemporal que são uma só. Isto é a ação pesonalizadora é temporal, mas o temporal é o atemporal em sua consumação. Tal como o atemporal e temporal são um só, o personalizador e o fundamentador são um só.
 
+O Espírito é o mesmo que tem sua ação no temporal e atemporal, ambas as coisas sendo uma só, temos as ações sendo de uma só fonte criadora, mas com sentimentos distintos de uma mesma tendencia. Porém, os sentimentos, ou seja, as pessoas distintas, não são um atentado contra a indiferenciação, a pessoa da consumação é a mesma pessoa da atualização. Da mesma forma que o atemporal é o temporal consumado.
+
 revisado
 
 Como o Espírito decide o tempo que deseja viver em sua consumação? Qualquer estado da alma corresponde à sua essência, à sua *persona*. O momento no tempo em que o Espírito se localiza faz jus à sua *persona*, considerando que sua *persona* é o reflexo de sua plenitude. A decisão brota daquilo que o Espírito é.
