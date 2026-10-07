@@ -12274,3 +12274,9 @@ A expressão é a forma de auto salvação. Uma breve sensação de alivio ao re
 
 
 Atualidades: o BC só diminuí os juros se cortar gastos com assistencialismo, portanto, se deduz que, a sintomática é transferida, o rico, desta forma, abandona parte de seus ganhos em juros em prol de ver a miséria, portanto, o interesse real não é o lucro, mas a transferência de sintomática. 
+
+
+
+## O mal na politica
+
+o niilismo se esconde, mas não deixa de agir, se esconde até mesmo na esquerda, e a esquerda tenta fazer o melhor com esse agir. Se as forças niilistas que tem fortunas quisessem certamente matariam imediatamente quem esta no poder, tudo que é permitido está sob controle, menos ou mais intenso das forças niilistas. E há o governo que manobra bem essas forças niilistas, que lida bem com a forte pressão bélica, armamentista, ameaças, que é o de esquerda, e o governo que escancara as forças nilistaas que é o de direita. Ambas as modalidades são pressionadas e estão sob a mira do poder acumulado.
