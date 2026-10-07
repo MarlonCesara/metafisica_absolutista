@@ -1950,15 +1950,19 @@ O Espírito plenificador se dissolve na completude, pois gera em favor da perfei
 A alma do Verbo, dessa forma, sempre existiu de modo nativo na Trindade; porém, teve sua ação direta (gerou modificações na realidade) a partir do momento de sua atividade no presente eterno que percorre toda a extensão consumada. E o tempo do mundo teve seu *start* com a ação temporal do Espírito plenificador. Isso revela que, apesar de o Espírito personalizador estar presente na criação ("tudo foi feito por Ele"), sua ação pessoal, enquanto personalidade da trindade, só poderia ser efetivada na atualidade da consumação. Em algum tempo da consumação o espírito personalizador decidiu agir. 
 
 Não há um processo de criação da alma do absoluto diretamente do Espírito da plenitude no tempo do Espírito, pois o personalizador já estava operante desde sempre na fundamentação. O que há é uma *ativação* da ação personalizadora da pessoa personalizadora. Temos, portanto, uma alma ativada em algum momento do tempo consumado, ao passo que também sempre existiu atemporalmente.
-revisado
+
 A alma não teve sua ação no primeiro momento ou ultimo momento da completude, mas tem potencial de ação no tempo total do Espírito. Temos a plenitude e totalidade do tempo do Espírito (o fundamentador), e uma vivência temporal personalizável (a alma). O Espírito, no momento de sua integralidade eterna, é como tal (completude); mas no tempo presente do Espírito, há o progresso numa linha perpendicular à completude eterna.
 
-Temos o diferencial do ato concreto de fundamentação (que se dá na completude, como solo que confere um teor único) e o ato posterior de vivência (que se dá sob o estatuto do personalizador, ativo ou passivo na história, revelando o amor que é a vida trinitária).
+Temos o ato concreto de fundamentação (que se dá na completude, como solo que confere um teor único) e o ato concomitante de vivência (que se dá sob o estatuto do personalizador, ativo ou passivo na história, revelando o amor que é a vida trinitária).
 
 ### **O Propósito Divino, a Regressão Infinita e o Princípio Diagonal**
 
 **A Regressão Infinita e a Solução Transcendente:**
-Mesmo que se encontre o "*start*" da ação, haveria uma constante ação desde o momento da plenitude, e está sendo passividade. Uma ação passiva. Pois, a soberania é uma ação soberana que se dá sem que seja necessária qualquer ação prévia. Não é uma determinação, pois nada determina, só há auto posição soberana do Espírito. Porém, se o tempo é consumado, em toda está consumação houve essa ação de soberania.
+Mesmo havendo o tempo do Espírito "*start*" da ação, haveria um potencial de ação por toda a consumação temporal, uma passividade consumada que da vazão a um momento de ação. 
+
+A soberania é uma ação soberana que se dá sem que seja necessária qualquer ação prévia. Não é uma ação fora do Ser, mas é a própria ação de Ser. Não é uma determinação, pois nada determina, só há auto posição soberana do Espírito. Porém, se o tempo é consumado, em toda está consumação houve essa ação de soberania.
+
+revisado
 
 Se o indiferenciado se dá como tal, como explicar a transição para a determinação da criação sem violar sua pureza? Ao considerar que o absoluto se deu como acionado no quesito determinado, isso provoca um infinito de regressões: se o tempo do Espírito se deu determinado, exige um determinador, e este ultimo determinador temporal, também está determinado e exige por sua vez outro determinador.
 
