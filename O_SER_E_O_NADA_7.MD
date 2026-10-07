@@ -1941,11 +1941,11 @@ Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é u
 
 Tal como não há contradição entre as pessoas do Espírito, são a mesma pessoa que se manifestam de forma atemporal e temporal. A temporalidade faz existir modos distintos de ação, que se fazem pessoalidade no modo de ação, que distinguem em ação e pessoalidade, mas que não fragmentam, pois a pessoalidade é nome dado a pratica da ação temporal e atemporal que são uma só. Isto é a ação pesonalizadora é temporal, mas o temporal é o atemporal em sua consumação. Tal como o atemporal e temporal são um só, o personalizador e o fundamentador são um só.
 
-O Espírito é o mesmo que tem sua ação no temporal e atemporal, ambas as coisas sendo uma só, temos as ações sendo de uma só fonte criadora, mas com sentimentos distintos de uma mesma tendencia. Porém, os sentimentos, ou seja, as pessoas distintas, não são um atentado contra a indiferenciação, a pessoa da consumação é a mesma pessoa da atualização. Da mesma forma que o atemporal é o temporal consumado.
+O Espírito é o mesmo que tem sua ação no temporal e atemporal, ambas as coisas sendo uma só, temos as ações sendo de uma só fonte criadora, mas com sentimentos distintos de uma mesma tendencia. Porém, os sentimentos, ou seja, as pessoas distintas, não são um atentado contra a indiferenciação, a pessoa da consumação é a mesma pessoa da atualização. Da mesma forma que o atemporal é o temporal consumado. O Espírito da consumação é tal que, sua ação, consumada, é a ação temporal. Portanto, o personalizador é o estravasamento da consumação, é o transbordar da consumação.
+
+Como o Espírito decide o tempo que deseja dar o start da determinação, estando ele em sua consumação? Qualquer tempo de ação da alma no nível absoluto corresponde à sua *persona*. O momento no tempo em que o Espírito se localiza para agir faz jus à sua *persona*, considerando que sua *persona* da personificação acompanha sua plenitude. A decisão brota daquilo que o Espírito é no momento de seu transbordamento.
 
 revisado
-
-Como o Espírito decide o tempo que deseja viver em sua consumação? Qualquer estado da alma corresponde à sua essência, à sua *persona*. O momento no tempo em que o Espírito se localiza faz jus à sua *persona*, considerando que sua *persona* é o reflexo de sua plenitude. A decisão brota daquilo que o Espírito é.
 
 A pergunta *"Quem és tu?"* sintoniza-se perfeitamente com a pergunta *"Que tempo és tu?"*. Ambas deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo, na medida em que o tempo é a duração do Seu ato de ser.
 
@@ -1994,8 +1994,8 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 
 A auto causalidade a nível Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.
 
-O Espírito, sendo a infinitude manifesta, é naturalmente atemporal, e temporal. Seu tempo não é linear. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo Espírito através de sua atualização.
+O Espírito, sendo a infinitude manifesta, é naturalmente atemporal, e temporal. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo Espírito através de sua atualização.
 
 A autocausalidade envolve a autoconsciência, o conhecer-se por inteiro, e o estar consciente. Ambos revelam a consumação temporal e a atualização temporal em concomitância. Pois há o conhecimento do todo, da consumação, ao passo que há o conhecimento da atualização.
 
-A autocausalidade é consciência. E esta consciência é consciência de um todo, e consciência atuante e atualizante.
+A autocausalidade é presença. E esta presença é presença de um todo, e consciência atuante e atualizante.
