@@ -1962,8 +1962,6 @@ Mesmo havendo o tempo do Espírito "*start*" da ação, haveria um potencial de 
 
 A soberania é uma ação soberana que se dá sem que seja necessária qualquer ação prévia. Não é uma ação fora do Ser, mas é a própria ação de Ser. Não é uma determinação, pois nada determina, só há auto posição soberana do Espírito. Porém, se o tempo é consumado, em toda está consumação houve essa ação de soberania.
 
-revisado
-
 Se o indiferenciado se dá como tal, como explicar a transição para a determinação da criação sem violar sua pureza? Ao considerar que o absoluto se deu como acionado no quesito determinado, isso provoca um infinito de regressões: se o tempo do Espírito se deu determinado, exige um determinador, e este ultimo determinador temporal, também está determinado e exige por sua vez outro determinador.
 
 Para agir sobre o consumado, não se pode ser um determinador *externo*. Deveria haver um tempo anterior ao próprio tempo do Espírito? Isto sugere que deveria haver uma realidade espiritual sobre o próprio Ser — um **"Ser sobre Ser"** — e neste haveria uma temporalidade mantendo a consumação. E nesse "Ser sobre Ser", que se estende ao infinito, numa sucessão causas infinitas, nunca haveria uma causa temporal definitiva. Pois sempre, nas consumações haveria uma determinação. Um tempo determinado na consumação já estabelecido, porém o tempo Espiritual não se deu determinado pelo *start* da criação. O *start* foi decidido pelo atualizador, e não era uma mecânica pré estabelecida na consumação.
@@ -1974,8 +1972,8 @@ Isto indica que, enquanto a pessoa da fundamentação decidiu a plenitude, isto 
 
 ### **Síntese Final: A Arquitetura do Tempo Divino**
 
-O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que o Ser tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio, meio e fim, mas vive a atualidade com a atualização criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade, no amor da Trindade.
-
+O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que o Ser tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio, meio e fim, mas vive a atualidade com a atualização criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade.
+revisado
 | Dimensão do Infinito | Ação Metafísica correspondente | Relação com a Autocausalidade |
 | --- | --- | --- |
 | **Infinito Horizontal** | A Existência Atemporal e Imutável. | Auto fundamentação pura do Ser. |
