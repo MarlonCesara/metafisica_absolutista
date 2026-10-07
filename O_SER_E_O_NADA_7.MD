@@ -1945,10 +1945,9 @@ O Espírito é o mesmo que tem sua ação no temporal e atemporal, ambas as cois
 
 Como o Espírito decide o tempo que deseja dar o start da determinação, estando ele em sua consumação? Qualquer tempo de ação da alma no nível absoluto corresponde à sua *persona*. O momento no tempo em que o Espírito se localiza para agir faz jus à sua *persona*, considerando que sua *persona* da personificação acompanha sua plenitude. A decisão brota daquilo que o Espírito é no momento de seu transbordamento.
 
+A pergunta *"Quem és tu?"* sintoniza-se perfeitamente com a pergunta *"Que tempo és tu?"*. Ambas deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo, na medida em que o tempo é a duração do Seu ato de ser. A personalidade do Espírito significa a ação na consumação e na atualização. O Espírito é o tempo consumado e o tempo atualizado, de forma que suas pessoas se fazem tempo consumado (fundamentador) e temporalidade atuante (personalizador). O Personalizador e o fundamentador são o tempo em suas duas faces, que na verdade, são uma face enxergada por dois vértices. 
+
 revisado
-
-A pergunta *"Quem és tu?"* sintoniza-se perfeitamente com a pergunta *"Que tempo és tu?"*. Ambas deixam claro que a alma é tudo de si — inclusive seu tempo e suas escolhas. O Espírito não está no tempo, Ele é o próprio tempo, na medida em que o tempo é a duração do Seu ato de ser.
-
 Neste ínterim, a pergunta "Qual é o tempo em que o Espírito se localizou (ou determinou) pela primeira vez?" não faz sentido, pois o Espírito não nasceu do tempo. A formulação mais adequada seria *"Qual é a idade do Espírito?"*, entendida no sentido de que a vivência temporal do Espírito é reflexo de seu próprio tempo. A idade do Espírito é a profundidade inesgotável de Sua eternidade vivida como presente. O Espírito age temporalmente em seu tempo particular, no tempo de sua plenitude.
 
 ### **O Primeiro Ato do Espírito Personalizador: A Emergência da Alma no Tempo**
