@@ -1982,3 +1982,49 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 A auto causalidade a nível Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade. O Espírito, sendo a infinitude manifesta, é naturalmente atemporal, e temporal. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo Espírito através de sua atualização.
 
 A autocausalidade envolve a autopresença, o conhecer-se por inteiro, e o estar presente em todo este conhecimento. Ambos revelam a consumação temporal e a atualização temporal em concomitância. Pois há o conhecimento do todo, da consumação, ao passo que há o conhecimento da atualização. A sabedoria de todo o conhecimento fundamentador se sintetiza e jorra em uma atualidade que a percorre totalmente. Jorra e transborda pelo persoanlizador, que tem o conhecimento da totalidade, ao passo que esboça sua pessoalidade. A autocausalidade é presença. E esta presença é presença de um todo, é presença e conhecimento atuante e atualizante.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## A criação a ex nihilo
+
+O nada não existe para que se crie algo a partir do mesmo. Portanto, há a soberania do Espírito. E esta soberania não é uma determinação que nega outras escolhas, pois não há alternativas no contexto absoluto, pois para o incausado há o inefável sem que se possa nega-lo ou lhe conferir alternativas. Portanto, há a afirmação eu sou, soberana. E essa expressão de soberania é liberdade. A soberania é fruto da liberdade. É a liberdade atuante em seu ato de Ser. É o poder de Ser que já é expressão do completo poder de escolha. Hora se um ente escolhe Ser, já exerce essa escolha em plena liberdade. Sendo livre para Ser, e para querer Ser sem revogar seu estatuto, é livre. Portanto, simplesmente é livre sem que seja necessário dizer que sua soberania é uma determinação que nega outras determinações, e por isto, pode não negar outras determinações.
+
+Ao supor sua soberania como determinação, se supõe uma ação de determinar que fere o estatuto de sua pureza. Isto é, ao dizer que a soberania é uma negação da não soberania, estamos deduzindo que existe uma diferenciação para o Ser, de forma que, sua posição é uma negação que se difere de outras posições possíveis para a soberania. Isto quer dizer que, produzimos um Ser determinado para inferir outras possibilidades como possíveis diante de sua liberdade.
+
+Porém, ao tomarmos seu estatuto como não determinado, temos que, há somente a soberania. Não há sua negação, ou seja, um estado ilógico que chamariamos de nada ontológico ou nada existente. E nem restaria altenativas ao absoluto para que ele se determinasse diferente delas.
+
+O Absoluto é soberano, é por inteiro. E Ser soberano não é negar a convivência do absoluto com o mundo determinado, mas soberano no sentido de que se deu único para absoluto, sem demais existências previas, se não sua pura auto afirmação. E a liberdade de ser a si já deduz qualquer liberdade. Pois, se é livre é livre, sem que se necessite supor uma afirmação que nega outras afirmações, sem que seu estatuto de existir negue qualquer alternativa. Mas seu estatuto afirma a liberdade. Não nega outra alternativa assumindo uma das alternativas para absoluto, mas somente afirma sua liberdade e isso é suficiente para justificar seu poder criador. Se há o poder de ser, há a liberdade, se há a liberdade há o poder de criar.
+
+
+
+
+
+
+
+
+
+## A convivência do Absoluto juntamente com o mundo determinado
+
+
+O Absoluto se faz puro, no sentido que porta o mundo determinado em si sem corromper sua pureza. Sendo uma intenção, uma personificação do querer, seu atributo de pureza pode transpassar, no sentido de que estar acima da existência convencional do mundo determinado. Sua pureza se expressa como transparência, como comodidade a toda diferenciação, que não está exterior a ele. Mas que o Ser a incorpora através de sua pureza, estando, ate mesmo na finalidade dos entes. É puro no sentido que existe de forma a transpassar o determinado, no sentido de que, se manifesta relacionalmente em quem participa da plenitude, de forma que se confunde com qualquer amor. De forma que seja a inspiração que permeia a finalidade de sua criação, ou o amor desenvolvido pela liberdade do ente criado.
+
+
+
