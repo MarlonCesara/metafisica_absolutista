@@ -8054,11 +8054,13 @@ Só um aspecto qualitativo como o amor pode portar a pureza absoluta.
 
 =====importante======
 A auto posição do Espirito, a soberania, nao é uma determinação, no sentido de ser uma negação da não soberania, pois a não soberania não existe. Mas é o sentido de o não uso da liberdade para criar. Uma vez existindoo ser livre para ser soberano, há o ser livre. Mas não há a negação da soberania, no sentido de que para absoluto não há negações. 
+
+Não é possível negar o absoluto, não há vias negativas, o não absoluto não é uma opção, pois tomaria para si a posição de absoluto. O absoluto negado não pode ser o incausado, e nem possuir propriedades com pureza e auto causalidade, pois o nada nada é. O não absoluto, isto é, o nada, não pode ser Absoluto. O nada não pode ser auto causado e incausado. 
 ====================
 
 
 
-Não é possível negar o absoluto, não há vias negativas, o não absoluto não é uma opção, pois tomaria para si a posição de absoluto. O absoluto negado não pode ser o incausado, e nem possuir propriedades com pureza e auto causalidade, pois o nada nada é. O não absoluto, isto é, o nada, não pode ser Absoluto. O nada não pode ser auto causado e incausado. 
+
 
 
 
