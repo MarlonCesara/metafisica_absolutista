@@ -1782,15 +1782,15 @@ O Espírito Fundamentador tem uma ação isolada, no sentido de fundamentar, ao 
 A forma de ação do Espírito Plenificador está sempre ligada à perfeição; porém, a ação do Espírito Personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração. O Espírito Plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito da plenitude detém a ação que está desligada de traços pessoais como os de uma personalidade.
 
 Exemplo bíblico: Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito Plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
-revisado
+
 ### **Resumo Trinitário Metafísico**
 
 1. **Fundamentador (Vertical):** Fundamenta a existência. É a fonte incriada de todo ser. Age atemporalmente como pura afirmação ontológica.
-2. **Plenificador (Diagonal):** Completa e santifica sem persona fixa. É o amor e a sabedoria que perfazem toda a criação. Atua como ponte entre o fundamento e a personalização.
-3. **Personalizador (Horizontal):** É o Verbo pessoal através de quem todas as coisas foram feitas. Age temporalmente, introduzindo a liberdade em conjunção com a pessoalidade na estrutura do Absoluto.
+2. **Plenificador (Diagonal):** Plenifica sem persona fixa. É a perfeição e a harmonia que perfazem toda a criação. Atua como ponte entre o fundamento e a personalização.
+3. **Personalizador (Horizontal):** É a ação pessoal. Age temporalmente, introduzindo a liberdade em conjunção com o fundamentador na estrutura do Absoluto.
 
 ### **Conclusão da Proposição**
-
+revisado
 A intencionalidade do Absoluto é irrevogavelmente direcionada à vida e à plenitude, não por aprisionamento ou limitação, mas por perfeição e amor indestrutível. Sua não contingência não é uma negação da liberdade, mas a expressão mais alta da liberdade: a **liberdade de ser a si mesmo irrevogavelmente**.
 
 **Proposição demonstrada:** A liberdade do Absoluto, enquanto Espírito Pessoal autocausal, desdobra-se em três dimensões distintas e complementares de ação:
