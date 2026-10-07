@@ -1973,17 +1973,12 @@ Isto indica que, enquanto a pessoa da fundamentação decidiu a plenitude, isto 
 ### **Síntese Final: A Arquitetura do Tempo Divino**
 
 O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que ocorra a auto presença (um fluxo cego). Conforme a auto presença (consciência de si), a linearidade ganha uma segunda linha perpendicular, que cruza o tempo consumado, no sentido de que o atemporal (conhecimento total) torna-se sabedoria viva, e a linha perpendicular torna-se ação sob o contexto atemporal. A presença adiciona uma linha temporal contínua na consumação, de forma que a consumação esteja constantemente aberta à temporalidade, num tempo atual. O atemporal torna-se um conhecimento infinito, no sentido de que o Ser tudo sabe. Esse saber tudo permite agir em cada momento com a plenitude de quem conhece o princípio, meio e fim, mas vive a atualidade com a atualização criativa. O tempo do Espírito é, assim, a dança eterna entre a consumação e a novidade.
-revisado
+
 | Dimensão do Infinito | Ação Metafísica correspondente | Relação com a Autocausalidade |
 | --- | --- | --- |
 | **Infinito Horizontal** | A Existência Atemporal e Imutável. | Auto fundamentação pura do Ser. |
 | **Infinito vertical** | A Vontade e Liberdade de Criação (O *Start* Fenomênico). | Princípio de decisão que quebra a estaticidade. A Ação Viva no Tempo do Espírito (Renovação Perene). |
 
+A auto causalidade a nível Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade. O Espírito, sendo a infinitude manifesta, é naturalmente atemporal, e temporal. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo Espírito através de sua atualização.
 
-A auto causalidade a nível Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade.
-
-O Espírito, sendo a infinitude manifesta, é naturalmente atemporal, e temporal. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo Espírito através de sua atualização.
-
-A autocausalidade envolve a autoconsciência, o conhecer-se por inteiro, e o estar consciente. Ambos revelam a consumação temporal e a atualização temporal em concomitância. Pois há o conhecimento do todo, da consumação, ao passo que há o conhecimento da atualização.
-
-A autocausalidade é presença. E esta presença é presença de um todo, e consciência atuante e atualizante.
+A autocausalidade envolve a autopresença, o conhecer-se por inteiro, e o estar presente em todo este conhecimento. Ambos revelam a consumação temporal e a atualização temporal em concomitância. Pois há o conhecimento do todo, da consumação, ao passo que há o conhecimento da atualização. A sabedoria de todo o conhecimento fundamentador se sintetiza e jorra em uma atualidade que a percorre totalmente. Jorra e transborda pelo persoanlizador, que tem o conhecimento da totalidade, ao passo que esboça sua pessoalidade. A autocausalidade é presença. E esta presença é presença de um todo, é presença e conhecimento atuante e atualizante.
