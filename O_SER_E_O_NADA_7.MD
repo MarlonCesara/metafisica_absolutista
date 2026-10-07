@@ -1,14 +1,4 @@
-
-
 # EVOLUÇÕES METAFÍSICAS
-
-
-
-
-
-
-
-
 
 ### Lógica Diacrônica: A Contraparte Temporal da Identidade 
 
