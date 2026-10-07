@@ -1929,15 +1929,19 @@ Enquanto o Espírito da plenitude orienta entre o Ser e não Ser, sempre em dire
 
 Não somente a criação é ato, como a comunicação entre pessoas, a comunicação entre o personalizador e o fundamentador. Portanto, a ação instauradora é uma ação sem mesmo pensar, é uma ação que advem do absoluto ato meditativo do Espírito, uma ação que não passa pela formanização de pensamentos, uma ação entregue ao que é. Porém, a criação de idealização passa pelo momento temporal. Portanto, falaremos sob a comunicação, idealização do Espírito como aspectos de sua pessoa personalizadora, e sob o momento da criação do fenomenica e como a criação é possível.
 
-revisado
-
 Como o Espírito escolheria o momento no tempo em que deseja determinar, se todos os momentos já estão consumados e constituem um único ato? Se o primeiro ato é o da suspensão perfeita, ou seja, da plenitude indiferenciada (atemporal), em que tempo se deu o primeiro ato de determinação do Espírito?
 
 O primeiro ato teria que se dar concomitantemente à totalidade, isto é, seria parte do ato atemporal de plenitude, o ato de pureza incausado. O consumado, em sua plenitude, teria um momento de plenitude para tal escolha, e chamaremos esse momento de *tempo do Espírito*. E que diríamos ser o começo dos tempos, isto é, a criação do universo (o "fiat criador" visto de dentro da eternidade).
 
-Portanto, o *start* da ação do Espírito se daria num momento segundo a plenitude. No momento da ação plenificadora (atemporalmente), este momento já existia. Foi num momento perfeito dentro da temporalidade linear (infinita) que se deu o *start* da ação determinada. O Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indiferenciamento havia uma ação perfeita para o *start* do tempo. A criação não é uma necessidade, mas um transbordamento da plenitude.
+Portanto, o *start* da ação do Espírito se daria num momento segundo a plenitude e segundo o personalizador. No momento da ação plenificadora (atemporalmente), este momento já existia, e é passível de ser agido por estar constamente atualizado. A consumação não se atualiza em um ponto somente tempora, se atualiza constantemente em toda sua extensão, em toda sua extensão é presente.
 
-Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências. Assim, o Espírito se consuma ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade.
+Foi num momento especifico dado pela plenitude e personalização dentro da temporalidade consumada e presente que se deu o *start* da ação determinada. O Espírito se deu como tal, pleno e indiferenciado, ao passo que nesse indiferenciamento há o potencial de ação num tempo presente, que é um ponto especifico no tempo consumado. A criação não é uma necessidade, mas um transbordamento da plenitude.
+
+Temporalmente, o Espírito nunca se atualiza de modo absoluto, pois o tempo é uma progressão de vivências. Assim, o Espírito se consuma ao mesmo tempo em que possui uma vivência temporal possível. O tempo do Espírito existe temporalmente e atemporalmente de forma concomitante; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. E ambas os fatores não colidem, não são nem mesmo potenciais mútuos, o tempo consumado é o mesmo que o tempo atual, o tempo atual é o tempo consumado. Ambos se fazem momento presente.
+
+Tal como não há contradição entre as pessoas do Espírito, são a mesma pessoa que se manifestam de forma atemporal e temporal. A temporalidade faz existir modos distintos de ação, que se fazem pessoalidade no modo de ação, que distinguem em ação e pessoalidade, mas que não fragmentam, pois a pessoalidade é nome dado a pratica da ação temporal e atemporal que são uma só. Isto é a ação pesonalizadora é temporal, mas o temporal é o atemporal em sua consumação. Tal como o atemporal e temporal são um só, o personalizador e o fundamentador são um só.
+
+revisado
 
 Como o Espírito decide o tempo que deseja viver em sua consumação? Qualquer estado da alma corresponde à sua essência, à sua *persona*. O momento no tempo em que o Espírito se localiza faz jus à sua *persona*, considerando que sua *persona* é o reflexo de sua plenitude. A decisão brota daquilo que o Espírito é.
 
