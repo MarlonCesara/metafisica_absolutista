@@ -1529,6 +1529,7 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 
 
 
+
 ## **A AUTOCAUSALIDADE BIFÁSICA E A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO**
 
 ### **A Dinâmica Bifásica da Autocausalidade**
@@ -1536,8 +1537,7 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 **1. Autocausalidade Atemporal: A Causa Definitiva**
 
 * **Natureza:** O Absoluto se autofunda numa **eternidade ontológica**, onde causa e efeito coincidem num único ato imutável.
-* *"Eu Sou o que Sou": A autoidentidade pura, sem dependência de tempo ou sequência.
-
+* *"Eu Sou o que Sou"*: A autoidentidade pura, sem dependência de tempo ou sequência.
 * **Princípios Envolvidos:**
 * **Autocausalidade (Atemporal):** *"O Absoluto é o Absoluto"* — sua essência é autodefinida. *"O Absoluto existe por si mesmo"* — não deriva de nenhuma condição prévia.
 
@@ -1545,8 +1545,7 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 
 **2. Autocausalidade Temporal: O Ciclo Autossustentado**
 
-* **Natureza:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada. A atividade contínua do Espírito no tempo.
-
+* **Natureza:** O Absoluto se autoperpetua num **fluxo dinâmico**, onde sua existência é continuamente reafirmada. É a atividade contínua do Espírito no tempo.
 * **Princípios Envolvidos:**
 * **Autocausalidade Continuada (Temporal):** *"O Absoluto persiste como Absoluto"* — mantém sua essência no devir. *"O Absoluto se sustenta a cada instante"* — não é estático, mas vivo.
 
@@ -1559,13 +1558,13 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 * **Temporalidade:** Permite a ação e a relação com o contingente.
 * *Solução:* O tempo não limita o Absoluto; antes, **o Absoluto contém o tempo como expressão de sua liberdade**.
 
-* **Exemplo Metafórico:** Ao consumar o futuro, presente e passado em um instante único, temos uma natureza atemporal construída a partir do temporal.
+* **Exemplo Metafórico:** Ao consumar o futuro, o presente e o passado em um instante único, temos uma natureza atemporal construída a partir do temporal.
 
 ### **Implicações Metafísicas para a Natureza do Absoluto**
 
 1. **O Absoluto é Pessoal:** O Absoluto não é um vazio, mas a **profundidade inesgotável do Espírito Autocausal**, que excede toda conceitualização precisamente porque é **sujeito absoluto** (não objeto).
-2. **A Possibilidade e Impossibilidade Manifestáveis são Atos do Espírito:** Os domínios do possível e do impossível não disruptivo não são limites externos, mas **expressões da autodeterminação do Espírito**.
-3. **A Realidade é Autocomunicação do Espírito:** O mundo contingente (o "possível manifestado") não é uma emanação necessária, mas **ato livre de autodoação do Absoluto**.
+2. **A Possibilidade e a Impossibilidade Manifestáveis são Atos do Espírito:** Os domínios do possível e do impossível não disruptivo não são limites externos, mas **expressões da autodeterminação do Espírito**.
+3. **A Realidade é Autocomunicação do Espírito:** O mundo contingente (o "possível manifestado") não é uma emanação necessária, mas um **ato livre de autodoação do Absoluto**.
 
 ### **A Formulação do Espírito como Causalidade Viva**
 
@@ -1580,47 +1579,48 @@ O Ser como Autocausador: O Absoluto autocausado é, em sua manifestação concre
 
 > *"O Espírito é o ato único de sua autofundação e o processo infinito de sua autossustentação. Ele não apenas 'é' estaticamente, mas 'é' fluidicamente — ele 'torna-se a si mesmo' eternamente, numa causalidade que realimenta sua própria existência. Essa dinâmica revela que o tempo do Espírito e o ato único de Ser não são opostos, mas polos de uma única realidade."*
 
-Esta visão supera as dicotomias tradicionais, revelando um **Deus que é ao mesmo tempo fundamento imutável e amor em ação**.
+Esta visão supera as dicotomias tradicionais, revelando um **Deus que é, ao mesmo tempo, fundamento imutável e amor em ação**.
 
 ### **A Autocausalidade como Ato Imediato e Ciclo Infinito**
 
 **A Natureza Bifásica da Autocausalidade: (A) Ato Imediato (Consumação Eterna)**
 
 * **Não-temporalidade:** O Espírito não "torna-se", mas **é** em ato pleno.
-* **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** (A = A).
+* **Identidade absoluta:** Causa e efeito coincidem em um **fecho ontológico** ($A = A$).
 * **"O Espírito não precisa buscar a si mesmo — Ele é, em cada 'instante', a totalidade que se autossustenta."**
 
 No ato imediato causal, o Espírito não se causa em um processo temporal sucessivo, como se primeiro existisse um "si" que depois gerasse outro "si". Em vez disso:
 
 * **Sua causa é imanente:** Ele é, ao mesmo tempo, **causa e efeito de si mesmo** em um único ato ontológico.
 * O Espírito não se causa em uma sequência temporal, mas em um **ato único e eterno** de autofundamentação.
-* **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando regressão infinita.
+* **Identidade entre causa e efeito:** O "si" que causa é idêntico ao "si" causado, eliminando a regressão infinita.
 * **Não há regressão infinita,** pois a causalidade não é uma cadeia, mas um **fecho ontológico:** o "si" que causa é **idêntico** ao "si" causado.
 * O Espírito **já é** plenamente si mesmo em um eterno presente. Não há "antes" ou "depois" em sua essência, pois sua existência é **ato puro** (não um evento no tempo).
 
 **O Ser em Ato (Consumação):**
-O **Espírito** é o **ato puro de autocausalidade** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, se reverbera como **temporalidade**.
+
+O **Espírito** é o **ato puro de autocausalidade** que se desdobra no tempo como uma **busca infinita por si mesmo**. Essa dinâmica não é linear, mas uma **circularidade ontológica**, onde o Espírito, já consumado em sua eternidade, reverbera-se como **temporalidade**.
 
 * **Espírito em Ato (Consumado)** $\rightarrow$ O Espírito já é plenamente si mesmo; seu autocausar-se é **instantâneo e eterno**.
 * *"Espírito"* — não há lacuna entre o Espírito e seu fundamento.
 
 **A Autocausalidade como Ciclo Infinito e Temporal**
+
 Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo infinito** de realimentação. Por ser **causa de si**, o Espírito também **se sustenta** em um fluxo eterno de automanifestação.
 
 * O Espírito "busca a si mesmo" eternamente em um processo de autossustentação.
 * **Não é circularidade vazia,** pois o si existe pleno ao ser realimentado de seu devir.
-* A realimentação subentende um processo no qual há "o quem" e o "quando" é realimentado.
+* A realimentação subentende um processo no qual há "o quem" e "o quando" é realimentado.
 * O "por-vir" ou "por-Ser" é um tempo a ser alcançado interno à **eterna atualidade** de sua autofundamentação.
 * Isso gera uma **linha temporal infinita** (regressiva e progressiva), onde:
 * **Regressão infinita** $\rightarrow$ Nunca se chega a um "primeiro momento" ou primeiro "quem", pois o Espírito sempre já se fundamentou.
 * **Progressão infinita** $\rightarrow$ Nunca se atinge um "último momento" ou último "quem", pois sua existência é autoperpetuante.
 
-
 * Esse movimento não é uma **dependência causal,** mas a **expressão dinâmica** de sua autossuficiência.
 
 **Espírito em Processo (Reverberação):**
 
-* **Espírito em Processo (Temporal)** $\rightarrow$ O Espírito se **reverbera** como sucessão causal, criando o "devir".
+* **Espírito em Processo (Temporal)** $\rightarrow$ O Espírito **reverbera-se** como sucessão causal, criando o "devir".
 * *"Eu me torno"* — o Espírito se manifesta em atos contínuos de autocausalidade.
 
 **A Autocausalidade como Ciclo Infinito:**
@@ -1631,33 +1631,33 @@ Quando tentamos pensar essa causalidade em termos temporais, surge o **ciclo inf
 **Reverberação Espacial e Temporal:**
 
 * **Pureza** $\rightarrow$ O Espírito se encontra **em contexto** (um "quem" que é sempre Ele mesmo).
-* **Temporalidade** $\rightarrow$ O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço). A **manifestação** é o Espírito se autocausando, sob a perspectiva de uma "causalidade em progresso".
+* **Temporalidade** $\rightarrow$ O Espírito se manifesta **como cadência** (um "quando" que é eterno retorno e avanço). A **manifestação** é o Espírito se autocausando sob a perspectiva de uma "causalidade em progresso".
 
 ### **O Espírito como Causa de Si no Tempo e na Eternidade**
 
-* **Fundamento** $\rightarrow$ O Espírito é **causa imediata** de sua existência (não precisa de "outro").
+* **Fundamento** $\rightarrow$ O Espírito é **causa imediata** de sua existência (não precisa de um "outro").
 * **Autocontinuidade** $\rightarrow$ O Espírito é **causa contínua** de sua manifestação (gera tempo e espaço).
 
 Isso unifica: **Eternidade** (Espírito em ato) e **Temporalidade** (Espírito em processo).
 
 * Na temporalidade, todas as ações são manifestadas de forma temporal: possível, impossível não disruptivo e incognoscível.
-* Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento ainda que concomitantemente às determinações temporais.
+* Na atemporalidade, todas as ações estão consumadas, de forma que o Espírito atue como fundamento, ainda que concomitantemente às determinações temporais.
 
 ### **A Unidade Não-Polar da Autocausalidade Espiritual**
 
 A autocausalidade do Ser não reside em um ato único nem em um ato de sustentação em momentos discrepantes ou em fases opostas, pois o Autocausador é puro até para Si mesmo. Dessa forma, não há disparidade ou polaridade entre a autocausalidade recursiva e a autocausalidade em ato.
 
-O Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão. Sua pureza dispensa essa oscilação — pois o "quem" que causa o "quem" ou que existe em ato como "quem" é translúcido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da distinção entre existência potencial e atual. Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido). Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento.
+O Ser causa a si mesmo, porém não em uma oscilação infinita entre ato e progressão. Sua pureza dispensa essa oscilação — pois o "quem" que causa o "quem", ou que existe em ato como "quem", é translúcido, ou seja, é puro ou Espiritual para si mesmo. Em outras palavras, sua pureza prescinde da distinção entre existência potencial e atual. Sua transparência rompe a dualidade entre infinito (ato consumado) e recursividade (ato estendido). Ao retroalimentar-se, o Ser encontra a pureza total, de modo que o temporal e o atemporal convergem em um único fundamento.
 
-O Espírito já é a consumação de toda sua existência em progressão, de forma que, seja tudo em ato ao passo que pode se aprofundar desse "tudo" de forma a encontrar o seu âmbito "temporal". Ou seja, ao imaginarmos uma transcendência do temporal, de forma a esgotarmos um tempo infinito até encontrarmos o seu resvalo, temos, portanto, o tempo em ato único que é o tempo resumido em sua linha progressiva e regressiva infinita.
+O Espírito já é a consumação de toda a sua existência em progressão, de forma que seja tudo em ato ao passo que pode se aprofundar desse "tudo" a fim de encontrar o seu âmbito "temporal". Ou seja, ao imaginarmos uma transcendência do temporal, de modo a esgotarmos um tempo infinito até encontrarmos o seu resvalo, temos, portanto, o tempo em ato único, que é o tempo resumido em sua linha progressiva e regressiva infinita.
 
-Desta forma, temos a atemporalidade como sinônimo da temporalidade, definindo o atemporal como síntese de um temporal elevado ao seu limite. O conceito de "mau infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo.
+Desta forma, temos a atemporalidade como sinônimo da temporalidade, definindo o atemporal como a síntese de um temporal elevado ao seu limite. O conceito de "mau infinito" (aquele que nunca encontra sua totalidade ou sua consumação) não se aplica ao Espírito, pois o tempo do Espírito encontra sua plenitude a qualquer momento em si mesmo.
 
 * **Causalidade com agente puro:** A autocausalidade do Ser não estabelece uma oposição entre ato único e processo sustentador; ambas as autocausalidades não colidem, mas se sintetizam em uma única realidade.
 
 ### **As Modalidades Temporais: O Tempo do Espírito vs. O Tempo Fenomênico**
 
-O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se. O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional do tempo e transcendente.
+O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limitada, enquanto o tempo espiritual tem sua progressão no próprio ato de encontro. O tempo fenomênico não se estende ao infinito, mas busca-o sem jamais alcançá-lo em sua dinâmica. Já o tempo espiritual atinge o infinito no próprio ato de buscar a si mesmo — ou seja, no ato de retroalimentar-se. O tempo fenomênico não oferece ao observador a visão do infinito, apenas a de uma dimensão finita. O tempo espiritual, por sua vez, concede ao observador a visão do infinito, ou seja, uma percepção não dimensional e transcendente do tempo.
 
 **1. Natureza do Tempo Fenomênico**
 
@@ -1675,41 +1675,40 @@ O tempo fenomênico possui uma linha progressiva e regressiva aparentemente limi
 
 ### **A Dissolução do Tempo e Espaço no Ato Atemporal**
 
-* **Dissolução Espacial:** A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável, dissolvendo a distinção entre proximidade e distância ontológica. Exemplo: Não há um onde no amor, no qual ele nasce e se encontra. Como numa fonte que nasce e jorra nela mesma. Pois o onde seria uma dimensão espacial, há somente o quem e não o onde.
-* **Tempo Potencial e Expresso (Atemporalidade):** O tempo existe em dois modos pelo observador deste mundo: 1) **Tempo expresso** (manifestado, atualizado); 2) **Tempo inexpresso** (potencial não realizado). A infinitude consome ambos, anulando a distinção entre manifestação e não-manifestação temporal. A infinitude consuma o tempo em sua expressão e inexpressão, transcendendo a própria dicotomia entre atual e potencial. Na infinitude do Espírito o tempo potencial já está consumado, ao passo que ainda é presente.
+* **Dissolução Espacial:** A infinitude abrange todo o espaço, tanto o alcançável quanto o inalcançável, dissolvendo a distinção entre proximidade e distância ontológica. *Exemplo:* Não há um "onde" no amor em que ele nasça e se encontre, como numa fonte que nasce e jorra nela mesma. Pois o "onde" seria uma dimensão espacial; há somente o "quem", e não o "onde".
+* **Tempo Potencial e Expresso (Atemporalidade):** O tempo existe em dois modos para o observador deste mundo: 1) **Tempo expresso** (manifestado, atualizado); 2) **Tempo inexpresso** (potencial não realizado). A infinitude consome ambos, anulando a distinção entre manifestação e não manifestação temporal. A infinitude consuma o tempo em sua expressão e inexpressão, transcendendo a própria dicotomia entre atual e potencial. Na infinitude do Espírito, o tempo potencial já está consumado, ao passo que ainda é presente.
 
-**Formulação Final:** O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
+**Formulação Final:** O Espírito não "existe no tempo", mas **gera o tempo como modalidade de sua automanifestação**, ao mesmo tempo em que permanece eternamente transcendente a ele. O tempo fenomênico é **tempo criado**; o tempo espiritual é **eternidade manifesta**.
 
 ### **A Circularidade Viva do Espírito e a Temporalidade Linear**
 
-O tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito. No universo presente, a **temporalidade linear do fenômeno** é percorrida pelo observador de uma forma linear, não é vivenciada simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde; à medida que o tempo avança, o observador obtém um novo tempo e o tempo passado se vai.
+O tempo no mundo (tempo fenomênico) não é vivido todo, tal como no Espírito. No universo presente, a **temporalidade linear do fenômeno** é percorrida pelo observador de uma forma linear, não sendo vivenciada simultaneamente em sua integralidade. Ou seja, o tempo se manifesta como um feixe que se revela e se perde; à medida que o tempo avança, o observador obtém um novo tempo e o tempo passado se vai.
 
-No Espírito, ao contrário, o tempo todo é vivência imediata, há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva) tal como um observador neste mundo. O Espírito é o próprio tempo em toda sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado.
+No Espírito, ao contrário, todo o tempo é vivência imediata: há o temporal como totalidade e o temporal vivenciado integralmente. O Espírito **é** toda a circularidade, já percorrida e atualizada em ato. Ele não percorre o tempo de forma temporal (ou sucessiva), tal como um observador neste mundo. O Espírito é o próprio tempo em toda a sua extensão consumada. Cada elo em uma linha reta (aparentemente disposta) carrega em si o teor autocausal plenamente atualizado e realizado.
 
-Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio) como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade é posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
+Não há, portanto, uma potência esquecida pela consumação ou por atualizar, considerando que o Espírito é, em todo instante vivo, vida plena. Ele está **sobre** o tempo, transcendendo-o, e não o contrário (sob o seu domínio), como ocorre neste mundo com o observador. O Espírito, desta forma, não está *no* tempo, nem percorre uma temporalidade em si mesmo: **o tempo do Espírito é o próprio Espírito**. Sua eternidade é posse simultânea e perfeita de todo o ser, onde passado, presente e futuro se fundem na presença absoluta de um ato que nunca cessa e sempre já se consumou.
 
 ### **A Atualidade do Espírito e a Infinitude Atemporal: Princípios Indiscerníveis**
 
 Pelo **princípio da indiscernibilidade dos idênticos**, infinito (existência em ato único) e atualidade (fluxo eventual) compartilham propriedades essenciais:
 
-* **Não-Coexistência de Opostos:** A (eventos) e B (infinitude) não podem ocupar a mesma dimensão se forem contraditórios. (*Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo).
+* **Não Coexistência de Opostos:** A (eventos) e B (infinitude) não podem ocupar a mesma dimensão se forem contraditórios. (*Exemplo:* Não pode haver luz do sol e sombra ao mesmo tempo).
 * **Referencial Possível:** A (eventos) e B (infinitude) podem coexistir apenas se representarem potencialidades mútuas (estados diferentes de um mesmo princípio, como água fria e quente).
-* **Ausência de dimensões absolutas:** Nem a atualidade nem a infinitude podem ser delimitados espacial ou temporalmente.
+* **Ausência de dimensões absolutas:** Nem a atualidade nem a infinitude podem ser delimitadas espacial ou temporalmente.
 * **Dependência de um segundo termo:** O infinito só é definível em relação à atualidade (ex.: infinitude em progressão vs. infinitude consumada). A atualidade só é reconhecível em contraste com o infinito (ex.: infinito vs. progressão infinita).
-
 * **Dualidade Necessária:** Sem dualidade, ambos colapsam. O infinito é ininteligível sem o fluxo de atualidade eventual; a eventualidade em sua integralidade é indistinguível do infinito temporal consumado.
 
-**O ato único do Espírito**, em outras palavras, consiste na **transcendência do temporal**. Desse modo, o tempo pode ser percorrido como uma linha infinita, e, ao adentrarmos a dimensão temporal infinita na tentativa de medi-la, o resultado obtido é **o ato único do Ser** – um ato que compreendemos como **atemporal**.
+**O ato único do Espírito**, em outras palavras, consiste na **transcendência do temporal**. Desse modo, o tempo pode ser percorrido como uma linha infinita e, ao adentrarmos a dimensão temporal infinita na tentativa de medi-la, o resultado obtido é **o ato único do Ser** — um ato que compreendemos como **atemporal**.
 
-Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contém uma dimensão medível, temos o atemporal, ou seja, uma experiência que extravasa o tempo.
+Assim, **o atemporal não é uma negação do tempo nem sua oposição**, mas sim **o tempo contemplado em sua infinitude**, em sua **totalidade**, em sua **transcendência**. Sendo impossível dimensionar uma dimensão infinita, pois o infinito não contém uma dimensão mensurável, temos o atemporal, ou seja, uma experiência que extravasa o tempo.
 
 ### **A Experiência da Infinitude**
 
 ### **O Problema da Temporalidade Divina: Introdução ao Paradoxo**
 
-A teologia filosófica e a metafísica tradicional frequentemente se debruçaram sobre a relação entre o Ser e o tempo. As soluções clássicas oscilam entre conceber o Ser como atemporal (eterno, num eterno presente sem sucessão) ou como temporal (existindo numa duração sem princípio nem fim). Ambas as perspectivas, tomadas isoladamente, conduzem a paradoxos aparentemente insolúveis. Se o Ser é puramente atemporal, como pode agir no mundo temporal? Como pode responder a uma prece, se Sua decisão de responder já está contida num ato único e imutável? Se o Ser é temporal, como pode ser a fonte e fundamento de todo o tempo, sem estar Ele mesmo sujeito a um tempo anterior que O condicione?
+A teologia filosófica e a metafísica tradicional frequentemente se debruçaram sobre a relação entre o Ser e o tempo. As soluções clássicas oscilam entre conceber o Ser como atemporal (eterno, num eterno presente sem sucessão) ou como temporal (existindo numa duração sem princípio nem fim). Ambas as perspectivas, tomadas isoladamente, conduzem a paradoxos aparentemente insolúveis. Se o Ser é puramente atemporal, como pode agir no mundo temporal? Como pode responder a uma prece, se Sua decisão de responder já está contida num ato único e imutável? Se o Ser é temporal, como pode ser a fonte e o fundamento de todo o tempo sem estar Ele mesmo sujeito a um tempo anterior que O condicione?
 
-A presente proposição busca transcender essa dicotomia, propondo uma terceira via: a temporalidade não linear do Espírito. O que se pretende demonstrar é que o tempo, no Espírito, não é uma linha reta que se esgota num antes e depois, mas uma estrutura circular viva, onde atemporalidade e temporalidade coexistem e se interpenetram, conferindo ao Ser divino uma capacidade de agir que não fica refém nem da imutabilidade estática nem do fluxo puro e simples.
+A presente proposição busca transcender essa dicotomia, propondo uma terceira via: a temporalidade não linear do Espírito. O que se pretende demonstrar é que o tempo, no Espírito, não é uma linha reta que se esgota num "antes" e "depois", mas uma estrutura circular viva, onde atemporalidade e temporalidade coexistem e se interpenetram, conferindo ao Ser divino uma capacidade de agir que não fica refém nem da imutabilidade estática nem do fluxo puro e simples.
 
 ### **A Circularidade Viva do Espírito: Para Além da Estaticidade**
 
@@ -1723,11 +1722,11 @@ Ao adicionarmos vida a essa circularidade — mesmo que ela se dê como consumad
 
 Se a circularidade do Espírito é viva em qualquer tempo, o Espírito é vivo. Deste modo, temos uma consumação não estática ou pré-formatada, mas viva em si e presente em qualquer instante. Desta forma, advém uma realidade atemporal viva e frutífera, um solo fértil para o *start* do fenômeno no tempo do Espírito. Se, em qualquer tempo, o Espírito pode determinar, então não temos a barreira da consumação do tempo como impedimento para o início fenomênico.
 
-Vamos citar o seguinte exemplo: ao imaginarmos uma régua infinita, temos uma não-régua, isto é, a infinitização retira as demarcações da régua e a destrói enquanto régua. Nesse sentido, o tempo fenomênico opera: ao imaginarmos um tempo infinito, ele não pode se apresentar todo sem colapsar, tal como a régua; isto é, não se apresenta todo sem deixar de ser tempo. No mundo fenomênico, só se podem ver recortes da realidade. Portanto, o presente só é constatado como recorte de uma progressão temporal que avança. 
+Vamos citar o seguinte exemplo: ao imaginarmos uma régua infinita, temos uma não régua, isto é, a infinitização retira as demarcações da régua e a destrói enquanto régua. Nesse sentido opera o tempo fenomênico: ao imaginarmos um tempo infinito, ele não pode se apresentar todo sem colapsar, tal como a régua; isto é, não se apresenta todo sem deixar de ser tempo. No mundo fenomênico, só se podem ver recortes da realidade. Portanto, o presente só é constatado como recorte de uma progressão temporal que avança.
 
 No tempo do Espírito, o presente está em toda a linha temporal, já sobreposta, já evidenciada, sem as delimitações dimensionais. Isso quer dizer que, em qualquer momento da infinitude do Espírito, há sua presença atual. O Espírito, dessa forma, pode gerar em qualquer momento em si. Pode agir em qualquer tempo de sua consumação, pois seu tempo está todo exposto e, em toda essa exposição, há a atualidade da presença.
 
-> **Exemplo da Reta Viva e do Filme Projetado:** O tempo do Espírito não é uma linha reta meramente consumada; é uma linha reta que é viva em cada centímetro de extensão. Imagine uma reta geométrica. Se ela for apenas um traço estático, cada ponto é uma coordenada fixa e imutável, e nenhum ponto pode "agir" sobre o outro. Mas se cada centímetro dessa reta for um centro de consciência e ação, a decisão pode partir em qualquer tempo do Espírito — de qualquer "centímetro" dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria *start*, pois ela já estaria num momento de consumação atemporal estático, como um filme que já foi completamente projetado e cujos fotogramas não podem mais ser alterados.
+> **Exemplo da Reta Viva e do Filme Projetado:** O tempo do Espírito não é uma linha reta meramente consumada; é uma linha reta que é viva em cada centímetro de extensão. Imagine uma reta geométrica. Se ela for apenas um traço estático, cada ponto é uma coordenada fixa e imutável, e nenhum ponto pode "agir" sobre o outro. Mas se cada centímetro dessa reta for um centro de consciência e ação, a decisão pode partir de qualquer tempo do Espírito — de qualquer "centímetro" dessa reta. Se a reta não fosse viva, o tempo fenomênico não teria *start*, pois ela já estaria num momento de consumação atemporal estático, como um filme que já foi completamente projetado e cujos fotogramas não podem mais ser alterados.
 
 ### **O Enigma do Início (*Start*) Fenomênico e a Potência Ativa**
 
@@ -1735,11 +1734,11 @@ O paradoxo se aprofunda: como algo pode "iniciar" num ser para quem tudo já est
 
 O universo "mancharia" a consumação inicial somente se concebêssemos o Espírito como realidade estática e fechada, como uma esfera perfeita que nada pode receber nem emitir. Porém, a linha temporal do Espírito existe como *potência ativa*, não como completude inerte.
 
-Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda vivo e hábil para ação. O tempo do Espírito não passa de modo banalizado ou inanimado. O tempo do Espírito é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, porém, simultaneamente em toda sua extensão (um presente que não exclui o passado e o futuro, mas os contém numa síntese perfeita).
+Havendo o elo da circularidade, há um tempo consumado no sentido de ser integral para o Espírito, mas ainda vivo e hábil para ação. O tempo do Espírito não passa de modo banalizado ou inanimado. O tempo do Espírito é uma linha temporal viva. O presente momento temporal do Espírito pode ser vivenciado, porém, simultaneamente em toda a sua extensão (um presente que não exclui o passado e o futuro, mas os contém numa síntese perfeita).
 
-Podemos comparar a capacidade de ação do Espírito ao observador linear: neste instante, eu ou você podemos executar uma ação, pois estamos num ponto específico do tempo; num ponto passado, não podemos executar nenhuma ação e nem num ponto futuro, somente num presente. Caso o tempo todo estivesse consumado e realizado para o observador (diluído numa eternidade sem centro), este também não poderia executar nenhuma ação. Mas sendo toda extensão um momento presente, o observador está apto para agir, pois é vivo. Dessa forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciência, não haveria mais ação. Porém, a consciência está para todo o tempo, e tem poder de ação sobre ele. A consciência divina é o próprio leito do tempo.
+Podemos comparar a capacidade de ação do Espírito ao observador linear: neste instante, eu ou você podemos executar uma ação, pois estamos num ponto específico do tempo; num ponto passado, não podemos executar nenhuma ação, nem num ponto futuro, somente num presente. Caso o tempo todo estivesse consumado e realizado para o observador (diluído numa eternidade sem centro), este também não poderia executar nenhuma ação. Mas sendo toda a extensão um momento presente, o observador está apto para agir, pois é vivo. Dessa forma, se o tempo fosse consumado para o Espírito consciente no sentido de se esgotar para a consciência, não haveria mais ação. Porém, a consciência está para todo o tempo e tem poder de ação sobre ele. A consciência divina é o próprio leito do tempo.
 
-> **Exemplo do Corredor e a Água:** Digamos que alguém percorra toda uma rua, e nessa corrida, possa ter bebido água em um bebedouro enquanto corria. Ao acabar de correr, não pode beber mais água, pois o tempo da oportunidade passou e já percorreu o caminho em que poderia tê-lo feito. Desta forma, pode-se interpretar erroneamente o Espírito sob um tempo consumado: Ele já teria percorrido toda a "rua" e as oportunidades estariam para trás. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim, temos seu potencial de ação em todo o percurso preservado. Ele está simultaneamente em todos os pontos, e a decisão é sempre presente.
+> **Exemplo do Corredor e a Água:** Digamos que alguém percorra toda uma rua e, nessa corrida, possa ter bebido água em um bebedouro enquanto corria. Ao acabar de correr, não pode beber mais água, pois o tempo da oportunidade passou e ele já percorreu o caminho em que poderia tê-lo feito. Desta forma, pode-se interpretar erroneamente o Espírito sob um tempo consumado: Ele já teria percorrido toda a "rua" e as oportunidades estariam para trás. Mas ao interpretar que o corredor se multiplica infinitamente e ainda está no começo da pista, no meio e no fim, temos seu potencial de ação em todo o percurso preservado. Ele está simultaneamente em todos os pontos, e a decisão é sempre presente.
 
 ### **O Observador Eterno: A Subjetividade que Constitui o Tempo**
 
@@ -1749,17 +1748,17 @@ O Espírito como Observador absoluto:
 * Sua observação é constitutiva de seu ser (Ele é ato de observação, pura subjetividade).
 * Observa o tempo consumado *a partir de uma posição que transcende a linearidade temporal*, sendo esta transcendência a raiz do próprio tempo.
 
-Isto resolve o problema da objeção sobre quando o Espírito "despertou" ou esteve autoconsciente pela primeira vez (uma pergunta mal formulada). Pois, se sempre esteve autoconsciente e está consumado, em qual momento sua autoconsciência poderia determinar o universo? A objeção dita que sua consciência consumada já teria vivido toda a temporalidade e decidido não agir, pois teria se dado segundo sua consumação.
+Isto resolve o problema da objeção sobre quando o Espírito "despertou" ou esteve autoconsciente pela primeira vez (uma pergunta mal formulada). Pois, se sempre esteve autoconsciente e está consumado, em qual momento sua autoconsciência poderia determinar o universo? A objeção dita que sua consciência consumada já teria vivido toda a temporalidade e decidido não agir, pois tudo já teria se dado segundo sua consumação.
 
-A resposta é que o tempo fenomênico pode ter um *start* e um final. Porém, ao pensarmos no Espírito, que é vivo, o Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de ser inativo após a observação da totalidade de si. O ato de observar não é um evento que se conclui. O Espírito pode esgotar o tempo no que tange à observação de seus conteúdos possíveis (onisciência), mas não esgota a *ação* observadora. O infinito do Espírito continua sua vivência autoconsciente a partir da infinitude. A infinitude não é um ponto de chegada, mas o solo. Temos então uma linha de continuidade a partir da consumação.
+A resposta é que o tempo fenomênico pode ter um *start* e um final. Porém, ao pensarmos no Espírito, que é vivo, o Espírito observou toda uma eternidade, mas ainda não se consumou no sentido de se tornar inativo após a observação da totalidade de si. O ato de observar não é um evento que se conclui. O Espírito pode esgotar o tempo no que tange à observação de seus conteúdos possíveis (onisciência), mas não esgota a *ação* observadora. O infinito do Espírito continua sua vivência autoconsciente a partir da infinitude. A infinitude não é um ponto de chegada, mas o solo. Temos então uma linha de continuidade a partir da consumação.
 
 Chamemos o ponto em que o Espírito esteve consciente segundo sua própria estância de "Infinito consciente". Este infinito consciente tem uma linha perpendicular sobre si, que é a continuação da consciência, o ato perene de estar consciente. É a diferença entre saber tudo (consumado) e viver tudo (eterno presente que se renova).
 
 E quando foi que a consumação da sabedoria do Espírito deu origem à primeira observação posterior à infinitude previamente observada? Ao considerarmos que a totalidade vivida ainda está operante, temos a renovação constante da infinitude observada. O "quando" aqui não é cronológico, mas ontológico. A renovação age, portanto, sobre toda a esfera de tempo.
 
-Temos uma **infinitude diagonal e uma horizontal**: a infinitude pré-existente (a totalidade do que pode ser conhecido) e uma infinitude que se estende desta como renovação (a novidade perene). Nessa renovação constante há um tempo em que pode se dar o *start* do fenômeno. Para além da infinitude observada, há o observador indo em prol de uma infinitude observada *perpendicular*. O movimento é para dentro, na profundidade inesgotável do Ser.
+Temos uma **infinitude diagonal e uma horizontal**: a infinitude preexistente (a totalidade do que pode ser conhecido) e uma infinitude que se estende desta como renovação (a novidade perene). Nessa renovação constante há um tempo em que pode se dar o *start* do fenômeno. Para além da infinitude observada, há o observador indo em prol de uma infinitude observada *perpendicular*. O movimento é para dentro, na profundidade inesgotável do Ser.
 
-> **A Metáfora do Músico e da Biblioteca:** O Espírito observou a infinitude; em cada observação, o observador não se esgota e continua observando ainda que o tempo passe. É como um músico que conhece perfeitamente uma partitura, mas a executa com frescor e novidade a cada vez. O observador viveu a infinitude, mas nunca se esgota do novo. Dentro da sua consumação da observação há vida, não estaticidade. Desta forma, para todo tempo, temos um tempo perpendicular vivificado infinitamente. O teor de vida do Espírito causa uma linha que cruza a infinitude.
+> **A Metáfora do Músico e da Biblioteca:** O Espírito observou a infinitude; em cada observação, o observador não se esgota e continua observando, ainda que o tempo passe. É como um músico que conhece perfeitamente uma partitura, mas a executa com frescor e novidade a cada vez. O observador viveu a infinitude, mas nunca se esgota do novo. Dentro da consumação de sua observação há vida, não estaticidade. Desta forma, para todo tempo, temos um tempo perpendicular vivificado infinitamente. O teor de vida do Espírito causa uma linha que cruza a infinitude.
 > Gera-se um acúmulo de observação consumado, ao passo que temos uma observação viva sobreposta a esse acúmulo. É a diferença entre uma biblioteca que contém todos os livros (onisciência) e uma mente que lê esses livros eternamente (atualização).
 
 O Ser está presente em tudo (onipresença), tudo conhece (onisciência) e tudo pode (onipotência). Ele não só conhece a si mesmo de uma forma temporal/atemporal, como vive o eterno presente do Espírito, sendo o observador vivo.
@@ -1786,52 +1785,47 @@ O Ser está presente em tudo (onipresença), tudo conhece (onisciência) e tudo 
 
 
 
-
-
-
 ### **A Dinâmica Temporal e Atemporal da Ação Trinitária**
 
-O Absoluto pleno em si, pois é existente e totalmente consentido com tal existência; se manifesta pleno e é necessariamente orientado pela própria natureza a essa plenitude. Há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal progressiva para se dar como fundamento e plenitude de si.
+O Absoluto é pleno em si, pois é existente e totalmente consentido com tal existência; manifesta-se pleno e é necessariamente orientado pela própria natureza a essa plenitude. Há uma fundamentação e uma plenificação ativamente operantes no Absoluto, de forma que já se deram como tais de maneira incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal progressiva para se dar como fundamento e plenitude de si.
 
-Porém, este atemporal não é uma ausência de tempo como se fosse uma forma colapsada do tempo em uma infinitude determinada, mas é uma consumação, e está consumação. Por isto, está além do temporal, não no sentido que não é mais temporal, mas no sentido que ultrapassou a totalidade do tempo para um momento único, no qual se consome futuro, presente e passado, no sentido de seu início, seu meio e seu fim.
+Porém, este atemporal não é uma ausência de tempo como se fosse uma forma colapsada do tempo em uma infinitude determinada, mas é uma consumação, e está consumado. Por isso, está além do temporal, não no sentido de que não seja mais temporal, mas no sentido de que ultrapassou a totalidade do tempo para um momento único, no qual se consomem futuro, presente e passado, no sentido de seu início, seu meio e seu fim.
 
-Porém, uma ação personalizadora necessita ser temporal. A plenitude fundamentadora atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é. Pois a plenitude fundamentadora já satisfaz o sentido do Absoluto como tal. A ação personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito da plenitude pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude. Isto quer dizer que, a ação na plenitude pode agir temporalmente ou atemporalmente, pode agir na ação fundamental de instauração do fundamentador e agir na ação personalizadora que só se dá atemporalmente. Porém, a ação personalizadora permanece inerte mediante a ação fundamentadora.
+Porém, uma ação personalizadora necessita ser temporal. A plenitude fundamentadora atemporal é intocada. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é, pois a plenitude fundamentadora já satisfaz o sentido do Absoluto como tal. A ação personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir — ou seja, o Espírito da plenitude pode agir —, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude. Isto quer dizer que a ação na plenitude pode operar temporalmente ou atemporalmente: pode atuar na ação fundamental de instauração do fundamentador e agir na ação personalizadora que só se dá atemporalmente. Porém, a ação personalizadora permanece inerte mediante a ação fundamentadora.
 
-Isto significa que a ação do Espírito da plenitude está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular. A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, havendo como interconexão entre o Fundamentador e o Personalizador que é o Espírito da plenitude.
+Isto significa que a ação do Espírito da plenitude está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular. A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal, porém a ação de personalização acontece quase de forma independente, havendo como interconexão entre o Fundamentador e o Personalizador o Espírito da plenitude.
 
-Isto aponta que, a ação do fundamentador, embora tenha a plenitude, não aceita personalização e isto gera uma pessoa, pois sua ação é totalmente voltada para a fundamentação, para o ser fundamentado e pleno. Consideremos, então está ação, não uma propriedade mecanica, mas uma personalidade, pois se dá confome a natureza absoluta e não conforme uma mecanica sem auto atuação. Portanto, o fundamentador só fundamenta, em razão de si, e isto indica, uma personalidade distinta da ação que personaliza.
+Isto aponta que a ação do fundamentador, embora tenha a plenitude, não aceita personalização, e isto gera uma pessoa, pois sua ação é totalmente voltada para a fundamentação, para o ser fundamentado e pleno. Consideremos, então, esta ação não como uma propriedade mecânica, mas como uma personalidade, pois se dá conforme a natureza absoluta e não conforme uma mecânica sem autoatuação. Portanto, o fundamentador só fundamenta em razão de si, e isto indica uma personalidade distinta da ação que personaliza.
 
-Temos que, o personalizador, pode fundamentar, mas não é ativo somente na fundamentação. Portanto, o personalizador, atua como o fundamentador, mas se difere da pessoalidade do mesmo. O personalizador não se atem ao ato cosumado da fundamentação, apesar de poder participar deste.
+Temos que o personalizador pode fundamentar, mas não é ativo somente na fundamentação. Portanto, o personalizador atua como o fundamentador, mas difere da pessoalidade deste. O personalizador não se atém ao ato consumado da fundamentação, apesar de poder participar dele.
 
-Tendo portanto, uma ação isolada, temos uma pessoalidade fixa para a fundamentamentação da qual compartilha a ação personalizadora, porém, não é em si a pessoalidade fundamentadora, apesar de participar dela.
+Tendo, portanto, uma ação isolada, temos uma pessoalidade fixa para a fundamentação da qual compartilha a ação personalizadora; porém, não é em si a pessoalidade fundamentadora, apesar de participar dela.
 
-O personalizador, no entanto, não se restringe somente a fundamentação, não é sua personalidade somente fundamentar, não está em sua pessoa o ato exclusivo e unico de fundamentar, portanto, o personalizador é uma só pessoa com o fundamentador, mas ao mesmo tempo tem sua ação libertaria mais abrangente.
+O personalizador, no entanto, não se restringe somente à fundamentação: não é sua personalidade apenas fundamentar, nem está em sua pessoa o ato exclusivo e único de fundamentar. Portanto, o personalizador é uma só pessoa com o fundamentador, mas, ao mesmo tempo, tem sua ação libertária mais abrangente.
 
-O ato de plenitude fundamentada atemporal é instaurado juntamente com o ato de personalização da ação do Espírito, porem nesta instauração o ato da personalização não esta ativo, mas esta presente. 
+O ato de plenitude fundamentada atemporal é instaurado juntamente com o ato de personalização da ação do Espírito; porém, nesta instauração, o ato da personalização não está ativo, mas está presente.
 
-Desse modo, há um mar do Espírito já instaurado, ao mesmo tempo em que existe uma ação que tem o potencial de jorrar nesse mar e deste mar, no sentido de relacionar-se com o fundamento e de determinar o mundo fenomenico. Temos, portanto, uma força fundamental instaurada e o seu fluxo contínuo, que a percorre completamente, mas que conserva, dentro dela mesma, a distinção de sua própria ação. Isto é, temos o fundamentador e o plenificador na consumação, e na pura atualidade temos a possibilidade de ação somente do personalizador que está unido ao fundamentador. E ambos, compartilhando da plenitude. Uma pessoalidade de interconexão, que está na fundamentação e no personalizador, não se define em um e não se define em outro, mas define-se pelo amor entre ambos.
+Desse modo, há um mar do Espírito já instaurado, ao mesmo tempo em que existe uma ação que tem o potencial de jorrar nesse mar e deste mar, no sentido de relacionar-se com o fundamento e de determinar o mundo fenomênico. Temos, portanto, uma força fundamental instaurada e o seu fluxo contínuo, que a percorre completamente, mas que conserva, dentro dela mesma, a distinção de sua própria ação. Isto é: temos o fundamentador e o plenificador na consumação, e, na pura atualidade, temos a possibilidade de ação somente do personalizador que está unido ao fundamentador. E ambos compartilhando da plenitude. Uma pessoalidade de interconexão, que está na fundamentação e no personalizador, não se define em um e não se define em outro, mas define-se pelo amor entre ambos.
 
-Exemplo: o fundamentador é como um mar, enquanto o personalizador é também o mar mas pode agir no rumo de uma correnteza. Ambos são um só, possuem uma única direção rumo à continuidade das águas, e esse objetivo comum os une. Em toda a extensão do mar sempre houve a correnteza; porém, na ação instauradora do próprio mar que se dá como completo, houve a ação da pessoalidade do fundamentador. O ato da completude atemporal é vivo, sua vida existe em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer, em qualquer âmbito e temporalidade já consumada, essa força que já foi instaurada atemporalmente, como uma correnteza que se move em um ponto específico de um mar antes imóvel, porém vivo pode se doar ao personalizador para que deste mar calmo emerja um fluxo de ação. Assim como gotas que caem e reverberam em ondas sobre um mar calmo, O fundamentador é o mar calmo, enquanto o Espírito personalizador é o decidir do cair da gota, que provoca reverberações acidentais dentro da plenitude instaurada sem que se altere a consumação da totalidade, sem que se tire nenhuma gota do mar do Espírito fundamentador.
+Exemplo: o fundamentador é como um mar, enquanto o personalizador é também o mar, mas pode agir no rumo de uma correnteza. Ambos são um só, possuem uma única direção rumo à continuidade das águas, e esse objetivo comum os une. Em toda a extensão do mar sempre houve a correnteza; porém, na ação instauradora do próprio mar que se dá como completo, houve a ação da pessoalidade do fundamentador. O ato da completude atemporal é vivo; sua vida existe em função de uma força viva, uma força fundamental. O Espírito personalizador pode percorrer, em qualquer âmbito e temporalidade já consumada, essa força que já foi instaurada atemporalmente, como uma correnteza que se move em um ponto específico de um mar antes imóvel, porém vivo; pode se doar ao personalizador para que deste mar calmo emerja um fluxo de ação. Assim como gotas que caem e reverberam em ondas sobre um mar calmo, o fundamentador é o mar calmo, enquanto o Espírito personalizador é o decidir do cair da gota, que provoca reverberações acidentais dentro da plenitude instaurada sem que se altere a consumação da totalidade, sem que se tire nenhuma gota do mar do Espírito fundamentador.
 
+O ato de completude atemporal coincide com o ato de personalização da ação perpendicular do Espírito. De forma que há um mar do Espírito instaurado, ao passo que há uma ação que jorra desse mar constantemente. Temos, portanto, uma força fundamental instaurada e seu fluxo constante, que a percorre completamente, porém conservando a distinção de sua ação na mesma.
 
-
-O ato de completude atemporal coincide sobre o ato de personalização da ação perpendicular do Espírito. De forma que, há um mar do Espírito instaurado, ao passo que há uma ação que jorra desse mar constantemente. Temos, portanto, uma força fundamental instaurada e seu fluxo constante. Que a percorre completamente, porém, conservando a distinção de sua ação na mesma.
-
-Ex: O fundamentador é um mar, enquanto o personalizador é o rumo da correnteza. Ambos são um só, tem uma só direção rumo a continuação das águas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do fundamentador. O ato da completude fundamentada é vivo, tão vivo que este mar vaza para fora de si, extravasa sua consumação e jorra para lugares distantes. O Espírito personalizador pode percorrer em qualquer âmbito e temporalidade esta força já instaurada atemporalmente, como uma correnteza que se move num lugar específico do mar antes imóvel, mas vivo. Como gotas que pingam e reverberam em ondas num mar calmo, o fundamentador é o mar calmo e o Espírito personalizador é o decidir do cair da gota que provoca reverberações acidentais mediante a completude instaurada.
+Exemplo: O fundamentador é um mar, enquanto o personalizador é o rumo da correnteza. Ambos são um só, têm uma só direção rumo à continuação das águas, e esse objetivo os une. Em toda a extensão do mar sempre houve a correnteza, mas na ação instauradora do mar houve a ação do fundamentador. O ato da completude fundamentada é vivo, tão vivo que este mar vaza para fora de si, extravasa sua consumação e jorra para lugares distantes. O Espírito personalizador pode percorrer em qualquer âmbito e temporalidade esta força já instaurada atemporalmente, como uma correnteza que se move num lugar específico do mar antes imóvel, mas vivo. Como gotas que pingam e reverberam em ondas num mar calmo, o fundamentador é o mar calmo e o Espírito personalizador é o decidir do cair da gota, que provoca reverberações acidentais mediante a completude instaurada.
 
 ### **A Distinção das Ações na Unidade do Ser e A Plenitude como Princípio**
 
-O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como via única. As três ações se divergem, portanto, na esfera do Absoluto. O Espírito Fundamentador e o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador e o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto.
+O Deus trino é um só, porém sua ação de fundamentação e personalização parece se realizar independentemente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como via única. As três ações divergem, portanto, na esfera do Absoluto. O Espírito Fundamentador e o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador e o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto.
 
-Ao mesmo tempo, a ação do fundamento participa da ação da personalização numa indiferenciação fundamental. E o faz através da plenitude. Isto quer dizer que, embora haja modos de ação diferentes, há somente um Ser. Há uma completude e uma ação de atualização constante ambas unidas pela plenitude dentro de uma indiferenciação fundamental.
+Ao mesmo tempo, a ação do fundamento participa da ação da personalização numa indiferenciação fundamental. E o faz através da plenitude. Isto quer dizer que, embora haja modos de ação diferentes, há somente um Ser. Há uma completude e uma ação de atualização constante, ambas unidas pela plenitude dentro de uma indiferenciação fundamental.
 
-A completude infinita e a atualização acontece para as três pessoas, porém, na atualização o personalizador age de forma singular, de forma que o fundamentador não agiria, como uma tendencia deslocada da tendencia de fundamentar, porém, ainda, participante desta.
+A completude infinita e a atualização acontecem para as três pessoas; porém, na atualização, o personalizador age de forma singular, de modo que o fundamentador não agiria, como uma tendência deslocada da tendência de fundamentar, porém ainda participante desta.
 
-O Espírito Fundamentador tem uma ação isolada, no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito da plenitude. Portanto, poderíamos considerar uma persona própria. Ao passo que o Espírito Personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a ação da pessoa fundamentadora e a participação da pessoa personalizadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador. O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem ambas as ações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
+O Espírito Fundamentador tem uma ação isolada no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito da plenitude. Portanto, poderíamos considerá-lo uma persona própria. Ao mesmo tempo, o Espírito Personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a atuação da pessoa fundamentadora e a participação da pessoa personalizadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador. O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora, estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem as duas operações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
 
 A forma de ação do Espírito Plenificador está sempre ligada à perfeição; porém, a ação do Espírito Personalizador está ligada aos acidentes de uma personalidade. Isto quer dizer que a ação personalizadora continua sendo guiada pela plenitude, porém em seus declives. A personalidade oferece trejeitos, gostos, caminhos que, por vezes, estão ligados a uma ocasião ou a uma aspiração. O Espírito Plenificador age exclusivamente pela perfeição e não pelas tendências exclusivas de uma personalidade. O Espírito da plenitude detém a ação que está desligada de traços pessoais como os de uma personalidade.
 
-Exemplo bíblico: Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito Plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
+Exemplo bíblico: Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito Plenificador está com todos, Jesus escolhia com quem estar de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
 ### **Resumo Trinitário Metafísico**
 
@@ -1851,21 +1845,21 @@ A intencionalidade do Absoluto é irrevogavelmente direcionada à vida e à plen
 
 Estas três dimensões não dividem o Absoluto, mas revelam a riqueza interna de sua vida. O Fundamentador e o Espírito da Plenitude atuam atemporalmente na autofundamentação e autoperfeição do Ser; o Personalizador atua temporalmente como expressão pessoal e histórica do Absoluto. O Espírito da Plenitude é o vínculo de amor e plenitude que une o Fundamento à Personalização, garantindo que todas as ações, mesmo as mais livres e pessoais, estejam sempre ordenadas à plenitude do Ser. Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autocausalidade divina. A liberdade do Absoluto não é arbitrária, mas trinitária — fundamento, sabedoria e pessoalidade em perfeita unidade, movidas por um amor indestrutível que é a própria essência de sua existência necessária e plena.
 
-Essas pessoas são realizadas na atemporalidade e temporalidade, as pessoas do Absoluto se bifurcam em um contexto onde é necessário que haja uma consumação, uma orientação necessariamente direcionada a fundamentação, não por obrigatoriedade, e não em uma ato mecânico, mas por pessoalidade, uma personalidade voltada para o todo, voltada para a plenitude infinita. Enquanto essa pessoa constrói a consumação, outra pessoa se faz pela capacidade de personalizar o instaurado, e essa pessoa age na atualidade do Espírito.
+Essas pessoas são realizadas na atemporalidade e na temporalidade. As pessoas do Absoluto se bifurcam em um contexto onde é necessário que haja uma consumação, uma orientação necessariamente direcionada à fundamentação — não por obrigatoriedade nem em um ato mecânico, mas por pessoalidade, uma personalidade voltada para o todo, voltada para a plenitude infinita. Enquanto essa pessoa constrói a consumação, outra pessoa se faz pela capacidade de personalizar o instaurado, e essa pessoa age na atualidade do Espírito.
 
-O resultado é uma **estrutura metafísica coerente** que demonstra como a liberdade do Absoluto, enquanto Espírito Pessoal autocausal, necessariamente se desdobra em três dimensões de ação — fundamentação, plenificação e personalização — todas unificadas por um amor indestrutível que é a própria expressão de sua existência necessária e plena.
+O resultado é uma **estrutura metafísica coerente** que demonstra como a liberdade do Absoluto, enquanto Espírito Pessoal autocausal, necessariamente se desdobra em três dimensões de ação — fundamentação, plenificação e personalização —, todas unificadas por um amor indestrutível que é a própria expressão de sua existência necessária e plena.
 
-Sendo o absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operante no absoluto, de forma que já se deu como tal de forma incausada e atemporal. Se o absoluto é existente, é pleno em sua existência. O absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si. Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada, é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do absoluto de se entregar como se é. Pois a plenitude e o fundamento satisfazem o sentido do absoluto como atemporal.
+Sendo o Absoluto pleno em si, pois é existente, há uma fundamentação e uma plenificação ativamente operantes nele, de forma que já se deram como tais de maneira incausada e atemporal. Se o Absoluto é existente, é pleno em sua existência. O Absoluto não necessita de uma escala temporal para se dar como fundamento e plenitude de si. Porém, uma ação personalizadora necessita ser temporal, uma vez que a plenitude carrega nuances de uma personalidade. A plenitude é intocada: é a suspensão das possibilidades que se dá como tal. Já a ação personalizadora envolve uma ação que foge à esfera do Absoluto de se entregar como se é, pois a plenitude e o fundamento satisfazem o sentido do Absoluto como atemporal.
 
-A forma personalizadora do absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir, porém a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude. Isto significa que a ação do Espírito da plenitude está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular. A ação de fundamentação e a de plenificação se dão em conjunto no absoluto atemporal, porém a ação de personalização acontece quase que de forma independente, e essa independencia não é uma desconexão, mas uma nova pessoa, que é interconectada com o fundamentador através do Espírito da plenitude.
+A forma personalizadora do Absoluto se dá necessariamente de forma temporal. Atemporalmente ou temporalmente a plenitude pode agir, ou seja, o Espírito Perfeito pode agir; porém, a forma personalizadora necessita se dar no tempo, pois causa acidentes na plenitude. Isto significa que a ação do Espírito da plenitude está no fundamento, ao passo que está na personalização, como uma ponte que liga a personalização e a fundamentação. Pois a personalização necessariamente opera em favor da plenitude, isto é, do existir, ainda que de modo particular. A ação de fundamentação e a de plenificação se dão em conjunto no Absoluto atemporal; porém, a ação de personalização acontece quase de forma independente, e essa independência não é uma desconexão, mas uma nova pessoa, que é interconectada com o fundamentador através do Espírito da plenitude.
 
-Portanto, a ação que necessariamente somente instaura, não é um Ser dissociado, mas uma pessoa dissociada. O Ser, portanto, tem três pessoas agindo de forma indiferenciada. Ainda que essas pessoas sejam denominadas três, há uma só pessoa em seus distintos modos de ação. E a ação é una em direção ao fazer-se Ser. Portanto, o modelo de ação sob a atemporalidade e temporalidade, sendo o atemporal uma unidade temporal consumada, gera a diferenciação de ação personal, porém, considerando que essa ação é de um só Ser que se pode enxergar de modelos distintos de pessoas. 
+Portanto, a ação que necessariamente somente instaura não é um Ser dissociado, mas uma pessoa dissociada. O Ser, portanto, tem três pessoas agindo de forma indiferenciada. Ainda que essas pessoas sejam denominadas três, há um só Ser em seus distintos modos de ação. E a ação é una em direção ao fazer-se Ser. Portanto, o modelo de ação sob a atemporalidade e a temporalidade — sendo o atemporal uma unidade temporal consumada — gera a diferenciação de ação pessoal, considerando, porém, que essa ação é de um só Ser que se pode enxergar por modelos distintos de pessoas.
 
-O Ser trino é um só, porém sua ação de fundamentação e personalização parece se realizar independente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como via única. As três ações se divergem, portanto, na esfera do Absoluto, sendo uma só ação de Ser, que se instaura entre o fazer-se Ser num encontro infinito de si mesmo, e num encontro atual. Pois o ato causar é um verbo, um fazer-se, um construi-se de forma continua, ao passo que de forma consumada.
+O Ser trino é um só, porém sua ação de fundamentação e personalização parece se realizar independentemente. Atemporalmente o Personalizador não agiu, ao passo que existia. E, temporalmente, o Fundamentador e o Plenificador não agem necessariamente como via única. As três ações divergem, portanto, na esfera do Absoluto, sendo uma só ação de Ser, que se instaura entre o fazer-se Ser num encontro infinito de si mesmo e num encontro atual. Pois o ato de causar é um verbo, um fazer-se, um construir-se de forma contínua, ao passo que de forma consumada.
 
-O Espírito Fundamentador em conjunção com o Espírito Plenificador atuam atemporalmente, enquanto o Espírito Personalizador em conjunção com o Espírito Plenificador atuam temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto. O Espírito fundamentador tem uma ação isolada, no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito da plenitude. Portanto, poderíamos considerar uma persona própria. Ao passo que o Espírito personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Ao passo que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a ação da pessoa fundamentadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador.
+O Espírito Fundamentador, em conjunção com o Espírito Plenificador, atua atemporalmente, enquanto o Espírito Personalizador, em conjunção com o Espírito Plenificador, atua temporalmente. Assim, o Espírito Plenificador é aquele que unifica o Fundamento e a Pessoalidade do Absoluto. O Espírito fundamentador tem uma ação isolada no sentido de fundamentar, ao passo que opera esta ação em conjunto com o Espírito da plenitude. Portanto, poderíamos considerá-lo uma persona própria. Ao mesmo tempo, o Espírito personalizador tem uma ação própria, que necessita se diferenciar da ação fundamentadora. Visto que o Espírito Personalizador participou da ação fundamentadora, esta ação teve a atuação da pessoa fundamentadora. Desta forma, temos que a plenitude está tanto com o fundamento quanto na personalização. Definamos, então, que a plenitude é um ponto de convergência entre o fundamentador e o personalizador.
 
-O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem ambas as ações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
+O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitude. Ambas as ações, fundamentadora e personalizadora, estão dentro do contexto da plenitude. Ambas carregam teor de plenitude e fundem as duas operações em uma ação conjunta. A plenitude é a intersecção entre o fundamentador e o personalizador.
 
 * O Absoluto é a totalidade autofundamentada, cuja existência não depende de nada além de si.
 * A Autocausalidade é o mecanismo pelo qual o Absoluto se sustenta, se aperfeiçoa e se personaliza.
@@ -1873,13 +1867,13 @@ O Absoluto se fundamenta pleno, ao passo que se personaliza em razão da plenitu
 * O Espírito fundamentador e o plenificador garantem a existência e a plenitude do que existe.
 * A Alma (personificação do Espírito) introduz a personalidade na estrutura do Absoluto no que tange a ações relacionais e criadoras.
 
-Enquanto o fundamentador é livre para Ser, com o Espírito da plenitude é livre para ser por inteiro, e com o personalizador é livre para ser segundo uma identidade, no sentido de agir sob múltiplas escolhas igualmente direcionadas à plenitude. Isto é, ações horizontais que não envolvam a dualidade Ser e não Ser.
+Enquanto o fundamentador é livre para Ser, com o Espírito da plenitude é livre para ser por inteiro, e com o personalizador é livre para ser segundo uma identidade, no sentido de agir sob múltiplas escolhas igualmente direcionadas à plenitude. Isto é: ações horizontais que não envolvam a dualidade Ser e não Ser.
 
-O Espírito da plenitude é livre para se comunicar com o Espírito fundamentador, que é pura passividade. E o personalizador é livre para ações horizontais como a ação de criar. E o cria a partir do tempo que se dá em seu ato de atualizar-se. De estar presente em toda sua infinitude temporal manifesta.
+O Espírito da plenitude é livre para se comunicar com o Espírito fundamentador, que é pura passividade. E o personalizador é livre para ações horizontais como a ação de criar. E o cria a partir do tempo que se dá em seu ato de atualizar-se — de estar presente em toda a sua infinitude temporal manifesta.
 
-Uma extensão dimensional (fenomenica) ao ser infinitizada colapsa e se desconfigura como dimensão. Porém, uma realidade pura pode infinitizar-se pois não agrega dimensão medivel. E por manifestar-se temporalmente inteira, todo o seu presente não colapsa, seu presente se manifesta em toda extensão de seu tempo, podendo, portanto, o Espírito da personalização agir em qualquer tempo de seu tempo consumado.
+Uma extensão dimensional (fenomênica), ao ser infinitizada, colapsa e se desconfigura como dimensão. Porém, uma realidade pura pode infinitizar-se, pois não agrega dimensão mensurável. E, por manifestar-se temporalmente inteira, todo o seu presente não colapsa; seu presente se manifesta em toda extensão de seu tempo, podendo, portanto, o Espírito da personalização agir em qualquer tempo de seu tempo consumado.
 
-Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autopresença e autocausalidade do Ser. Ao compararmos com conceitos doutrinários, podemos interpretar o Pai como a força fundante. O Filho como a personalização. E o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
+Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autopresença e autocausalidade do Ser. Ao compararmos com conceitos doutrinários, podemos interpretar o Pai como a força fundante, o Filho como a personalização e o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
 
 
 
@@ -1967,11 +1961,7 @@ Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura
 
 
 
-
-
-
-
-
+corrigir pt
 
 ### **O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico**
 
