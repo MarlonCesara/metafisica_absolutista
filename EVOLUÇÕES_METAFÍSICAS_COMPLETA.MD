@@ -7066,6 +7066,10 @@ O niilista precisa, e carece de incetivo a saida de seu estado, de forma que, se
 Na ausencia de uma medida sobrenatural, o niilista intensifica sua busca frenetica por bens materiais ou meios de satisfazer sua vida de sentido. Portanto, sem evangelização, se tem o agravamento dos mecanismos de fuga niilistas a tomada da consiencia niilista.
 
 
+## O jogo de soldados do niilista super rico
+
+O niilista bilionário, incorpora uma criança frustrada, que destroi as peças do brinquedo, uma vez na posse de manipular guerras, manusear jatos, armas de destruição, sente-se uma criança num tabuleiro, incorpora uma criança frustrada por perder-se de si mesmo, incorpora a criança que deveria ser, quando o observa a paz do mundo se frustra, quer causar miséria, cansaço, escravidão, e em seu limite quer causar um tabuleiro de guerra, onde sua criança interior que esta ameaçada destroi o cenario mundial, essa sintomatica se manifesta em razão do potencial de manifesta-la. Na posse de grande controle o niilista tem uma vazão maior para descarregar seu não querer por si. Ao passo que é um protesto que reinvindica a si mesmo, de alguma forma, é uma tentativa de alivio, de fazer com que o outro tenha ideia da dimensão de si, numa forma de expressao máxima, aquela que é expressada no sofrimento e na dor do outro.
+
 
 
 
@@ -12287,3 +12291,9 @@ O niilista super rico é como uma criança desesperada, com um super brinquedo e
 
 
 O niilista super rico fica constantemente irritado ao ver a harmonia social ao ver o estado de normalidade e paz, isso lhe causa uma auto avaliação imediata, de forma que se defronte com sua consciência prisioneira. O niilista quer fazer o outro sentir-se bombardeado, de forma a espelhar sua intenção para com a própria alma. O niilista deseja ver a humanidade queimando, com base em um desespero de ter companhia em sua auto negação. Ao passo que é um ódio externalizado, um aprisionamento externalizado, é um pedido de ser compreendido, é um pedido para que a harmonia não lhe interfira no intuito e não lhe mostre a sua própria verdade, é uma tentativa de fabricar um mundo onde possa ser alheio a toda vida interior. O niilista quer ser entendido, seu corpo quer a cura, uma resposta, mas a resposta que lhe livre da própria alma, não realmente a resposta, que lhe livre de uma alma opressora e o um novo coração. 
+
+
+
+O homem sebtimento de pertencimento a si
+Deus sentimento pureza
+Sentimento puro
