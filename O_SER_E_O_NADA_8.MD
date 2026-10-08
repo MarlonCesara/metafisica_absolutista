@@ -363,6 +363,17 @@ A determinação é, portanto, uma forma de afirmação mediante diferença: afi
 
 Assim, enquanto o ente determinado possui uma identidade pela qual se distingue, o Absoluto possui sua realidade sem depender de distinção. O determinado é aquilo que é por meio de uma diferença; o indiferenciado é aquilo que é sem que sua realidade necessite ser estabelecida contra outra realidade.
 
+Em um nível absoluto, algo determinado necessariamente implica uma escolha. Ora, se no Absoluto deve haver uma realidade absoluta e introduzimos nela uma realidade determinada, essa realidade necessariamente exige que se responda não apenas à pergunta “por que é?”, mas também à pergunta: “por que é isto em detrimento daquilo?”
+
+Portanto, o Absoluto, enquanto incausado, pode justificar-se por si mesmo, ao passo que o determinado requer uma razão para sua determinação. O determinado não se explica por si mesmo segundo o conceito de autocausalidade, pois sua determinação remete àquilo que o estabeleceu como tal. Ele responde, portanto, não apenas por aquilo que é, mas por aquilo que o fez ser precisamente desta maneira e não de outra.
+
+Dessa forma, um Absoluto determinado não se apresentaria simplesmente como aquilo que é, mas como aquilo que foi determinado como tal. Haveria, necessariamente, uma razão anterior à própria determinação que explicasse por que ele é desta forma e não de outra. Sua identidade dependeria, então, de uma diferenciação anterior, o que introduziria uma dependência em sua própria constituição.
+
+Assim, um absoluto que dependesse de uma determinação externa não seria propriamente autônomo, pois sua realidade enquanto determinada dependeria da ação de algo outro que o estabelecesse como tal. O verdadeiramente absoluto, ao contrário, não pode receber de outro a razão pela qual é isto e não aquilo; ele deve possuir em si mesmo a razão de seu ser, sem que sua realidade dependa de uma escolha ou determinação exterior.
+
+
+
+
 
 
 
@@ -546,6 +557,16 @@ Inferimos, assim, que a substância do Ser emana diretamente do princípio autoc
 Porém, o "se" do querer — isto é, o querer-se — não é direcional a um agente, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
 
 Em outras palavras, não há o ente intencionado ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica em sua própria intenção. Em suma, o Ser é o puro querer, sem o "se" do querer-se.
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1097,7 +1118,6 @@ Na tradição filosófica clássica, o conceito de "Ser" está invariavelmente a
 
 Afirmar que o Absoluto "é" difere substancialmente de afirmar uma positividade comum ou ôntica. Quando dizemos que um ente contingente "é", estamos simultaneamente dizendo o que ele *não é* (uma árvore é positiva precisamente porque *não é* uma pedra). A positividade clássica exige contornos, limites e exclusões. O Absoluto, por sua vez, exige uma **positividade transcendente**: uma afirmação que não se constrói sobre a negação de um oposto.
 
-
 O existir da lógica clássica tem abertura para a negação, dizendo que o ente é ente, e não não-ente. Porém, para Absoluto, a positividade do existir é soberana, de certa forma, referenciando o não-ente, se referencia uma hipótese impossível. 
 
 Portanto, o existir da lógica clássica é uma modalidade que só considera o não-ente na condição de que, havendo a possibilidade de três entes, existam só dois. Portanto, há o não-ente, que se dá quando o não ente é possível. Dessa forma, a lógica clássica se refere ao contingente, considerando mais contingentes possíveis, ou a ausência do contingente possível. Isto quer dizer que, se a ausência indica o impossível, a lógica clássica ao negar, não aniquila a realidade, mas tem o ente como alvo. Portanto, o positivismo da lógica clássica se refere ao contingente. A negação aristotelica implica que, não há a destruição absoluta, a negação do determinado ou resulta na aceitação de outro determinado ou na aceitação do fundamento absoluto, mas nunca na aniquilação do que se considera realidade.
@@ -1421,7 +1441,6 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
 * **Força Impetuosa:** É a manifestação crua do *ato de existir*, a potência primordial que afirma *"Eu Sou"* sem mediação.
 * **Inabalabilidade:** Não se curva a contingências; sua natureza é *autonomia pura*.
 * **Autoridade Metafísica:** Estabelece os limites do possível e do impossível por sua própria presença.
-
 
 * **Símbolo:** O Trovão (a irrupção incontestável do Ser).
 * **Princípio:** *"Antes de toda forma, há a fortaleza que a causa."*
