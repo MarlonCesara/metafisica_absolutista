@@ -12297,3 +12297,13 @@ O niilista super rico fica constantemente irritado ao ver a harmonia social ao v
 O homem sebtimento de pertencimento a si
 Deus sentimento pureza
 Sentimento puro
+
+
+## O controle niilsita e sua potencial posse tecnológica
+
+Se um grupo rico de niilistas manipular a politica de forma que enfraqueça a democracia, depende ainda do humano no que tange a relações trabalhistas. Por exemplo, se há greve, então é necessario antender a reinvindicações. Nesse sentido o que possui o governo e suas leis, depende de relações trabalhistas. Neste sentido, o humano tem posse, tem aquilo que o bilionário depende para reinvindicar direitos. Uma vez que não há dependência de trabalho de forma que os super ricos produzam alimentos, fabriquem, sem o auxilio do humano, o humano só possui o poder do protesto. Não podendo, dessa forma ameaçar, as maquinas de fazer dinheiro niilistas, como fabricas, latifúndios, etc. Portanto, é necessario ter no governo uma forte força contra o acumulo de bens e um controle total das tecnologias e grandes industrias, para que isso seja usado em favor do humano. 
+
+
+# Sintomas de manifestação niilista:
+
+Queimar o outro, escravizar o outro, matar o outro, causar descontentamento constante, entorpecer o outro, privar o outro de alegrias e lazer.
