@@ -336,6 +336,52 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
+
+### O determinado e o indiferenciado
+
+Há uma diferença fundamental entre aquilo que é determinado e aquilo que é indiferenciado. O determinado é aquilo que se apresenta por meio de uma diferença: é isto e não aquilo, possui uma identidade que o distingue de outras possibilidades. Determinar algo é, portanto, estabelecer uma diferença no campo da realidade.
+
+Nesse sentido, toda determinação envolve, de algum modo, uma relação com aquilo que ela não é. Quando afirmamos que algo é determinado, afirmamos simultaneamente uma identidade e excluímos outras possibilidades. A determinação é, assim, uma afirmação que se estabelece por contraste.
+
+A negação opera de maneira semelhante. Negar um ente determinado não significa necessariamente eliminar toda a realidade, pois a própria negação pressupõe um campo no qual ainda haja algo a ser afirmado. Se tomarmos, por exemplo, um conjunto contendo dez entes, ao negarmos o décimo ente, permanecem os outros nove. A negação de um ente, portanto, ainda conserva uma realidade positiva sobre a qual a negação incide.
+
+Podemos levar esse processo adiante. Se negarmos sucessivamente todos os dez entes, chegaremos ao conjunto vazio. Entretanto, mesmo nesse caso, ainda permanece afirmado o próprio conjunto enquanto estrutura lógica na qual a ausência dos elementos é concebida. A negação dos entes não eliminou necessariamente o campo no qual eles eram considerados; ela apenas retirou seus conteúdos determinados.
+
+O problema surge quando tentamos aplicar essa mesma operação ao próprio fundamento absoluto do conjunto. Se o Absoluto é aquilo que fundamenta a própria realidade e não depende de algo exterior a si, então negá-lo não produz simplesmente uma realidade alternativa chamada “nada absoluto”. Isso porque um nada absoluto, se fosse tomado como uma realidade efetiva e absoluta, já possuiria uma positividade ontológica: seria algo que é absolutamente. A própria tentativa de transformar o nada em uma realidade absoluta acaba, portanto, convertendo-o novamente em algum tipo de ente.
+
+Desse modo, a negação do Absoluto não conduz propriamente a um “nada absoluto”. Ela conduz a uma contradição conceitual: tenta-se negar justamente aquilo que não é um ente determinado entre outros entes, mas o fundamento pelo qual qualquer ente determinado pode existir.
+
+É nesse ponto que se torna necessário distinguir o determinado do indiferenciado. O ente determinado possui uma identidade que o diferencia de outros entes. Ele é algo precisamente porque não é outras coisas. Sua determinação envolve, portanto, uma diferença.
+
+O Absoluto, ao contrário, não pode ser pensado como um ente determinado entre outros. Se fosse determinado da mesma maneira que os demais entes, sua determinação dependeria de alguma diferença pela qual pudesse ser distinguido de outra possibilidade. Nesse caso, haveria algo conceitualmente anterior à sua própria determinação: aquilo em relação ao qual ele se diferenciaria.
+
+Mas, sendo absoluto, ele não pode depender de uma diferença exterior para ser aquilo que é. Sua realidade não é constituída por uma escolha entre possibilidades, nem por uma exclusão de outros entes. Ele não é “isto em vez daquilo” no sentido próprio da determinação. Ele é anterior à própria oposição entre aquilo que é e aquilo que não é determinado.
+
+Por isso, o Absoluto deve ser compreendido como indiferenciado não no sentido de ser vazio ou inexistente, mas no sentido de não receber sua realidade de uma determinação extrínseca. Sua indiferenciação não é ausência de realidade; é ausência de uma determinação que dependa de algo outro.
+
+A determinação é, portanto, uma forma de afirmação mediante diferença: afirma-se algo ao mesmo tempo em que se excluem outras possibilidades. O indiferenciado, por sua vez, não necessita dessa exclusão para ser. Ele não é afirmado em detrimento de outro, pois não se constitui por oposição.
+
+Assim, enquanto o ente determinado possui uma identidade pela qual se distingue, o Absoluto possui sua realidade sem depender de distinção. O determinado é aquilo que é por meio de uma diferença; o indiferenciado é aquilo que é sem que sua realidade necessite ser estabelecida contra outra realidade.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Os Princípios Fundamentais do Absoluto 
 
 **1. A Necessidade Lógica de um Fundamento Absoluto**
@@ -1363,8 +1409,6 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 2. **Como Plenificador,** O Espírito é a **direção à plenitude** - razão e sabedoria que estrutura a realidade.
 3. **Como Personalizador,** O Espírito é a **pessoalidade** - amor pessoal e dom que personaliza.
 
----
-
 ### **AS TRÊS PESSOAS DO ESPÍRITO ABSOLUTO**
 
 #### **As Pessoas da Autocausalidade Divina**
@@ -1388,7 +1432,6 @@ A análise das dimensões da autocausalidade revela que o Espírito Absoluto se 
 * **Harmonia Impecável:** Seleciona, com precisão infinita, apenas o que corrobora a perfeição do Absoluto.
 * **Serenidade Ativa:** Não é passividade, mas *ação sem esforço* — como um mestre que dança sem pisar fora do ritmo.
 * **Beleza Necessária:** Toda sua manifestação é *economia perfeita*; nada falta, nada sobra.
-
 
 * **Símbolo:** O Lago Cristalino (que reflete a profundidade sem distorção).
 * **Princípio:** *"Entre infinitos caminhos, só sigo os que brilham com a luz do eterno."*
@@ -1468,8 +1511,6 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 
 
 ## **A AUTOCAUSALIDADE BIFÁSICA E A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO**
-
-
 
 ### **A Dinâmica Bifásica da Autocausalidade**
 
@@ -2018,6 +2059,71 @@ A auto posição do Espirito, a soberania, nao é uma determinação, no sentido
 Não é possível negar o absoluto, não há vias negativas, o não absoluto não é uma opção, pois tomaria para si a posição de absoluto. O absoluto negado não pode ser o incausado, e nem possuir propriedades com pureza e auto causalidade, pois o nada nada é. O não absoluto, isto é, o nada, não pode ser Absoluto. O nada não pode ser auto causado e incausado. 
 
 
+esse de baixo é parte nova da parte acima, porem reformada
+
+## A criação *ex nihilo*
+
+O nada não existe para que algo seja criado a partir dele. A expressão *creatio ex nihilo*, portanto, não deve ser compreendida como se o nada fosse uma espécie de matéria ou substrato do qual o ente viesse a emergir. O *ex nihilo* significa precisamente a ausência de qualquer matéria, causa ou realidade anterior à criação. A criação não é uma transformação do nada em algo, mas a posição do ser sem pressupor um ser anterior.
+
+É nesse sentido que se manifesta a soberania do Espírito. Essa soberania não deve ser compreendida como uma determinação que se afirma mediante a negação de uma determinação contrária. No âmbito do Absoluto, não há alternativas ontológicas previamente dadas entre as quais se possa escolher. Para o Incausado, não há um conjunto de possibilidades exteriores que condicionem ou delimitem sua ação; há somente o Inefável em sua própria autoafirmação.
+
+Assim, a afirmação primordial não é simplesmente a escolha de uma determinação entre outras, mas o puro **«Eu sou»**. E essa autoafirmação é já expressão de liberdade. A liberdade não aparece posteriormente ao Ser como uma propriedade acrescentada a ele; ela está implicada no próprio poder de ser por si. Se o Absoluto é aquilo que é sem depender de uma causa exterior, então sua existência não é recebida de outro. Seu ser é, portanto, autoafirmativo e soberano.
+
+Nesse sentido, a soberania é a liberdade em ato no próprio Ser. O poder de ser a si mesmo já contém uma forma primordial de liberdade: não se trata de escolher entre alternativas previamente constituídas, mas de não depender de qualquer determinação exterior para ser. O Absoluto não necessita escolher o Ser em oposição ao não-Ser como se ambos fossem possibilidades ontológicas equivalentes. O não-Ser não constitui uma alternativa real ao Absoluto.
+
+Por isso, não é necessário conceber a soberania como uma determinação que nega a não soberania. Se assim fosse, estaríamos introduzindo uma diferença anterior ao próprio Absoluto: haveria, de um lado, a soberania e, de outro, uma possibilidade efetiva de não soberania, e o Absoluto seria compreendido como aquele que, entre ambas, se determinou pela primeira. Mas isso significaria submeter o Absoluto a uma estrutura de alternativas que lhe é anterior, contrariando precisamente seu estatuto de Incausado.
+
+A soberania absoluta não é, portanto, uma determinação obtida por contraste. Ela é a ausência de dependência e a plena autoafirmação do Ser. Sua negação não constitui uma possibilidade ontológica real. Não há um «não soberano» que possa ocupar o lugar do Absoluto, assim como não há um estado de «nada existente» que possa subsistir como alternativa ao Ser.
+
+Se tomarmos o Absoluto como não determinado nesse sentido, resta somente sua soberania. Não porque ele tenha negado uma alternativa contrária, mas porque não há, para além dele, uma realidade anterior que possa funcionar como termo de oposição. O Absoluto não se determina contra alguma coisa; ele simplesmente é.
+
+É justamente aqui que a criação *ex nihilo* pode ser compreendida em seu sentido mais radical. A criação não resulta da transformação de uma realidade preexistente, tampouco da escolha entre diferentes substratos ontológicos. Se não há matéria anterior, causa anterior ou realidade anterior ao Absoluto, então o ato criador é a expressão de uma liberdade que não recebe de fora aquilo que produz.
+
+O Absoluto é soberano por inteiro. Sua soberania não significa que ele deva negar a existência do mundo determinado, nem que o mundo constitua uma ameaça à sua pureza. Significa que sua existência não depende de nenhuma realidade anterior a ele. O mundo pode existir por participação, dependência ou criação, mas não como fundamento do Absoluto. O Absoluto não recebe seu Ser do mundo; é o mundo que recebe dele sua possibilidade de ser.
+
+Desse modo, a liberdade de ser a si mesmo já contém a possibilidade do poder criador. Se há um Ser que não depende de outro para ser, há nele uma liberdade que não é condicionada por uma causa exterior. E, se essa liberdade é potência efetiva de produção sem matéria preexistente, então a criação pode ser compreendida como sua expressão.
+
+Entretanto, é importante distinguir **determinação** de **afirmação**. A autoafirmação do Espírito não é uma determinação no sentido de uma negação de outras possibilidades. Quando dizemos que o Espírito é soberano, não estamos dizendo que ele primeiro contemplou a possibilidade de não ser soberano e, em seguida, rejeitou-a. A não soberania, tomada como alternativa absoluta, não possui realidade própria. Ela seria apenas a ausência da soberania, e não um segundo princípio capaz de se colocar diante do Absoluto.
+
+A liberdade, portanto, não exige necessariamente uma escolha entre alternativas contrárias. Há uma liberdade mais originária: a liberdade de ser a si mesmo sem depender de uma determinação exterior. A escolha entre possibilidades determinadas é uma modalidade derivada da liberdade; não é sua condição absoluta.
+
+Por isso, a soberania do Espírito não consiste em afirmar «A» porque poderia ser «B». Consiste em ser sem que «B» constitua uma alternativa ontológica anterior a «A». Sua liberdade não se estabelece pela exclusão de outra realidade, mas pela ausência de qualquer realidade que possa fundamentá-lo ou constrangê-lo.
+
+Não é possível, nesse sentido, negar o Absoluto como se o «não-Absoluto» pudesse ocupar seu lugar. A negação do Absoluto não produziria um segundo Absoluto, mas apenas a ausência daquilo que se pretendia negar. O Incausado não pode ser substituído pelo nada, porque o nada não possui realidade, causa ou fundamento. Ele não pode ser causa de si, justamente porque não é.
+
+O nada, portanto, não é uma alternativa ao Absoluto. Não há um «nada absoluto» que possa rivalizar ontologicamente com o Absoluto, pois, se fosse algo, já não seria nada. E, se não é algo, não pode constituir um termo real de oposição ao Ser.
+
+Assim, o Absoluto não é soberano porque venceu uma alternativa chamada «não soberania». Ele é soberano porque **não há nada anterior a ele que possa determinar seu Ser**. Sua soberania é a própria positividade de seu Ser incausado; sua liberdade é a expressão desse Ser enquanto não dependente de outro; e sua capacidade criadora é a manifestação dessa liberdade para além de qualquer matéria ou fundamento preexistente.
+
+A criação *ex nihilo*, portanto, não significa que o nada seja convertido em ser. Significa que, fora do próprio Absoluto, não havia realidade anterior que pudesse servir de fundamento àquilo que veio a existir. O mundo não é extraído do nada como de uma substância: **ele é posto no ser pela liberdade soberana daquele que é sem depender de outro.**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2035,5 +2141,33 @@ A absolutez não restringe o poder criador, o absoluto não significa ser singul
 
 Exemplo: o homem não ama, mas o homem é vivo, e toda a vida
 
+========== parte melhorada a partir da de cima
 
+## A convivência do Absoluto com o mundo determinado
+
+O Absoluto é puro no sentido de poder portar o mundo determinado sem que a determinação corrompa ou limite sua pureza. Sua pureza não consiste em estar separado de toda determinação, mas precisamente em poder relacionar-se com qualquer determinação sem tornar-se determinado por ela. Aquilo que é puro não precisa excluir o impuro para permanecer puro; sua pureza consiste em não depender daquilo com que se relaciona para constituir aquilo que é.
+
+Se o Absoluto é compreendido como intenção, como personificação do querer ou como plenitude do ato de ser, então sua pureza pode transpassar a ordem determinada sem estar submetida a ela. Ele não se encontra diante das determinações como algo exterior, mas pode manifestar-se relacionalmente por meio delas. Assim, sua presença pode aparecer na finalidade dos entes, na inspiração que orienta a criação ou no amor que surge da liberdade dos seres criados.
+
+Nesse sentido, a pureza do Absoluto manifesta-se como transparência. Ela não impõe necessariamente uma forma particular às coisas, mas pode atravessar diferentes formas sem se confundir com nenhuma delas. É justamente por não possuir uma determinação que a restrinja que pode relacionar-se com toda determinação. O Absoluto pode manifestar-se no amor sem ser reduzido a um sentimento particular; pode manifestar-se na finalidade sem ser reduzido a um fim determinado; pode manifestar-se na liberdade sem ser reduzido a uma escolha particular.
+
+A pureza, portanto, não é uma ausência de relação, mas uma ausência de corrupção pela relação. Aquilo que é puro pode entrar em contato com o determinado sem adquirir as limitações próprias do determinado. Sua pureza permite que ele atravesse as determinações sem ser encerrado por elas.
+
+Podemos compreender isso por analogia com um sentimento de tal pureza que não pudesse ser localizado como um objeto entre outros objetos. Não seria possível apontar para ele como se aponta para uma coisa determinada, embora ele pudesse manifestar-se em inúmeras experiências particulares. O sentimento não seria menos real por não possuir uma forma determinada; ao contrário, sua ausência de forma determinada permitiria que se expressasse através de diversas formas.
+
+Do mesmo modo, a pureza fundamental não precisa possuir propriedades que a delimitem ou que possam entrar em conflito com propriedades exteriores. Quanto menos uma realidade depende de determinações particulares para ser aquilo que é, menos ela está sujeita à corrupção por contato com outras determinações. É nesse sentido que a pureza pode ser pensada juntamente com a absolutez e a incausalidade: ela não recebe sua realidade de uma propriedade que lhe tenha sido acrescentada por outra coisa.
+
+A absolutez, portanto, não implica necessariamente singularidade numérica. Ser absoluto não significa que somente exista uma realidade, mas que aquilo que é absoluto não recebe sua existência de uma causa exterior. A existência de outros entes determinados não constitui, por si mesma, uma ameaça à absolutez do Absoluto.
+
+Assim, pode haver algo que não seja o Absoluto sem que o Absoluto deixe de ser absoluto. A criação de determinações não introduz uma limitação no Absoluto, porque a determinação criada não é aquilo que constitui o Absoluto. O Absoluto não se torna menos puro por produzir algo determinado, assim como uma fonte não se torna impura simplesmente porque aquilo que dela procede possui uma forma particular.
+
+A pureza, nesse sentido, é compatível com a criação porque não se opõe à determinação que ela mesma fundamenta. O Absoluto não precisa destruir a determinação para permanecer puro; sua pureza está justamente em poder instaurar a determinação sem ser determinado por aquilo que instaurou.
+
+Por isso, a relação entre o Absoluto e o mundo determinado não precisa ser concebida como uma oposição entre pureza e determinação. A determinação pertence ao modo como o mundo se manifesta; a pureza pertence ao modo como o Absoluto é. O mundo pode ser determinado sem que o Absoluto seja determinado por ele.
+
+Podemos compreender isso através de uma distinção simples: o homem pode não amar, mas permanece vivo; pode amar, sem que o amor seja aquilo que constitui sua vida. A vida pode manifestar-se através do amor sem reduzir-se ao amor. Da mesma maneira, o Absoluto pode manifestar-se através de uma determinação sem ser reduzido à determinação pela qual se manifesta.
+
+Assim, aquilo que é determinado pode participar da pureza sem esgotá-la, e aquilo que é puro pode manifestar-se no determinado sem perder sua pureza. O determinado recebe sua realidade do Absoluto; o Absoluto, porém, não recebe sua realidade do determinado.
+
+É justamente essa assimetria que permite a convivência entre ambos: o mundo determinado pode estar no Absoluto sem que o Absoluto esteja limitado pelo mundo determinado. O Absoluto engloba por ser absoluto e transpassa por ser puro.
 
