@@ -2180,3 +2180,5 @@ Assim, aquilo que é determinado pode participar da pureza sem esgotá-la, e aqu
 
 É justamente essa assimetria que permite a convivência entre ambos: o mundo determinado pode estar no Absoluto sem que o Absoluto esteja limitado pelo mundo determinado. O Absoluto engloba por ser absoluto e transpassa por ser puro.
 
+A medida que o poder imperalista cresce, a medida que o mundo permite um só invidiuo ter um trilhão, maior a força de manipulação politica cresce. O niilista quer ver o mundo perder toda a sua alegria, toda a sua liberdade, tirar o brilho de todo olhar, quer ver a terra em chamas, quer fazer um inferno em terra. O niilista ve a alegria social e para ele é insuportavel, para ele é uma tortura tempestuosa, e a reataliaçaõ por essa mesma tortura que ele quer manifestar na sociedade em forma de ditatura, repressão, até mesmo por tortura. O niilista julga estar sendo incomodado, torturado pelo sentido da vida que se esboça em todo lugar através da liberdade, da alegria popular.
+
