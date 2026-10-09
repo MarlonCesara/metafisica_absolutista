@@ -12303,6 +12303,8 @@ Sentimento puro
 
 Se um grupo rico de niilistas manipular a politica de forma que enfraqueça a democracia, depende ainda do humano no que tange a relações trabalhistas. Por exemplo, se há greve, então é necessario antender a reinvindicações. Nesse sentido o que possui o governo e suas leis, depende de relações trabalhistas. Neste sentido, o humano tem posse, tem aquilo que o bilionário depende para reinvindicar direitos. Uma vez que não há dependência de trabalho de forma que os super ricos produzam alimentos, fabriquem, sem o auxilio do humano, o humano só possui o poder do protesto. Não podendo, dessa forma ameaçar, as maquinas de fazer dinheiro niilistas, como fabricas, latifúndios, etc. Portanto, é necessario ter no governo uma forte força contra o acumulo de bens e um controle total das tecnologias e grandes industrias, para que isso seja usado em favor do humano. 
 
+é preciso que a humanidade urgentemente assuma politicas, medidas, que impeçam a formação de bilionarios. A medida que o processo de framentação da riqueza dos super ricos vai acontecendo, as influencias politicas começam a cessar, de forma que a politica passe a funcionar.
+
 
 # Sintomas de manifestação niilista:
 
