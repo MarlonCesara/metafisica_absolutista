@@ -403,8 +403,8 @@ A análise do Absoluto exige um mapeamento preciso dos domínios do pensável e 
 *O Absoluto como Princípio Irredutível:*
 Ao examinarmos os princípios causais à luz do Absoluto - compreendido em sua plenitude ontológica como síntese transcendente de possibilidade e impossibilidade - alcançamos o fundamento último da investigação metafísica. Neste nível radical de análise, o Absoluto se revela como:
 
-* O *Prius* Metafísico Incontornável: A condição de possibilidade transcendental para toda cadeia causal e todo ente contingente.
-* O Solo Ontológico Integral: Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível (limite intrínseco da realidade).
+* O *Prius* Metafísico Incontornável: A condição para toda cadeia causal e todo ente contingente.
+* O Solo Ontológico Integral: Que contém em si, de modo eminente, tanto o possível (domínio da existência lógica) quanto o impossível não disruptivo (limite intrínseco da realidade).
 * O Fim da Regressão Causal: Onde toda busca por fundamentação encontra seu termo final necessário.
 
 **2. O Incausado: A Via Negativa e a Autossuficiência**
