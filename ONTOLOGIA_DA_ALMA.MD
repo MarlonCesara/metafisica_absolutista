@@ -1,23 +1,48 @@
+# **TRATADO METAFÍSICO DA ONTOLOGIA DO SOU**
 
-
-
-# **TRATADO METAFÍSICO DA ONTOLOGIA DO SER, DO SOU E DA TRANSCENDÊNCIA**
-
-
-### **PROPOSIÇÃO XI: A POTENCIALIDADE CRIADORA DO SER**
+### **A POTENCIALIDADE CRIADORA DO SER**
 
 **1. A Potencialidade Ilimitada do Ser**
 O Ser tem todas as possibilidades dentro do campo do Absoluto no contexto de sua liberdade, tem em disposição o possível, impossível não disruptivo e incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o Absoluto, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada. Ou seja, se para a liberdade Absoluta fosse possível uma existência "A", estaria formalizada como "A" e teria como potencial apenas a existência de "A". Porém, a liberdade Absoluta atribui potência de ação o que se há para o campo das possibilidades. Assim, o possível, seu limiar (o impossível não disruptivo) e o incognoscível são opções válidas, desde que existam como ação libertária do Ser. 
 
+Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual a liberdade. Em sua natureza pura, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
 
-revisado
-Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual a liberdade. Em sua natureza relativa, o Ser não possui dimensões e, portanto, não é numérico. No entanto, temporalmente, essa possibilidade se abre como veremos adiante. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
-
-O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para o relativo, se algo é — seja dentro do que é possível ou impossível (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
+O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para a liberdade, se algo é — seja dentro do que é possível ou impossível nao disruptivo(o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
 
 > *Considerando que o Ser é pleno e caminha em direção à plenitude, podemos pensar numa infinita possibilidade de diversificação da vida e de experiências. Se há animais, plantas, universo, tudo isso é dado como possível e real também na vida além desta, pois é fruto da vida em plenitude, da manifestação do vivo em suas infinitas formas possíveis, que convergem para o bem.*
 
-### **PROPOSIÇÃO XVII: O AMOR COMO PRINCÍPIO FUNDANTE E A NATUREZA DO TEMPO**
+Se a intencionalidade está em direção ao existir, o Ser transborda, portanto, em seu potencial, seu existir em diversas formas de determinação.
+
+### A determinação do homem
+revisado
+O homem é criado a imagem do Ser, de forma que, é livre. Porém, não possui a pureza no sentido de não possuir um si, no sentido de que, o Ser é Ser para, e o homem é ser para si.
+
+O Ser, é o Ser, enquanto o homem é o Sou. Neste sentido, o sou é um auto domínio, auto conhecimento, auto presença, sem que essa presença tenha a identidade do Ser, no sentido de que, o sou humano não se identifica com o existir, mas se identifica consigo mesmo.
+
+Isto é, determinar o uso da liberdade se dá como um agente individual. Que, por ter identidade, se tem como um auto domínio de si, e não um auto dominar. 
+
+O homem não é a determinação do Ser, pois isto é impossível. Não é possível construir um Ser determinado. O homem é um auto construtor de si, no sentido de que, é necessário que este homem seja a favor de si para se fazer real, para se fazer o construir-se de si. O homem é uma identidade que é, desde que seja, em concordancia.
+
+O homem não é o Ser que se da necessário consentido consigo. Mas, é uma determinação, que se faz livre para construir-se, isto é, ser a favor de si, de forma que o Ser o é, de forma que assuma uma plenitude. Ou se deixa ser um ente projetado, mas não auto reafirmado. 
+
+O homem, necessita de deixar de ser uma projeção do Ser, para assumir- a si mesmo, para assumir-se autentico, ganha a vida é precisa reassumir essa vida, renascer para si. 
+
+Portanto, o homem precisa renascer em Espírito, possuir a plenitude, concordar com sua existência, para ser realmente autentico, para ter seu existir autentico. Para se auto sustentar como realidade, como alma que vive, e que age por si mesma, como alma que não é imposta a existência, sem desenvolver seu sentido para esta, sem que consinta consigo mesma, sem que se mova por si mesma, e não somente que exista somente por força que a criou.
+
+Desta forma, o sou não é uma individualização do Ser, ou uma replica do Ser determinada. Mas, é criada semelhante ao ser de forma que seja livre, e que possa consentir com a vida e com seu ato de existencia. O homem, portanto, é semelhante ao ser no sentido de ter auto dominio, auto presença e auto conhecimento. O homem se conhece por inteiro, domina-se e esta presente em si, e necessita consentir com essas propriedades.
+
+O homem, portanto, é livre, mas se é livre por imposição, não tem sua existência autentica, não existe de fato, se não como uma projeção que é mantida por seu sustentador e não por si mesma. A alma que não desenvolve seu espírito de forma a consentir não é realmente viva, mas é viva em função de ser criada viva, e não em função de si. 
+
+A alma do homem, portanto, não é o incausado. Não é uma determinação do Ser que se replicou. Não é o próprio Ser auto construtor de si, mas é uma identidade que é construída e precisa consentir com sua presença, precisa estar presente em si mesma, e não só presente. Precisa consentir com seu ato presente.
+
+O homem é uma individualizaçao do uso da liberdade. É o uso da liberdade sob uma perspectiva que não é a do próprio Ser, uma perspectiva individual, no sentido de que, é necessario que essa perspectiva se alinhe ao ato de Ser por si mesma. 
+
+O homem é uma auto presença individual, que se assemelha ao Ser pela liberdade, mas que tem meios individuas de ação, de forma que sua 
+
+
+
+
+### **AMOR COMO PRINCÍPIO FUNDANTE E A NATUREZA DO TEMPO**
 
 **1. O Amor como Fundamento da Evolução Espiritual**
 A evolução espiritual (amor, propósito, epifania, encontro consigo) é o fundamento. Sem direcionamento diagonal (espiritual), não há harmonia para o horizontal (existencial), pois o espírito é a base da alma, a escolha pela existência.
