@@ -14,7 +14,7 @@ O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; i
 Se a intencionalidade está em direção ao existir, o Ser transborda, portanto, em seu potencial, seu existir em diversas formas de determinação.
 
 ### A determinação do homem
-revisado
+
 O homem é criado a imagem do Ser, de forma que, é livre. Porém, não possui a pureza no sentido de não possuir um si, no sentido de que, o Ser é Ser para, e o homem é ser para si.
 
 O Ser, é o Ser, enquanto o homem é o Sou. Neste sentido, o sou é um auto domínio, auto conhecimento, auto presença, sem que essa presença tenha a identidade do Ser, no sentido de que, o sou humano não se identifica com o existir, mas se identifica consigo mesmo.
@@ -51,13 +51,7 @@ De forma que, o sou, é uma pessoalidade não construida pelo ato auto causal fu
 
 Podemos fazer uma analogia, ao compararmos o Ser a dois entes que se completaram, se fundiram ao ponto de serem indiscerniveis. E portanto está fusão formou uma terceira visão. Essa terceira visão é viva no sentido de ser uma integração de dois entes vivos e auto causais, porém, não é viva necessariamente em função de serem vivas em si mesmas. Porém, tornam-se vivas com o ato de consentir, ou seja, ao terem o ato da plenitude que é indistinguivel do ato da plenitude do Ser, de forma que o ser é o próprio agir em prol de si. Ao desevolverem o agir, o consentir, o sentido de si, estão no sentido, que é o Ser.
 
-
-
-
-
-
 Para o absoluto há o sentir, e não aquele que sente. Isto é, o sentido não tem propriedade sobre si mesmo, é desamparado de um eu do qual se apropria. Isto quer dizer que quando determinamos um sentido para o absoluto, estamos numa redunancia replicando novamente o absoluto. Ao determinarmos um sentido particular, temos o absoluto novamente, numa tentativa de determina-lo.
-
 
 Portanto, se o Ser é o próprio sentido, o Ser. O que, portanto é o homem? Tudo que é determinado, ao nosso ver, é dimensional, portanto, se o homem tem alma, não convém imagina-lo como um ente cristalizado no tempo e espaço, de forma a chama-lo de energia. 
 
@@ -76,28 +70,21 @@ Essa noção de presença de si, e não somente o ser presença do Ser. Esse sen
 
 É o homem. A alma é um sentimento, uma visão, que necessita o teor auto causal, a visão que ve a si mesma é o homem, enquanto o Ser é a visão somente, é o ver. O homem é o ver a si, enquanto o Ser é o ver.
 
-
 O absoluto é um sentimento de doação total, enquanto o homem é o sentir-se pertencido ao próprio sentimento, as proprias qualidades e dons, aos traços caracteristicos da alma individual, da personalidade individual. Estar pertencido ao sentir, de forma que há o quem sente. Há o quem concorre e consente para si mesmo, no homem. O homem se apropria de si para estar vivo, enquando o Ser é o própria propriedade da vida.
-
-
-
 
 Ao compararmos um sentimento não vivo em si, mas vivo desde que tenha o viver, temos o sou sem plenitude. Ao comprarmos o Ser com um sentimento que tem forma, teriamos o amor em forma, mas não há o amor em forma, há a forma de amar.
 
 No sentido de que o sou possui sua forma de expressar o amor. Porém, não há uma forma para o amor, no sentido de que não há uma identidade para o Ser, mas o Ser se demonstra até mesmo na identidade.
 
-
-
 Portanto, poderiamos dizer que o sou que não vivem em plenitude é uma projeção de sentimento, que não tem um sentido em si, mas um sentido para o mundo, no sentido de estar no mundo, como existente, mas não estar em si, como existente. Isto quer dizer que, apesar do sou ter a visão de si, essa visão não é o consentir, não é a visão em verdade, em vida, em consentimento. O sou não se domina competamente, não ve completamente e não conhece completamente sem o consentimento com tais atribuos, por isso o Ser é o ver do sou, o estar, e o dominar.
 
 O sou sem plenitude é vivo em função da projeção, a vida é de quenm o projeta, mas alem da projeção, da criação, necessita estar vivo como co-criador de si, como consensor da vida, como autonomo, precisa recuperar sua autonomia, estar vivo por si, e não somente existir como vivo, mas viver essa vida existida. 
 
-
 Portanto, o sou, é um sentimento que tem forma, e por isso não se diz pureza total, pois ao se doar a outro sofre colisoes ou mistura, porem, o Ser ao se doar não se misetura ou transforma, e nem colide.
 
+O Ser seria o sentimento de amor puro que se faz pessoa. E o sou seria a pessoa que participa do amor.
 
-
-
+Porém se não é o absoluto com tendencia a si mesmo, referindo-se ao sou, o que realmente faz o uso da liberdade? A alma do homem é uma ação horizontal personificada, porém
 
 
 
