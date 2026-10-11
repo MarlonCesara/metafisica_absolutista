@@ -51,6 +51,58 @@ De forma que, o sou, é uma pessoalidade não construida pelo ato auto causal fu
 
 Podemos fazer uma analogia, ao compararmos o Ser a dois entes que se completaram, se fundiram ao ponto de serem indiscerniveis. E portanto está fusão formou uma terceira visão. Essa terceira visão é viva no sentido de ser uma integração de dois entes vivos e auto causais, porém, não é viva necessariamente em função de serem vivas em si mesmas. Porém, tornam-se vivas com o ato de consentir, ou seja, ao terem o ato da plenitude que é indistinguivel do ato da plenitude do Ser, de forma que o ser é o próprio agir em prol de si. Ao desevolverem o agir, o consentir, o sentido de si, estão no sentido, que é o Ser.
 
+
+
+
+
+
+Para o absoluto há o sentir, e não aquele que sente. Isto é, o sentido não tem propriedade sobre si mesmo, é desamparado de um eu do qual se apropria. Isto quer dizer que quando determinamos um sentido para o absoluto, estamos numa redunancia replicando novamente o absoluto. Ao determinarmos um sentido particular, temos o absoluto novamente, numa tentativa de determina-lo.
+
+
+Portanto, se o Ser é o próprio sentido, o Ser. O que, portanto é o homem? Tudo que é determinado, ao nosso ver, é dimensional, portanto, se o homem tem alma, não convém imagina-lo como um ente cristalizado no tempo e espaço, de forma a chama-lo de energia. 
+
+Ao imaginar o homem como alma, uma alma que é criada e não emerge necessariamente do absoluto como pureza fundamental, temos que, a própria pureza, pode ser chama de sentido. Um sentido indetectável, um sentido puro.
+
+Ao tentarmos mentalizar o Ser como algo dimensional caímos em um erro, tal como é imaginar a alma como algo dimensional.
+
+No campo metafisico das almas, palavras como ''sentimento'' explica de forma melhor, do que a palavra ''dimensionalidade''. O Sou, cristalizado, seria uma dimensão, uma criatura energética. 
+
+Portanto, o Ser é o sentimento mais livre, aquele que nem mesmo possui a si, aquele que é puro e pode se manifestar em qualquer ente, aquele é totalmente transparente, aquele que é o existir do que existe. 
+
+Temos que, nessa esfera, a do sentimento, diríamos que o Ser é o sentimento quase não detectável. É a transparência total. Ao passo que, sou não se coloca como uma dimensionalidade, apesar de ser determinado, é uma determinação no sentido espiritual e almático, isto é, o homem é como um sentimento, que não é indetectável. É um sentimento que detecta a si mesmo, que não é um puro detectar, mas o detectado.
+
+O sou é uma alma que consta para si mesma, de forma que se reconheça como una e individual, e altora de si, segundo a si mesmo, não segundo o absoluto.
+Essa noção de presença de si, e não somente o ser presença do Ser. Esse sentimento de pertencimento, que é diferente do sentimento de doação total do Ser. Esse sentimento que não é cristalino para si mesmo, de forma que se detecte antes que se doe ao todo, de forma que, o doar de si o destrua.
+
+É o homem. A alma é um sentimento, uma visão, que necessita o teor auto causal, a visão que ve a si mesma é o homem, enquanto o Ser é a visão somente, é o ver. O homem é o ver a si, enquanto o Ser é o ver.
+
+
+O absoluto é um sentimento de doação total, enquanto o homem é o sentir-se pertencido ao próprio sentimento, as proprias qualidades e dons, aos traços caracteristicos da alma individual, da personalidade individual. Estar pertencido ao sentir, de forma que há o quem sente. Há o quem concorre e consente para si mesmo, no homem. O homem se apropria de si para estar vivo, enquando o Ser é o própria propriedade da vida.
+
+
+
+
+Ao compararmos um sentimento não vivo em si, mas vivo desde que tenha o viver, temos o sou sem plenitude. Ao comprarmos o Ser com um sentimento que tem forma, teriamos o amor em forma, mas não há o amor em forma, há a forma de amar.
+
+No sentido de que o sou possui sua forma de expressar o amor. Porém, não há uma forma para o amor, no sentido de que não há uma identidade para o Ser, mas o Ser se demonstra até mesmo na identidade.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ======================
 
 ---
@@ -103,40 +155,6 @@ Podemos ilustrar essa dinâmica através da natureza do amor. Se compararmos o S
 Para compreendermos a vivificação da alma, façamos uma analogia: imaginemos o Ser como duas realidades (o Fundamento e a Liberdade) que se fundem perfeitamente. Dessa fusão, emerge uma "terceira visão" projetada para fora (o homem). Essa terceira visão, contudo, só se torna plenamente viva e real quando ela, por si mesma, pratica o ato de consentir. Quando o homem adota para si o ato da plenitude — que é a essência do próprio Ser atuando em prol da vida —, ele deixa de ser apenas uma criatura. Ao desenvolver o sentido de si mesmo e agir em favor da existência, o homem encontra a sua verdade ontológica: ele habita finalmente o Sentido, que é o próprio Ser.
 
 ==================
-
-
-
-
-
-Para o absoluto há o sentir, e não aquele que sente. Isto é, o sentido não tem propriedade sobre si mesmo, é desamparado de um eu do qual se apropria. Isto quer dizer que quando determinamos um sentido para o absoluto, estamos numa redunancia replicando novamente o absoluto. Ao determinarmos um sentido particular, temos o absoluto novamente, numa tentativa de determina-lo.
-
-
-Portanto, se o Ser é o próprio sentido, o Ser. O que, portanto é o homem? Tudo que é determinado, ao nosso ver, é dimensional, portanto, se o homem tem alma, não convém imagina-lo como um ente cristalizado no tempo e espaço, de forma a chama-lo de energia. 
-
-Ao imaginar o homem como alma, uma alma que é criada e não emerge necessariamente do absoluto como pureza fundamental, temos que, a própria pureza, pode ser chama de sentido. Um sentido indetectável, um sentido puro.
-
-Ao tentarmos mentalizar o Ser como algo dimensional caímos em um erro, tal como é imaginar a alma como algo dimensional.
-
-No campo metafisico das almas, palavras como ''sentimento'' explica de forma melhor, do que a palavra ''dimensionalidade''. O Sou, cristalizado, seria uma dimensão, uma criatura energética. 
-
-Portanto, o Ser é o sentimento mais livre, aquele que nem mesmo possui a si, aquele que é puro e pode se manifestar em qualquer ente, aquele é totalmente transparente, aquele que é o existir do que existe. 
-
-Temos que, nessa esfera, a do sentimento, diríamos que o Ser é o sentimento quase não detectável. É a transparência total. Ao passo que, sou não se coloca como uma dimensionalidade, apesar de ser determinado, é uma determinação no sentido espiritual e almático, isto é, o homem é como um sentimento, que não é indetectável. É um sentimento que detecta a si mesmo, que não é um puro detectar, mas o detectado.
-
-O sou é uma alma que consta para si mesma, de forma que se reconheça como una e individual, e altora de si, segundo a si mesmo, não segundo o absoluto.
-Essa noção de presença de si, e não somente o ser presença do Ser. Esse sentimento de pertencimento, que é diferente do sentimento de doação total do Ser. Esse sentimento que não é cristalino para si mesmo, de forma que se detecte antes que se doe ao todo, de forma que, o doar de si o destrua.
-
-É o homem. A alma é um sentimento, uma visão, que necessita o teor auto causal, a visão que ve a si mesma é o homem, enquanto o Ser é a visão somente, é o ver. O homem é o ver a si, enquanto o Ser é o ver.
-
-
-O absoluto é um sentimento de doação total, enquanto o homem é o sentir-se pertencido ao próprio sentimento, as proprias qualidades e dons, aos traços caracteristicos da alma individual, da personalidade individual. Estar pertencido ao sentir, de forma que há o quem sente. Há o quem concorre e consente para si mesmo, no homem. O homem se apropria de si para estar vivo, enquando o Ser é o própria propriedade da vida.
-
-
-
-
-
-
-
 
 
 
