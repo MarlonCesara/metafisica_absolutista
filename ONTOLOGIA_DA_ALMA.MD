@@ -37,7 +37,21 @@ A alma do homem, portanto, não é o incausado. Não é uma determinação do Se
 
 O homem é uma individualizaçao do uso da liberdade. É o uso da liberdade sob uma perspectiva que não é a do próprio Ser, uma perspectiva individual, no sentido de que, é necessario que essa perspectiva se alinhe ao ato de Ser por si mesma. 
 
-O homem é uma auto presença individual, que se assemelha ao Ser pela liberdade, mas que tem meios individuas de ação, de forma que sua 
+O homem é uma auto presença individual, que se assemelha ao Ser pela liberdade, mas que tem meios individuas de ação, de forma que sua presença, possa não ter a auto causalidade, isto é, o homem pode não ser autor de si, no sentido de não ter a plenitude em si. Portanto, se torna, uma forma de liberdade e identidade imposta, e não auto causal. 
+
+Isto quer dizer que, o Ser, pode Ser no homem, no sentido de que a plenitude do homem corresponda ao Ser, ao ato de consentimento do Ser. Isto quer dizer que, A plenitude se desenvolve no homem. 
+
+O Ser, necessita estar no Sou, de forma que o Sou, haja ao favor de si em uma existencia autentica, que torna autentica suas ações, isto é, que torna suas ações deliberdas, e não impostas.
+
+O Ser, sendo a pureza, cria, portanto, a presença do homem, uma presença única e individual. Que é criada no sentido de que, é presença, mas é viva desde que desenvolva a plenitude, desde que seja uma presença auto causal, desde que tenha o auto causar, que a torna autentica.
+
+Ao compararmos o Ser a um sentimento de amor, puro e indetectável. E, este sentimento se faz a pessoalidade do Ser.
+
+De forma que, o sou, é uma pessoalidade não construida pelo ato auto causal fundamental, isto é, nao é o Ser, não é o próprio pessoalizar. Mas o homem é a pessoa, isto é, a visão unica, e não o ver. O homem é o presente e não a presença. 
+
+Podemos fazer uma analogia, ao compararmos o Ser a dois entes que se completaram, se fundiram ao ponto de serem indiscerniveis. E portanto está fusão formou uma terceira visão. Essa terceira visão é viva no sentido de ser uma integração de dois entes vivos e auto causais, porém, não é viva necessariamente em função de serem vivas em si mesmas. Porém, tornam-se vivas com o ato de consentir, ou seja, ao terem o ato da plenitude que é indistinguivel do ato da plenitude do Ser, de forma que o ser é o próprio agir em prol de si. Ao desevolverem o agir, o consentir, o sentido de si, estão no sentido, que é o Ser.
+
+
 
 
 
