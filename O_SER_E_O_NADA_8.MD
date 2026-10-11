@@ -1896,7 +1896,9 @@ A alma de Jesus, desta forma, foi despertada no momento da plenitude, no momento
 
 Porém, ainda permanece a pergunta, se não há o tempo inicial da plenitude, não há um start para a ação do Espírito que se fez atual em toda a sua extensão. Se chega a conclusão de que, Espírito personalizador, não colide com o fluxo atemporal continuo, portanto, se houve fluxo houve potencia personalizadora, sem que está tenha sido necessariamente sido criada para tal. Pois a personalização não acidenta a presença continua, pois a presença continua é pura atualidade, é pura renovação constante. A presença continua se refaz a todo momento no tempo, e é todo o tempo instaurado.
 
-Se a alma do Absoluto foi criada, é no sentido de seu corpo físico. 
+Se a alma do Absoluto foi criada, é no sentido de seu corpo físico. A alma do Absoluto, sempre existiu em sua atualização.
+
+Portanto, é possível indagar, então o mundo também sempre poderia ter existido na atualidade? A resposta é que, a atualidade como portadora de um nível de escolha, isto é, uma personalidade, é a consumação do temporal, no sentido de que a consumação do temporal, consuma o atemporal, e esse ato da consumação sempre foi livre para a consumação. O tempo inteiro se deu numa eterna atualização e está sempre foi livre, como a liberdade para a consumação, e essa liberdade e possibilidade se dá somente para a consumação, pois é produto da consumação intocável e indiferente. Sendo a atualidade a consumação da pureza e se atualiza, temos, portanto, um mundo terreno que não pode ter se manifestado na consumação, mas somente pela atualização do Espírito.
 
 
 
