@@ -1886,12 +1886,13 @@ A solução é considerar que a alma do Absoluto sempre existia, mas ao mesmo te
 
 Portanto, a alma do Absoluto necessitou ser criada, no sentido de gerada, de transmitida como ação pelo Absoluto. O Absoluto não podia porta-la, pois ter uma alma já esboçava uma tendencia e não outra. No entanto, o Absoluto necessariamente deveria ser livre, tinha a potencia criadora, e essa potencia se expressa de forma a ser criada do tempo. Isto é, o Absoluto se faz livre, e cria sua liberdade que é a própria liberdade no tempo, que é a alma do Absoluto.
 
+Sem a alma ativa no Absoluto, como houve o momento da escolha de criar essa alma, ou de criar o mundo antes de criar a própria alma, se toda escolha dentro da fonte instaurada é uma escolha que viria de uma personalidade, pois escolher o momento criador advém de uma escolha personalizadora, em decorrência de que há uma temporalidade com mais opções, há uma linha temporal infinita para se escolher criar, como a criação se deu sem pessoalidade? E como foi a escolha do design do mundo criado sem a personalidade? Estas escolhas implicam em diferenças, pois poderia se ter escolhido uma maneira em detrimento de outras.
 
+A reposta para essa pergunta está na recorrência a plenitude, há um momento perfeito em que o absoluto transbordou-se em uma personalidade. E este momento é segundo a plenitude, segundo a perfeição.  Isto é, o absoluto despertou a si mesmo em personalidade, gerou-se em personalidade no momento da plenitude. Exemplo:  O Espírito, quando em seu fluxo atemporal, manifestou a si mesmo imediatamente em seu primeira temporalidade, pois seu jorrar é pleno desde que imediatamente personalizavel.
 
+Portanto, ao considerar a plenitude, se considera a tendencia a atividade total do Absoluto. A alma, portanto, foi desperta, no primeiro momento da atualização, ou o quanto antes na atualização, considerando que a atualização não tem primeiro momento.  Havendo fluxo temporal, há a ação do Espírito personalizador, pois a plenitude o manifesta vivo e ativo em razão da plenitude.
 
-
-
-
+A alma de Jesus, desta forma, foi despertada no momento da plenitude, no momento do fluxo eterno. Sempre, desta forma, esteve ativa na atemporalidade sem acidentar o tempo consumado. Esteve presente na atualização. Se foi criada num corpo humano, a criação se refere a seus aspectos físicos, como inteligencia, memória, etc. Porém, sua atividade como alma sempre existiu no fluxo atemporal para haver nivel de personalização no Absoluto.
 
 
 
