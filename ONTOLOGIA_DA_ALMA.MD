@@ -87,11 +87,12 @@ O Ser seria o sentimento de amor puro que se faz pessoa. E o sou seria a pessoa 
 Porém se não é o absoluto com tendencia a si mesmo, referindo-se ao sou, o que realmente faz o uso da liberdade? A alma do homem é uma ação horizontal personificada, porém
 
 
+Podemos usar de exemplo as cores, imagine que o Ser tem a cor do amor, o vermelho, porem esse vermelho é totalmente transparente. E que o sou tem uma cor que não é transparente, e que se misturada a outra cor, resulta numa cor diferente. Portanto, a cor vermelha transparente, possui sua personalidade, e sua espiritualidade necessaria. Já as cores aparentes, possuem a espiritualidade relativa a propria vontade.
+
+Ao imaginarmos que uma cor é a junção de duas outras cores, temos que, as duas cores anteriores podem estar vivas, sem que a cor nova, relamente tenha a vida verdaedira, uma vez que essa vida precisa ser consentida para ser realmente viva. Temos, portanto, uma mentalização melhor do ato de escolha imaginando dessa forma.
 
 
-
-
-
+A auto causalidade é um sentimento de pureza, que se personaliza e age, sem se apropriar de si. O homem é um sentimento que se apropria de si como sentimento, que não é transparente ao todo, que se define como homem. O sentimento do homem é de propriedade de si, e o sentimento do Ser é total doação sem um eu definido, mas um eu de doação.
 
 
 ======================
