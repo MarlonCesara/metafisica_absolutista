@@ -1875,11 +1875,16 @@ Uma extensão dimensional (fenomênica), ao ser infinitizada, colapsa e se desco
 
 Esta compreensão não esgota o mistério da Trindade, mas oferece uma estrutura metafísica coerente para aproximar-nos dele, mostrando como a doutrina trinitária é a expressão máxima da autopresença e autocausalidade do Ser. Ao compararmos com conceitos doutrinários, podemos interpretar o Pai como a força fundante, o Filho como a personalização e o Espírito Santo como o conector entre ambos, de forma que em ambas as ações está a plenitude. Tanto a personalização gera em favor da plenitude quanto a fundamentação.
 
+revisado
+### **A personalidade do Espírito como possibilidade**
 
+A seguinte objeção pode surgir, o fato de absoluto ter uma alma que age de uma forma e não de outra, não mancha a pureza, de forma que haja uma pessoalidade que agiria de tal forma e não e outra? Isto é, haveria uma determinação para a personalizada, ou seja, para o Espírito personalizador.
 
+Um Espírito determinado seria aquele que deveria escolher entre Ser ou não ser, pois não se daria tal como concluido em sua decisão. Necessitaria operar em um nível de escolha, ao passo que uma alma determinada teria tal aspecto na personalidade e não outro. Como definir uma alma pura, de forma que seus traços deveriam se dar como são sem um nível de escolha?
 
+A solução é considerar que a alma do Absoluto sempre existia, mas ao mesmo tempo foi criada assumindo uma natureza ativa a partir de um determinado momento. Isto faz com que, a alma, inativa, tenha operado na criação, porém, de forma totalmente inerte. Seu despertar para ação foi dado no momento da plenitude, isto é, pelo Espírito da plenitude. Portanto, a alma em sua pessoalidade não feriu a ação instauradora, de forma a ser possível durante a açaõ, de forma a se fazer a potencia criadora inerte, de forma a representar a total liberdade absoluta instaurada, porém, inerte em seu momento instaurador fundamental.
 
-
+Portanto, a alma do Absoluto necessitou ser criada, no sentido de gerada, de transmitida como ação pelo Absoluto. O Absoluto não podia porta-la, pois ter uma alma já esboçava uma tendencia e não outra. No entanto, o Absoluto necessariamente deveria ser livre, tinha a potencia criadora, e essa potencia se expressa de forma a ser criada do tempo. Isto é, o Absoluto se faz livre, e cria sua liberdade que é a própria liberdade no tempo, que é a alma do Absoluto.
 
 
 
