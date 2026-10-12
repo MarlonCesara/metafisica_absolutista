@@ -98,86 +98,79 @@ O Ser seria o sentimento de amor puro que se faz pessoa, e o *sou* seria a pesso
 
 A determinação, no nível espiritual, é adequada ao sentimento de apropriação, um sentimento que tem a si como identidade e existência, não um sentimento que é a doação total de si, de forma que vaza para o todo em uma transparência absoluta, em uma pureza fundamental.
 
-corrigir o pt abaixo
-
-
-
-
-
-
-
-
-
-
-
-### **AMOR COMO PRINCÍPIO FUNDANTE E A NATUREZA DO TEMPO DO SOU**
+### **O AMOR COMO PRINCÍPIO FUNDANTE E A NATUREZA DO TEMPO DO SOU**
 
 **1. O Amor como Fundamento da Evolução Espiritual**
 A evolução espiritual (amor, propósito, epifania, encontro consigo) é o fundamento. Sem direcionamento diagonal (espiritual), não há base para o horizontal (existencial), pois o espírito é a base da alma, a escolha pela existência.
 
-O amor é o princípio que conecta o homem consigo mesmo, fundamenta a liberdade. *"Aquele que não ama não conhece a Deus, porque Deus é amor."* (1 João 4:8). O amor é a energia divina que vivifica o homem.
+O amor é o princípio que conecta o homem consigo mesmo e fundamenta a liberdade. *"Aquele que não ama não conhece a Deus, porque Deus é amor."* (1 João 4:8). O amor é a energia divina que vivifica o homem.
 
-**2. A Corrupção como Retorno ao Nada**
+**2. A Corrupção como Retorno ao Nada e o Paradoxo da Existência**
+
 * **A autonegação radical voluntária** (suicídio ontológico autodeterminado) não destrói o Ser: o Espírito permanece, ainda que o "sou" humano se dissolva em uma esfera temporal.
 * **A autonegação da autenticidade** não desmerece o Ser, mas revela sua potencialidade: a liberdade do Ser de criar permanece, ainda que o "sou" seja indiferente à sua própria autonomia.
-Escolher existir é assumir a autocriação contínua. *Paradoxo:* O "sou" só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**.
 
-**3. O conhecimento e temporalidade do Sou**
+Escolher existir é assumir a autocriação contínua. *Paradoxo:* O "sou" só é livre porque pode **não ser**, e só persiste porque **ignora essa possibilidade a cada instante**.
 
-O sou contempla de uma atemporalidade interior, referente a si mesmo, contempla de toda a sua esfera temporal. Num cenário de desligamento da alma do corpo, a alma conhece a sua total verdade, a sua total esfera temporal. Isto é, o sou é autoria continua e autorial atemporal. O tempo espiritual do sou contempla toda sua verdade, de forma que, visualiza todo seu contexto e sua atualidade.
+**3. O Conhecimento e a Temporalidade do "Sou"**
+O "sou" contempla de uma atemporalidade interior, referente a si mesmo; contempla toda a sua esfera temporal. Num cenário de desligamento da alma do corpo, a alma conhece a sua total verdade, a sua total esfera temporal. Isto é, o "sou" é autoria contínua e autorial atemporal. O tempo espiritual do "sou" contempla toda a sua verdade, de forma que visualiza todo o seu contexto e a sua atualidade.
 
-No contexto da infinitude particular do sou, aquela que ocorre em sua esfera interior, o livre-arbítrio implica a coexistência simultânea de todo seu tempo, no sentido de que o tempo se encerra num estado puramente almático. E neste interim a atualidade se manifesta como realidade vivida. A alma pode ser atualidade em sua atemporalidade, mesmo contemplando sua total realização e verdade. A alma contém em si todo o seu tempo. Já tomou todas as decisões, ainda que sem atribuí-las à atualidade, de forma que, no estado de alma, não encontra toda sua verdade, toda sua infinitude particular tomada pela referencia sentimental. Conhece o que é de forma total.
+No contexto da infinitude particular do "sou", aquela que ocorre em sua esfera interior, o livre-arbítrio implica a coexistência simultânea de todo o seu tempo, no sentido de que o tempo se encerra num estado puramente almático. E, neste ínterim, a atualidade se manifesta como realidade vivida. A alma pode ser atualidade em sua atemporalidade, mesmo contemplando sua total realização e verdade. A alma contém em si todo o seu tempo. Já tomou todas as decisões, ainda que sem atribuí-las à atualidade, de forma que, no estado de alma, não encontra toda a sua verdade, toda a sua infinitude particular tomada pela referência sentimental. Conhece o que é de forma total.
 
-Desta forma, a infinitude manifesta do Sou, é sua verdade. De forma que, seja a verdade e não a total sabedoria do todo. Seria a sabedoria de si. Ao passo que o Ser tem todo o saber da infinitude, o sou tem todo o saber de sua verdade no estado de alma (Sem o corpo).
+Desta forma, a infinitude manifesta do "Sou" é a sua verdade. De forma que seja a verdade, e não a total sabedoria do todo. Seria a sabedoria de si. Ao passo que o Ser tem todo o saber da infinitude, o "sou" tem todo o saber de sua verdade no estado de alma (sem o corpo).
 
-O tempo da alma ainda subsiste; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Assim também age o Ser em sua dimensão temporal: contém sua integralidade, mas permanece vivo em livre em sua atualidade. A alma é criada no tempo do Espírito do Ser. E é criada a imagem do Ser de forma que é livre e pode escolher-se em autenticidade. 
+O tempo da alma ainda subsiste; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Assim também age o Ser em sua dimensão temporal: contém sua integralidade, mas permanece vivo e livre em sua atualidade. A alma é criada no tempo do Espírito do Ser. E é criada à imagem do Ser, de forma que é livre e pode escolher-se em autenticidade.
 
-A infinitude do homem é particular enquanto a infinitude do Ser é doada ao todo, é a infinitude fundamental, que é dada Absoluta e doada às infinitudes. De forma que, na esfera do sentimento, o homem é uma infinitude de si, uma infinitude própria, de forma que conheça toda a sua verdade, toda sua perspectiva no seu ato atemporal da alma sem o corpo.
+A infinitude do homem é particular, enquanto a infinitude do Ser é doada ao todo; é a infinitude fundamental, que é dada como Absoluta e doada às infinitudes. De forma que, na esfera do sentimento, o homem é uma infinitude de si, uma infinitude própria, para que conheça toda a sua verdade, toda a sua perspectiva no seu ato atemporal da alma sem o corpo.
 
-Na esfera da alma a infinitude não é uma dimensão espacial infinita, pois nenhuma espacialidade pode se dar infinita sem que perca seus contornos e se destrua. Infinitude da alma aborda seus aspectos almáticos, sentimentais ou conscientes, de forma que, estes aspectos transcendem em possibilidades a esfera dimensional.
+Na esfera da alma, a infinitude não é uma dimensão espacial infinita, pois nenhuma espacialidade pode dar-se como infinita sem que perca seus contornos e se destrua. A infinitude da alma aborda seus aspectos almáticos, sentimentais ou conscientes, de forma que estes aspectos transcendem em possibilidades a esfera dimensional.
 
-**2. As Duas três vias do eu: O Absoluto, o outro sou e a negação de si**
-> *O relacionamento com o Ser é um relacionamento cristalino, o homem, ao lançar-se na homogeneidade de Deus encontra a transparência, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se no Ser torna a alma homogênea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade a alma. Uma vasão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamento com outra alma, que confere uma personalidade, uma vazão ao outro.*
+### **AS VIAS DO EU E A NATUREZA DOS RELACIONAMENTOS**
 
-Conforme as propriedades da alma, sentimentais, um sentimento miscigenado a pureza, é um sentimento cristalino, de forma que o Ser não é uma cor que se miscigena na alma, mas é uma transparência que confere a alma translucidez. O Ser dá luz a alma, no sentido de que, ao se miscigenar, dá transparência a alma, pois é transparente, translúcido, totalmente cristalino. O relacionamento com outro sou miscisgena as cores da alma de forma alterar o teor do eu, porém, o relacionamento com o Ser dá luminosidade a alma.
+**4. O Relacionamento com o Ser Absoluto**
 
-Em via inversa temos o lançar-se no nada, isto é, esburacar a própria alma. A tentativa de sucumbir a própria existencia a nada, a tentativa de auto redução. Dissolver a alma rumo ao nada, não é relaciona-la, é usar uma via negativa. É intencionalmente faze-lo ao passo que a açao intencional é um querer cair, é um deixar-se cair inevitavel. É um ser arrastado inevitavelmente. Um ser que ao passo que se assombra com a vida, que tem uma visão virtual, não pertecendora, se sente com medo da sua fininitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que isso é intencional. Que seu cair é intencional. Porém, o nada não existe, não é um caminho para se percorrer, temos, portanto, não o nada realizavel, mas um constante auto sabotar, uma constante auto aflição espiritual, que podemos usar o conceito de fogo espiritual que define um teor de auto sabotagem espiritual.
+> *O relacionamento com o Ser é um relacionamento cristalino. O homem, ao lançar-se na homogeneidade de Deus, encontra a transparência, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se no Ser torna a alma homogênea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade à alma. Uma vazão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamento com outra alma, que confere uma personalidade, uma vazão ao outro.*
 
-A alma se lança num topor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que ao mesmo tempo é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção. No entanto, este topor não atinge seu fim, pois seu fim inexiste, é um mal infinito, nunca encontra seu termino, nunca encontra sua atualização atemporal. Pois o buscar pelo nada é uma busca sem resultado, não é uma busca que realiza.
+Conforme as propriedades sentimentais da alma, um sentimento miscigenado à pureza é um sentimento cristalino. De forma que o Ser não é uma cor que se miscigena na alma, mas é uma transparência que confere à alma translucidez. O Ser dá luz à alma no sentido de que, ao se miscigenar, dá transparência à alma, pois é transparente, translúcido, totalmente cristalino. O relacionamento com outro "sou" miscigena as cores da alma de forma a alterar o teor do eu; porém, o relacionamento com o Ser dá luminosidade à alma.
 
-É um percorrer sem chegar, é um objetivo de aprisionamento para o ente criado e que não consente consigo. Porém, em razão do sentimento de ódio que aniquila o individuo em sua auto consciencia, o topor é igualavel a total estar alheio a vida. No sentido da privação sentimental total. Uma sensação total de estar alheio a si. Um auto apagão sem uma gente vivo para se libertar deste. Uma alma que existe sem sentido, e queima num topor. Uma alma que se torna insensível e que não desperta a si mesma, pois não há alguem que a disperte se não estiver esse alguém em si mesma, no sentido de possuir o renascer, o viver para si, o viver consentido.
+**5. O Relacionar-se dos Sous**
+O "Sou" não se mistura ao Ser em função de o Ser ser a pureza total e o "sou" a independência. E o "sou" não se mistura com outro "sou" em função de a alma não corresponder à esfera física e dimensional. Podemos citar um exemplo: se a alma fosse um corpo, não poderiam existir dois corpos no mesmo lugar. E se a alma fosse possuidora de um lugar, não poderiam existir todas as almas sem haver um lugar, ou seja, não havendo mundo. Porém, a alma não é detectável espacialmente ou fisicamente; é um sentido, um sentimento para o absoluto. De forma que, sendo sentimento, pode estar alheia a outra alma em forma de sentido.
 
-Uma alma que dorme, pois essa é sua tendencia. Dorme em Espirito, no sentido de não consentir, e essa dormencia total, fora do corpo, se manifesta numa queda, pois não há ninguém que a mova nem ela mesma. Isto significa que o corpo a sustenta no sentido da auto preservação, dos impulssos biologicos, porem, sem o corpo, a alma segue seu sentimento instantaneo, sem seu instinto de auto preservação, sem a natureza biologica que a movia.
+Isto quer dizer que, ao nos referirmos à alma como sentimento, há o sentimento de estar alheio, ou o sentimento de nadificação do outro, de forma que a alma se faça solitária para si. Neste sentido, a alma, na esfera do sentido, foge à esfera espacial de divisão de espaço e se faz como uma frequência que se sintoniza, ou não, com o outro, que se sintoniza, ou não, com o Ser.
 
-Isto é, quando a alma se torna independente do corpo, ela segue o rumo de seu sentimento. O rumo que seu corpo fazia contrasenso ou não. Se o corpo é a favor da auto preservação, e a alma não, há uma contravenção entre ambos a qual discutiremos em outros topicos, porém, a alma, sem o corpo, desliga de seus instintos biológicos segue seu puro intento, de forma que, se manifeste decidiamente, sem oposições instintivas ao seu intento. 
+### **A NEGAÇÃO DE SI E A INÉRCIA DA ALMA**
 
-Portato se a alma pretende a auto anulação. E este caminho significa a auto negação, já auto realizou negando a própria autenticidade, tendo uma escolha morta em si, isto é uma escolha que não se deu pela sua vontade, mas que se deu pela inatividade, não é, portanto, uma escolha, é um simples cair, desfalecer por nunca ter tido movimento, não é um movimento vivo em direção a queda, mas a queda é a própria inação. A queda é o não bater de asas, e não o bater de asas em direção a queda. Isto significa que o cair, ou o caminho da auto anulação de si como sentimento, não é um ato, é um não ato que se faz ato. É um ódio infinito que se esboça em não movimento, em mortidão.
+**6. A Via Negativa e o Lançar-se no Nada**
+Em via inversa, temos o lançar-se no nada, isto é, esburacar a própria alma. A tentativa de sucumbir a própria existência ao nada, a tentativa de autorredução. Dissolver a alma rumo ao nada não é relacioná-la, é usar uma via negativa. É intencionalmente fazê-lo, ao passo que a ação intencional é um querer cair, é um deixar-se cair inevitável. É um ser arrastado inevitavelmente. Um ser que, ao passo que se assombra com a vida, que tem uma visão virtual, não pertencente, se sente com medo da sua finitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que isso é intencional. Que seu cair é intencional. Porém, o nada não existe, não é um caminho para se percorrer. Temos, portanto, não o nada realizável, mas uma constante autossabotagem, uma constante autoaflição espiritual, onde podemos usar o conceito de "fogo espiritual" que define um teor de autossabotagem espiritual.
 
-Portanto, não existe teoricamente não escolher, existe uma escolha que veio de uma não vida, que veio da completa ausencia do amor, do amor até mesmo a escolha. O individuo não escolhe o mal, simplesmente não escolhe, e sua não escolha é uma indifença infinita, uma indiferença que se faz escolha.
+O lançar-se no nada não é um relacionamento que confere pureza; é uma pureza que não é relacionável como o Ser, mas uma autodestruição. O nada não existe para que se relacione com ele. Portanto, o lançar-se no nada não é o lançar-se no nada, é o não mover-se. É um estado sem ânimo, apático. Que segue sua tendência rumo à apatia e afunda o quanto for possível, não por vontade, mas porque não houve o primeiro movimento da alma por ela mesma. Simplesmente, em vida corpórea, havia um corpo com a alma inerte, um corpo instintivo, que se inclinava à indiferença de si, ao estar alheio da própria consciência.
 
-O cair da auto anulação advém de um ódio que se torna tão grande, que se faz mortidão, se faz indiferença, se faz alienação de si. Essa ambiguidade é possível no contexto da alma.
+**7. O Torpor e a Alienação**
+A alma se lança num torpor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que, ao mesmo tempo, é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção. No entanto, este torpor não atinge seu fim, pois seu fim inexiste; é um mal infinito, nunca encontra seu término, nunca encontra sua atualização atemporal. Pois o buscar pelo nada é uma busca sem resultado, não é uma busca que realiza.
 
-revisado
+É um percorrer sem chegar, é um objetivo de aprisionamento para o ente criado e que não consente consigo. Porém, em razão do sentimento de ódio que aniquila o indivíduo em sua autoconsciência, o torpor é igualável ao total estar alheio à vida. No sentido da privação sentimental total. Uma sensação total de estar alheio a si. Um autoapagão sem um agente vivo para se libertar deste. Uma alma que existe sem sentido e queima num torpor. Uma alma que se torna insensível e que não desperta a si mesma, pois não há alguém que a desperte, se não estiver esse alguém em si mesma, no sentido de possuir o renascer, o viver para si, o viver consentido.
 
-O lançar-se no nada não é um relacionamento que confere pureza, é uma pureza que não é relacionável como Ser, mas uma autodestruição. O nada não existe para que se relacione-se com ele. Portanto, o lançar-se no nada, não é o lancar-se no nada, é o não mover-se. É um estado sem animo, apático. Que segue sua tendencia rumo a apatia e afunda o quanto for possível, não por vontade, mas porque não houve o primeiro movimento da alma por ela mesma. Simplesmente, em vida corpórea, havida um corpo com a alma inerte, um corpo instintivo, que se inclinava a indiferença de si, ao estar alheio da própria consciencia.
+Uma alma que dorme, pois essa é a sua tendência. Dorme em Espírito, no sentido de não consentir, e essa dormência total, fora do corpo, se manifesta numa queda, pois não há ninguém que a mova, nem ela mesma. Isto significa que o corpo a sustenta no sentido da autopreservação, dos impulsos biológicos; porém, sem o corpo, a alma segue seu sentimento instantâneo, sem seu instinto de autopreservação, sem a natureza biológica que a movia.
 
-O querer da destruição é um objetivo, no entanto, a alma, nem a destruição intenta, intenta ao completo estar alheio, e se para esse estado é preciso destruição, então a destruição se torna este ato, o ato inerte. No mundo o desejo de auto anulação, como veremos em outros topicos, se traduz como uma indole destruidora, porem, no contexto almatico, traduz-se como o não movimento, ou como o movimento que manifesta a totalidade do desdem e indiferença a propria liberdade, e ao existir em todas as suas propriedades.
+Isto é, quando a alma se torna independente do corpo, ela segue o rumo de seu sentimento. O rumo que seu corpo fazia contrassenso ou não. Se o corpo é a favor da autopreservação, e a alma não, há uma contravenção entre ambos, a qual discutiremos em outros tópicos. Porém, a alma, sem o corpo, desligada de seus instintos biológicos, segue seu puro intento, de forma que se manifeste decididamente, sem oposições instintivas ao seu intento.
 
-A alma em inercia, ao passo que em pose de auto indiferença, simplesmente faz da sua imobilidade sua ação, de forma que é um sentimento de indiferença infinito, um ódio inequivoco e sem alvo que se expressa na imobilidade, que é o estar alheio a si, de forma que nao se exista para si, ainda que se exista.
+**8. A Escolha Morta e a Alma Desontista**
+Portanto, se a alma pretende a autoanulação — e este caminho significa a autonegação —, já se autorealizou negando a própria autenticidade, tendo uma escolha morta em si. Isto é, uma escolha que não se deu pela sua vontade, mas que se deu pela inatividade; não é, portanto, uma escolha, é um simples cair, desfalecer por nunca ter tido movimento. Não é um movimento vivo em direção à queda, mas a queda é a própria inação. A queda é o não bater de asas, e não o bater de asas em direção à queda. Isto significa que o cair, ou o caminho da autoanulação de si como sentimento, não é um ato, é um não ato que se faz ato. É um ódio infinito que se esboça em não movimento, em mortidão.
 
-Desta forma, o estado aumatico da alma desontista - como iremos chamar a alma imovel e indiferente à propria liberdade, a qual nem mesmo toma a ação destrutiva que exige um intento-, é nada mais do que uma inatividade, uma inatividade que se apodera de um intento a indiferneça total, de uma indiferença anemica, que se faz auto destruição.
+Portanto, não existe, teoricamente, não escolher; existe uma escolha que veio de uma não vida, que veio da completa ausência do amor, do amor até mesmo à escolha. O indivíduo não escolhe o mal, simplesmente não escolhe, e sua não escolha é uma indiferença infinita, uma indiferença que se faz escolha.
 
-Que leva a alma ao completo estado de mortidão e apatia, ao completo estado de alienação de si. Seria ao sentimento de ''nada'', ao sentimento que provoca quase que o objeto almejado.
+O cair da autoanulação advém de um ódio que se torna tão grande que se faz mortidão, se faz indiferença, se faz alienação de si. Essa ambiguidade é possível no contexto da alma.
 
-Há porem, uma camada intermediaria, que é a alma que se faz indiferente, porem, tem o tempo do animo, no sentido de que, em sua totalidade pretende se reanimar, encerra-se, quando desencorpora, em um estado de esperança da saida de sua apatia. Um estado sujeito a temporalidade do seu espirito. No sentido de que a alma se lança num estado de potencialidade de si.
+O querer da destruição é um objetivo; no entanto, a alma nem a destruição intenta, intenta ao completo estar alheio, e se para esse estado é preciso destruição, então a destruição se torna este ato, o ato inerte. No mundo, o desejo de autoanulação, como veremos em outros tópicos, se traduz como uma índole destruidora; porém, no contexto almático, traduz-se como o não movimento, ou como o movimento que manifesta a totalidade do desdém e indiferença à própria liberdade, e ao existir em todas as suas propriedades.
 
+A alma em inércia, ao passo que em posse de autoindiferença, simplesmente faz da sua imobilidade a sua ação, de forma que é um sentimento de indiferença infinito, um ódio inequívoco e sem alvo que se expressa na imobilidade, que é o estar alheio a si, de forma que não se exista para si, ainda que se exista.
 
+Desta forma, o estado almático da alma *desontista* — como iremos chamar a alma imóvel e indiferente à própria liberdade, a qual nem mesmo toma a ação destrutiva que exige um intento —, é nada mais do que uma inatividade. Uma inatividade que se apodera de um intento, a indiferença total, de uma indiferença anêmica, que se faz autodestruição.
 
-## O relacionar-se dos sous
+Isso leva a alma ao completo estado de mortidão e apatia, ao completo estado de alienação de si. Seria ao sentimento de "nada", ao sentimento que provoca quase que o objeto almejado.
 
-O Sou não se mistura ao ser em função do Ser ser a pureza total e o sou a independencia. E o sou não se mistura com outro sou, em função da alma não corresponder a esfera fisica e dimensional. Podemos citar um exmeplo, se a alma fosse um corpo, não poderia existir dois corpos no mesmo lugar. E se fosse a alma possuidora de um lugar, não poderiam existir todas as almas não havendo um lugar, ou seja, não havedo mundo. Porém, a alma não é detectavel espacialmente ou fisicamente, é um sentido, um sentimento para absoluto, de forma que sendo sentimento, pode estar alheio a outra alma em forma de sentido.
+Há, porém, uma camada intermediária, que é a alma que se faz indiferente, mas tem o tempo do ânimo, no sentido de que, em sua totalidade, pretende se reanimar. Encerra-se, quando desencarna (ou desincorpora), em um estado de esperança da saída de sua apatia. Um estado sujeito à temporalidade do seu espírito. No sentido de que a alma se lança num estado de potencialidade de si.
 
-Isto quer dizer que, ao nos referirmos a alma como sentimento, há o sentimento de estar alheio, ou o sentimento de nadificação do outro, de forma que a alma se faça solitaria para si. Neste sentido, a alma, na esfera do sentido, foge à esfera espacial de divisão de espaço e se faz como uma frequencia que se sintoniza ou não com o outro, que se sintoniza ou não com o Ser.
 
 
 
@@ -1477,6 +1470,112 @@ O auto-testemunho de si implica a afirmação da própria existência, continuid
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### **AMOR COMO PRINCÍPIO FUNDANTE E A NATUREZA DO TEMPO DO SOU**
+
+**1. O Amor como Fundamento da Evolução Espiritual**
+A evolução espiritual (amor, propósito, epifania, encontro consigo) é o fundamento. Sem direcionamento diagonal (espiritual), não há base para o horizontal (existencial), pois o espírito é a base da alma, a escolha pela existência.
+
+O amor é o princípio que conecta o homem consigo mesmo, fundamenta a liberdade. *"Aquele que não ama não conhece a Deus, porque Deus é amor."* (1 João 4:8). O amor é a energia divina que vivifica o homem.
+
+**2. A Corrupção como Retorno ao Nada**
+* **A autonegação radical voluntária** (suicídio ontológico autodeterminado) não destrói o Ser: o Espírito permanece, ainda que o "sou" humano se dissolva em uma esfera temporal.
+* **A autonegação da autenticidade** não desmerece o Ser, mas revela sua potencialidade: a liberdade do Ser de criar permanece, ainda que o "sou" seja indiferente à sua própria autonomia.
+Escolher existir é assumir a autocriação contínua. *Paradoxo:* O "sou" só é livre porque pode **não-ser**, e só persiste porque **ignora essa possibilidade a cada instante**.
+
+**3. O conhecimento e temporalidade do Sou**
+
+O sou contempla de uma atemporalidade interior, referente a si mesmo, contempla de toda a sua esfera temporal. Num cenário de desligamento da alma do corpo, a alma conhece a sua total verdade, a sua total esfera temporal. Isto é, o sou é autoria continua e autorial atemporal. O tempo espiritual do sou contempla toda sua verdade, de forma que, visualiza todo seu contexto e sua atualidade.
+
+No contexto da infinitude particular do sou, aquela que ocorre em sua esfera interior, o livre-arbítrio implica a coexistência simultânea de todo seu tempo, no sentido de que o tempo se encerra num estado puramente almático. E neste interim a atualidade se manifesta como realidade vivida. A alma pode ser atualidade em sua atemporalidade, mesmo contemplando sua total realização e verdade. A alma contém em si todo o seu tempo. Já tomou todas as decisões, ainda que sem atribuí-las à atualidade, de forma que, no estado de alma, não encontra toda sua verdade, toda sua infinitude particular tomada pela referencia sentimental. Conhece o que é de forma total.
+
+Desta forma, a infinitude manifesta do Sou, é sua verdade. De forma que, seja a verdade e não a total sabedoria do todo. Seria a sabedoria de si. Ao passo que o Ser tem todo o saber da infinitude, o sou tem todo o saber de sua verdade no estado de alma (Sem o corpo).
+
+O tempo da alma ainda subsiste; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Assim também age o Ser em sua dimensão temporal: contém sua integralidade, mas permanece vivo em livre em sua atualidade. A alma é criada no tempo do Espírito do Ser. E é criada a imagem do Ser de forma que é livre e pode escolher-se em autenticidade. 
+
+A infinitude do homem é particular enquanto a infinitude do Ser é doada ao todo, é a infinitude fundamental, que é dada Absoluta e doada às infinitudes. De forma que, na esfera do sentimento, o homem é uma infinitude de si, uma infinitude própria, de forma que conheça toda a sua verdade, toda sua perspectiva no seu ato atemporal da alma sem o corpo.
+
+Na esfera da alma a infinitude não é uma dimensão espacial infinita, pois nenhuma espacialidade pode se dar infinita sem que perca seus contornos e se destrua. Infinitude da alma aborda seus aspectos almáticos, sentimentais ou conscientes, de forma que, estes aspectos transcendem em possibilidades a esfera dimensional.
+
+**2. As Duas três vias do eu: O Absoluto, o outro sou e a negação de si**
+> *O relacionamento com o Ser é um relacionamento cristalino, o homem, ao lançar-se na homogeneidade de Deus encontra a transparência, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se no Ser torna a alma homogênea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade a alma. Uma vasão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamento com outra alma, que confere uma personalidade, uma vazão ao outro.*
+
+Conforme as propriedades da alma, sentimentais, um sentimento miscigenado a pureza, é um sentimento cristalino, de forma que o Ser não é uma cor que se miscigena na alma, mas é uma transparência que confere a alma translucidez. O Ser dá luz a alma, no sentido de que, ao se miscigenar, dá transparência a alma, pois é transparente, translúcido, totalmente cristalino. O relacionamento com outro sou miscisgena as cores da alma de forma alterar o teor do eu, porém, o relacionamento com o Ser dá luminosidade a alma.
+
+Em via inversa temos o lançar-se no nada, isto é, esburacar a própria alma. A tentativa de sucumbir a própria existencia a nada, a tentativa de auto redução. Dissolver a alma rumo ao nada, não é relaciona-la, é usar uma via negativa. É intencionalmente faze-lo ao passo que a açao intencional é um querer cair, é um deixar-se cair inevitavel. É um ser arrastado inevitavelmente. Um ser que ao passo que se assombra com a vida, que tem uma visão virtual, não pertecendora, se sente com medo da sua fininitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que isso é intencional. Que seu cair é intencional. Porém, o nada não existe, não é um caminho para se percorrer, temos, portanto, não o nada realizavel, mas um constante auto sabotar, uma constante auto aflição espiritual, que podemos usar o conceito de fogo espiritual que define um teor de auto sabotagem espiritual.
+
+A alma se lança num topor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que ao mesmo tempo é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção. No entanto, este topor não atinge seu fim, pois seu fim inexiste, é um mal infinito, nunca encontra seu termino, nunca encontra sua atualização atemporal. Pois o buscar pelo nada é uma busca sem resultado, não é uma busca que realiza.
+
+É um percorrer sem chegar, é um objetivo de aprisionamento para o ente criado e que não consente consigo. Porém, em razão do sentimento de ódio que aniquila o individuo em sua auto consciencia, o topor é igualavel a total estar alheio a vida. No sentido da privação sentimental total. Uma sensação total de estar alheio a si. Um auto apagão sem uma gente vivo para se libertar deste. Uma alma que existe sem sentido, e queima num topor. Uma alma que se torna insensível e que não desperta a si mesma, pois não há alguem que a disperte se não estiver esse alguém em si mesma, no sentido de possuir o renascer, o viver para si, o viver consentido.
+
+Uma alma que dorme, pois essa é sua tendencia. Dorme em Espirito, no sentido de não consentir, e essa dormencia total, fora do corpo, se manifesta numa queda, pois não há ninguém que a mova nem ela mesma. Isto significa que o corpo a sustenta no sentido da auto preservação, dos impulssos biologicos, porem, sem o corpo, a alma segue seu sentimento instantaneo, sem seu instinto de auto preservação, sem a natureza biologica que a movia.
+
+Isto é, quando a alma se torna independente do corpo, ela segue o rumo de seu sentimento. O rumo que seu corpo fazia contrasenso ou não. Se o corpo é a favor da auto preservação, e a alma não, há uma contravenção entre ambos a qual discutiremos em outros topicos, porém, a alma, sem o corpo, desliga de seus instintos biológicos segue seu puro intento, de forma que, se manifeste decidiamente, sem oposições instintivas ao seu intento. 
+
+Portato se a alma pretende a auto anulação. E este caminho significa a auto negação, já auto realizou negando a própria autenticidade, tendo uma escolha morta em si, isto é uma escolha que não se deu pela sua vontade, mas que se deu pela inatividade, não é, portanto, uma escolha, é um simples cair, desfalecer por nunca ter tido movimento, não é um movimento vivo em direção a queda, mas a queda é a própria inação. A queda é o não bater de asas, e não o bater de asas em direção a queda. Isto significa que o cair, ou o caminho da auto anulação de si como sentimento, não é um ato, é um não ato que se faz ato. É um ódio infinito que se esboça em não movimento, em mortidão.
+
+Portanto, não existe teoricamente não escolher, existe uma escolha que veio de uma não vida, que veio da completa ausencia do amor, do amor até mesmo a escolha. O individuo não escolhe o mal, simplesmente não escolhe, e sua não escolha é uma indifença infinita, uma indiferença que se faz escolha.
+
+O cair da auto anulação advém de um ódio que se torna tão grande, que se faz mortidão, se faz indiferença, se faz alienação de si. Essa ambiguidade é possível no contexto da alma.
+
+revisado
+
+O lançar-se no nada não é um relacionamento que confere pureza, é uma pureza que não é relacionável como Ser, mas uma autodestruição. O nada não existe para que se relacione-se com ele. Portanto, o lançar-se no nada, não é o lancar-se no nada, é o não mover-se. É um estado sem animo, apático. Que segue sua tendencia rumo a apatia e afunda o quanto for possível, não por vontade, mas porque não houve o primeiro movimento da alma por ela mesma. Simplesmente, em vida corpórea, havida um corpo com a alma inerte, um corpo instintivo, que se inclinava a indiferença de si, ao estar alheio da própria consciencia.
+
+O querer da destruição é um objetivo, no entanto, a alma, nem a destruição intenta, intenta ao completo estar alheio, e se para esse estado é preciso destruição, então a destruição se torna este ato, o ato inerte. No mundo o desejo de auto anulação, como veremos em outros topicos, se traduz como uma indole destruidora, porem, no contexto almatico, traduz-se como o não movimento, ou como o movimento que manifesta a totalidade do desdem e indiferença a propria liberdade, e ao existir em todas as suas propriedades.
+
+A alma em inercia, ao passo que em pose de auto indiferença, simplesmente faz da sua imobilidade sua ação, de forma que é um sentimento de indiferença infinito, um ódio inequivoco e sem alvo que se expressa na imobilidade, que é o estar alheio a si, de forma que nao se exista para si, ainda que se exista.
+
+Desta forma, o estado aumatico da alma desontista - como iremos chamar a alma imovel e indiferente à propria liberdade, a qual nem mesmo toma a ação destrutiva que exige um intento-, é nada mais do que uma inatividade, uma inatividade que se apodera de um intento a indiferneça total, de uma indiferença anemica, que se faz auto destruição.
+
+Que leva a alma ao completo estado de mortidão e apatia, ao completo estado de alienação de si. Seria ao sentimento de ''nada'', ao sentimento que provoca quase que o objeto almejado.
+
+Há porem, uma camada intermediaria, que é a alma que se faz indiferente, porem, tem o tempo do animo, no sentido de que, em sua totalidade pretende se reanimar, encerra-se, quando desencorpora, em um estado de esperança da saida de sua apatia. Um estado sujeito a temporalidade do seu espirito. No sentido de que a alma se lança num estado de potencialidade de si.
+
+
+
+## O relacionar-se dos sous
+
+O Sou não se mistura ao ser em função do Ser ser a pureza total e o sou a independencia. E o sou não se mistura com outro sou, em função da alma não corresponder a esfera fisica e dimensional. Podemos citar um exmeplo, se a alma fosse um corpo, não poderia existir dois corpos no mesmo lugar. E se fosse a alma possuidora de um lugar, não poderiam existir todas as almas não havendo um lugar, ou seja, não havedo mundo. Porém, a alma não é detectavel espacialmente ou fisicamente, é um sentido, um sentimento para absoluto, de forma que sendo sentimento, pode estar alheio a outra alma em forma de sentido.
+
+Isto quer dizer que, ao nos referirmos a alma como sentimento, há o sentimento de estar alheio, ou o sentimento de nadificação do outro, de forma que a alma se faça solitaria para si. Neste sentido, a alma, na esfera do sentido, foge à esfera espacial de divisão de espaço e se faz como uma frequencia que se sintoniza ou não com o outro, que se sintoniza ou não com o Ser.
 
 
 
