@@ -12320,7 +12320,7 @@ O elitismo da classe media é o niilismo brilhante, o niilista que tenta se expe
 
 O niilista em seus luxos quer mostrar controle, luxos ganhados não por merito, mas por opressão do mais pobre. A força externa que quer demonnstrar é a demonstração da total fraqueza interior, da fraqueza até mesmo de se sustentar como vivente. Votar em partidos que promovem o terror que não apresentam sua proposta, é a expressão de um destino incerto o qual pretende assumir em sua postura, é a demonstração do escuro de seu futuro eminente. A voracidade, violencia de seus atos, é a forma de ser forte, de se fazer forte para enfrentar sua posição interior que é dificl de lidar, que consome sua energia.
 
-
+A violencia é demonstração de sua frustração pela sua postura, é a tentativa de se fazer grande perante o outro que parece-lhe mais firme. É o descarregar da frustração. É o tentar sorrir através de força imponente sobre o outro, na tentativa de demonstrar que foi feliz, é uma indignação perante o status quo do mundo de continuidade perante a aparente indiferença com sua despedida.
 
 
 
