@@ -137,7 +137,13 @@ Conforme as propriedades da alma, sentimentais, um sentimento miscigenado a pure
 
 Em via inversa temos o lançar-se no nada, isto é, esburacar a própria alma. A tentativa de sucumbir a própria existencia a nada, a tentativa de auto redução. Dissolver a alma rumo ao nada, não é relaciona-la, é usar uma via negativa. É intencionalmente faze-lo ao passo que a açao intencional é um querer cair, é um deixar-se cair inevitavel. É um ser arrastado inevitavelmente. Um ser que ao passo que se assombra com a vida, que tem uma visão virtual, não pertecendora, se sente com medo da sua fininitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que isso é intencional. Que seu cair é intencional. Porém, o nada não existe, não é um caminho para se percorrer, temos, portanto, não o nada realizavel, mas um constante auto sabotar, uma constante auto aflição espiritual, que podemos usar o conceito de fogo espiritual que define um teor de auto sabotagem espiritual.
 
-A alma se lança num topor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que ao mesmo tempo é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção.
+A alma se lança num topor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que ao mesmo tempo é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção. No entanto, este topor não atinge seu fim, pois seu fim inexiste, é um mal infinito, nunca encontra seu termino, nunca encontra sua atualização atemporal. Pois o buscar pelo nada é uma busca sem resultado, não é uma busca que realiza.
+
+É um percorrer sem chegar, é um objetivo de aprisionamento para o ente criado e que não consente consigo. Porém, em razão do sentimento de ódio que aniquila o individuo em sua auto consciencia, o topor é igualavel a total estar alheio a vida. No sentido da privação sentimental total. Uma sensação total de estar alheio a si. Um auto apagão sem uma gente vivo para se libertar deste. Uma alma que existe sem sentido, e queima num topor. Uma alma que se torna insensível e que não desperta a si mesma, pois não há alguem que a disperte se não estiver esse alguém em si mesma, no sentido de possuir o renascer, o viver para si, o viver consentido.
+
+Uma alma que dorme, pois essa é sua tendencia. Dorme em Espirito, no sentido de não consentir, e essa dormencia total, fora do corpo, se manifesta numa queda, pois não há ninguém que a mova nem ela mesma. Isto significa que o corpo a sustenta no sentido da auto preservação, dos impulssos biologicos, porem, sem o corpo, a alma segue seu sentimento instantaneo, sem seu instinto de auto preservação, sem a natureza biologica que a movia.
+
+
 
 revisado
 
