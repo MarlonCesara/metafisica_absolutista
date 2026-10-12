@@ -100,6 +100,16 @@ A determinação, no nível espiritual, é adequada ao sentimento de apropriaç�
 
 corrigir o pt abaixo
 
+
+
+
+
+
+
+
+
+
+
 ### **AMOR COMO PRINCÍPIO FUNDANTE E A NATUREZA DO TEMPO DO SOU**
 
 **1. O Amor como Fundamento da Evolução Espiritual**
@@ -126,10 +136,6 @@ A infinitude do homem é particular enquanto a infinitude do Ser é doada ao tod
 
 Na esfera da alma a infinitude não é uma dimensão espacial infinita, pois nenhuma espacialidade pode se dar infinita sem que perca seus contornos e se destrua. Infinitude da alma aborda seus aspectos almáticos, sentimentais ou conscientes, de forma que, estes aspectos transcendem em possibilidades a esfera dimensional.
 
-
-
-revisado
-
 **2. As Duas três vias do eu: O Absoluto, o outro sou e a negação de si**
 > *O relacionamento com o Ser é um relacionamento cristalino, o homem, ao lançar-se na homogeneidade de Deus encontra a transparência, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se no Ser torna a alma homogênea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade a alma. Uma vasão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamento com outra alma, que confere uma personalidade, uma vazão ao outro.*
 
@@ -143,11 +149,51 @@ A alma se lança num topor de si, numa queda de si desenfreada, de forma que nã
 
 Uma alma que dorme, pois essa é sua tendencia. Dorme em Espirito, no sentido de não consentir, e essa dormencia total, fora do corpo, se manifesta numa queda, pois não há ninguém que a mova nem ela mesma. Isto significa que o corpo a sustenta no sentido da auto preservação, dos impulssos biologicos, porem, sem o corpo, a alma segue seu sentimento instantaneo, sem seu instinto de auto preservação, sem a natureza biologica que a movia.
 
+Isto é, quando a alma se torna independente do corpo, ela segue o rumo de seu sentimento. O rumo que seu corpo fazia contrasenso ou não. Se o corpo é a favor da auto preservação, e a alma não, há uma contravenção entre ambos a qual discutiremos em outros topicos, porém, a alma, sem o corpo, desliga de seus instintos biológicos segue seu puro intento, de forma que, se manifeste decidiamente, sem oposições instintivas ao seu intento. 
+
+Portato se a alma pretende a auto anulação. E este caminho significa a auto negação, já auto realizou negando a própria autenticidade, tendo uma escolha morta em si, isto é uma escolha que não se deu pela sua vontade, mas que se deu pela inatividade, não é, portanto, uma escolha, é um simples cair, desfalecer por nunca ter tido movimento, não é um movimento vivo em direção a queda, mas a queda é a própria inação. A queda é o não bater de asas, e não o bater de asas em direção a queda. Isto significa que o cair, ou o caminho da auto anulação de si como sentimento, não é um ato, é um não ato que se faz ato. É um ódio infinito que se esboça em não movimento, em mortidão.
+
+Portanto, não existe teoricamente não escolher, existe uma escolha que veio de uma não vida, que veio da completa ausencia do amor, do amor até mesmo a escolha. O individuo não escolhe o mal, simplesmente não escolhe, e sua não escolha é uma indifença infinita, uma indiferença que se faz escolha.
+
+O cair da auto anulação advém de um ódio que se torna tão grande, que se faz mortidão, se faz indiferença, se faz alienação de si. Essa ambiguidade é possível no contexto da alma.
+
+revisado
+
+O lançar-se no nada não é um relacionamento que confere pureza, é uma pureza que não é relacionável como Ser, mas uma autodestruição. O nada não existe para que se relacione-se com ele. Portanto, o lançar-se no nada, não é o lancar-se no nada, é o não mover-se. É um estado sem animo, apático. Que segue sua tendencia rumo a apatia e afunda o quanto for possível, não por vontade, mas porque não houve o primeiro movimento da alma por ela mesma. Simplesmente, em vida corpórea, havida um corpo com a alma inerte, um corpo instintivo, que se inclinava a indiferença de si, ao estar alheio da própria consciencia.
+
+O querer da destruição é um objetivo, no entanto, a alma, nem a destruição intenta, intenta ao completo estar alheio, e se para esse estado é preciso destruição, então a destruição se torna este ato, o ato inerte. No mundo o desejo de auto anulação, como veremos em outros topicos, se traduz como uma indole destruidora, porem, no contexto almatico, traduz-se como o não movimento, ou como o movimento que manifesta a totalidade do desdem e indiferença a propria liberdade, e ao existir em todas as suas propriedades.
+
+A alma em inercia, ao passo que em pose de auto indiferença, simplesmente faz da sua imobilidade sua ação, de forma que é um sentimento de indiferença infinito, um ódio inequivoco e sem alvo que se expressa na imobilidade, que é o estar alheio a si, de forma que nao se exista para si, ainda que se exista.
+
+Desta forma, o estado aumatico da alma desontista - como iremos chamar a alma imovel e indiferente à propria liberdade, a qual nem mesmo toma a ação destrutiva que exige um intento-, é nada mais do que uma inatividade, uma inatividade que se apodera de um intento a indiferneça total, de uma indiferença anemica, que se faz auto destruição.
+
+Que leva a alma ao completo estado de mortidão e apatia, ao completo estado de alienação de si. Seria ao sentimento de ''nada'', ao sentimento que provoca quase que o objeto almejado.
+
+Há porem, uma camada intermediaria, que é a alma que se faz indiferente, porem, tem o tempo do animo, no sentido de que, em sua totalidade pretende se reanimar, encerra-se, quando desencorpora, em um estado de esperança da saida de sua apatia. Um estado sujeito a temporalidade do seu espirito. No sentido de que a alma se lança num estado de potencialidade de si.
+
+
+
+## O relacionar-se dos sous
+
+O Sou não se mistura ao ser em função do Ser ser a pureza total e o sou a independencia. E o sou não se mistura com outro sou, em função da alma não corresponder a esfera fisica e dimensional. Podemos citar um exmeplo, se a alma fosse um corpo, não poderia existir dois corpos no mesmo lugar. E se fosse a alma possuidora de um lugar, não poderiam existir todas as almas não havendo um lugar, ou seja, não havedo mundo. Porém, a alma não é detectavel espacialmente ou fisicamente, é um sentido, um sentimento para absoluto, de forma que sendo sentimento, pode estar alheio a outra alma em forma de sentido.
+
+Isto quer dizer que, ao nos referirmos a alma como sentimento, há o sentimento de estar alheio, ou o sentimento de nadificação do outro, de forma que a alma se faça solitaria para si. Neste sentido, a alma, na esfera do sentido, foge à esfera espacial de divisão de espaço e se faz como uma frequencia que se sintoniza ou não com o outro, que se sintoniza ou não com o Ser.
+
+
+
+
+
+
+
+
 
 
 revisado
 
-O ser humano tem ambas as impressões. O lançar-se no relativo não é um relacionamento que confere pureza, é uma pureza que não é relacionável a Deus, mas uma autodestruição. Então o relativo é não relacional, no sentido de que a alma se lança num estado de potencialidade de si. E isto é um não relacionamento consigo. Ao contrário de se lançar em Deus que é um relacionamento com o exterior vivo de si, com o absoluto.
+
+
+
+Então o relativo é não relacional, . E isto é um não relacionamento consigo. Ao contrário de se lançar em Deus que é um relacionamento com o exterior vivo de si, com o absoluto.
 
 O Eu humano tem potencial de relativização, isto é, o eu humano não somente opera sobre o relativo, mas pode relativizar-se, de forma que domina não só o relativo, mas o próprio eu dentro da escala relativa. Isto é, a ação relativa não tange ao exterior do eu, mas tange a também uma possível ação sobre o próprio eu. Portanto, o ser humano pode se extravasar do eu, fundir o eu a outro ou nadificar o eu.
 
