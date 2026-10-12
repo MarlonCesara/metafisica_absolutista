@@ -129,101 +129,17 @@ Na esfera da alma a infinitude não é uma dimensão espacial infinita, pois nen
 
 
 revisado
-**4. A Atemporalidade do Ser e a Manifestação Temporal**
-O Ser não precisa "adentrar" no tempo, pois todos os acontecimentos já estão consumados simultaneamente na eternidade do Ser. O Ser conhece todas as potencialidades do arbítrio humano como já realizadas em sua plenitude.
-A integralidade do Ser absorve passado, presente e futuro; mantém uma estrutura interna que contém a temporalidade como possibilidade; e nesta dimensão interna, todas as ações já estão consumadas.
 
-**5. A Aparente Contradição do Agora**
-Nossa experiência do "agora" é uma manifestação particular da eternidade. O que experimentamos como presente já está contido na totalidade do Ser. Nossas ações livres emergem desta plenitude como expressões individuais de previsões.
-O presente do Espírito é a realidade que impera. O ente navega pelas possibilidades. A alma vivencia uma das possibilidades, paralelas, de forma a provocar a temporalidade. A temporalidade não é um fragmento de tempo e espaço, mas um fragmento de possibilidade. Criar do "nada", para o Espírito, é vivificar uma das possibilidades suspensas de forma a causar uma definição particular.
+**2. As Duas três vias do eu: O Absoluto, o outro sou e a negação de si**
+> *O relacionamento com o Ser é um relacionamento cristalino, o homem, ao lançar-se na homogeneidade de Deus encontra a transparência, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se no Ser torna a alma homogênea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade a alma. Uma vasão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamento com outra alma, que confere uma personalidade, uma vazão ao outro.*
 
-**Tabela 17.1: Dimensões do Tempo e da Eternidade**
+Conforme as propriedades da alma, sentimentais, um sentimento miscigenado a pureza, é um sentimento cristalino, de forma que o Ser não é uma cor que se miscigena na alma, mas é uma transparência que confere a alma translucidez. O Ser dá luz a alma, no sentido de que, ao se miscigenar, dá transparência a alma, pois é transparente, translúcido, totalmente cristalino. O relacionamento com outro sou miscisgena as cores da alma de forma alterar o teor do eu, porém, o relacionamento com o Ser dá luminosidade a alma.
 
-| Dimensão | Característica | Manifestação |
-| :--- | :--- | :--- |
-| **Eternidade do Ser** | Totalidade atemporal consumada | Todas as possibilidades realizadas |
-| **Tempo do Espírito** | Presente eterno que impera | Realidade vívida e consciente |
-| **Temporalidade da Alma** | Vivência de possibilidades paralelas | Experiência fragmentada do agora |
-| **Relativo** | Campo de possibilidades suspensas | Potencialidade não manifestada |
+Em via inversa temos o lançar-se no nada, isto é, esburacar a própria alma. A tentativa de sucumbir a própria existencia a nada, a tentativa de auto redução. Dissolver a alma rumo ao nada, não é relaciona-la, é usar uma via negativa. É intencionalmente faze-lo ao passo que a açao intencional é um querer cair, é um deixar-se cair inevitavel. É um ser arrastado inevitavelmente. Um ser que ao passo que se assombra com a vida, que tem uma visão virtual, não pertecendora, se sente com medo da sua fininitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que isso é intencional. Que seu cair é intencional. Porém, o nada não existe, não é um caminho para se percorrer, temos, portanto, não o nada realizavel, mas um constante auto sabotar, uma constante auto aflição espiritual, que podemos usar o conceito de fogo espiritual que define um teor de auto sabotagem espiritual.
 
-### **PROPOSIÇÃO XII: A ESTRUTURA DOS TEMPOS UNIVERSAIS E A MANIFESTAÇÃO DA FORMA**
+A alma se lança num topor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que ao mesmo tempo é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção.
 
-**1. A Estrutura dos Eventos Temporais**
-A dinâmica da manifestação no espaço e no tempo rege-se pelos seguintes princípios fundamentais:
-
-* **Determinação Numerável:** A existência temporal admite numerabilidade. Assim, não há necessariamente uma única identidade ou modelo de subsistência, mas uma ou múltiplas manifestações de existência.
-* **Não-Localidade:** A existência não se origina em um lugar específico, pois não há um ponto de origem, sendo em si seu próprio ponto de origem.
-    * *Exemplo:* O universo não pode ter começado em lugar nenhum.
-* **Espaço Infinito:** O espaço da existência é infinitamente percorrível, sem bordas ou confinamento.
-    * *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.
-    * *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.
-* **Temporalidade Infinita:** O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.
-    * *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.
-    * *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.
-    * *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.
-
-**2. A Natureza da Forma**
-Toda manifestação é, por definição, forma – pois forma é a expressão delimitada do infinito.
-
-* **Características Fundamentais da Forma:**
-    1. Dimensionalidade (tamanho, medida).
-    2. Qualidades sensíveis (cor, textura).
-    3. Dinâmica existencial (movimento, temporalidade, espacialidade).
-* **Variação Infinita das Formas:** Como o infinito contém todas as possibilidades, as formas manifestadas podem variar infinitamente em suas configurações.
-    * *Exemplo:* Água pode manifestar-se como líquido, gelo ou vapor – todas são a mesma essência, mas com identidades formais distintas.
-* **Particularidade do Infinito:** Todo infinito, apesar de possuir infinitas formas possíveis, não necessariamente manifestará todas as formas em sua aleatoriedade, sendo assim único.
-    * *Exemplo:* Em um universo espiritual infinito as estrelas são sempre do mesmo tamanho. Enquanto em outro universo espiritual infinito elas variam de tamanho.
-* **A Identidade Específica da Forma:** Toda forma possui uma configuração única que a define em um dado contexto. Essa identidade é determinada por:
-    1. Relação com o observador (uma pedra é "pequena" para um humano, mas "gigante" para um inseto).
-    2. Princípio da Razão de Ser (a forma é como é porque suas condições de manifestação a exigem assim).
-    3. Causalidade metafísica (sua existência e permanência dependem dos princípios anteriores).
-
-**3. A Forma como Expressão do Infinito**
-A identidade da forma não é arbitrária – ela emerge da interação entre:
-1. O **Espírito** (fonte de todas as possibilidades).
-2. A **perspectiva observadora** (que "recorta" o infinito em manifestações específicas).
-3. Os **princípios causais** (que garantem coerência e razão de ser a cada forma).
-
-Assim, toda manifestação é, ao mesmo tempo, **única** (pois tem uma identidade determinada), **relacional** (pois depende do observador e do contexto) e **infinita em potencial** (pois o Espírito pode gerar infinitas outras formas). O fundamento último reside no fato de que a forma existe porque o infinito do Espírito, ao ser "observado", necessita expressar-se de modo determinado – e essa determinação é, em si mesma, a origem de toda identidade.
-
-> *"Pois desde a criação do mundo os atributos invisíveis de Deus, seu eterno poder e sua natureza divina, são claramente vistos, sendo compreendidos por meio das coisas criadas."*
-> — Romanos 1:20
-
-**Tabela 12.1: Os Três Elementos da Manifestação**
-
-| Elemento | Função | Exemplo |
-| :--- | :--- | :--- |
-| **Ser puro** | Fundamento indiferenciado | O horizonte marítimo infinito |
-| **Vontade do Espírito** | Princípio performático | O ato de focalizar um barco específico |
-| **Testemunho e vivência** | Efeito relacional | A experiência do barco como forma |
-
-**Implicações para uma Ontologia Relacional:**
-Esta análise revela que a realidade é relacional (não existe independentemente da relação entre Espírito e relativo) e que a forma é perspectival (depende da determinação do Espírito). A dignidade da forma particular está precisamente em ser **expressão única do infinito** em um contexto específico, não uma "cópia imperfeita" de algum ideal separado.
-
----
-
-## **EIXO II: A CRIAÇÃO, A ALMA E A AUTONOMIA ONTOLÓGICA (O "SOU")**
-*(Este eixo aborda a transição do absoluto indiferenciado para a individuação da consciência, a autonomia do "Sou", a formação da alma e as leis da existência nas quais ela opera).*
-
-### **PROPOSIÇÃO XIII: A CRIAÇÃO DO HOMEM E A MANIFESTAÇÃO DO "SOU"**
-
-**1. A Autonomia Ontológica da Criação**
-> *Não é possível subdividir o absoluto sob pena de deixar de ser absoluto.*
-> *Não é possível subdividir o nada, pois o nada não carrega propriedades de divisão.*
-> *O Ser dispõe da liberdade sobre si mesmo, se é Espírito indiferenciado, pode definir-se como Espírito diferenciado. E o faz pela sua liberdade sobre o nada. Desta forma, ocorre a relativização relacional campo relativo.*
-
-O homem, portanto, não é uma individualização do absoluto, ou um particionamento do nada. Mas a liberdade pode ser determinada una, no sentido de que o homem é uma liberdade, uma personalidade que opera sob o nada, e sobre as realidades relacionais, Deus e outros homens. A substância Espiritual pode ser individualizada, no sentido de que não seja o próprio Espírito absoluto, e não comporta uma individualização do relativo, pois o relativo não se individualiza.
-
-O homem, portanto, é livre, e conteúdo Espiritual, tal como Deus, porém, não é indiferenciado e intencionalmente necessário.
-
-> *Deus, em sua liberdade que confere tudo em si, menos sua auto anulação. Pode, portanto, relativizar-se no sentido de relativizar sua propria liberdade. Existirá, portanto, uma liberdade alheia a pessoalidade estreita do Ser.* A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob uma perspectiva testemunhal e pessoal. Pela lógica, podemos inferir que a existência do homem é uma possibilidade, e que cabe à vontade deliberada do Ser decidir. Portanto, os desenvolvimentos a seguir abrangem o auto-testemunho para garantir sua continuidade. A base lógica é: *penso, logo sou*. Assim, partimos da afirmação de que existimos e de que há outros que também existem. A lógica, a partir deste ponto, é continuada. Porém, sem essa afirmação que sustenta o pensamento do eu individual e de sua liberdade metafísica, não haveria como prosseguir logicamente com os assuntos que se seguem. Segue-se que, diante de uma postura incrédula em relação a si mesmo como ente espiritual, ou de uma visão puramente biológica do ser humano, as investigações a seguir não fariam sentido do ponto de vista lógico.
-
-O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
-
-**2. As Duas Vias de Relacionamento: O Absoluto e o Nada**
-> *O relacionamento com Deus ao passo é um relacionamento cristalino, o homem, ao lançar-se na homogeneidade de Deus encontra a transparencia, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se em Deus torna a alma homogenea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade a alma. Uma vasão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamneto com outra alma, que confere uma personalidade, uma vazão ao outro.*
-
-> *Temos o lançar-se no nada, isto é, esburacar a própria alma. Dissolve-la, não é relaciona-la, é usar uma via negativa. É intencionalmente faze-lo ao passo que a açao intencional é um querer cair, é um deixar-se cair inevitavel. É um ser arrastado inevitavelmente. Um ser que ao passo que se assombra com a vida, que tem uma visão virtual, não pertecendora, se sente com medo da sua fininitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que é intencional.*
+revisado
 
 O ser humano tem ambas as impressões. O lançar-se no relativo não é um relacionamento que confere pureza, é uma pureza que não é relacionável a Deus, mas uma autodestruição. Então o relativo é não relacional, no sentido de que a alma se lança num estado de potencialidade de si. E isto é um não relacionamento consigo. Ao contrário de se lançar em Deus que é um relacionamento com o exterior vivo de si, com o absoluto.
 
@@ -1391,6 +1307,120 @@ A determinação, no nível espíritual, é adequada ao sentimento de apropriaç
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+**4. A Atemporalidade do Ser e a Manifestação Temporal**
+O Ser não precisa "adentrar" no tempo, pois todos os acontecimentos já estão consumados simultaneamente na eternidade do Ser. O Ser conhece todas as potencialidades do arbítrio humano como já realizadas em sua plenitude.
+A integralidade do Ser absorve passado, presente e futuro; mantém uma estrutura interna que contém a temporalidade como possibilidade; e nesta dimensão interna, todas as ações já estão consumadas.
+
+**5. A Aparente Contradição do Agora**
+Nossa experiência do "agora" é uma manifestação particular da eternidade. O que experimentamos como presente já está contido na totalidade do Ser. Nossas ações livres emergem desta plenitude como expressões individuais de previsões.
+O presente do Espírito é a realidade que impera. O ente navega pelas possibilidades. A alma vivencia uma das possibilidades, paralelas, de forma a provocar a temporalidade. A temporalidade não é um fragmento de tempo e espaço, mas um fragmento de possibilidade. Criar do "nada", para o Espírito, é vivificar uma das possibilidades suspensas de forma a causar uma definição particular.
+
+**Tabela 17.1: Dimensões do Tempo e da Eternidade**
+
+| Dimensão | Característica | Manifestação |
+| :--- | :--- | :--- |
+| **Eternidade do Ser** | Totalidade atemporal consumada | Todas as possibilidades realizadas |
+| **Tempo do Espírito** | Presente eterno que impera | Realidade vívida e consciente |
+| **Temporalidade da Alma** | Vivência de possibilidades paralelas | Experiência fragmentada do agora |
+| **Relativo** | Campo de possibilidades suspensas | Potencialidade não manifestada |
+
+### **PROPOSIÇÃO XII: A ESTRUTURA DOS TEMPOS UNIVERSAIS E A MANIFESTAÇÃO DA FORMA**
+
+**1. A Estrutura dos Eventos Temporais**
+A dinâmica da manifestação no espaço e no tempo rege-se pelos seguintes princípios fundamentais:
+
+* **Determinação Numerável:** A existência temporal admite numerabilidade. Assim, não há necessariamente uma única identidade ou modelo de subsistência, mas uma ou múltiplas manifestações de existência.
+* **Não-Localidade:** A existência não se origina em um lugar específico, pois não há um ponto de origem, sendo em si seu próprio ponto de origem.
+    * *Exemplo:* O universo não pode ter começado em lugar nenhum.
+* **Espaço Infinito:** O espaço da existência é infinitamente percorrível, sem bordas ou confinamento.
+    * *Exemplo:* Toda fronteira corresponde ao que é fronteado, e o que seria fronteado corresponde à própria manifestação.
+    * *Exemplo:* Não é possível atravessar as fronteiras do universo e ir para lugar nenhum; necessariamente, vai-se para algum lugar.
+* **Temporalidade Infinita:** O tempo da manifestação é infinitamente recuável (passado) e avançável (futuro), sem limites.
+    * *Exemplo:* A manifestação não tem um "começo" temporal na estrutura do ser, pois o manifestado é em si a própria manifestação do tempo.
+    * *Exemplo:* Ao limitar o tempo, supõe-se um tempo em que o tempo irá parar; logo, o tempo está novamente à frente do tempo. Pois o tempo parado ainda é tempo.
+    * *Exemplo:* Se um relógio (tempo) começar a marcar o tempo, o relógio já deveria existir antes parado. E se o relógio parar, continuará existindo parado.
+
+**2. A Natureza da Forma**
+Toda manifestação é, por definição, forma – pois forma é a expressão delimitada do infinito.
+
+* **Características Fundamentais da Forma:**
+    1. Dimensionalidade (tamanho, medida).
+    2. Qualidades sensíveis (cor, textura).
+    3. Dinâmica existencial (movimento, temporalidade, espacialidade).
+* **Variação Infinita das Formas:** Como o infinito contém todas as possibilidades, as formas manifestadas podem variar infinitamente em suas configurações.
+    * *Exemplo:* Água pode manifestar-se como líquido, gelo ou vapor – todas são a mesma essência, mas com identidades formais distintas.
+* **Particularidade do Infinito:** Todo infinito, apesar de possuir infinitas formas possíveis, não necessariamente manifestará todas as formas em sua aleatoriedade, sendo assim único.
+    * *Exemplo:* Em um universo espiritual infinito as estrelas são sempre do mesmo tamanho. Enquanto em outro universo espiritual infinito elas variam de tamanho.
+* **A Identidade Específica da Forma:** Toda forma possui uma configuração única que a define em um dado contexto. Essa identidade é determinada por:
+    1. Relação com o observador (uma pedra é "pequena" para um humano, mas "gigante" para um inseto).
+    2. Princípio da Razão de Ser (a forma é como é porque suas condições de manifestação a exigem assim).
+    3. Causalidade metafísica (sua existência e permanência dependem dos princípios anteriores).
+
+**3. A Forma como Expressão do Infinito**
+A identidade da forma não é arbitrária – ela emerge da interação entre:
+1. O **Espírito** (fonte de todas as possibilidades).
+2. A **perspectiva observadora** (que "recorta" o infinito em manifestações específicas).
+3. Os **princípios causais** (que garantem coerência e razão de ser a cada forma).
+
+Assim, toda manifestação é, ao mesmo tempo, **única** (pois tem uma identidade determinada), **relacional** (pois depende do observador e do contexto) e **infinita em potencial** (pois o Espírito pode gerar infinitas outras formas). O fundamento último reside no fato de que a forma existe porque o infinito do Espírito, ao ser "observado", necessita expressar-se de modo determinado – e essa determinação é, em si mesma, a origem de toda identidade.
+
+> *"Pois desde a criação do mundo os atributos invisíveis de Deus, seu eterno poder e sua natureza divina, são claramente vistos, sendo compreendidos por meio das coisas criadas."*
+> — Romanos 1:20
+
+**Tabela 12.1: Os Três Elementos da Manifestação**
+
+| Elemento | Função | Exemplo |
+| :--- | :--- | :--- |
+| **Ser puro** | Fundamento indiferenciado | O horizonte marítimo infinito |
+| **Vontade do Espírito** | Princípio performático | O ato de focalizar um barco específico |
+| **Testemunho e vivência** | Efeito relacional | A experiência do barco como forma |
+
+**Implicações para uma Ontologia Relacional:**
+Esta análise revela que a realidade é relacional (não existe independentemente da relação entre Espírito e relativo) e que a forma é perspectival (depende da determinação do Espírito). A dignidade da forma particular está precisamente em ser **expressão única do infinito** em um contexto específico, não uma "cópia imperfeita" de algum ideal separado.
+
+---
+
+## **EIXO II: A CRIAÇÃO, A ALMA E A AUTONOMIA ONTOLÓGICA (O "SOU")**
+*(Este eixo aborda a transição do absoluto indiferenciado para a individuação da consciência, a autonomia do "Sou", a formação da alma e as leis da existência nas quais ela opera).*
+
+### **PROPOSIÇÃO XIII: A CRIAÇÃO DO HOMEM E A MANIFESTAÇÃO DO "SOU"**
+
+**1. A Autonomia Ontológica da Criação**
+> *Não é possível subdividir o absoluto sob pena de deixar de ser absoluto.*
+> *Não é possível subdividir o nada, pois o nada não carrega propriedades de divisão.*
+> *O Ser dispõe da liberdade sobre si mesmo, se é Espírito indiferenciado, pode definir-se como Espírito diferenciado. E o faz pela sua liberdade sobre o nada. Desta forma, ocorre a relativização relacional campo relativo.*
+
+O homem, portanto, não é uma individualização do absoluto, ou um particionamento do nada. Mas a liberdade pode ser determinada una, no sentido de que o homem é uma liberdade, uma personalidade que opera sob o nada, e sobre as realidades relacionais, Deus e outros homens. A substância Espiritual pode ser individualizada, no sentido de que não seja o próprio Espírito absoluto, e não comporta uma individualização do relativo, pois o relativo não se individualiza.
+
+O homem, portanto, é livre, e conteúdo Espiritual, tal como Deus, porém, não é indiferenciado e intencionalmente necessário.
+
+> *Deus, em sua liberdade que confere tudo em si, menos sua auto anulação. Pode, portanto, relativizar-se no sentido de relativizar sua propria liberdade. Existirá, portanto, uma liberdade alheia a pessoalidade estreita do Ser.* A partir deste momento, a lógica atinge seu limite, e passamos a operá-la sob uma perspectiva testemunhal e pessoal. Pela lógica, podemos inferir que a existência do homem é uma possibilidade, e que cabe à vontade deliberada do Ser decidir. Portanto, os desenvolvimentos a seguir abrangem o auto-testemunho para garantir sua continuidade. A base lógica é: *penso, logo sou*. Assim, partimos da afirmação de que existimos e de que há outros que também existem. A lógica, a partir deste ponto, é continuada. Porém, sem essa afirmação que sustenta o pensamento do eu individual e de sua liberdade metafísica, não haveria como prosseguir logicamente com os assuntos que se seguem. Segue-se que, diante de uma postura incrédula em relação a si mesmo como ente espiritual, ou de uma visão puramente biológica do ser humano, as investigações a seguir não fariam sentido do ponto de vista lógico.
+
+O auto-testemunho de si implica a afirmação da própria existência, continuidade, liberdade, individualidade e identidade — o ser humano se reconhece como livre, existente, individual e idêntico a si mesmo. E sobre essas afirmativas podemos iniciar nossa investigação do absoluto sob a esfera da criação do homem.
 
 
 
