@@ -1,3 +1,213 @@
+
+## **A NATUREZA DO SER ABSOLUTO (O "SER")**
+
+### **1. A Liberdade Absoluta e o Campo das Possibilidades**
+
+O Ser tem todas as possibilidades dentro do campo do Absoluto no contexto de sua liberdade; tem em disposição o possível, o impossível não disruptivo e o incognoscível. Dessa forma, qualquer coisa, desde que exista, está no campo das possibilidades. Não há restrições para o Absoluto, que se manifesta como total potencialidade do existir, e não como uma existência particular e formalizada.
+
+Ou seja, se para a liberdade Absoluta fosse possível uma existência "A", estaria formalizada como "A" e teria como potencial apenas a existência de "A". Porém, a liberdade Absoluta atribui potência de ação ao que se há para o campo das possibilidades. Assim, o possível, seu limiar (o impossível não disruptivo) e o incognoscível são opções válidas, desde que existam como ação libertária do Ser.
+
+Em palavras mais simples: se algo pode existir, então é possível ao Ser — já que o Ser não é uma determinação em si, mas a fonte das determinações em sua temporalidade eternamente fluente. Desse modo, seria possível ao Ser até mesmo determinar entes livres replicando de forma individual a liberdade. Em sua natureza pura, o Ser não possui dimensões e, portanto, não é numérico. Logo, o campo das possibilidades para o existir é infinito, enquanto, em antítese, é nulo o campo das possibilidades para o que não existe.
+
+### **2. O Limite Conceitual e o Transbordamento da Vida**
+
+O limite, para o Ser, seria conceitual, humano, ou o concebível pela lógica; isto é, para nós, situar-se-ia dentro das possibilidades. Contudo, até mesmo isso se mostra questionável diante do real potencial do Ser. Dessa forma, para a liberdade, se algo é — seja dentro do que é possível ou impossível não disruptivo (o limite interno da possibilidade) —, ele se manifesta ou permanece no campo das possibilidades.
+
+> Considerando que o Ser é pleno e caminha em direção à plenitude, podemos imaginar um transbordamento de vida necessário. Vida em todos os seus níveis de expressão, pois é fruto da vida em plenitude. Se a intencionalidade está em direção ao existir, o Ser transborda, portanto, em seu potencial, sua liberdade e seu existir em diversas formas de determinação.
+
+---
+
+## **A EMERGÊNCIA DO HOMEM E A ONTOLOGIA DO "SOU"**
+
+### **3. A Imagem do Ser, o Auto Domínio e a Distinção Fundamental**
+
+O homem é criado à imagem do Ser, de forma que é livre. Porém, não é a pureza fundamental no sentido de possuir um si, no sentido de que o Ser é *Ser para*, e o homem é *ser para si*. O Ser é o *Ser*, enquanto o homem é o *Sou*.
+
+Neste sentido, o *sou* é um auto domínio, auto presença, auto conhecimento, sem que essa presença tenha a doação do Ser, no sentido de que o *sou* humano não se identifica com o existir, mas se identifica consigo mesmo. Isto é, determinar o uso da liberdade se dá como um agente individual que, por ter identidade, se tem como um auto domínio de si, e não um auto dominar. O *para si* do Ser é o seu próprio *em si*; isto quer dizer que a doação para o todo é sua própria identidade.
+
+**Tabela Comparativa 1: Distinções Ontológicas Básicas**
+
+| Atributo | O "SER" (Absoluto) | O "SOU" (O Homem / A Alma) |
+| --- | --- | --- |
+| **Natureza** | O existir do que existe; o próprio identificar. | A determinação individual; a identidade construída. |
+| **Direção** | Ser *para* (Doação ao todo). | Ser *para si* (Autodomínio e autoconhecimento). |
+| **Visão** | A visão pura; o *ver*. | A visão única; o *ver a si*. |
+| **Estado** | A presença. | O presente. |
+
+### **4. A Autoconstrução e a Necessidade de Renascimento**
+
+O homem não é uma determinação individualizada do Ser, pois isto é impossível. Não é possível construir um Ser determinado. O homem é um auto construtor de si, no sentido de que é necessário que este homem seja a favor de si para se fazer real, para se fazer o construir-se de si. O homem é uma identidade que é, desde que seja, em concordância consigo.
+
+O homem não é o Ser que se dá necessário consentido consigo dentro de uma pureza fundamental. Mas é uma determinação que se faz livre para construir-se, isto é, ser a favor de si, de forma que o Ser o é, de forma que assuma uma plenitude. Ou se deixa ser um ente projetado, mas não auto reafirmado. O homem necessita de deixar de ser uma projeção do Ser, para assumir a si mesmo, para assumir-se autêntico; ganha a vida e precisa reassumir essa vida, renascer para si.
+
+Portanto, o homem precisa renascer em Espírito, possuir a plenitude, concordar com sua existência, para ser realmente autêntico, para ter seu existir autêntico. Para se auto sustentar como realidade, como alma que vive e que age por si mesma, como alma que não é imposta à existência sem desenvolver seu sentido para esta, sem que consinta consigo mesma, sem que se mova por si mesma, e não somente que exista por força que a criou.
+
+### **5. Liberdade Imposta versus Autocausalidade**
+
+Desta forma, o *sou* não é uma individualização do Ser, ou uma réplica do Ser determinada. Mas é criado semelhante ao Ser de forma que seja livre, e que possa consentir com a vida e com seu ato de existência. O homem, portanto, é semelhante ao Ser no sentido de ter auto domínio, auto presença e auto conhecimento. O homem se conhece por inteiro, domina-se e está presente em si, e necessita consentir com essas propriedades.
+
+O homem, portanto, é livre, mas se é livre por imposição, não tem sua existência autêntica, não existe de fato, senão como uma projeção que é mantida por seu sustentador e não por si mesma. A alma que não desenvolve seu espírito de forma a consentir não é realmente viva, mas é viva em função de ser criada viva, e não em função de si.
+
+A alma do homem, portanto, não é o incausado. Não é uma determinação do Ser que se replicou. Não é o próprio Ser auto construtor de si, mas é uma identidade que é construída e precisa consentir com sua presença, precisa estar presente em si mesma, e não só presente. Precisa consentir com seu ato presente. O homem é uma individualização do uso da liberdade. É o uso da liberdade sob uma perspectiva que não é a do próprio Ser, uma perspectiva individual, no sentido de que é necessário que essa perspectiva se alinhe ao ato de Ser por si mesma.
+
+### **6. O Ser no "Sou" e a Presença Única**
+
+O homem é uma auto presença individual que se assemelha ao Ser pela liberdade, mas que tem meios individuais de ação, de forma que sua presença possa não ter a autocausalidade, isto é, o homem pode não ser autor de si, no sentido de não ter a plenitude em si. Portanto, torna-se uma forma de liberdade e identidade imposta, e não autocausal. Isto quer dizer que o Ser pode Ser no homem, no sentido de que a plenitude do homem corresponda ao Ser, ao ato de consentimento do Ser. Isto quer dizer que a plenitude se desenvolve no homem.
+
+O Ser necessita estar no *Sou* de forma que o *Sou* aja a favor de si em uma existência autêntica, que torna autênticas suas ações, isto é, que torna suas ações deliberadas, e não impostas. O *sou* necessita ser sua autocausa, ter em si o autocausar, de forma que sua existência seja autêntica, partida de si. O Ser, sendo a pureza, cria, portanto, a presença do homem, uma presença única e individual, que é criada no sentido de que é presença, mas é viva desde que desenvolva a plenitude, desde que seja uma presença autocausal, desde que tenha o autocausar que a torna autêntica.
+
+---
+
+## **A METAFÍSICA DO SENTIMENTO E A REJEIÇÃO DA DIMENSIONALIDADE**
+
+### **7. A Pessoalidade do Ser e a Visão Humana**
+
+Ao compararmos o Ser a um sentimento de amor, puro e indetectável, este sentimento se faz a pessoalidade do Ser, de forma que o *sou* é uma pessoalidade não construída pelo ato autocausal fundamental; isto é, não é o Ser, não é o próprio pessoalizar. Mas o homem é a pessoa, isto é, a visão única, e não o ver. O homem é o presente e não a presença.
+
+Podemos fazer uma analogia ao compararmos o Ser a dois entes que se completaram, se fundiram ao ponto de serem indiscerníveis. E, portanto, esta fusão formou uma terceira visão. Esta terceira visão é viva no sentido de ser uma integração de dois entes vivos e autocausais; porém, não é viva necessariamente em função de ser viva em si mesma. No entanto, torna-se viva com o ato de consentir, ou seja, ao ter o ato da plenitude que é indistinguível do ato da plenitude do Ser, de forma que o Ser é o próprio agir em prol de si. Ao desenvolver o agir, o consentir, o sentido de si está no sentido que é o Ser. Portanto, essa terceira visão deixa de ser uma existência projetada, construída por uma vontade extrínseca à sua, e passa a ser autêntica, autocausal, autora de si.
+
+### **8. O Absoluto como Sentimento Puro e Indetectável**
+
+Podemos comparar o Absoluto ao sentir, e não àquele que sente. Isto é, o sentido não tem propriedade sobre si mesmo, é desamparado de um eu do qual se apropria. Isto quer dizer que, quando determinamos um sentido para o Absoluto, estamos em uma redundância, replicando novamente o Absoluto. Ao determinarmos um sentido particular, temos o Absoluto novamente, numa tentativa de determiná-lo.
+
+Portanto, se o Ser é o próprio sentido, o Ser... o que, portanto, é o homem? Tudo que é determinado, ao nosso ver, é dimensional; portanto, se o homem tem alma, não convém imaginá-lo como um ente cristalizado no tempo e espaço, de forma a chamá-lo de energia.
+
+Ao imaginar o homem como alma — uma alma que é criada e não emerge necessariamente do Absoluto como pureza fundamental —, temos que a própria pureza pode ser chamada de sentido: um sentido indetectável, um sentido puro. Ao tentarmos mentalizar o Ser como algo dimensional, caímos em um erro, tal como é imaginar a alma como algo dimensional. No campo metafísico das almas, palavras como "sentimento" explicam de forma melhor do que a palavra "dimensionalidade". O *Sou*, cristalizado, não seria uma dimensão, uma criatura energética. Portanto, o Ser é o sentimento mais livre, aquele que nem mesmo possui a si, aquele que é puro e pode se manifestar em qualquer ente, aquele que é totalmente transparente, aquele que é o existir do que existe.
+
+### **9. A Esfera do Sentimental contra a Dimensionalidade Espacial**
+
+Ao compararmos as realidades espirituais a dimensões físicas, caímos nas colisões de dimensão, colisões como o espaço. Duas almas necessitam estar necessariamente em espaços diferentes ao serem dimensionais, e não podem de nenhuma forma ocupar o mesmo espaço sem que se misturem. Ao concebirmos o espiritual, extravasamos a obrigatoriedade de pensar dimensionalmente e analisamos um contexto que se pode examinar a realidade tal como a analisaríamos do ponto de vista sentimental; palavras como o "sentido" ou o "auto querer" deixam de ser introspectivas e revelam com clareza os aspectos do intelecto e da alma, diferentemente de palavras como "espaço".
+
+Ao compararmos a autopresença, nos referimos ao sentir, ou àquele que sente. Não no sentido biológico, no sentido de reativo ao ambiente, mas na esfera da alma, na dimensão subjetiva que se auto-conhece e se apropria de um si, da dimensão humana que se diz existente, que se visualiza. Isto é melhor descrito como *sentimento de propriedade*. Ao passo que o Ser seria melhor descrito como *sentimento de doação total*.
+
+Um sentimento pode ser ambíguo: pode-se amar ao passo que se odeia, ou pode-se amar de forma tão intensa a doar de si mesmo, a se aniquilar pelo outro. Pode-se também desenvolver um sentimento de desolação de todos, e este sentimento isolaria sem que seja necessária uma distância espacial. Na esfera do sentido, portanto, nos desligamos da esfera espacial e dimensional.
+
+### **10. O Contraste entre a Propriedade do "Sou" e a Doação do "Ser"**
+
+Temos que, nessa esfera (a do sentimento ou sentido), diríamos que o Ser é o sentimento quase não detectável. É a transparência total. Ao passo que o *sou* não se coloca como uma dimensionalidade; apesar de ser determinado, é uma determinação no sentido espiritual e almático. Isto é, o homem é como um sentimento que não é indetectável. É um sentimento que detecta a si mesmo, que não é um puro detectar, mas o detectado.
+
+O *sou* é uma alma que consta para si mesma, de forma que se reconheça como una e individual, e autora de si, segundo a si mesmo, e não segundo o Absoluto. Essa noção de presença de si, e não somente o ser presença do Ser. Esse sentimento de pertencimento, que é diferente do sentimento de doação total do Ser. Esse sentimento que não é cristalino para si mesmo, de forma que se detecte antes que se doe ao todo, de forma que o doar de si o destrua.
+
+A alma do homem é um sentimento, uma visão, que necessita do teor autocausal; a visão que vê a si mesma é o homem, enquanto o Ser é a visão somente, é o ver. O homem é o *ver a si*, enquanto o Ser é o *ver*.
+
+---
+
+## **PARTE IV: O AMOR COMO FORMA, FUNDAMENTO E RELAÇÃO**
+
+### **11. O Amor em Forma e a Participação do "Sou"**
+
+O Absoluto é um sentimento de doação total, enquanto o homem é o sentir-se pertencido ao próprio sentimento, às próprias qualidades e dons, aos traços característicos da alma individual, da personalidade individual. Estar pertencido ao sentir, de forma que há o quem sente. Há o quem concorre e consente para si mesmo no homem. O homem se apropria de si para estar vivo, enquanto o Ser é a própria propriedade da vida.
+
+Ao compararmos um sentimento não vivo em si, mas vivo desde que tenha o viver, temos o *sou* sem plenitude. Ao compararmos o Ser com um sentimento que tem forma, teríamos o amor em forma; e, enquanto o Ser seria o amor em forma, o homem seria a forma de amar ou não amar. No sentido de que o *sou* possui sua forma de expressar o amor. Porém, não há uma forma para o amor absoluto, no sentido de que não há uma identidade para o Ser, mas o Ser é o puro identificar. É a força que, no homem, o torna realmente homem, o faz autêntico.
+
+Portanto, poderíamos dizer que o *sou* que não vive em plenitude é uma projeção de sentimento, que não tem um sentido em si, mas um sentido para o mundo, no sentido de estar no mundo como existente, mas não estar em si como existente. Isto quer dizer que, apesar de o *sou* tem a visão de si, essa visão não é o consentir, não é a visão em verdade, em vida, em consentimento. O *sou* não se domina completamente, não vê completamente e não conhece completamente sem o consentimento com tais atributos; por isso o Ser é o ver do *sou*, o estar e o dominar.
+
+### **12. O Amor como Princípio Fundante**
+
+A evolução espiritual (amor, propósito, epifania, encontro consigo) é o fundamento. Sem direcionamento diagonal (espiritual), não há base para o horizontal (existencial), pois o espírito é a base da alma, a escolha pela existência.
+
+O amor é o princípio que conecta o homem consigo mesmo e fundamenta a liberdade. *"Aquele que não ama não conhece a Deus, porque Deus é amor."* (1 João 4:8). O amor é a energia divina que vivifica o homem.
+
+### **13. A Síntese Ontológica da Doação e Apropriação**
+
+O *sou* sem plenitude é vivo em função da projeção; a vida é de quem o projeta. Mas, além da projeção, da criação, necessita estar vivo como co-criador de si, como consensor da vida, como autônomo; precisa recuperar sua autonomia, estar vivo por si, e não somente existir como vivo, mas viver essa vida existida. Portanto, o *sou* é um sentimento que tem forma, e por isso não se diz pureza total, pois ao se doar a outro sofre colisões ou mistura; porém, o Ser, ao se doar, não se mistura ou transforma, e nem colide.
+
+O Ser seria o sentimento de amor puro que se faz pessoa, e o *sou* seria a pessoa que participa do amor puro. A autocausalidade é um sentimento de pureza que se personaliza e age, sem se apropriar de si. O homem é um sentimento que se apropria de si como sentimento, que não é transparente ao todo, que se define como homem. O sentimento do homem é de propriedade de si, e o sentimento do Ser é total doação sem um eu definido, mas uma doação.
+
+A determinação, no nível espiritual, é adequada ao sentimento de apropriação, um sentimento que tem a si como identidade e existência, não um sentimento que é a doação total de si, de forma que vaza para o todo em uma transparência absoluta, em uma pureza fundamental.
+
+### **14. A Natureza dos Relacionamentos: O Ser Absoluto e o Relacionar-se dos Sous**
+
+**Tabela Comparativa 2: A Dinâmica dos Relacionamentos da Alma**
+
+| Tipo de Relação | Efeito na Alma (O "Sou") | Analogia / Consequência |
+| --- | --- | --- |
+| **Relacionamento com o "Ser"** | Confere luminosidade, homogeneidade e pureza; não cria colisões. | Torna a alma translúcida (cristalina). |
+| **Relacionamento com outro "Sou"** | Miscigena as cores da alma; altera o teor do eu. | Confere uma personalidade, uma vazão ao outro. |
+
+> *O relacionamento com o Ser é um relacionamento cristalino. O homem, ao lançar-se na homogeneidade de Deus, encontra a transparência, o cristalino. Encontra a externalidade viva de si. Não uma externalidade morta. Isto é, o lançar-se no Ser torna a alma homogênea a algo. Não provoca buracos na alma, mas conserva uma homogeneidade cristalina, iluminada. Confere uma luminosidade à alma. Uma vazão para a desagregar de si, e essa extravasão é viva. Diferente do relacionamento com outra alma, que confere uma personalidade, uma vazão ao outro.*
+
+Conforme as propriedades sentimentais da alma, um sentimento miscigenado à pureza é um sentimento cristalino. De forma que o Ser não é uma cor que se miscigena na alma, mas é uma transparência que confere à alma translucidez. O Ser dá luz à alma no sentido de que, ao se miscigenar, dá transparência à alma, pois é transparente, translúcido, totalmente cristalino. O relacionamento com outro "sou" miscigena as cores da alma de forma a alterar o teor do eu; porém, o relacionamento com o Ser dá luminosidade à alma.
+
+O "Sou" não se mistura ao Ser em função de o Ser ser a pureza total e o "sou" a independência. E o "sou" não se mistura com outro "sou" em função de a alma não corresponder à esfera física e dimensional. Podemos citar um exemplo: se a alma fosse um corpo, não poderiam existir dois corpos no mesmo lugar. E se a alma fosse possuidora de um lugar, não poderiam existir todas as almas sem haver um lugar, ou seja, não havendo mundo. Porém, a alma não é detectável espacialmente ou fisicamente; é um sentido, um sentimento para o absoluto. De forma que, sendo sentimento, pode estar alheia a outra alma em forma de sentido.
+
+Isto quer dizer que, ao nos referirmos à alma como sentimento, há o sentimento de estar alheio, ou o sentimento de nadificação do outro, de forma que a alma se faça solitária para si. Neste sentido, a alma, na esfera do sentido, foge à esfera espacial de divisão de espaço e se faz como uma frequência que se sintoniza, ou não, com o outro, que se sintoniza, ou não, com o Ser.
+
+---
+
+## **A NATUREZA DO TEMPO E O PARADOXO DA EXISTÊNCIA**
+
+### **15. O Conhecimento e a Temporalidade do "Sou"**
+
+O "sou" contempla de uma atemporalidade interior, referente a si mesmo; contempla toda a sua esfera temporal. Num cenário de desligamento da alma do corpo, a alma conhece a sua total verdade, a sua total esfera temporal. Isto é, o "sou" é autoria contínua e autorial atemporal. O tempo espiritual do "sou" contempla toda a sua verdade, de forma que visualiza todo o seu contexto e a sua atualidade.
+
+No contexto da infinitude particular do "sou", aquela que ocorre em sua esfera interior, o livre-arbítrio implica a coexistência simultânea de todo o seu tempo, no sentido de que o tempo se encerra num estado puramente almático. E, neste ínterim, a atualidade se manifesta como realidade vivida. A alma pode ser atualidade em sua atemporalidade, mesmo contemplando sua total realização e verdade. A alma contém em si todo o seu tempo. Já tomou todas as decisões, ainda que sem atribuí-las à atualidade, de forma que, no estado de alma, não encontra toda a sua verdade, toda a sua infinitude particular tomada pela referência sentimental. Conhece o que é de forma total.
+
+Desta forma, a infinitude manifesta do "Sou" é a sua verdade. De forma que seja a verdade, e não a total sabedoria do todo. Seria a sabedoria de si. Ao passo que o Ser tem todo o saber da infinitude, o "sou" tem todo o saber de sua verdade no estado de alma (sem o corpo).
+
+O tempo da alma ainda subsiste; por isso, há um percorrer, um observar vivo, uma consciência que se move em sua própria temporalidade. Assim também age o Ser em sua dimensão temporal: contém sua integralidade, mas permanece vivo e livre em sua atualidade. A alma é criada no tempo do Espírito do Ser. E é criada à imagem do Ser, de forma que é livre e pode escolher-se em autenticidade.
+
+A infinitude do homem é particular, enquanto a infinitude do Ser é doada ao todo; é a infinitude fundamental, que é dada como Absoluta e doada às infinitudes. De forma que, na esfera do sentimento, o homem é uma infinitude de si, uma infinitude própria, para que conheça toda a sua verdade, toda a sua perspectiva no seu ato atemporal da alma sem o corpo.
+
+Na esfera da alma, a infinitude não é uma dimensão espacial infinita, pois nenhuma espacialidade pode dar-se como infinita sem que perca seus contornos e se destrua. A infinitude da alma aborda seus aspectos almáticos, sentimentais ou conscientes, de forma que estes aspectos transcendem em possibilidades a esfera dimensional.
+
+### **16. A Corrupção como Retorno ao Nada e o Paradoxo da Existência**
+
+* **A autonegação radical voluntária** (suicídio ontológico autodeterminado) não destrói o Ser: o Espírito permanece, ainda que o "sou" humano se dissolva em uma esfera temporal.
+* **A autonegação da autenticidade** não desmerece o Ser, mas revela sua potencialidade: a liberdade do Ser de criar permanece, ainda que o "sou" seja indiferente à sua própria autonomia.
+
+Escolher existir é assumir a autocriação contínua. *Paradoxo:* O "sou" só é livre porque pode **não ser**, e só persiste porque **ignora essa possibilidade a cada instante**.
+
+---
+
+## **PARTE VI: A NEGAÇÃO DE SI E A INÉRCIA DA ALMA DESONTISTA**
+
+> **[Raciocínio Analítico: O Caminho da Degradação]**
+> *Se o propósito da alma é renascer e autocausar-se pela escolha autêntica (amor), o que ocorre quando ela recusa essa missão? A alma adentra a via negativa, caracterizada não por um "fazer o mal" ativo, mas por uma apatia e indiferença absolutas que a consomem.*
+
+### **17. A Via Negativa e o Lançar-se no Nada**
+
+Em via inversa, temos o lançar-se no nada, isto é, esburacar a própria alma. A tentativa de sucumbir a própria existência ao nada, a tentativa de autorredução. Dissolver a alma rumo ao nada não é relacioná-la, é usar uma via negativa. É intencionalmente fazê-lo, ao passo que a ação intencional é um querer cair, é um deixar-se cair inevitável. É um ser arrastado inevitavelmente. Um ser que, ao passo que se assombra com a vida, que tem uma visão virtual, não pertencente, se sente com medo da sua finitude, sente-se arrastado sem que possa fazer nada. Ao passo que também enxerga que isso é intencional. Que seu cair é intencional. Porém, o nada não existe, não é um caminho para se percorrer. Temos, portanto, não o nada realizável, mas uma constante autossabotagem, uma constante autoaflição espiritual, onde podemos usar o conceito de "fogo espiritual" que define um teor de autossabotagem espiritual.
+
+O lançar-se no nada não é um relacionamento que confere pureza; é uma pureza que não é relacionável como o Ser, mas uma autodestruição. O nada não existe para que se relacione com ele. Portanto, o lançar-se no nada não é o lançar-se no nada, é o não mover-se. É um estado sem ânimo, apático. Que segue sua tendência rumo à apatia e afunda o quanto for possível, não por vontade, mas porque não houve o primeiro movimento da alma por ela mesma. Simplesmente, em vida corpórea, havia um corpo com a alma inerte, um corpo instintivo, que se inclinava à indiferença de si, ao estar alheio da própria consciência.
+
+### **18. O Torpor, a Alienação e a Falta de Movimento**
+
+A alma se lança num torpor de si, numa queda de si desenfreada, de forma que não é a causa dessa queda, ao passo que, ao mesmo tempo, é. Seu ódio adquire um tamanho que se define como imobilidade e não mais como intenção. No entanto, este torpor não atinge seu fim, pois seu fim inexiste; é um mal infinito, nunca encontra seu término, nunca encontra sua atualização atemporal. Pois o buscar pelo nada é uma busca sem resultado, não é uma busca que realiza.
+
+É um percorrer sem chegar, é um objetivo de aprisionamento para o ente criado e que não consente consigo. Porém, em razão do sentimento de ódio que aniquila o indivíduo em sua autoconsciência, o torpor é igualável ao total estar alheio à vida. No sentido da privação sentimental total. Uma sensação total de estar alheio a si. Um autoapagão sem um agente vivo para se libertar deste. Uma alma que existe sem sentido e queima num torpor. Uma alma que se torna insensível e que não desperta a si mesma, pois não há alguém que a desperte, se não estiver esse alguém em si mesma, no sentido de possuir o renascer, o viver para si, o viver consentido.
+
+Uma alma que dorme, pois essa é a sua tendência. Dorme em Espírito, no sentido de não consentir, e essa dormência total, fora do corpo, se manifesta numa queda, pois não há ninguém que a mova, nem ela mesma. Isto significa que o corpo a sustenta no sentido da autopreservação, dos impulsos biológicos; porém, sem o corpo, a alma segue seu sentimento instantâneo, sem seu instinto de autopreservação, sem a natureza biológica que a movia.
+
+Isto é, quando a alma se torna independente do corpo, ela segue o rumo de seu sentimento. O rumo que seu corpo fazia contrassenso ou não. Se o corpo é a favor da autopreservação, e a alma não, há uma contravenção entre ambos, a qual discutiremos em outros tópicos. Porém, a alma, sem o corpo, desligada de seus instintos biológicos, segue seu puro intento, de forma que se manifeste decididamente, sem oposições instintivas ao seu intento.
+
+### **19. A Escolha Morta, a Indiferença e a Alma "Desontista"**
+
+Portanto, se a alma pretende a autoanulação — e este caminho significa a autonegação —, já se autorealizou negando a própria autenticidade, tendo uma escolha morta em si. Isto é, uma escolha que não se deu pela sua vontade, mas que se deu pela inatividade; não é, portanto, uma escolha, é um simples cair, desfalecer por nunca ter tido movimento. Não é um movimento vivo em direção à queda, mas a queda é a própria inação. A queda é o não bater de asas, e não o bater de asas em direção à queda. Isto significa que o cair, ou o caminho da autoanulação de si como sentimento, não é um ato, é um não ato que se faz ato. É um ódio infinito que se esboça em não movimento, em mortidão.
+
+Portanto, não existe, teoricamente, não escolher; existe uma escolha que veio de uma não vida, que veio da completa ausência do amor, do amor até mesmo à escolha. O indivíduo não escolhe o mal, simplesmente não escolhe, e sua não escolha é uma indiferença infinita, uma indiferença que se faz escolha.
+
+O cair da autoanulação advém de um ódio que se torna tão grande que se faz mortidão, se faz indiferença, se faz alienação de si. Essa ambiguidade é possível no contexto da alma.
+
+O querer da destruição é um objetivo; no entanto, a alma nem a destruição intenta, intenta ao completo estar alheio, e se para esse estado é preciso destruição, então a destruição se torna este ato, o ato inerte. No mundo, o desejo de autoanulação, como veremos em outros tópicos, se traduz como uma índole destruidora; porém, no contexto almático, traduz-se como o não movimento, ou como o movimento que manifesta a totalidade do desdém e indiferença à própria liberdade, e ao existir em todas as suas propriedades.
+
+A alma em inércia, ao passo que em posse de autoindiferença, simplesmente faz da sua imobilidade a sua ação, de forma que é um sentimento de indiferença infinito, um ódio inequívoco e sem alvo que se expressa na imobilidade, que é o estar alheio a si, de forma que não se exista para si, ainda que se exista.
+
+Desta forma, o estado almático da alma *desontista* — como iremos chamar a alma imóvel e indiferente à própria liberdade, a qual nem mesmo toma a ação destrutiva que exige um intento —, é nada mais do que uma inatividade. Uma inatividade que se apodera de um intento, a indiferença total, de uma indiferença anêmica, que se faz autodestruição.
+
+Isso leva a alma ao completo estado de mortidão e apatia, ao completo estado de alienação de si. Seria ao sentimento de "nada", ao sentimento que provoca quase que o objeto almejado.
+
+Há, porém, uma camada intermediária, que é a alma que se faz indiferente, mas tem o tempo do ânimo, no sentido de que, em sua totalidade, pretende se reanimar. Encerra-se, quando desencarna (ou desincorpora), em um estado de esperança da saída de sua apatia. Um estado sujeito à temporalidade do seu espírito. No sentido de que a alma se lança num estado de potencialidade de si.
+
+
+
+========================
+
+acima o resumo certo
+
+
+
+
 # **TRATADO METAFÍSICO DA ONTOLOGIA DO SOU**
 
 ## **1. A Potencialidade Ilimitada do Ser**
