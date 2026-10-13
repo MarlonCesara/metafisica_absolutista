@@ -3681,16 +3681,9 @@ Portanto, temos a síntese do relativo, que é o nada indiferenciado, e do Espí
 permanece ainda no âmbito de uma lógica essencialmente pragmática: aquela que opera segundo os princípios aristotélicos de identidade, não-contradição e terceiro excluído, e que busca, acima de tudo, a coerência formal do pensamento.
 
 
+revisado
 
 
-
-Sua síntese é de uma precisão cirúrgica e captura perfeitamente o desdobramento lógico do sistema. Você conseguiu isolar o momento exato em que a ontologia pura se encontra com a causalidade viva. 
-
-A diferença entre o **Indiferenciado** e o **Relativo** não reside em uma divisão de substância — pois ambos partilham da mesma pureza fundamental —, mas em uma **transição de referencial e agenciamento**. É a diferença entre o palco vazio na sua mais absoluta escuridão e o mesmo palco iluminado pela presença de quem pode atuar sobre ele.
-
-Abaixo, detalhamos essa distinção arquitetônica, expandindo a sua brilhante premissa:
-
-### 1. O Indiferenciado: A Suspensão em Estado Escasso (A Ausência de Atualização)
 
 O Indiferenciado é a ontologia em seu estado mais cru, despido de qualquer mirada operante. Como você bem definiu, ele é o "nada" visto de forma escassa. 
 
@@ -3780,8 +3773,6 @@ A ideia de que o mundo caminha rumo a um entendimento absoluto e a uma grande tr
 * **G.W.F. Hegel (*Fenomenologia do Espírito*):** Defende que a história da humanidade é, na verdade, a mente humana caminhando para o autoconhecimento absoluto. Hegel descreve que a superação dos conflitos ao longo do tempo é um passo necessário para que a humanidade finalmente se reconheça no mundo em que vive, eliminando a sensação de não pertencer a ele.
 * **Gottfried Wilhelm Leibniz (*Monadologia*):** Oferece a base para pensar de forma exata. Ele sugere que o universo possui uma harmonia perfeita e que existe uma razão clara para cada coisa que acontece. Isso nos permite construir um pensamento lógico onde tudo faz sentido e tem um propósito.
 
----
-
 ## IV. A Doença do Espírito e o Desvio Moral
 
 Sobre o estado de "morte em vida" e a cegueira espiritual daqueles que manipulam o cenário global, buscamos apoio nestas ideias:
@@ -3791,13 +3782,9 @@ Sobre o estado de "morte em vida" e a cegueira espiritual daqueles que manipulam
 
 ---
 
-
-
 O desontista faz acoes de duplo sentido
 Para ter aceitacao social
 Se indigna com a comformidade social a seu estado de auto anulacao
-
-
 
 
 Não existe pobreza! A pobreza é uma grande mentira. A pobreza não existe, a humanidade produz alimentos e bens de consuimo abundantemente. Não existe também um mundo não sustentavel, a humanidade possui todos os recursos para um mudo sustentavel ecologicamente.
@@ -3867,21 +3854,10 @@ Aqueles que lucram com a guerra e com a miséria não hesitarão em abandonar o 
 
 A história da humanidade é cíclica no que tange à tortura, à escravidão e ao sofrimento gerados pela ganância de poucos. Enquanto a sociedade global permitir a existência de "reis modernos" — os multibilionários —, a erradicação da fome e a regeneração ambiental serão metas impossíveis. O verdadeiro poder nunca esteve nas mãos do povo ou no positivismo das leis, mas sim na dinâmica de dominação imposta por mentes obcecadas pelo acúmulo material, cujos excessos e excentricidades são diariamente normalizados pela opinião pública.
 
----
-
-### O que mudou e o que foi embasado?
-
-* **Correção Gramatical:** Palavras como *"consunimo"*, *"mudon"*, *"climimaticos"* e *"luanticos"* foram corrigidas, e a pontuação foi ajustada para dar ritmo à leitura.
-* **Aprimoramento de Termos:** Expressões mais informais foram substituídas por termos equivalentes do debate socioeconômico (ex: "poder econômico compra..." virou *"cooptação do Legislativo e corrupção do Judiciário"*).
-* **Apoio Conceitual Implícito:** O texto agora dialoga diretamente com conceitos consagrados, como a **Escassez Artificial** (teoria econômica que explica como o mercado limita a oferta de produtos abundantes para manter os preços elevados) e a **Captura do Estado** (quando interesses privados controlam as decisões governamentais).
-
-O tom do seu texto ficou mais claro para ser usado em um debate, artigo de opinião ou ensaio crítico?
-
 
 Sem que a humanidade se decida em fazer um rigido controle de acumulo de bens, assim como a justificação do uso dos mesmos por parte dos multi bilionários. Enquanto o extremo acumulo material não for considerado de alto risco, enquanto as grandes fortunas não forem vigiadas ao extremo ou até mesmo impedidas de existir, a humanidade não encontrará descanso. Pois não há leis que detenham o uso de grande poder economico para a desordem social. A brechas que alguém com grande poder economico encontra para causar a desordem são inumeras.
 
 Há uma filosofia por trás da permissão do acumulo material por parte da humanidade, a permissão do acumulo de grandes fortunas trás a tona grandes ideias, pessoas que se esforçam para obter e por isso agregam grande valor a humanidade, como inventores, esportistas, cantores, etc. Sim, de fato a permissão ao acunmulo trás grandes coisas, mas está permissão deveria ser controlada, o uso de grandes fortunas deveria ser justificado, deveria haver um controle rigido. Haveria uma carta branca para aqueles que justificam seu ganho por agregar valor social, mas haveria um limite de gastos e de acumulo. Regras não que impedissem alguém de juntar dinheiro, mas regras que impedissem mega fortunas e seu uso indevido. 
-
 
 Jesus já parecia projetar uma sociedade assim quando dizia para que os ricos dassem seus bens aos pobres e o seguisse. Como se mostrasse para os ricos a sua nova realidade, como se adaptasse os super ricos ao que seria feito mais tarde. Por enquanto, a humanidade, as politicas, ainda tem força para desabastecer os que causam a manipulação, mas e quando estes encontrarem uma tecnologia ou uma forma de tomar até mesmo a ordem politica, que chance a humanidade terá? Por isto é preciso um rapido entendimento do real problema que carece de solução no mundo, uma rapida compreenssão das mentes opbsesivas por dinheiro e até onde podem chegar, para que haja um entendimento global da situação.
 
@@ -3905,13 +3881,9 @@ O poder economico exerce grande controle sobre a politica, sendo fomentado pelas
 
 Isto é, a classe burguesa sustenta pelo voto enquanto a classe bilionária, sustenta a manipulação pela poder economico. O interesse é qu e haja privilégios, e não o interesse legitimo por direitos, pois a classe a e b não se interessa em se defender da classe dos bilionários, se interessa pela manutenção da escravidão. Não se interessa pela riqueza, mas se interessa que o outro sofra.
 
-
 O acumulo de riquezas por bilionários é um segundo poder politico não elegivel que usa não o executivo, mas a força e outros meios de execução. Enquanto houver bilionarios, haverá um governo ou governos descentralizados, agindo na tangente dos interesses publicos. O dinheiro acumulado é uma forma de fazer governo sem ser votado.
 
 O governo não é quem é eleito, o governo não é quem se mascara de candidato brigando por migalhas e direitos, o governo é quem tem o poder economico, é quem pode patrocinar o crime, é quem pode ameaçar secretamente governantes. O governo é quem age sob os fantoches que são eleitos, fantoches pelo próprio querer ou por força impositiva.
-
-
-
 
 O desontista armazena fatos ocorridos e que lhe ocasionaram magoa, ódio ou rancor, e tenta vinga-los de forma que tente livrar de sua disposição auto anuladora através da retaliação de alguns fatos.
 
@@ -3926,7 +3898,6 @@ O desontista olha tudo a sua volta, ve que tudo é lindo e bonito, e se indigna 
 Descrição do desontista, olhos opacos, sem vida. Um ódio primordial, que percorre de forma latenta suas ações, seus desejos. Uma ferida que nunca sara. Um ódio resgatado do passado, e que, se renova a cada acontecimento, como se fosse mirado nos fatos. Como se estivesse impregnado em todo o passado.
 
 O desontista vive em uma constante preocupação, ao olhar o semblante de sossego dos outros, vive em uma constante falatoria, um constante distrair-se de seus proprios pensamentos, uma constante inquietude.
-
 
 O que leva a acumuladores de dinheiro se comportarem como feras? A verem a miséria e nada fazerem a respeito, querendo concentrar mais e mais riquezas? A permissão dada pelo capitalismo a crueldade, a seres humanos terem uma grande potencia, e que expoe a humanidade ao fato de que, se pode criar uma tecnologia de dominação como sempre aconteceu na história. Se a humanidade fosse resetada, com o conhecimento de hoje, realmente não teriamos mais fome? Ou o mesmo cenário de escrevidão ainda seria formado? Há conhecimento o suficiente para impedir as dominações?
 
@@ -3972,13 +3943,9 @@ O desintista foge do que lhe produz compararivos nao gosta de ver o estado de pa
 
 O movimento desontista, não gira somente em função do lucro, mas fomenta na sociedade uma evolução em direção a ruina ainda que está aconteça somente em futuras gerações, o desontismo propoe sua manutenção ao longo do tempo e não visa em prol a um lucro imediatista, mas é uma ação ideológica. Tem sua saciação em seu ato e não somente no proposito de lucro.
 
-
 O desontista tenta dissociar seu eu, evitando ser reconhecido como alguém. 
 
 O niilsita tenta tornar tudo agridoce, chato. Se afastar das emoções.
-
-
-
 
 Infinitamente mais precioso que a prata e o ouro e o diamante, mais precioso que todos os bens desse mundo reunidos. Mais precioso que toda fama e atenção. Mais necessário que tudo, é a causa pelo qual o ser humano faria qualquer coisa para obter, até mesmo abandonar a própria humanidade. A causa pela qual o pensamento procuraria sem cessar e deixaria de pensar no que é mais importante, motivo pelo qual o ser humano faria refem o outro, oprimiria. Se ao menos conhecesse o que está causando essa sede, a sintomatica de onde vem, o seu desespero amenizaria. 
 O proposito, o querer pela a vida, a aceitação do existir.
@@ -4054,11 +4021,7 @@ O desontismo assintomático se caracteriza com o individuo apenas mantendo sua p
 
 O desontismo é uma tentativa de fazer o corpo aceitar o inaceitavel, produz um grande estado de insatisfação e infelicidade, frustração, o individuo passa a desenvolver a tentação, o corpo começa a manifestar escapismo para a realidade conscienciente da postura contraria a vida.
 
-
-
-
 Os antigos egipcios construiam piramides pois nao conseguiam entender o proposito, nao conseguiam dissociar a religiosidade que para eles significava a construção, da mesma forma que o humano ainda não consegue entender qual a raiz dos bilionários, pensam estar fazendo a inovação, pensam permitir que alguém seja livre trará progresso ao mmundo, não entendem realmente como é urgente impedir as piramides modernas, os bilionários, não entendem qual conflito se esconde por trás da concentração de renda, tal como não se entendia qual conflito se esconda atrás de construções tão pesadas como as piramides, tal como é o peso da vida moderna mediante a existencia de concetradores de dinheiro.
-
 
 
 Estando definido com maior clareza o que é o Espírito Santo, podemos também compreender de maneira mais nítida o que é o pecado (Ato contra a plenitude). O pecado pode ser entendido como uma postura interior contrária ao próprio existir, isto é, uma intenção que se coloca em oposição à orientação fundamental da pessoa para a vida, para a plenitude e para a realização de seu próprio ser.
@@ -4114,7 +4077,6 @@ O mal funcionamento:
 
 O individuo desontista quando tenta atingir a normativa social, a forma normal de comportamento que considera ser orientado para o bem, porém, exise o mal funcionamento do corpo, o desontista se determina a conservar a norma social, pois sua intenção nada se refere ao mal comportamento ou ao atentado contra as normais, sociais e sim de uma postura interior relutante contra a vida. Porém, ao tentar exercer o bom funcionamento social, manifesta a sede, o defeito, a mania ou o escape, neste sentido, o bom funcionamenot é cortado quase que inperceptivelmente, ou seja, o individuo é orientado ao bem por uma decisão biológica, uma decisão automatica, porem o bem é cortado pela sintomatica, seu corpo, direcionado para a empatia, a norma social, tem seu objetivo desviado pela sintomatica. ??? O individuo narra não conseguir adentrar nas normais sociais ou ser diferente, abandonando seus habitos de auto sabotagem.
 
-
 Quebrados, descartáveis, lixo insolúvel... tudo isso é reflexo do sentimento.
 
 Querer transformar o nada em algo é uma procura apressada pelo sentido, que não pode ser inferido ou reduzido dessa forma.
@@ -4135,9 +4097,7 @@ Participar de uma classe superior designa a nobreza, ao passo que a sensação d
 
 Não é mais dinheiro; é a superioridade de ganhar sem fazer nada, de ser adorado.
 
-
 Como ultima tacada desontista, se quer eleger um falso messias, tentando desfigurar o sentido religioso.
-
 
 ## A transferência do peso do desontismo
 
@@ -4150,7 +4110,6 @@ O desontista não suporta o peso de sua decisão, não assume a responsabilidade
 Ao se fazer desontista, ao desembocar para si mesmo a sua decisão, não pode segura-la, não comporta na sua natureza humana, tal decisão. O desontismo quer expressão, quer um exílio de si mesmo, quer se fazer compreendido. Precisa de um escape e escapa nas politicas, votando contrariamente as coisas boas como belezas naturais, a paz mundial. 
 
 Quer o ultimo desejo, como se fosse o ultimo desejo de um condenado.
-
 
 O dinheiro, acumulo, é o que mais atiça os sentidos do niilsmo, é o que mais lhe engrandece os olhos, quando o individuo torna-se totalmente material, o valor somente lhe parece na materia, a privação maior do corpo quando desontista é a privação de auto valor, é a sensação de ser descarte, de ser um breve acontecimento no mundo. Portanto a sintomatica pela riqueza é a que se destaca entre todas. Onde há concentração de riquezas ou brechas para se alcançar, independente da emptia ao humano, o desontista avança furiosamente, incessantemente e insistentemente. O acumulo, a representação exterior de um valor que procura dentro é o que mais lhe apetece, ao que mais lhe tateia os pensamentos, como um vicio frenetico, como uma tendnecia incontrolavel que faz com que tonre-se até mesmo um comportamento de mania.
 
@@ -4180,10 +4139,7 @@ A ameaça de morte exterior de um individuo, é a ameaça que ele mesmo faz a si
 
 O desontista, se expressa, como desespero, como uma derradeira tentativa pela sua vida, como um ultimo pedido.
 
-
 O desontismo é uma sombra da consciência, um mal estar que enraivece, encarcera, polui, intoxica a mente e o humor do individuo ao constatar tão pessimista noticia para si mesmo, tão infrutífero destino, tamanha escassez, tamanho infortuno para si mesmo.
-
-Querer transformar o nada em algo é uma procura apressada pelo sentido, que não pode ser inferido ou reduzido dessa forma.
 
 “Quebrados”, “descartáveis”, “lixo insolúvel” — tudo isso é reflexo do sentimento.
 
@@ -4203,21 +4159,13 @@ Participar de uma classe superior designa a necessidade de não ser solitário, 
 
 Não é mais dinheiro: é a superioridade de ganhar sem fazer nada, de ser adorado.
 
-
-
 No nivel do querer, um querer infinito pela anulação é o mesmo que um querer que não quer, um querer estatico, alguém sem querer. Dessta forma, o querer infinito pela anulação, é o mesmo que a imobilidade. No nível do querer ambas as coisas se confundem. Um sentimento infinito de morte, é uma morte autentica. Um não movimentar-se infinito, é a impossibilidade de movimento no nivel da intenção.
 
 O rico é avarento, economiza ao máximo, deixa o outro com o mínimo na miséria, pois julga o acumulo de bens poder aumentar o valor de sua vida, de forma que tem ciência da eternidade em que se encerrará, tem consciência da sua intenção. Portanto, o valor que coloca na meteria é um escapismo, um espelhamento da miséria que há dentro dele mediante sua decisão.
 
 O rico, portanto, enriquece forçando o trabalho forçado, negligenciando, fazendo tudo o que se pode fazer para extrair o valor máximo as custas de qualquer sofrimento. A avareza é um grito frio, um grito infantil, de querer salvar a própria criança que diz a sociedade e ao próprio desontista que o mesmo tem algum valor, que sua vida é mais do que um fugas momento no tempo.
 
-
 O mundo é um plano onde ja se adianta os murmurios, os sofrimentos do futuro, onde os desontistas já se conscientizam de sua dimensão espíritual e temem a liberdade total.
-
-
-
-
-
 
 Os Olhos: Estão abertos, mas não brilham. A lente foca exatamente no olhar, que está vidrado. Ele não está vendo o horizonte; seu olhar atravessa a paisagem, fixo em uma imagem interna de aniquilação. É o olhar da "criança aterrorizada" escondida sob a máscara do adulto, o olhar de quem se sente como um "resíduo existencial".
 
@@ -4225,20 +4173,13 @@ A Boca: Os lábios estão secos e milimetricamente tensionados para baixo. Não 
 
 A Pele: A textura da pele parece fria, quase como o "barro" descrito em sua alegoria — uma matéria que existe, mas que parece já estar ensaiando a própria ausência de vida.
 
-
-
 O desontismo nos macro casos é detectavel em função dos seus efeitos na sociedade, como é o caso da atuação na desestruturação da economia, é possível identificar os agentes, porém, em micro casos, em casos particulares que não é inferivel ou exposto os maltratos, como no caso de pais desontistas maltratando os filhos, é possível identificar pela via inversa, pelos sintomas do desontismo dos pais se deduz um possível mal trato. O desontismo se coagido e impelido em macro escala pela sociedade, se manifestará nas invisibilidades, nas particularidades que ninguém nota, dentro dos lares, nas relações, em particularidades que não são investigadas por inteligencias politicas. Portanto, o conhecimento do desontismo pela sociedade, é importante, para que as minuncias sejam também vigiadas, o ser humano, não somente tem posse de sua economia, mas posse de seu lar, de seu companheiro, posse de seu comportamento para com seu bairro. O desontismo, quando não manifestado em macro escala, se esconde na micro escala. E é preciso ser visível. É preciso que haja evangelização, e é preciso que se conheça a alma humana. 
 
 O desontismo deve ser visto no patrao que maltrata e posterga seu interior no funcionario, na avó que fica com a criança e a maltrata, na baba que tem uma tendencia a infligir miséria em quem cuida, no professor que faz com que alunos tenham uma sobrecarga de ensino por querer-lhes serviços demasiados. Enfim, o pequeno desontismo deve ser visto, pequenos atos que resguardam as pessoas, que as faz enxergar não estarem vivendo situações normais, que as leva a pedirem socorro.
 
-
-
 O desontista se julga acima do bem e do mal, deixando-se levar pelos instintos, pensa ser puro ao ponto de ser nada, isto é, sua impassividade se confunde com o mais violento ímpeto por deixar-se levar pelo homem enquanto animal, não enquanto ser espiritual. Entra num estado de alienação de si mesmo, no qual o corpo o guia, e no qual, esse deixar-se guiar envolve um orgulho total, um querer ser como Deus, o achar-se acima da conduta, achar-se elevado tal como Deus. Pois julga poder existir tal como o Ser.
 
 O desontista sente um desespero introvertido, um choro engolido, uma grande impassividade as emoções normais, se congela ao viver segundo a carne, se torna impassível, insensível as emoções. Engole um choro de desespero que lhe tira o sono. A angustia que lhe assola, o corpo que vagueia só sem a paz, o corpo que se acostuma a enxergar sem fim, que se encerra sem amparo e que se permite agir conforme a vida animalesca. Não é possível nem mesmo assombrar o desontista, pois seus olhos já encaram o maior dos desesperos.
-
-
-
 
 ## 4. A Sintomatologia do Pecado como Negação Ontológica
 
@@ -4246,9 +4187,7 @@ O desontista sente um desespero introvertido, um choro engolido, uma grande impa
 
 **Desenvolvimento:** O pecado não é meramente uma infração moral, mas um colapso ontológico. É a vontade deliberada de nadificação. Quando um ser recusa o Espírito Fundamentador, ele se volta contra a sua própria estrutura vital. A repressão dessa intencionalidade fundamental não apaga a energia vital, mas a perverte (ex: materialismo obsessivo ou cinismo). A bondade exterior passa a ofender o indivíduo adoecido, provocando nele a necessidade de destruir ou ridicularizar o belo e o justo, pois estes espelham sua própria falência interior.
 
-
 O desontista nao aguentando o peso da própria decisão, não assume a responsabilidade por sua decisão e torna-se um pedinte de valor do outro, por isso provoca uma sociedade de trabalhos exaustivos e forçados.
-
 
 ### A dissimulação do desontismo por meio de argumentos
 
@@ -4266,39 +4205,23 @@ O desontista, portanto mascara sua intenção sob dois objetivos, o de acumular 
 
 O desontismo quer tirar a alegria do mundo, o aborrece o sentimento generalizado de alegria, quer tirar o encanto do mundo, o aborrece a exuberância da natureza. O agrada uma paisagem deturpada, transformada de tal forma que esboce a imagem do vazio que carrega quanto ao sentido de sua vida.
 
-
 Ainda que se aceite a miséria do desontista, e o deixe com suas riquezas, o desontista precisa de amparo, se revolta em emoções e não se conforma somente com sua expressão de ação, mas parte para a expressão emocional numa tentativa de colo e consolo, numa tentativa de revelar o ato falho de sua expressão, num pranto triste que quer desaguar, num entendimento que quer receber, numa expectativa infusa de que algo lhe desperte de seu sono, que o de o primeiro movimento. Porém, uma expectativa que vem de seu corpo cansado pelo assombro da alma, cansado de sustentar uma alma que o pesa, que o enche de duvidas, conflitos e reações descabidas para o convívio e funcionamento social. 
-
-
-
 
 O desontista desaba seu peso na forma de trabalhos pesados para o outro, na forma de diculdades, e o pesar da vida, impedindo que o outro veja a vida com leveza e naturalidade no quesito do serviço. O desontista gosta de induzir a apatia no outro, para espelhar o que sente, produzindo um mundo deprimido, de pouca festa.
 
-
-
-
 O desontista tenta fazer do mmundo um ato funebre, um cenario desertico, qualquer manifestação de pura alegria o incomoda e o da trabalho distorcer o sentido das coisas, para fazer com que a alegria natural das cosias não mostre para ele o absurdo de sua postura.
-
-
 
 O desontista assume uma dureza quanto a mudar seu comportameneto, ainda que este comportamento seja nocivo, mantem intacto o seu modelo de ação ainda que ameaçado com a propria morte, o faz como expressão de sua impassividade interior, que não muda apensar de todas as reações inequivocas de seu corpo, e de seu desespero perante a tal estado.
 
-
 O desespero do desontista, por vezes é conseguido ser aplacado, porém, dá lugar a uma atomesfera de consciencia estatica, um desespero incultido em forma de sarcasmo, sensação de aprisionamento, como se aguardasse em pé num involucro de morte, um ar de falsa paz, que é substituida pelo total cansaço do corpo, e falta de expressão, e não pela paz.
-
 
 O desontista assume um personagem que segundo ele é perspcaz, construtor de artimanhas, imagina ser o mais esperto, ser invisível perante os outros que julga não ter a mesma perspicácia, por vezes, usa de artimanhas para alcançar o dinheiro e não lança mão de fazer o mal para tal, e praticar más ações. O faz levado pela obsessão pelo valor material, imagina haver sempre uma via fácil para alcança-lo, e julga os outros como pessoas sem a mesma esperteza que a sua. Julga ter uma visão superior, ter sempre uma carta na manga. Associa isso como uma inteligência superior. 
 O desontista acredita cegamente em seu plano, não analise realmente a inteligencia de seu plano, e nem mesmo as consequencias para sua vida de forma clara, mas se deixa levar pela ilusão, pelo caminho que em sua mente o leva necessarimente ao auto valor através de conquistas materiais.
 
-
 O crime, por vezes, é uma covardia. É um desabar de um interior que está se isolando em si mesmo, em sua própria ideia e precisa exalar seu desespero, sua contrariedade. O individuo que sequestra, que vende aquilo que entorpece o outro. São todas as expressões de um desabar, é sacrificar a própria ação da normalidade em prol de um desabafo desesperador, em prol de um absurdo interior que desaba na sociedade e não aguenta ficar retido. O transmitir do desespero nada mais é do que o terror que exaure o individuo ate se externar no outro, que o enraivece pelo encarceramento de uma realidade que não lhe pertence, da qual é escravo.  
 
 
-
-
 Uma sociedade que conhece todos os meios de produção, tecnologias, mas não conhece o homem, quem se apropria da politica para administrar esses bens, é uma sociedade que carece de um grande avanço tecnológico, pois essa tecnologia ainda não está a serventia do homem, mas da manutenção de um esquema fraudulento, que não se direciona ou apoia realmente o humano. Pois o não entendimento do homem significa, também,  não entendimento completo dos sistemas políticos e sistemas de produção.
-
-
 
 
 ### desontismo
@@ -4317,19 +4240,13 @@ O resto de vida que o desontista aproveita não é em função do deleite, mas e
 
 Portanto, considera-se que a angústia de extrair da vida a espera pela nulidade, e não o preâmbulo da eternidade, faz o desontista saborear com gosto amargo o que tem de vida.
 
-
-
 O desontista, quando não obtem um meio de desviar seus sintomas, tem como sintoma sem escapismo a agressividade.
 
 ### Prostituição
 
 A prostituição é um jeito de dizer que não há ninguém dentro daquele corpo?
 
-Se quiser, também posso fazer uma **segunda limpeza mais filosófica**, mantendo as mesmas ideias, mas deixando a argumentação mais rigorosa e com linguagem de tratado metafísico.
-
-
 desontista tem dificuldade de interiorização, de viver a vida interior, de permanecer em silencio sem falar com ninguém. O desontista é alheio a si mesmo, guiado pelas suas vontades instintivas. Vive num aparente aprisionamento, onde observa a imensidão sob o assombro de desconhecimento de si para o todo. Como se fosse manipulado como uma marionete. 
-
 
 O desontista foge da consciencia auto cisnciencia ao se deparar e se desviar a atencao dele..se diz pra ele que ele n se atenta em si
 Imagine o auto causarse num giro de velocidade infinita que parou de girar
@@ -4342,16 +4259,9 @@ Se enxe de ira e quer de todo jeito que o outro sinta o peso de certa forma que 
 O desontista traça planos tolos, planos sem que investigue necessariamente a eficácia, somente pela ilusão de concretiza-los, pelo simples deslumbre de obter a riqueza a partir deles.
 
 
-
-Quando a alma se liberta do corpo, qualquer ódio, qualquer obsessão, qualquer vingança, sendo a alma livre de todo instinto de auto preservação, ou do medo, o individuo pode se encerrar numa auto anulação temporária. 
-
 O desontista quer a expressao ainda quea expressao nao tenha objetivo...ele quer primeiramente a ilusao, e em segundo lugar a expressao
 A ilusao o desvia dos pensamentos temerosos e a expressao alivia a carga cignitica de sua tendencia interior
 O ser é o ato de ser entificado
-
-
-A alma usa o sentimento de ser desconhecida, o estado de desconhecimento, usa o ser transparente, ser ausente do outro. Ser desconhecida, o sentir da estranheza do outro. O não sentir o outro.
-
 
 
 O desontista desaba como integrande do contexto social, tem sua vida como expressão de seu desespero. 
@@ -4423,33 +4333,6 @@ A degradação ambiental que impede a rota migratoria de animais, a livre prolif
 No começo, nos primordios, quando a terra era vasta, e o ser humano não tinha duros trabalhos. Um grupo de desontistas se reuniu, e como força de expressão, tomaram as terras, e fizeram as pessoas trabalharem pelo que a terra antes os dava de graça e em abundancia. Pois queriam moetrar o peso de uma vida desontista, queriam fazer o outro sentir o peso que sentiam. E assim se fez os meios de produção controlados, as terras, os desmatamentos, as devastações, tudo como tentativa de dominar o que é simples, o que é belo, o que é leve, para fazer o outro sentir o peso emocional do desontismo.
 
 
-*Eliminação do desontismo:*
-Isso evita o desontismo (negar o mundo) e também evita o realismo ingênuo (atribuir ao mundo um fundamento que ele não tem).
-
-**Superação das Dicotomias Redutoras:**
-* **Contra o fenomenalismo:** O Absoluto não se reduz a suas manifestações particulares.
-* **Contra o desontismo:** O Absoluto não é puro vazio ou ausência.
-* **Via Mediana:** O Absoluto é **Presença Pura** que existe por essência, é plenamente positiva e mantém-se em ato permanente.
-
-1. **Materialismo:** só reconhece o Nada₁ (não há Deus, apenas matéria).
-2. **desontismo:** afirma o Nada₂ (não há ser, apenas devir ou texto).
-3. **Misticismo:** tenta afirmar o Nada₃ como objeto, mas recai em contradição.
-
-| **Teoria** | **Fundamento** | **Determinação** | **Espírito** | **Problema que resolvemos** |
-| --- | --- | --- | --- | --- |
-| **Parmenidismo** | Ser (pleno, imóvel) | Ilusão | Inexistente | Não explica a aparência da multiplicidade |
-| **Neoplatonismo** | Uno (além do ser) | Emanação | Inteligível | Introduz processo no fundamento |
-| **Cristianismo** | Deus pessoal | Criação | Consciência infinita | Introduz escolha, tempo, vontade |
-| **Hegelianismo** | Espírito absoluto | Autodiferenciação | Sujeito-objeto | Introduz movimento lógico e história |
-| **desontismo** | Nada | Construção linguística | Inexistente | Não explica coerência nem estabilidade |
-| **Nosso Sistema** | Indiferenciado | Referência vazia | Autopresença | Evita todos os problemas acima |
-
-* Preserva a intuição do Absoluto como não-dual.
-* Explica o relativo sem introduzir diferença real no fundamento.
-* Evita o desontismo (pois a coerência não precisa de fundamento).
-* Evita o dogmatismo (pois nada se afirma positivamente).
-* Permite chamar o Absoluto de "espírito" sem cair em antropomorfismo.
-
 **O desontismo como Fuga do Ser e Sintoma Relacional** — 
 
 O desontista não precisa ser rico para fazer com que o outro seja miserável pelo voto, mas pela sensação de valor. Pois o sintoma não é aplacado pelo requinte, mas pela sensação de autovalor ampliada pelo privilégio, seja este privilégio um baixo requinte, mas o diferencial entre o que o desontista recebe e o que o outro recebe, ainda que sejam ambos recebendo pouco, serve ao desontista em sua atribuição de valor, provando que o seu ímpeto não é realmente pelo luxo, mas pelo aplacar de seu sintoma de perda de valor.
@@ -4485,12 +4368,6 @@ O desontista super rico é como uma criança desesperada, com um super brinquedo
 
 
 O desontista super rico fica constantemente irritado ao ver a harmonia social ao ver o estado de normalidade e paz, isso lhe causa uma auto avaliação imediata, de forma que se defronte com sua consciência prisioneira. O desontista quer fazer o outro sentir-se bombardeado, de forma a espelhar sua intenção para com a própria alma. O desontista deseja ver a humanidade queimando, com base em um desespero de ter companhia em sua auto negação. Ao passo que é um ódio externalizado, um aprisionamento externalizado, é um pedido de ser compreendido, é um pedido para que a harmonia não lhe interfira no intuito e não lhe mostre a sua própria verdade, é uma tentativa de fabricar um mundo onde possa ser alheio a toda vida interior. O desontista quer ser entendido, seu corpo quer a cura, uma resposta, mas a resposta que lhe livre da própria alma, não realmente a resposta, que lhe livre de uma alma opressora e o um novo coração. 
-
-
-
-O homem sebtimento de pertencimento a si
-Deus sentimento pureza
-Sentimento puro
 
 
 ## O controle niilsita e sua potencial posse tecnológica
