@@ -1,13 +1,32 @@
 
 
+**[CÓDIGO 0.1 - Anúncio, Preâmbulo e Estrutura do Tratado]**
 
+### Anúncio
 
+A metafísica nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafísica explica por que em uma sociedade em que já existe inteligência artificial e em que o homem já explorou o espaço, como pode nessa sociedade ainda existir miséria, no sentido de que o homem é capaz de chegar à Lua, mas não é capaz de fazer comida chegar a quem precisa; por que isso ainda acontece, qual é a razão disso? E a metafísica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do além, as palavras de Jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão; o objetivo da metafísica é aproximar esse conhecimento verdadeiro do homem, trazer à tona a verdade para que o cenário social se modifique, para que, havendo o conhecimento pleno da alma humana, se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violência, através do verdadeiro conhecimento.
 
+## Preâmbulo
 
+Apesar do impressionante avanço tecnológico dos nossos dias — visível na exploração espacial, na criação de supercomputadores e na inteligência artificial —, a humanidade ainda esbarra em um grande contrassenso: a persistência de problemas dolorosos, como a miséria, a desigualdade e a fome. Isso nos mostra que superar essas feridas não é apenas uma questão de engenharia ou economia, mas exige uma mudança na própria essência de quem somos. É a vontade humana que concentra riquezas e, quase sempre, manipula as estruturas de poder para impedir que os recursos cheguem a todos.
 
+O estudo profundo da alma e do destino humano — que chamamos de metafísica — ainda dá seus primeiros passos na prática. Quando Jesus usou a famosa imagem de que é mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no Reino dos Céus, ele não estava apenas dando uma lição de moral. Ele fazia um diagnóstico profundo: mostrava o sintoma de uma mente sufocada pelo apego excessivo às coisas materiais.
 
+Visto por esse ângulo, o "pecado" deixa de ser apenas uma regra religiosa quebrada e passa a ser entendido como o reflexo visível de um desequilíbrio interno. É o sintoma de uma alma que caminha para a própria anulação. Trata-se de um estado de "morte em vida", uma forma de ilusão em que o ser humano, movido por impulsos básicos e ofuscado por um vazio interior, perde a si mesmo.
 
+Quando as ciências da alma amadurecerem de verdade, poderão expor as verdadeiras raízes da miséria e as engrenagens invisíveis que a sustentam. A chance de transformarmos o mundo mora, portanto, na evolução inevitável rumo a um *absolutismo metafísico* — isto é, uma compreensão total, inquestionável e profunda da realidade. Apenas ao abraçar essa verdade será possível mudar o planeta de forma verdadeira e duradoura.
 
+---
+
+## A Estrutura do Tratado
+
+Este tratado objetiva emancipar a humanidade de estruturas opressoras e de formas sutis — e muitas vezes invisíveis — de controle. Essa libertação não acontece pela força, mas por uma reflexão profunda sobre a realidade e sobre a própria natureza do ser humano. Entender as reais motivações das elites econômicas e como elas moldam o mundo é o despertar necessário para construirmos uma sociedade justa, sustentável e pacífica. No fim das contas, a criação de um mundo ideal não depende apenas de leis ou governos, mas do entendimento humano: a consciência é a semente de qualquer mudança real.
+
+Para tornar esse entendimento possível, esta obra constrói um sistema de pensamento completo e lógico. Aqui, cada ideia nasce naturalmente da anterior, seguindo uma clareza absoluta. Não se trata de um conjunto de palpites soltos, mas de uma construção exata, em que as conclusões são consequências inevitáveis da própria razão. É a reflexão filosófica levada ao seu limite para desvendar como o mundo realmente funciona.
+
+A base deste tratado reúne séculos de reflexão, unindo as ideias de grandes pensadores da história para criar um caminho lógico, prático e rigoroso em direção à verdade.
+
+---
 
 ### **[CÓDIGO 0.2 - Prefácio e Introdução ao Desontismo]**
 
@@ -28,6 +47,60 @@ Que conflitos insólitos emergiriam dessa guerra interior? Que sentimentos dela 
 O desontista apresenta duas modalidades de percepção de sua própria negação: a visão ativa e a visão passiva. Pela primeira, reconhece-se como autor de sua inclinação, assumindo a figura de seu próprio algoz; pela segunda, percebe-se como refém de uma condição que o aprisiona, como uma alma que naufraga sem qualquer possibilidade de movimento, semelhante a uma pedra que afunda no mar.
 
 Embora distintas, ambas as perspectivas convergem na expressão de um mesmo sentimento, revelando duas faces de uma única experiência interior. Sua manifestação sintomática deve, portanto, ser compreendida à luz dessa dualidade: ora o indivíduo se percebe como agente de sua própria ruína, ora como vítima impotente de uma condição da qual não consegue escapar.
+
+---
+
+**[CÓDIGO 0.3 - Fundamentação Filosófica e Teológica Clássica]**
+
+### Fundamentação Filosófica
+
+## A Consciência Vem Antes da Estrutura Social
+
+A ideia de que precisamos primeiro entender a nossa alma para depois consertar o mundo encontra forte apoio em grandes nomes da filosofia:
+
+* **Platão (*A República*):** Traça um paralelo claro entre a alma humana e a sociedade. Para ele, uma sociedade justa é apenas o reflexo externo de pessoas equilibradas por dentro. A ideia de que o governante precisa primeiro entender o que é o "Bem" para depois organizar as coisas práticas é o pilar da política clássica.
+* **Baruch Spinoza (*Ética*):** Mostra, através de um raciocínio lógico brilhante, que a nossa escravidão nasce da ignorância. Para Spinoza, o que chamamos de "mal" é, na verdade, tudo aquilo que diminui a nossa força de viver. O único caminho para a liberdade real é o entendimento racional de nós mesmos e do mundo.
+
+---
+
+## A Origem da Miséria e a Obsessão por Acumular
+
+A visão de que a pobreza é fruto de almas adoecidas e de sistemas invisíveis de dominação ganha força com estes pensadores:
+
+* **Jean-Jacques Rousseau (*Discurso sobre a Origem da Desigualdade*):** Argumenta que a desigualdade não é natural, mas o resultado de uma corrupção humana. Ao darmos mais valor ao "ter" e à "aparência" do que à nossa verdadeira essência, permitimos que estruturas de poder manipulassem a sociedade.
+* **Erich Fromm (*Ter ou Ser?*):** Define a obsessão por "ter" como uma forma de ilusão onde o acúmulo de bens substitui a alegria de viver. Fromm descreve que a atração exagerada pelo controle e pelo dinheiro (que é algo sem vida) é o motor que gera a escravização moderna e esvazia a alma humana.
+
+---
+
+## A Evolução Inevitável da Consciência Global
+
+A ideia de que o mundo caminha rumo a um entendimento absoluto e a uma grande transformação combina com a visão de pensadores sobre o curso da história:
+
+* **G.W.F. Hegel (*Fenomenologia do Espírito*):** Defende que a história da humanidade é, na verdade, a mente humana caminhando para o autoconhecimento absoluto. Hegel descreve que a superação dos conflitos ao longo do tempo é um passo necessário para que a humanidade finalmente se reconheça no mundo em que vive, eliminando a sensação de não pertencer a ele.
+* **Gottfried Wilhelm Leibniz (*Monadologia*):** Oferece a base para pensar de forma exata. Ele sugere que o universo possui uma harmonia perfeita e que existe uma razão clara para cada coisa que acontece. Isso nos permite construir um pensamento lógico onde tudo faz sentido e tem um propósito.
+
+## A Doença do Espírito e o Desvio Moral
+
+Sobre o estado de "morte em vida" e a cegueira espiritual daqueles que manipulam o cenário global, buscamos apoio nestas ideias:
+
+* **Santo Agostinho (*O Livre-Arbítrio*):** Define o mal como a simples "ausência do bem". O erro humano não é uma coisa física, mas sim a atitude de virar as costas para o que é eterno e verdadeiro em troca do que é passageiro. O desejo doentio de acumular riquezas é visto como uma fragmentação da alma que afasta o homem da verdade.
+* **Søren Kierkegaard (*O Desespero Humano*):** Explora o que ele chama de "doença até a morte" — um estado de desespero em que a pessoa, embora respire e ande, está morta por dentro, pois perdeu a conexão com o sagrado e com o seu propósito. Esse conceito ajuda a entender que a exploração econômica e a miséria moral são, na raiz, uma doença profunda da alma.
+
+---
+
+### **[CÓDIGO 1.1 - Autocausalidade, o Incausado e o Relativo da Alma]** *(Nota: Também dialoga diretamente com o Código 2.1 sobre a repressão do impulso corporal e o assombro)*
+
+### O desontismo como repressão do impulso corporal
+
+O desontismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o desontismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
+
+Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente intuído para o indivíduo acerca da existência e de seu fundamento.
+
+Ou seja, digamos que a suma metafísica seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a suma metafísica, e o humano tem certa intuição sobre isso, então as previsões metafísicas incidem diretamente no medo e no comportamento humano. E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a suma metafísica e as alegorias metafísicas para o completo entendimento do desontismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações desontistas no inconsciente humano.
+
+O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com sua completa liberdade, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento desontista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento desontista.
+
+O desontista pode acreditar, intuitivamente, que, ao se desprender das camadas biológicas que sustentam o instinto de autoconservação e o medo da morte, a alma se torna mais orientada por seus sentimentos e intentos mais genuínos. Essa crença, por sua vez, pode provocar nele uma profunda alteração comportamental.
 
 ---
 
@@ -138,31 +211,6 @@ Então, subitamente, o indivíduo permite que um ressentimento — ou uma série
 Se antes ainda conservava algum propósito, ainda que em conflito com suas experiências, agora, desprovido de qualquer sentido, tenta preencher o vazio com riquezas e poder. Pois, ao permitir que o ódio se tornasse absoluto, abandonou todo propósito — abandonou a si mesmo. No ódio absoluto, só existe a perdição. O ódio completo humilha o indivíduo e lhe rouba até mesmo o breve instante de satisfação que a vingança poderia oferecer, pois a vingança acaba por voltar-se contra a própria vida. Nem mesmo o deleite de oprimir ou vingar-se subsiste no desontismo — o que resta é a completa humilhação do indivíduo, que passa a desejar destruir tudo ao seu redor, tornando-se profundamente egoísta e opressor. Seu ódio não é apenas um desejo de agredir, mas uma renúncia à eternidade.
 
 ---
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 ### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]** *(Nota: Também dialoga com o Código 2.1 sobre a projeção corporal do ódio)*
 
@@ -313,43 +361,6 @@ A tragédia reside precisamente nisto: o desontista busca no exterior — em sen
 
 ---
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]** *(Nota: Também dialoga com o Código 2.4 sobre a soberba como máscara e a analogia entre o rico e o mendigo)*
 
 ### **A PSICOLOGIA DO PODER, DA RIQUEZA E A MEGALOMANIA**
@@ -438,12 +449,6 @@ No cerne da condição desontista, encontra-se não uma mera apatia ou falta de 
 Desse poço de ódio brota um impulso ativo de fazer o outro experimentar a mesma agonia interior que consome o desontista. Alguns o fazem com crueldade explícita — através de palavras cortantes, traições calculadas ou violência gratuita. Outros atuam de modo mais sutil e insidioso, disseminando cinismo como um vírus e sufocando esperanças alheias para validar sua própria desesperança. São, em essência, artesãos do sofrimento, tecelões de miséria, incapazes de tolerar a luz em lugares onde escolheram habitar as trevas — confirmando assim a natureza intrinsecamente social do pecado, que sempre reverbera na comunidade.
 
 Por vezes, o desontista nem sequer almeja riqueza material; a verdadeira expressão de sua soberba reside em transferir para os ombros alheios o fardo de sua própria decisão — não por ser livre, mas por ter optado pelo destino mais cruel que poderia escolher. Tomemos o exemplo do faraó: ao perceber a indiferença da humanidade perante seu poder, ele impunha a construção de pirâmides colossais e árduas, numa tentativa clara de transferir para seus súditos o peso esmagador de sua própria decisão existencial, que culminava em sua solidão e vacuidade. A pirâmide representava uma tentativa de conectar o poder patriarcal à eternidade; seu objetivo, porém, era lidar com o fardo de sua liberdade por meio do sofrimento imposto ao outro, descarregando nele a frustração e o vazio que sua intenção interior produzia.
-
----
-
-
-
-
 
 ---
 
@@ -566,12 +571,6 @@ O indivíduo desontista tem plena consciência do fato, e o seu intuito tem como
 O convívio do desontista com quem lhe aparenta tranquilidade é conflituoso, marcado por grande competição, por querer que o outro tenha menos, por tentar transmitir ao outro o que sente a todo custo. Pois o enfrentamento com o outro em um estado de tranquilidade dá ao desontista um enorme desespero, revolta e discordância com seu próprio propósito.
 
 O estado de autoluto de si mesmo faz o desontista supor que as pessoas devam compreendê-lo e respeitá-lo. Quando amizades se aproximam, notícias boas, qualquer coisa que lembre o desontista do valor de viver, ele se irrita profundamente e tenta afastar de si tais ideias, pois quer defender seu propósito autoexcludente. A convivência com o desontista se torna angustiante, pois o desontista exige muito “respeito” ao seu luto, pois conservar tal decisão é, ao mesmo tempo, conseguir conviver e tentar ser uma pessoa normal, o que gasta grande energia mental.
-
----
-
-
-
-
 
 ---
 
@@ -1029,19 +1028,7 @@ O desontista deseja coisas sem questionar o propósito, tal como uma criança, q
 
 ---
 
-### **[CÓDIGO 1.1 - Autocausalidade, o Incausado e o Relativo da Alma]** *(Nota: Também dialoga diretamente com o Código 2.1 sobre a repressão do impulso corporal e o assombro)*
 
-### 2.9 O desontismo como repressão do impulso corporal
-
-O desontismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o desontismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
-
-Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente intuído para o indivíduo acerca da existência e de seu fundamento.
-
-Ou seja, digamos que a teoria relativista seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a teoria relativista, e o humano tem certa intuição sobre isso, então as previsões relativistas incidem diretamente no medo e no comportamento humano. E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a teoria relativista e as alegorias metafísicas para o completo entendimento do desontismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações desontistas no inconsciente humano.
-
-O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com o relativo, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento desontista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento desontista.
-
----
 
 ### **[CÓDIGO 2.7 - A Sede de Vida (Tentação Reversa), Vícios e Suicídio Lento]**
 
@@ -1066,44 +1053,6 @@ Nada é mais importante para o homem do que sua própria vida; portanto, o deson
 O desontista oculta suas ações de expressão ou em direção à autoanulação, fazendo um mascaramento. Uma ultrapassagem perigosa é disfarçada de pressa. Um medicamento irregular dado a alguém é chamado de necessidade; portanto, a intenção pela destruição fica subjacente a bons pretextos. E muitas vezes passa despercebida, desconfiada, porém não totalmente entendível por quem não enxerga o intuito desontista. Opressão no trabalho é disfarçada de necessidade da empresa. Ofensas são disfarçadas como uma mágoa expressa. Importunação é disfarçada por pretextos tolos e rasos. O desontista torna subjacentes seus intuitos através de ações de dupla interpretação. Ao se investigar a real necessidade de tais ações, descobre-se que o desontista, entre duas opções, escolhe a que corrobora com seu intuito.
 
 ---
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 ### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]** *(Nota: Também dialoga com o Código 2.4 sobre os arquétipos do estrategista e do inquisidor)*
 
@@ -1228,52 +1177,6 @@ O pecado representa partida. A partida eterna do existir. Não representa atos i
 É comum o desontista se jogar em tarefa de servidão total, e até mesmo de humilhação, em prol do outro, na tentativa de usurpar totalmente seu problema, o que considera a medida de mais urgência e importância. O desontista visa, com atitudes extremamente desgastantes e nobres, enxergar um valor em si perdido. Necessita que, por vezes, sua servidão seja até mesmo degradante, que seja extenuante, que tenha que passar pela dor. Pois sofrer por uma causa ou pelo outro pode representar uma maneira de enxergar um novo valor em si.
 
 ---
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 ### **[CÓDIGO 4.6 - A Ilusão da Escassez, a Destruição Ambiental e o Paradoxo do Formigueiro]** *(Nota: As seções 3.1 a 3.6 abordam o holocausto de almas autoinfligido, a lição cooperativa do formigueiro vs. o formigueiro invertido humano e a raiz espiritual da fome)*
@@ -1581,8 +1484,6 @@ O desontista não compreendido tem um alto potencial de destruição, pois se fa
 Combater os bilionários é tratar o desontista, cuidar melhor dos que não se favoreceram espiritualmente e por isso deveriam ser a camada mais frágil social, e não a camada opressora. Deveria ser a camada social cuidada e não a camada à qual demos força para destruir tudo, inclusive a si mesma e sua oportunidade de viver mais e aprender a ser melhor.
 
 O bilionário é um sedento pela vida eterna; enquanto não instruído, ele não descansará buscando a resposta. É muito mais fácil agir rapidamente do que compreender o comportamento do outro. E nessa rapidez de julgamento a humanidade não compreende realmente o desontismo, e dessa forma também não arquiteta formas de desarticular as instituições de controle social. O desontista, no topo de uma companhia, é alguém que não sabe o que fazer, e faz o que lhe resta: oprimir, fazer sucumbir, sugar da sociedade para ter a vida que a sociedade não lhe ensina pois não o compreende.
-
-Até a presente data desta escrita, a sociedade está tentando vencer os males sociais por reforço negativo, matando bilionários e pessoas que compactuam com o mal incentivadas por bilionários. E este reforço negativo não vence o desontismo. A sociedade, portanto, que é inteligente, vai começar a buscar uma forma mais profunda de resolver os males sociais.
 
 ---
 
@@ -4087,26 +3988,8 @@ Este texto, portanto, não apenas descreve a condição do desontista, mas tamb�
 
 ---
 
-### **[CÓDIGO 0.1 - Anúncio, Preâmbulo e Estrutura do Tratado]** *(Nota: Também dialoga diretamente com o Código 7.1 sobre a decodificação metafísica da mente de Jesus)*
 
-# A MATRIX DECODIFICADA: DESTRUINDO AS ESTRUTURAS DE DOMINAÇÃO
 
-**E se as palavras de Jesus contivessem um código metafísico capaz de desvendar os mecanismos ocultos do poder?**
-**E se a lógica e a razão confirmassem os mesmos mistérios que a fé sempre intuiu?**
-**E se, além da verdade espiritual, Cristo tivesse revelado uma ciência metafísica que transcende o tempo?**
-
-Neste livro, você embarcará em uma jornada pelos recessos mais profundos da mente de Jesus, explorando não apenas seus ensinamentos sagrados, mas a arquitetura metafísica que os sustenta. Prepare-se para descobrir:
-
-* **O Evangelho Político:** Como a verdade plenamente compreendida subverte o cenário global, expondo as raízes ocultas das guerras e da miséria moderna.
-* **Os Códigos Divinos:** A linguagem simbólica por trás das parábolas, revelando conhecimentos avançados sobre a natureza da realidade.
-* **A Ciência dos Milagres:** A intersecção entre fé, física e metafísica nos atos sobrenaturais de Cristo.
-* **O Diagnóstico do Desontismo:** Como Jesus previu, há dois milênios, a crise existencial da era contemporânea.
-* **A Engrenagem da Opressão:** Como as estruturas de poder exploram a ignorância espiritual das massas.
-* **A Sociedade Crística:** O modelo de justiça, compaixão e soberania que ameaça todo sistema baseado em dominação.
-
-**Não se trata apenas de ler as palavras de Jesus, mas de decifrar sua mente e desvendar os mistérios que a humanidade ainda não estava preparada para receber.**
-
----
 
 ### **[CÓDIGO 7.5 - O Desmascaramento Final, Apocalipse Social e Orações]**
 
@@ -4905,79 +4788,7 @@ Ao esboçar um entendimento profundo do ser humano, Jesus ameaçou os poderosos,
 
 ---
 
-**[CÓDIGO 0.3 - Fundamentação Filosófica e Teológica Clássica]** *(Fragmento de transição metodológica)*
 
-permanece ainda no âmbito de uma lógica essencialmente pragmática: aquela que opera segundo os princípios aristotélicos de identidade, não-contradição e terceiro excluído, e que busca, acima de tudo, a coerência formal do pensamento.
-
----
-
-**[CÓDIGO 0.1 - Anúncio, Preâmbulo e Estrutura do Tratado]**
-
-### Anúncio
-
-A metafísica nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafísica absolutista explica por que em uma sociedade em que já existe inteligência artificial e em que o homem já explorou o espaço, como pode nessa sociedade ainda existir miséria, no sentido de que o homem é capaz de chegar à Lua, mas não é capaz de fazer comida chegar a quem precisa; por que isso ainda acontece, qual é a razão disso? E a metafísica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do além, as palavras de Jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão; o objetivo do absolutismo é aproximar esse conhecimento verdadeiro do homem, trazer à tona a verdade para que o cenário social se modifique, para que, havendo o conhecimento pleno da alma humana, se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violência, através do verdadeiro conhecimento.
-
-## Preâmbulo
-
-Apesar do impressionante avanço tecnológico dos nossos dias — visível na exploração espacial, na criação de supercomputadores e na inteligência artificial —, a humanidade ainda esbarra em um grande contrassenso: a persistência de problemas dolorosos, como a miséria, a desigualdade e a fome. Isso nos mostra que superar essas feridas não é apenas uma questão de engenharia ou economia, mas exige uma mudança na própria essência de quem somos. É a vontade humana que concentra riquezas e, quase sempre, manipula as estruturas de poder para impedir que os recursos cheguem a todos.
-
-O estudo profundo da alma e do destino humano — que chamamos de metafísica — ainda dá seus primeiros passos na prática. Quando Jesus usou a famosa imagem de que é mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no Reino dos Céus, ele não estava apenas dando uma lição de moral. Ele fazia um diagnóstico profundo: mostrava o sintoma de uma mente sufocada pelo apego excessivo às coisas materiais.
-
-Visto por esse ângulo, o "pecado" deixa de ser apenas uma regra religiosa quebrada e passa a ser entendido como o reflexo visível de um desequilíbrio interno. É o sintoma de uma alma que caminha para a própria anulação. Trata-se de um estado de "morte em vida", uma forma de ilusão em que o ser humano, movido por impulsos básicos e ofuscado por um vazio interior, perde a si mesmo.
-
-Quando as ciências da alma amadurecerem de verdade, poderão expor as verdadeiras raízes da miséria e as engrenagens invisíveis que a sustentam. A chance de transformarmos o mundo mora, portanto, na evolução inevitável rumo a um *absolutismo metafísico* — isto é, uma compreensão total, inquestionável e profunda da realidade. Apenas ao abraçar essa verdade será possível mudar o planeta de forma verdadeira e duradoura.
-
----
-
-**[CÓDIGO 0.1 - Anúncio, Preâmbulo e Estrutura do Tratado]**
-
-## A Estrutura do Tratado
-
-Este tratado objetiva emancipar a humanidade de estruturas opressoras e de formas sutis — e muitas vezes invisíveis — de controle. Essa libertação não acontece pela força, mas por uma reflexão profunda sobre a realidade e sobre a própria natureza do ser humano. Entender as reais motivações das elites econômicas e como elas moldam o mundo é o despertar necessário para construirmos uma sociedade justa, sustentável e pacífica. No fim das contas, a criação de um mundo ideal não depende apenas de leis ou governos, mas do entendimento humano: a consciência é a semente de qualquer mudança real.
-
-Para tornar esse entendimento possível, esta obra constrói um sistema de pensamento completo e lógico. Aqui, cada ideia nasce naturalmente da anterior, seguindo uma clareza absoluta. Não se trata de um conjunto de palpites soltos, mas de uma construção exata, em que as conclusões são consequências inevitáveis da própria razão. É a reflexão filosófica levada ao seu limite para desvendar como o mundo realmente funciona.
-
-A base deste tratado reúne séculos de reflexão, unindo as ideias de grandes pensadores da história para criar um caminho lógico, prático e rigoroso em direção à verdade.
-
----
-
-**[CÓDIGO 0.3 - Fundamentação Filosófica e Teológica Clássica]**
-
-### Fundamentação Filosófica
-
-## A Consciência Vem Antes da Estrutura Social
-
-A ideia de que precisamos primeiro entender a nossa alma para depois consertar o mundo encontra forte apoio em grandes nomes da filosofia:
-
-* **Platão (*A República*):** Traça um paralelo claro entre a alma humana e a sociedade. Para ele, uma sociedade justa é apenas o reflexo externo de pessoas equilibradas por dentro. A ideia de que o governante precisa primeiro entender o que é o "Bem" para depois organizar as coisas práticas é o pilar da política clássica.
-* **Baruch Spinoza (*Ética*):** Mostra, através de um raciocínio lógico brilhante, que a nossa escravidão nasce da ignorância. Para Spinoza, o que chamamos de "mal" é, na verdade, tudo aquilo que diminui a nossa força de viver. O único caminho para a liberdade real é o entendimento racional de nós mesmos e do mundo.
-
----
-
-## A Origem da Miséria e a Obsessão por Acumular
-
-A visão de que a pobreza é fruto de almas adoecidas e de sistemas invisíveis de dominação ganha força com estes pensadores:
-
-* **Jean-Jacques Rousseau (*Discurso sobre a Origem da Desigualdade*):** Argumenta que a desigualdade não é natural, mas o resultado de uma corrupção humana. Ao darmos mais valor ao "ter" e à "aparência" do que à nossa verdadeira essência, permitimos que estruturas de poder manipulassem a sociedade.
-* **Erich Fromm (*Ter ou Ser?*):** Define a obsessão por "ter" como uma forma de ilusão onde o acúmulo de bens substitui a alegria de viver. Fromm descreve que a atração exagerada pelo controle e pelo dinheiro (que é algo sem vida) é o motor que gera a escravização moderna e esvazia a alma humana.
-
----
-
-## A Evolução Inevitável da Consciência Global
-
-A ideia de que o mundo caminha rumo a um entendimento absoluto e a uma grande transformação combina com a visão de pensadores sobre o curso da história:
-
-* **G.W.F. Hegel (*Fenomenologia do Espírito*):** Defende que a história da humanidade é, na verdade, a mente humana caminhando para o autoconhecimento absoluto. Hegel descreve que a superação dos conflitos ao longo do tempo é um passo necessário para que a humanidade finalmente se reconheça no mundo em que vive, eliminando a sensação de não pertencer a ele.
-* **Gottfried Wilhelm Leibniz (*Monadologia*):** Oferece a base para pensar de forma exata. Ele sugere que o universo possui uma harmonia perfeita e que existe uma razão clara para cada coisa que acontece. Isso nos permite construir um pensamento lógico onde tudo faz sentido e tem um propósito.
-
-## IV. A Doença do Espírito e o Desvio Moral
-
-Sobre o estado de "morte em vida" e a cegueira espiritual daqueles que manipulam o cenário global, buscamos apoio nestas ideias:
-
-* **Santo Agostinho (*O Livre-Arbítrio*):** Define o mal como a simples "ausência do bem". O erro humano não é uma coisa física, mas sim a atitude de virar as costas para o que é eterno e verdadeiro em troca do que é passageiro. O desejo doentio de acumular riquezas é visto como uma fragmentação da alma que afasta o homem da verdade.
-* **Søren Kierkegaard (*O Desespero Humano*):** Explora o que ele chama de "doença até a morte" — um estado de desespero em que a pessoa, embora respire e ande, está morta por dentro, pois perdeu a conexão com o sagrado e com o seu propósito. Esse conceito ajuda a entender que a exploração econômica e a miséria moral são, na raiz, uma doença profunda da alma.
-
----
 
 **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
 *(Nota de arquivo: A terceira linha também dialoga diretamente com o **CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo**).*
@@ -5816,12 +5627,7 @@ O desontista desaba como integrante do contexto social, tem sua vida como expres
 
 ---
 
-**[CÓDIGO 1.1 - Autocausalidade, o Incausado e o Relativo da Alma]**
-*(Nota de arquivo: O desprendimento das camadas biológicas e da autoconservação também dialoga com o **CÓDIGO 1.2**).*
 
-Ao se desprender de suas camadas biológicas, que asseguram o desejo pela autoconservação, o medo da morte, a alma torna-se mais designada aos seus reais sentimentos e intentos.
-
----
 
 **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]**
 *(Nota de arquivo: O gasto de energia para regular a discrepância interior e desabar a responsabilidade sobre o outro também dialoga com o **CÓDIGO 3.4**).*
@@ -5860,29 +5666,6 @@ O desontista precisa constantemente de imagens de si mesmo superiores; acha o su
 
 ---
 
-**[CÓDIGO 1.1 - Autocausalidade, o Incausado e o Relativo da Alma]**
-
-### Autocausalidade e o Ser puro
-
-Ao analisar a autocausalidade, deixamos de olhar o mundo exclusivamente pelos olhos do físico contingente e passamos a explorar aspectos como intencionalidade, liberdade e autodeterminação.
-
-Porém, quando continuamos atribuindo características contingentes àquilo que ainda não foi explicado — especialmente no que diz respeito ao nada —, acabamos explorando um ser no mundo, e não o Ser puro e em si.
-
-Ao atribuir intencionalidade a aspectos que parecem se misturar ou se fundir no Absoluto, como o nada, não encontramos ainda, de maneira suficientemente clara, os fatores propriamente espirituais. A investigação corre o risco de projetar categorias próprias do mundo contingente sobre aquilo que deveria ser compreendido em sua pureza.
-
-### O incausado
-
-Когда nos referimos ao incausado, estamos pensando em algo que não possui impulsos prévios que lhe dêem um ponto de partida para a ação.
-
-O incausado não começa a agir porque algo anterior o impulsionou. Sua ação não depende de um início externo que lhe forneça a razão ou a força para agir.
-
-### A temporalidade autocausal
-
-Podemos pensar em uma circularidade viva, sem começo nem fim, como uma forma de temporalidade autocausal.
-
-Nela, o encontro é sempre o mesmo, mas se estende continuamente em uma linha de atualização. Não há um primeiro momento absoluto nem um momento final: há uma continuidade que deságua constantemente na própria atualidade.
-
-A autocausalidade, nesse sentido, não seria simplesmente uma causa que produziu a si mesma em algum momento inicial. Seria uma atualidade que permanece sendo produzida em si mesma, não dependendo de um começo exterior.
 
 ---
 
