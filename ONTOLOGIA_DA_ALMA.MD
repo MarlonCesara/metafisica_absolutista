@@ -92,7 +92,17 @@ A alma do homem é um sentimento, uma visão, que necessita do teor autocausal; 
 
 ---
 
-## **PARTE IV: O AMOR COMO FORMA, FUNDAMENTO E RELAÇÃO**
+### **O infinito da alma e a infinitude do Ser**
+
+Na esfera almática, isto é, ao comprarmos ao sentimento. O exterior da alma não é o nada, pois o nada não existe para ser exterior. Mas o exterior é o Ser, no sentido de que o infinito particular da alma, se expressa além de si para a infinitude do Ser. Isto é, o Ser é o ato da infinitização, ao passo que a alma é o infinito definito como um. Na esfera sentimental, é o infinito que se apropria de si, ao passo que a infinitude é o infinito que se doa ao todo.
+
+
+### **A alma sem necessidades físicas**
+
+A alma, em seu estado puro, dispensa necessidades físicas, vive portanto, fora da esfera de necessidades. A alma, em uma alegria infinita, sobrevoa os céus, sobrevoa os mares de amor do Espírito, visualiza outras almas com o conhecimento que ela mesmo define dessas almas. A alma, sem angustias, necessidades físicas, encontra seu sentimento de completa liberdade, de completa alegria. É uma sensação de translucidez, uma vivencia num mundo como se fosse um mundo de cristal, onde a esfera sentimental define os aparatos da realidade.
+
+
+## **O AMOR COMO FORMA, FUNDAMENTO E RELAÇÃO**
 
 ### **11. O Amor em Forma e a Participação do "Sou"**
 
@@ -197,7 +207,48 @@ Desta forma, o estado almático da alma *desontista* — como iremos chamar a al
 
 Isso leva a alma ao completo estado de mortidão e apatia, ao completo estado de alienação de si. Seria ao sentimento de "nada", ao sentimento que provoca quase que o objeto almejado.
 
+A alma desontista se lança num apagão de si, numa completa anestesia que se iguala a morte eterna por sua eterna inoperância. É equivalente ao apagar das luzes da alma, a completa frieza, ao constante apagão de si dada a inatividade. A tendencia ao apagão, parece uma ação, no entanto, é a ação que se faz inação. No sentimento sentimental, isto quer dizer que o direcionamento a total apatia é o mesmo que a imobilidade desvelada em ato.
+
+
+
 Há, porém, uma camada intermediária, que é a alma que se faz indiferente, mas tem o tempo do ânimo, no sentido de que, em sua totalidade, pretende se reanimar. Encerra-se, quando desencarna (ou desincorpora), em um estado de esperança da saída de sua apatia. Um estado sujeito à temporalidade do seu espírito. No sentido de que a alma se lança num estado de potencialidade de si.
+
+
+
+
+
+
+
+### **19. A Escolha Morta, a Indiferença e a Alma "Desontista"**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
