@@ -99,7 +99,7 @@ Na esfera almática, isto é, ao comprarmos ao sentimento. O exterior da alma n�
 
 ### **A alma sem necessidades físicas**
 
-A alma, em seu estado puro, dispensa necessidades físicas, vive portanto, fora da esfera de necessidades. A alma, em uma alegria infinita, sobrevoa os céus, sobrevoa os mares de amor do Espírito, visualiza outras almas com o conhecimento que ela mesmo define dessas almas. A alma, sem angustias, necessidades físicas, encontra seu sentimento de completa liberdade, de completa alegria. É uma sensação de translucidez, uma vivencia num mundo como se fosse um mundo de cristal, onde a esfera sentimental define os aparatos da realidade.
+A alma, em seu estado puro, dispensa necessidades físicas, vive portanto, fora da esfera de necessidades. A alma, em uma alegria infinita, sobrevoa os céus, sobrevoa os mares de amor do Espírito, visualiza outras almas com o conhecimento que ela mesmo define dessas almas. A alma, sem angustias, necessidades físicas, encontra seu sentimento de completa liberdade, de completa alegria. É uma sensação de translucidez, uma vivencia num mundo como se fosse um mundo de cristal, onde a esfera sentimental define os aparatos da realidade. A alma navega no Espírito do Ser, na sensação de exterioridade completa, ao passo que é também a sensação de um sentido completo para si, que se esvai em direção ao todo.
 
 
 ## **O AMOR COMO FORMA, FUNDAMENTO E RELAÇÃO**
