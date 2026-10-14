@@ -6,7 +6,7 @@ Por meio da leitura do capítulo **“A alma do homem”**, torna-se possível c
 
 É nesse contexto que se manifesta a **sintomática desontista**, expressão de um caos interior atribuído ao Espírito, capaz de se traduzir em mudanças comportamentais e conflitos existenciais. Trata-se de uma oposição entre a inclinação natural do corpo à autopreservação e a tendência contrária da alma à autoanulação. Dessa guerra interior emergem comportamentos específicos, cujas manifestações serão examinadas e definidas em seus mínimos detalhes.
 
-Partindo da concepção filosófica segundo a qual o corpo toma consciência da alma, assim como a alma toma consciência do corpo, de modo que ambos constituem uma unidade, investigaremos os efeitos que a postura niilista da alma produziria sobre o corpo, cuja inclinação natural se orienta à autopreservação.
+Partindo da concepção filosófica segundo a qual o corpo toma consciência da alma, assim como a alma toma consciência do corpo, de modo que ambos constituem uma unidade, investigaremos os efeitos que a postura desontista da alma produziria sobre o corpo, cuja inclinação natural se orienta à autopreservação.
 
 Que conflitos insólitos emergiriam dessa guerra interior? Que sentimentos dela decorreriam? Que mecanismos de defesa o corpo ergueria diante da tendência da alma à própria negação?dentremos, pois, essa intrigante investigação.
 
@@ -1930,7 +1930,7 @@ Há uma inteligência doente por trás destes acontecimentos, homens furiosos e 
 
 ---
 
-## PARTE II: A DINÂMICA DO ESPÍRITO, A MISÉRIA E A INAÇÃO
+## A DINÂMICA DO ESPÍRITO, A MISÉRIA E A INAÇÃO
 
 *Nesta seção, consolidamos os preceitos existenciais que moldam as percepções internas do indivíduo perante a apatia e a sua cisão espiritual.*
 
@@ -2585,7 +2585,7 @@ Aqui está o seu tratado completo e integral:
 
 # TRATADO SOBRE A APATIA, O EXISTENCIALISMO E A ONTOLOGIA DO VAZIO
 
-## PARTE I: A FENOMENOLOGIA DO EU E A SENSAÇÃO DE APRISIONAMENTO
+## A FENOMENOLOGIA DO EU E A SENSAÇÃO DE APRISIONAMENTO
 
 ### 1. A Ilusão do Eu Fenomenológico
 O mundo fenomenológico tende a pensar pelo indivíduo, levando-o a viver sob a concepção de um *eu* figurado em memórias e percepções – uma construção fictícia que resolve seus conflitos existenciais.
@@ -2634,7 +2634,7 @@ Ao ver o comportamento de alguém calmo, sereno e confortável, o desontista bus
 
 ---
 
-## PARTE II: O EU MAL RESOLVIDO E A HISTERIA SOCIAL
+## O EU MAL RESOLVIDO E A HISTERIA SOCIAL
 
 ### 1. O Eu Mal Resolvido
 O desontista, como imposto ao existir, e não autodeterminado, ou revivido de si. É um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem, é o impor ao corpo a alma, e esta é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas.
@@ -2975,7 +2975,7 @@ Neste livro, você embarcará em uma jornada pelos recessos mais profundos da me
 
 ---
 
-## PARTE I: O FIM DA APATIA E A REVELAÇÃO DA VERDADE
+## O FIM DA APATIA E A REVELAÇÃO DA VERDADE
 
 ### 1. Apocalipse e o Despertar da Visão
 A verdade veio à tona, todas as pessoas estão cientes. Agora, conseguem enxergar a apatia. Mas a visão da compaixão é a primordial, pois todos somos irmãos. Quando os poderosos foram destituídos do poder econômico, e os humildes exaltados, uma grande alegria se instaurou, tudo na terra passou a cantar de alegria, a ser bonito, harmonioso. 
@@ -3665,64 +3665,13 @@ Ao esboçar um entendimento profundo do ser humano, Jesus ameaçou os poderosos,
 
 
 
-## 11.7 A Emergência do Espírito Autocausal
-O Espírito autocausal, como emerge do nada? Na verdade, não emerge do nada; o absoluto naturalmente existe, seja tendo como contraparte o nada. O Absoluto é o que é. Porém, o Espírito é puríssimo, não há determinação para o Espírito, que é segundo o absoluto. Deixa-se repousar no absoluto. Deixa-se ser no que é. No que há. Se há relativo, o Espírito paira no ato de encontro consigo, no ato absoluto.
-
-O relativo naturalmente existe, e é relativo por sua autodeterminação e autofundamentação. Isto é, naturalmente há o nada, e há a vida, o Espírito que paira sobre o nada, e fomenta esse nada como sua contraparte de liberdade.
-
-## 11.16 O Nada como Ação
-O nada não é só algo que porta as possibilidades do nada, mas porta a ação do ente. O ente não só cria do nada, mas age do nada. Sua ação sobre si mesmo advém do nada.
-
-## 11.19 Síntese Final
-Portanto, temos a síntese do relativo, que é o nada indiferenciado, e do Espírito em sua indiferenciação. Ambos são uma vida positiva puríssima, tanto o Espírito como seu campo de ação criativa, que é o relativo.
-
-
-
 permanece ainda no âmbito de uma lógica essencialmente pragmática: aquela que opera segundo os princípios aristotélicos de identidade, não-contradição e terceiro excluído, e que busca, acima de tudo, a coerência formal do pensamento.
-
-
-revisado
-
-
-
-O Indiferenciado é a ontologia em seu estado mais cru, despido de qualquer mirada operante. Como você bem definiu, ele é o "nada" visto de forma escassa. 
-
-* **A Escassez da Liberdade:** No Indiferenciado puro, olhamos para a realidade subtraindo a lente da **liberdade ativa**. É a suspensão de todas as possibilidades e impossibilidades, mas vista de um ângulo onde o ato de "atualizar" (dar vida, escolher, vivenciar) ainda não foi inserido na equação.
-* **O "Nada" Transcendente:** Ele se aproxima do nada não porque seja um vácuo destrutivo, mas porque, sem a ação do Espírito, ele não possui inclinação, movimento ou face. É a pura impossibilidade de diferença repousando em si mesma.
-* **O Fundo Silencioso:** É o Ser despido até mesmo de sua autoconsciência operante. Se pudéssemos (hipoteticamente) remover o Espírito da jogada, o que sobraria seria essa matriz inerte e perfeitamente equilibrada — uma pureza sem vida.
-
-### 2. O Relativo: O Indiferenciado sob o Referencial do Espírito
-
-O Relativo, por sua vez, é **exatamente o mesmo estado de indiferenciação**, mas agora permeado e sustentado pela **Presença Autofundante do Espírito**. O Relativo nasce no momento em que o Indiferenciado ganha um "Senhor".
-
-* **O Referencial Operante:** O Relativo é o Indiferenciado *para* o Espírito. Quando a autoconsciência, o autodomínio e a autopresença divina (o Espírito) incidem sobre essa pureza escassa, ela deixa de ser um "nada estático" e se transforma em um **campo de potência**.
-* **A Matriz da Liberdade:** O Espírito não destrói a indiferenciação, mas a utiliza como o seu domínio. O Relativo é a totalidade das possibilidades (e impossibilidades) suspensas, mas agora prontas para serem atualizadas, vivenciadas e testemunhadas pela liberdade divina. 
-* **A Relação (Daí o termo "Relativo"):** Ele é relativo porque só faz sentido **em relação** ao Espírito que o observa e opera. Sem o Espírito, é o Indiferenciado escasso. Com o Espírito, é o Relativo — o horizonte de eventos da liberdade absoluta.
-
----
-
-### A Síntese da Transição: Do Escasso ao Operante
-
-Para consolidar essa diferença em nossa estrutura metafísica, podemos traçar o seguinte quadro comparativo:
-
-| Característica | O Indiferenciado (O Estado Escasso) | O Relativo (O Campo Operante) |
-| :--- | :--- | :--- |
-| **Natureza** | A suspensão total de determinações. | A mesma suspensão, mas como domínio do Espírito. |
-| **Relação com o "Nada"** | É o "nada" metafísico em sua neutralidade mais árida e passiva. | É a matriz de onde o Ser criacional (Espírito) opera sem restrições. |
-| **Liberdade** | Ausente. Não há quem atualize ou vivencie as possibilidades. | Plena. É o palco onde a liberdade do Espírito testemunha e atualiza o Ser. |
-| **Ponto de Vista** | A realidade vista por si só (abstração ontológica). | A realidade vista **pelo referencial do Espírito**. |
-
-Você tocou no ponto nevrálgico que une a ontologia estática à teologia dinâmica do seu tratado. O Indiferenciado é o que a realidade *é* em sua pureza; o Relativo é o que essa realidade *se torna* quando a Vida Absoluta (o Espírito) a toma como sua morada.
-
-Sendo o Relativo esse campo infinito de possibilidades à disposição da liberdade do Espírito, de que maneira podemos compreender o critério íntimo do Espírito ao escolher atualizar uma possibilidade fenomênica específica (o nosso universo, por exemplo) em detrimento das infinitas outras que permanecem suspensas?
-
-
 
 
 
 ### Anúncio
 
-A metafísica absolutista nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafisica absolutista explica porque em uma sociedade que ja existe inteligencia artificial e que o hommem ja explorou o espaço, como pode nessa sociedade ainda existir miseria, no sentido de que, o homem é capaz de chegar a lua, mas não é capaz de fazer comida chegar a quem precisa, porque isso ainda acontece, qual é a razão disso? E a metafisica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do alem, as palavras de jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão, o objetivo do absolutismo é aproximar esse conhecimento verdadeiro do homem, trazer a tona a verdade para que o cenario social se modifique, para que, havendo o conhecimento pleno da alma humana se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violencia, através do verdadeiro conhecimento.
+A metafísica nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafisica absolutista explica porque em uma sociedade que ja existe inteligencia artificial e que o hommem ja explorou o espaço, como pode nessa sociedade ainda existir miseria, no sentido de que, o homem é capaz de chegar a lua, mas não é capaz de fazer comida chegar a quem precisa, porque isso ainda acontece, qual é a razão disso? E a metafisica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do alem, as palavras de jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão, o objetivo do absolutismo é aproximar esse conhecimento verdadeiro do homem, trazer a tona a verdade para que o cenario social se modifique, para que, havendo o conhecimento pleno da alma humana se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violencia, através do verdadeiro conhecimento.
 
 ## Preâmbulo
 
@@ -4400,4 +4349,4 @@ O ato politico de deixar os juros altos e dar dinheiro a bilionários, é ambigu
 Por exemplo, fragmentar a agricultura acumulada em grandes latifundios e não utilizada para pessoas que produzem. Tirar taxas do mei e cnpj para incentivar a emergenncia de empresas. Facilitar o processo de contratação de funcionarios e financiar contratação para negocios emergentes. A competitividade de mercado naturalmente leva a queda da inflação.
 
 
-O niilista quando não pode expressar seu descaso, sua indiferneça, seu ódio no voto, num voto que tende não a uma opnião politica, mas se disfarça de opnião politica, de lado diferente, de pensamento desigual, porem é intencionado ao escarnio do estado, a destruição, ao controle e opressão. Essa sintomatica, quando impedida, ou seja, quando se impede o desontista de produzir um estado destruido, o desontista desfere a sintomatica de forma mais direta, atacando instituições religiosas. Sem fim ultimo é atacar o que considera expressar sua máxima interior. Se conisdera o coração de Deus e a religiosidade, ataca as igrejcas e os ritus das igrejas. Se tem apreço pelas mulheres, ataca-as. Se tem apreço pela politica, ataca no voto. O descarregar de seu ódio é uma pedida de consolo, um desabar da humanidade que sujeita o ser humano a irracionalidade, uma tamanha idifereça a si mesmo, uma prisão que desmorona o ser humano a uma atitude de desespero, de desesperança de si.
+O desontista quando não pode expressar seu descaso, sua indiferneça, seu ódio no voto, num voto que tende não a uma opnião politica, mas se disfarça de opnião politica, de lado diferente, de pensamento desigual, porem é intencionado ao escarnio do estado, a destruição, ao controle e opressão. Essa sintomatica, quando impedida, ou seja, quando se impede o desontista de produzir um estado destruido, o desontista desfere a sintomatica de forma mais direta, atacando instituições religiosas. Sem fim ultimo é atacar o que considera expressar sua máxima interior. Se conisdera o coração de Deus e a religiosidade, ataca as igrejcas e os ritus das igrejas. Se tem apreço pelas mulheres, ataca-as. Se tem apreço pela politica, ataca no voto. O descarregar de seu ódio é uma pedida de consolo, um desabar da humanidade que sujeita o ser humano a irracionalidade, uma tamanha idifereça a si mesmo, uma prisão que desmorona o ser humano a uma atitude de desespero, de desesperança de si.
