@@ -2059,130 +2059,155 @@ O desontismo é o orgulho em seu ápice, o ódio que foi tamanho que se calou e 
 
 ---
 
+### **[CÓDIGO 2.1 - A Guerra Civil Interior e os Anticorpos Emocionais]** *(Nota: Ambas as subseções abaixo também dialogam diretamente com o Código 2.7 sobre a busca por ilusões, entorpecimento e a onda de abstinência)*
 
+### **O desespero e o náufrago desontista**
 
+Na náusea corpórea de não poder fugir da própria mente, de não poder escapar dos próprios pensamentos, de estar em um cárcere mental e sem janelas, o corpo sente-se prisioneiro de uma mente pessimista.
 
+A mente do desontismo soa como uma prisão sem sol; quando o desontista se cansa, quando sua sintomática já não resolve, quando sua consciência o arremessa contra sua cruel posição inerte, o corpo reage com uma náusea, um cansaço extremo, uma tentativa de fuga inevitável, e nisso o desontista recorre a saídas fantasiosas, a ilusões, procura matar, roubar, fraudar, àquilo que lhe parece uma saída de sua mente entorpecida, de sua mente pessimista.
 
+O desontista se sente numa cabine apertada dentro de sua mente; não pode escapar dessa cabine senão pelas brechas das ilusões. O corpo reage em uma grande violência interior em sinal da busca das ilusões, sejam elas atitudes fortes ou mais aceitáveis socialmente. Isto é o desontista mostrando a falta de visão de janelas, o abafamento de sua própria mente; as ilusões são seu arejar, são uma vista para fora, ainda que fantasiosa.
 
+O corpo do desontista é uma bomba que implode em si, que se autoengana e se autodestrói para fugir do desespero da claustrofobia. Para fugir de um aperto constante de pensar o que pensa. De um coração a todo tempo apertado, temeroso e inseguro.
 
+Num ato de tentativa de escape, o desontista mata, pratica qualquer crime em busca de riqueza. E o desespero é imparável, só se acalenta entorpecido. Se não pode se entorpecer, busca ilusões.
 
-Corrigir abaixo
+Há duas frestas que aparentam passar um pouco de luz: o completo entorpecimento ou a ilusão.
 
+O desontista clama pela luz, pela luz que transgrida a barreira espessa de sua mente, pela chave que decodifique seu coração indecifrável, pela luz que penetre em sua fortaleza; o desontista necessita clamar, necessita da misericórdia de Deus.
 
-### **O desespero e o naufrago desontista**
+Necessita da sensação de liberdade, de sorrir, de parar de depositar seu peso no mundo. De tornar-se suportável para si mesmo.
 
-Na nausea corporea de não poder fugir da própria mente, de não poder escapar dos próprios pensamentos, de estar em um carcere mental e sem janelas. O corpo, sente-se prisioneiro de uma mente pessimista.
+O desontista reflete consigo mesmo, se pudesse descrever exatamente o que sente, ao assumir para si mesmo sua prisão:
 
-A mente do desontismo soa como uma prisão sem sol, quando o desontista se cansa, quando sua sintomática já não resolve, quando sua consciencia o arremessa contra sua cruel posição inerte, o corpo, reage com uma nausea, um cansaço extremo, uma tentativa de fuga inevitavel e nisso o desontista recorre a saídas fantasiosas, a ilusões, procura matar, roubar, fraudar, aquilo que lhe parece uma saída de sua mente entorpecida, de sua mente pessimista. 
-
-O desontista se sente numa cabine apertada dentro de sua mente, não pode escapar dessa cabine se não pelas brechas das ilusões, o corpo reage em uma grande violencia interior em sinal da busca das ilusões, seja ela atitudes fortes ou mais aceitáveis socialmente. Isto é o desontista mostrando a falta de visão de janelas, o abafamento de sua própria mente, as ilusões são seu arejar, são uma vista para fora ainda que fantasiosa. 
-
-O corpo do desontista é uma bomba que implode em si, que se auto engana e se auto distroi para fugir do desespero da caustrofobia. Para fugir de um aperto constante de pensar o que pensa. De um coração a todo tempo apertado, temeroso e inseguro.
-
-Num ato de tentativa de descape o desontista mata, pratica qualquer crime em busca de riqueza. E o desespero é imparavel, só se acalenta intorpecido. Se não pode se intorpecer, busca ilusões.
-
-Há duas frestas que aparentam passar um pouco de luz, o completo entorpecimento ou a ilusão. 
-
-O desontista clama pela luz, pela luz que transgrita a barreira espessa de sua mente, pela chave que decodifique seu coração indecifravel, pela luz que penetre em sua forteleza, o desontista necessita clamar, necessita da misericordia de Deus.
-
-Necessita da sensação de liberdade, de sorrir, de parar de depositar seu peso no mundo. De tornar-se suportavel para si mesmo. 
-
-O desontista reflete consigo mesmo, se pudesse descrever rexatamente o que sente, de assumir para si mesmo sua prisão:
-
-- Procuro a chave que me destranca. Procuro um pouco de luz. Faz tanto tempo que não vejo a luz, que a projeto, que em um delirio de loucura penso ser livre do que me amedronta, vivo dos pequenos momentos de euforia onde me imagino livre. Se não me entorpeco, se não me deleito em ilusões, não sou eu, não pertenco a nada, não vivo. 
+— Procuro a chave que me destranca. Procuro um pouco de luz. Faz tanto tempo que não vejo a luz, que a projeto, que em um delírio de loucura penso ser livre do que me amedronta; vivo dos pequenos momentos de euforia onde me imagino livre. Se não me entorpeço, se não me deleito em ilusões, não sou eu, não pertenço a nada, não vivo.
 
 ### **A onda espasmódica do desespero**
 
-Num confinamento o indiduo tem seu escapes, porém, no acumulo do desespero, quando a consciencia se cansa de procurar ilusões e escapismos, há um cansaço que pode provocar ações irremediaveis. Um individuo desontista com escassez de recursos para manter sua sanidade, tais como acesso a lazer, vicios, médico, por vezes, pode se ver trancafiado em si por tanto tempo que toma ações irracionais a procura de uma fresta arejada em sua mente. 
+Num confinamento, o indivíduo tem seus escapes; porém, no acúmulo do desespero, quando a consciência se cansa de procurar ilusões e escapismos, há um cansaço que pode provocar ações irremediáveis. Um indivíduo desontista com escassez de recursos para manter sua sanidade, tais como acesso a lazer, vícios, médico, por vezes pode se ver trancafiado em si por tanto tempo que toma ações irracionais à procura de uma fresta arejada em sua mente.
 
-Se o individuo nao possui ilusões que o sustentem, dinheiro para vícios, ou qualquer subterfugio legal para seu pensamento, uma atitude desesperada pelo acumulo de tensão pode faze-lo ir para o crime ou tomar ações desesperdas, como assassinato ou qualquer tipo de ação que para o individuo o desse um alívio rapido do longo tempo de tensão que esta tentando controlar e manusear sem sucesso. 
+Se o indivíduo não possui ilusões que o sustentem, dinheiro para vícios, ou qualquer subterfúgio legal para seu pensamento, uma atitude desesperada pelo acúmulo de tensão pode fazê-lo ir para o crime ou tomar ações desesperadas, como assassinato ou qualquer tipo de ação que para o indivíduo lhe desse um alívio rápido do longo tempo de tensão que está tentando controlar e manusear sem sucesso.
 
-Funciona como um sintoma de abstinencia que se aflora na ausencia de qualquer alivio, ilusão ou entorpecimento da consciencia. É o desontismo manifestado de forma espasmodica, como uma reação imediativa do corpo comos e quisesse escapar de uma prisão na qual se confina desesperado.
+Funciona como um sintoma de abstinência que aflora na ausência de qualquer alívio, ilusão ou entorpecimento da consciência. É o desontismo manifestado de forma espasmódica, como uma reação imediata do corpo, como se quisesse escapar de uma prisão na qual se confina desesperado.
 
+---
 
-
+### **[CÓDIGO 6.2 - Alegorias Morais e Cenas Hipotéticas]**
 
 ### **A falsa doutrina da eufemização do desontismo**
 
-O desontista entrou no vale, e lá havia uma senhora de cabelos grisalhos, olhar pérfido, grande escarnio e ao mesmo tempo um grande zelar. A criança entrou pela porta da casa dela, e ela preparou uma solução venenosa, agasalhou bem o pés da criança, e cantou um canto, como se a escuridão a acolhesse. A solução não fazia dormir, mas se direcionava ao coração, fazendo com que ele se partisse, mas não uma partição de dor, mas uma fragmentação do eu. O veneno percorria o corpo, sedava, e depois percorria as veias diretamente ao coração.
+O desontista entrou no vale, e lá havia uma senhora de cabelos grisalhos, olhar pérfido, grande escárnio e ao mesmo tempo um grande zelar. A criança entrou pela porta da casa dela, e ela preparou uma solução venenosa, agasalhou bem os pés da criança, e cantou um canto, como se a escuridão a acolhesse. A solução não fazia dormir, mas se direcionava ao coração, fazendo com que ele se partisse, mas não uma partição de dor, e sim uma fragmentação do eu. O veneno percorria o corpo, sedava, e depois percorria as veias diretamente ao coração.
 
-A bruxa tinha ar de bondade, um sutil acolhimento, a mentira fatal, a mentira de que a morte é o esquecimento do ódio, do orgulho. A mentira que a morte é um remédio comum, sutil e pequeno, que basta algumas gotinhas daquele licor, que tudo seria apagado. A bruxa era a morte, e a morte se faz de bondosa, se disfarça de acolhedora, tenta amenizar seus efeitos, tenta se passar por correta, tenta se disfarçar de solução, mas não, para o coração que vive não faz sentido, e nunca fará. A morte não é solução alguma, é o apagão de toda a esperança.
+A bruxa tinha ar de bondade, um sutil acolhimento, a mentira fatal, a mentira de que a morte é o esquecimento do ódio, do orgulho. A mentira de que a morte é um remédio comum, sutil e pequeno, que bastam algumas gotinhas daquele licor para que tudo seja apagado. A bruxa era a morte, e a morte se faz de bondosa, se disfarça de acolhedora, tenta amenizar seus efeitos, tenta se passar por correta, tenta se disfarçar de solução, mas não: para o coração que vive não faz sentido, e nunca fará. A morte não é solução alguma, é o apagão de toda a esperança.
 
-A bruxa derradeira espera na mata um desavisado, alguém que nunca ouvira um conselho, que nunca tenha feito uma prece, alguém sem amparo algum, jogado a própria sorte do desconhecimento da verdade, alguém que só escutou o ódio e não teve qualquer outra referencia. Alguém que queira acreditar em seu acalento, em seu carinho disfarçado de um ódio aterrador. No sono da morte que se passa por descanso, mas que é na verdade o terror, pois nem mesmo é sono, mas é a morte dos desejos.
+A bruxa derradeira espera na mata um desavisado, alguém que nunca ouvira um conselho, que nunca tenha feito uma prece, alguém sem amparo algum, jogado à própria sorte do desconhecimento da verdade, alguém que só escutou o ódio e não teve qualquer outra referência. Alguém que queira acreditar em seu acalento, em seu carinho disfarçado de um ódio aterrador. No sono da morte que se passa por descanso, mas que é na verdade o terror, pois nem mesmo é sono, mas é a morte dos desejos.
 
-O dialogo em que afirma que a decisão é natural ao homem, portanto qualquer consequencia da liberdade é feliz, em vista que, o homem foi livre para decidir, é apenas uma paificação falsa de um destino aterrador. O dialogo que afirma que o individuo ao encontrar sua auto destruição encontrou sua paz, pois assim decidiu, não está de acordo com a compaixão e com as profundas aspirações do coração humano.
+O diálogo que afirma que a decisão é natural ao homem — portanto, qualquer consequência da liberdade é feliz, em vista de que o homem foi livre para decidir — é apenas uma pacificação falsa de um destino aterrador. O diálogo que afirma que o indivíduo, ao encontrar sua autodestruição, encontrou sua paz, pois assim decidiu, não está de acordo com a compaixão e com as profundas aspirações do coração humano.
 
-Portanto, o dialogo, do desontismo, por vezes, vem mascarado de uma falsa conformidade, de uma mentira aparentemente calorosa de que assim se quis e assim se fez, um dialogo sem esperança.
+Portanto, o diálogo do desontismo, por vezes, vem mascarado de uma falsa conformidade, de uma mentira aparentemente calorosa de que assim se quis e assim se fez, um diálogo sem esperança.
 
-A bruxa é a eufemização do desontismo que passa por uma escolha natural da liberdade e que termina feliz, pois foi da escolha do individuo. 
+A bruxa é a eufemização do desontismo que se passa por uma escolha natural da liberdade e que termina feliz, pois foi da escolha do indivíduo.
 
-### **A perca do auto valor desontista**
+---
+
+### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]** *(Nota: Também dialoga com o Código 1.5 sobre o descarte adiado e a perda do autovalor)*
+
+### **A perda do autovalor desontista**
 
 Quando o indivíduo desontista percebe-se sem acreditar na própria liberdade, simula para si que as pessoas que acreditam em liberdade são mágicas, interpretando Jesus como um herói para quem não enxerga sentido na própria existência.
 
-Essa visão desontista destitui o indivíduo de todo seu auto valor, tornando-o um descarte adiado, mas já considerado morto pelo próprio indivíduo. Portanto, a busca pelo mérito, pelo auto valor e pelos bens materiais se torna uma obsessão, de forma que o indivíduo possa conferir algum valor, mérito e celebração ao seu curto período de existência, como assim interpreta que será breve.
+Essa visão desontista destitui o indivíduo de todo seu autovalor, tornando-o um descarte adiado, mas já considerado morto pelo próprio indivíduo. Portanto, a busca pelo mérito, pelo autovalor e pelos bens materiais se torna uma obsessão, de forma que o indivíduo possa conferir algum valor, mérito e celebração ao seu curto período de existência, como assim interpreta que será breve.
 
-Portanto, o indivíduo, ainda que não tenha um nível de cultura suficiente para tirar proveito de uma grande quantia de dinheiro, e ainda que o objeto de desejo que trará o dinheiro não seja de seu interesse, busca incessantemente a perda do auto valor que o dinheiro pode conceder a ele.
+Portanto, o indivíduo, ainda que não tenha um nível de cultura suficiente para tirar proveito de uma grande quantia de dinheiro, e ainda que o objeto de desejo que trará o dinheiro não seja de seu interesse, busca incessantemente compensar a perda do autovalor com o que o dinheiro pode conceder a ele.
 
-Portanto, o indivíduo luta e busca pelo dinheiro com a mesma garra e intensidade que faria para proteger sua vida, não importando-se nem mesmo com a própria sobrevivência. A obsessão, sendo cessada na dificuldade do indivíduo de encontrar alívio para sua perda do auto valor, leva o indivíduo a usar mecanismos como o abuso de drogas, visões artificiais que lhe conferem alívio semelhante ao que a posse material lhe proporcionaria.
+Portanto, o indivíduo luta e busca pelo dinheiro com a mesma garra e intensidade que faria para proteger sua vida, não se importando nem mesmo com a própria sobrevivência. A obsessão, sendo cessada na dificuldade do indivíduo de encontrar alívio para sua perda do autovalor, leva o indivíduo a usar mecanismos como o abuso de drogas, visões artificiais que lhe conferem alívio semelhante ao que a posse material lhe proporcionaria.
+
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]** *(Nota: O bloco de citação abaixo também dialoga diretamente com o Código 7.4 sobre a identificação e reação contra os bilionários)*
 
 ### **O desassossego desontista**
 
 O desontista tenta ironizar a liberdade, referindo-se a um corpo livre como um corpo mágico. Ironiza figuras religiosas, interpretando-as como eventos históricos. Ao visualizar a paz do outro, tenta tirá-la, pois associa a paz do outro a uma contravenção ao seu desespero. Vê a discrepância do outro com seu próprio estado emocional.
 
-> Quando o povo passa a reconhecer que a fome, miséria, contravenções políticas, manipulação midiática, manipulação de guerra, desvios de dinheiro estão associados ao poderio de quem tem um grande capital acumulado e usa isso como sintomática e estratégia de crescimento empresarial, então o povo vai passar a procurar entre bilionários a sintomática. E, de forma ou de outra, pressões políticas, civis e militantes vão reagir sobre essas determinadas pessoas, uma vez conhecido seu real propósito e motivação. A humanidade até então não entende a raiz da perversidade e quais são suas formas de expressão últimas. Uma vez compreendidos, os alvos das calamidades são identificados e podem ser freados, e finalmente a paz contínua será instaurada.
+> Quando o povo passa a reconhecer que a fome, miséria, contravenções políticas, manipulação midiática, manipulação de guerra e desvios de dinheiro estão associados ao poderio de quem tem um grande capital acumulado e usa isso como sintomática e estratégia de crescimento empresarial, então o povo vai passar a procurar entre bilionários a sintomática. E, de uma forma ou de outra, pressões políticas, civis e militantes vão reagir sobre essas determinadas pessoas, uma vez conhecido seu real propósito e motivação. A humanidade até então não entende a raiz da perversidade e quais são suas formas de expressão últimas. Uma vez compreendidos, os alvos das calamidades são identificados e podem ser freados, e finalmente a paz contínua será instaurada.
+
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]** *(Nota: O segundo parágrafo também dialoga com o Código 2.5 sobre imitar uma criança)*
 
 ### **Despersonalização, Apropriação e Busca de Identidade**
 
-O desontista entra num estado de despersonalização e apatia, negando propriedades de sua perdoabilidade. O desontista insistentemente quer a resposta e confunde essa resposta com os dons pessoais das pessoas. Se vê pessoas muito simples, quer a simplicidade a todo custo. Se vê pessoas inteligentes, quer a inteligência. Se vê pessoas ricas, quer a riqueza. Se vê pessoas eruditas, quer a erudição. Se vê um amor verdadeiro, quer esse amor. Se vê a felicidade em filhos, mudar de cidade, obtenção de bens, etc. Pois esses traços pessoais ou posses associados ao bem-estar do indivíduo dão a impressão para o desontista que ele terá sua cura obtendo esses trejeitos ou dons pessoais.
+O desontista entra num estado de despersonalização e apatia, negando propriedades de sua perdoabilidade. O desontista insistentemente quer a resposta e confunde essa resposta com os dons pessoais das pessoas. Se vê pessoas muito simples, quer a simplicidade a todo custo. Se vê pessoas inteligentes, quer a inteligência. Se vê pessoas ricas, quer a riqueza. Se vê pessoas eruditas, quer a erudição. Se vê um amor verdadeiro, quer esse amor. Se vê a felicidade em filhos, mudar de cidade, obtenção de bens, etc. Pois esses traços pessoais ou posses associados ao bem-estar do indivíduo dão a impressão para o desontista de que ele terá sua cura obtendo esses trejeitos ou dons pessoais.
 
 O desontista passa a imitar uma criança, a imitar uma alegria tola que julga ser a felicidade em si. Passa a tentar visualizar o mundo com simplicidade, simulando um pensamento positivo e uma alegria sem o conflito do pensamento que carrega, que atenta contra sua plenitude.
 
-O desontista tenta até mesmo aproximar seu intuito do ódio, pois o ódio é um objetivo em vida, arquiteta vinganças, perseguições, como se essas e o descarregar de seu ódio dessem a solução para seu desontismo. No entanto, o ato que o encheu da postura desontista não se resolve com a descarga de ódio, pois a descarga de ódio tem fim numa ação, não na finitude do ente. Então o desontista tenta aproximar sua postura de um deslize comportamental ou um defeito de ira na tentativa de racionalizar sua postura e mudá-la.
+O desontista tenta até mesmo aproximar seu intuito do ódio, pois o ódio é um objetivo em vida; arquiteta vinganças, perseguições, como se essas e o descarregar de seu ódio dessem a solução para seu desontismo. No entanto, o ato que o encheu da postura desontista não se resolve com a descarga de ódio, pois a descarga de ódio tem fim numa ação, não na finitude do ente. Então o desontista tenta aproximar sua postura de um deslize comportamental ou um defeito de ira na tentativa de racionalizar sua postura e mudá-la.
+
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]**
 
 ### **Expressão Catastrófica e Contágio Emocional**
 
-O desontista tenta expressar seu intuito passando aos outros imagens catastróficas, acontecimentos ruins, remontando imagens de um mal futuro na vida das pessoas, como expressão do que está sentindo, como expressão catastrófica de seu destino. E a convivência com esse tipo de comportamento pode ocasionar depressão, pois exorta na mente mensagens limitantes. Também o faz pela aceitação alheia ao seu estado, de forma que tente espelhar a indiferença, tentando fazer o outro sentir o que ele sente ao ver o que julga como indiferença. O outro conformado com seu destino, sem que se atenha apavoradamente a isso.
+O desontista tenta expressar seu intuito passando aos outros imagens catastróficas, acontecimentos ruins, remontando imagens de um mal futuro na vida das pessoas, como expressão do que está sentindo, como expressão catastrófica de seu destino. E a convivência com esse tipo de comportamento pode ocasionar depressão, pois exorta na mente mensagens limitantes. Também o faz pela aceitação alheia ao seu estado, de forma que tente espelhar a indiferença, tentando fazer o outro sentir o que ele sente ao ver o que julga como indiferença: o outro conformado com seu destino, sem que se atenha apavoradamente a isso.
 
 Quando o desontista possui uma pessoa que absorve sua expressão, o desontista pode até mesmo desenvolver uma convivência natural com outras pessoas. Porém, quando o desontista perde sua base de expressão, pode recorrer a outras pessoas para tal. Quando não há ninguém para que se expresse, pode recorrer a vícios para aliviar sua consciência do seu conteúdo.
 
 O desontista tende a querer obter muitos bens para “remunerar” os indivíduos com o intuito de poder se expressar neles, como se usasse os recursos financeiros para amortecer o peso do desontismo sobre si. Ao passo que pode usar de outros meios também. E isso o salva de precisar estar inconsciente de seu estado.
 
-### **desontismo, Vingança e Autodestruição**
+---
 
-O desontismo é diferente até mesmo da vingança. Pois a vingança é querer mudar algo que está em vida, e o desontista quer matar a si mesmo. O desontista não está vingando exatamente, como se tivesse um objetivo para com a vida, para finalizar na vida, mas está espelhando o sofrimento; seu ódio ultrapassou o sentimento de vingança e findou na sua autodestruição. O desontista já não se direciona a algo que está na vida, mas tem como único descarregar de sua ira a completa inação, a chegada ao seu findar, no qual nem mesmo a vingança exercerá, de forma que nem mesmo presenciará quem será atingido pela sua ira.
+### **[CÓDIGO 2.2 - Distinção Clínica e Espiritual: Desontismo vs. Depressão vs. Obsessão]** *(Nota: Também dialoga com o Código 1.3 sobre a inação e autodestruição versus a vingança ativa)*
+
+### **Desontismo, Vingança e Autodestruição**
+
+O desontismo é diferente até mesmo da vingança. Pois a vingança é querer mudar algo que está em vida, e o desontista quer matar a si mesmo. O desontista não está se vingando exatamente, como se tivesse um objetivo para com a vida, para finalizar na vida, mas está espelhando o sofrimento; seu ódio ultrapassou o sentimento de vingança e findou na sua autodestruição. O desontista já não se direciona a algo que está na vida, mas tem como único descarregar de sua ira a completa inação, a chegada ao seu findar, no qual nem mesmo a vingança exercerá, de forma que nem mesmo presenciará quem será atingido pela sua ira.
 
 O desontista tenta se expressar como se nunca pudesse mais encontrar o seu amor.
 
 O desontista em Adão e Eva se expressou de forma a provocar a morte.
 
-### **Diálogo Imaginário entre o desontista e o Indivíduo Não desontista**
+---
+
+### **[CÓDIGO 6.1 - Poesias e Confissões Íntimas do Desontista]**
+
+### **Diálogo Imaginário entre o Desontista e o Indivíduo Não Desontista**
 
 — Vejo teu sossego, sua paz, como se nada estivesse acontecendo, mas eu não estou bem.
 
-— Se és desontista, nada posso fazer, foi o que escolheste, não foi? Ou alguém te obrigou a tal? Se tem tanto ódio, lança-te no inferno e me deixa em paz, eu viverei sem tu.
+— Se és desontista, nada posso fazer; foi o que escolheste, não foi? Ou alguém te obrigou a tal? Se tens tanto ódio, lança-te no inferno e me deixa em paz, eu viverei sem ti.
 
-— Você não pode falar desta forma comigo, sem nenhuma compaixão, necessita fazer de tudo para que eu mude de ideia.
+— Você não pode falar desta forma comigo, sem nenhuma compaixão; necessita fazer de tudo para que eu mude de ideia.
 
 — Mas por que eu o faria, se é você que quer? A mesma liberdade que eu tenho você tem. Se queres isso, então o faça, pois é de sua liberdade e é seu dom ser livre.
 
 — Pois bem, farei o que você quer, tentarei te ensinar a parar com esse seu pensamento.
 
-— Admiro sua tentativa, mas, mesmo assim, pode não ser eficaz. Preciso apenas mostrar o que eu sinto. Se fora eu que escolhi, então não te responsabilizarei, mas não quero sofrer, preciso de você para me sentir melhor e para sobreviver o tempo necessário até meu findar.
+— Admiro sua tentativa, mas, mesmo assim, pode não ser eficaz. Preciso apenas mostrar o que eu sinto. Se fui eu que escolhi, então não te responsabilizarei, mas não quero sofrer; preciso de você para me sentir melhor e para sobreviver o tempo necessário até meu findar.
+
+---
+
+### **[CÓDIGO 5.1 - O Limiar Político: A Direita e o Elitismo de Classe Média]**
 
 ### **A tentativa do desontista de destruir o paraíso**
 
-A tentativa de abalar o status quo do mundo, de produzir um anti-paraíso, é evidenciada na direita política, que não quer propriamente se elevar acima dos demais, mas também quer destruir a sociedade. Corromper o paraíso de que muitos participaram, mas o indivíduo quer renunciar. Os políticos, líderes, precisam sempre dizer o óbvio, precisam tentar explicar ao cidadão qual sua essência e sua vontade primordial pelo bem. Os discursos políticos, até o tempo em que este documento foi escrito, foram pautados por uma certa curiosidade, um certo absurdo de tentar entender porque algumas pessoas negam o próprio paraíso.
+A tentativa de abalar o *status quo* do mundo, de produzir um antiparaíso, é evidenciada na direita política, que não quer propriamente se elevar acima dos demais, mas também quer destruir a sociedade. Corromper o paraíso de que muitos participaram, mas ao qual o indivíduo quer renunciar. Os políticos, líderes, precisam sempre dizer o óbvio, precisam tentar explicar ao cidadão qual sua essência e sua vontade primordial pelo bem. Os discursos políticos, até o tempo em que este documento foi escrito, foram pautados por uma certa curiosidade, um certo absurdo de tentar entender por que algumas pessoas negam o próprio paraíso.
 
 Os políticos tratam isso como uma forma de não entendimento da realidade, não levam em consideração o desontismo prático, o desontista que está em conflito, não está lidando bem consigo, não está se sentindo bem, então tem atitudes desmedidas, aleatórias, omissas ao bem-estar comum e social.
 
-A normalidade é partida quando se percebe que há indivíduos com dificuldade no aprendizado do próprio existir, um aprendizado anterior a qualquer técnica ou erudição. E o indivíduo dotado de tal dificuldade não colabora para a inteligência política e nem para seu sentido político de autopreservação, o sentido que o possibilita não deixar se dominar pelos seus algozes e nem mesmo seus semelhantes.
+A normalidade é partida quando se percebe que há indivíduos com dificuldade no aprendizado do próprio existir, um aprendizado anterior a qualquer técnica ou erudição. E o indivíduo dotado de tal dificuldade não colabora para a inteligência política e nem para seu sentido político de autopreservação, o sentido que lhe possibilita não se deixar dominar pelos seus algozes e nem mesmo por seus semelhantes.
 
 O discurso político visa tratar o humano como exercedor de seu instinto natural de não preservar somente a si, mas preservar seu semelhante. E isso é ferido pelo desontismo, que intenta não somente contra si, mas contra seu semelhante, num instinto desenfreado de competição social, formação de pequenas e grandes elites, e violência de todas as formas.
 
-O desontista não quer ter seu choro apagado, não quer ter seu intento calado, não quer deixar a sociedade em paz, tem a mania de sempre querer ser lembrado, de tentar fazer o mundo se empatizar consigo, causando o estrago social que lembra a ideia do estrago que quer causar em si.
+O desontista não quer ter seu choro apagado, não quer ter seu intento calado, não quer deixar a sociedade em paz; tem a mania de sempre querer ser lembrado, de tentar fazer o mundo empatizar consigo, causando o estrago social que lembra a ideia do estrago que quer causar em si.
 
-### **O enrriquecimento rápido dos bilionários**
+---
+
+### **[CÓDIGO 4.3 - O Segredo Sujo das Fortunas e os Três Pilares da Riqueza]** *(Nota: O último parágrafo desta subseção também dialoga diretamente com o Código 7.4 sobre táticas de taxação, pressão social e expropriação)*
+
+### **O enriquecimento rápido dos bilionários**
 
 Não, os milionários e bilionários não precisam pensar demais, nem criar ideias geniais, nem passar noites em claro trabalhando. E isso não é um manual, tampouco algo que alguém deva imitar. Mas, uma vez revelado, esse segredo muda completamente nossa percepção da sociedade. Espalhe essa mensagem.
 
@@ -2198,13 +2223,17 @@ Existem, sim, métodos de enriquecimento mais “sofisticados”, baseados em ma
 
 Porém, o preço desse pensamento é a própria alma. Não me refiro a que o desontista troca a eternidade por dinheiro, mas que sua busca por dinheiro é reflexo de sua perdição. O desontista é movido pelo ódio e não pelo desejo de riqueza. Todo desejo remete a algo que existe, e o desontista não tem nenhum desejo que sustente sua existência. Portanto, a frase “pacto” não remete a nada, mas se refere à consequência do desontismo, que é a facilidade em acumular riquezas de forma rápida, pois, uma vez desontista, ao indivíduo nada mais interessa; é capaz de renunciar facilmente à sua humanidade, considerando que esta já não faz jus ao seu desejo pela autodestruição.
 
-Uma vez desontista, ateu ou adepto do mal, o bilionário não precisa mais pensar em valores morais. Interpreta a sociedade como uma selva onde pode devorar o outro ou reinar como leão. E é dessa forma que suas ideias dão um lucro rápido, pois o bilionário é capaz de fazer coisas que ninguém faria em sã consciência. Mas, do que adianta ganhar o mundo e perder a própria alma?
+Uma vez desontista, ateu ou adepto do mal, o bilionário não precisa mais pensar em valores morais. Interpreta a sociedade como uma selva onde pode devorar o outro ou reinar como leão. E é dessa forma que suas ideias dão um lucro rápido, pois o bilionário é capaz de fazer coisas que ninguém faria em sã consciência. Mas de que adianta ganhar o mundo e perder a própria alma?
 
 O acúmulo de riqueza começou em indivíduos do mesmo potencial financeiro que tinham uma divergência entre si: um grupo aceitava a violência como forma de comportamento e o outro não. Havendo o desconhecimento da índole desontista por parte de alguns que não se armaram, outros vieram e exploraram esse desconhecimento com as mais diversas formas de violência, como tortura, assassinato, acorrentamento, entre outras. A partir disso, o acúmulo de riquezas foi sendo sucedido na sociedade através das formas de violência mais rudimentares, até chegar na violência ainda não criminalizada, que é a existência de bilionários. Pessoas com uma enorme vantagem competitiva financeira devido ao histórico de violência de seus antepassados, que continuaram a cultura de exploração ou que deram lugar a pessoas que queriam continuar.
 
-Ainda nos dias de hoje essa forma de enriquecimento rápido tenta emergir na sociedade em forma de tráfico, violência nas favelas com o tráfico, assassinatos cruéis, etc. Porém, essa forma não produz mais lucro em um sentido direto — ainda que produza num sentido indireto, como desviar a atenção do grande público para a existência de bilionários. Porém, não produz mais como no início da sociedade, pois a mesma desenvolveu tecnologia o suficiente, política e social, para deter este comportamento e não torná-lo máximo. Porém, a sociedade ainda carece de desenvolver tecnologia política para deter a consequência histórica de dominações violentas, que é a existência de super ricos e que provocam grandes problemas políticos e sociais.
+Ainda nos dias de hoje essa forma de enriquecimento rápido tenta emergir na sociedade em forma de tráfico, violência nas favelas com o tráfico, assassinatos cruéis, etc. Porém, essa forma não produz mais lucro em um sentido direto — ainda que produza num sentido indireto, como desviar a atenção do grande público para a existência de bilionários. Porém, não produz mais como no início da sociedade, pois a mesma desenvolveu tecnologia o suficiente, política e social, para deter este comportamento e não torná-lo máximo. Porém, a sociedade ainda carece de desenvolver tecnologia política para deter a consequência histórica de dominações violentas, que é a existência de super-ricos e que provocam grandes problemas políticos e sociais.
 
-Uma das formas de deter os bilionários é por pressão social, quando a sociedade se move em direção a requisitar dos mesmos que doem suas fortunas. Uma segunda solução é a atuação política, a taxação de impostos. Táticas mais assertivas e rápidas são a expropriação de mão de obra e de compra de produtos de empresas multimilionárias. Enfim, a sociedade necessita criar tática para exaurir a fortuna do bilionário, tirar dele seu poder social por meio de diversos recursos.
+Uma das formas de deter os bilionários é por pressão social, quando a sociedade se move em direção a requisitar dos mesmos que doem suas fortunas. Uma segunda solução é a atuação política, a taxação de impostos. Táticas mais assertivas e rápidas são a expropriação de mão de obra e de compra de produtos de empresas multimilionárias. Enfim, a sociedade necessita criar táticas para exaurir a fortuna do bilionário, tirar dele seu poder social por meio de diversos recursos.
+
+---
+
+### **[CÓDIGO 5.1 - O Limiar Político: A Direita e o Elitismo de Classe Média]**
 
 ### **A antiga visão popular da direita política**
 
@@ -2212,71 +2241,91 @@ O povo via a direita como um partido progressista, um grupo de pessoas que apost
 
 Os bilionários não são um fenômeno natural como uma tempestade, mas algo permitido e consentido pela sociedade. Muitas pessoas enxergam isso como natural, uma livre competição que se sucedeu de tal forma que elevou o patrimônio do indivíduo, mas isto primeiramente foi consentido, e foi explorado e especulado. É entendível um indivíduo levantar alguns milhões por uma ideia inovadora, mas não é natural pensar em um ser humano que conserva uma fortuna equivalente à riqueza que o país produz num ano inteiro.
 
+---
+
+### **[CÓDIGO 4.2 - O Rico Segundo o Evangelho (Abonado vs. Acumulador)]** *(Nota: Também dialoga com o Código 4.3 sobre as múltiplas inteligências que formam a verdadeira branding pessoal)*
+
 ### **A branding pessoal dos milionários**
 
-A branding pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico, vários conhecimentos são necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., formam uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
+A *branding* pessoal é a capacidade de atrair grandes multidões e de assimilar ou comportar em seu psicológico vários conhecimentos necessários, tais como político, filosófico, religioso e social. Além da capacidade de raciocinar rapidamente. Múltiplas inteligências fazem o bilionário, que tem a mesma inteligência do artista para comover grande número de pessoas para seu projeto ao passo que tem uma visão aprimorada das necessidades sociais. Portanto, um reunido de diversas inteligências como a interpessoal, lógica, etc., forma uma pessoa com capacidade para levantar ideias através de visões e comover grandes grupos de apoio. E como pessoas movem dinheiro, ideias movem pessoas — e pessoas, por sua vez, movem recursos.
+
+---
+
+### **[CÓDIGO 5.4 - O Silenciamento dos Artistas e a Branding Artificial]**
 
 ### **A branding artificial**
 
-Elementos químicos como drogas dão maior poder de brand no sentido de que permitem à pessoa receber críticas, comentários, de diversos grupos. Drogas que amortizam os pensamentos, antidepressivos ou substâncias químicas que inibem o processo de reflexão e, por sua vez, é inibida da pessoa a dor emocional que palavras e comportamentos não assimilados lhe acarretam. Portanto, há medicações que dão uma brand artificial ao indivíduo.
+Elementos químicos como drogas dão maior poder de *brand* no sentido de que permitem à pessoa receber críticas, comentários, de diversos grupos. Drogas que amortizam os pensamentos, antidepressivos ou substâncias químicas que inibem o processo de reflexão e, por sua vez, é inibida da pessoa a dor emocional que palavras e comportamentos não assimilados lhe acarretam. Portanto, há medicações que dão uma *brand* artificial ao indivíduo.
 
-Muitos artistas são construídos por medicamentos, simplesmente usam a ciência neuroquímica e um grupo de psicólogos para manter o ser humano num patamar onde se sente inatingível por qualquer crítica ou comentário ou pela exposição abusiva de sua autoimagem. Um coquetel de antidepressivos e remédios mantém a estima do indivíduo alta e o mantém alheio a tudo que está acontecendo, pois o que não é refletido não traz dor. Há um grupo de psicólogos encarregados de reforçar o potencial do remédio, tornando o indivíduo alheio a tudo o que acontece ou que dizem a respeito dele, preservando-o do real impacto social, fazendo-o pensar de uma forma grande, com uma grandeza distorcida de tal maneira que prejudique até os relacionamentos desse suposto artista.
+Muitos artistas são construídos por medicamentos; simplesmente usam a ciência neuroquímica e um grupo de psicólogos para manter o ser humano num patamar onde se sente inatingível por qualquer crítica ou comentário ou pela exposição abusiva de sua autoimagem. Um coquetel de antidepressivos e remédios mantém a estima do indivíduo alta e o mantém alheio a tudo que está acontecendo, pois o que não é refletido não traz dor. Há um grupo de psicólogos encarregados de reforçar o potencial do remédio, tornando o indivíduo alheio a tudo o que acontece ou que dizem a respeito dele, preservando-o do real impacto social, fazendo-o pensar de uma forma grande, com uma grandeza distorcida de tal maneira que prejudique até os relacionamentos desse suposto artista.
 
-Através da distorção de pensamentos normais que envolvam o senso de realidade do indivíduo e através de um coquetel de elementos químicos, se fabrica o artista moderno, totalmente desprovido de talento ou reflexões que movam a sociedade de uma forma positiva. Simplesmente um fantoche induzido por um grupo de ricos que lucram milhões e até bilhões com uma brand pessoal, controlando tudo que um indivíduo faz e até o que este indivíduo pensa. Não é incomum ver artistas o tempo todo em quadros depressivos, por a longa exposição a estes métodos que os mantêm alheios a tudo ter levado-os a uma depressão profunda.
+Através da distorção de pensamentos normais que envolvam o senso de realidade do indivíduo e através de um coquetel de elementos químicos, fabrica-se o artista moderno, totalmente desprovido de talento ou reflexões que movam a sociedade de uma forma positiva. Simplesmente um fantoche induzido por um grupo de ricos que lucram milhões e até bilhões com uma *brand* pessoal, controlando tudo que um indivíduo faz e até o que este indivíduo pensa. Não é incomum ver artistas o tempo todo em quadros depressivos, por a longa exposição a estes métodos que os mantêm alheios a tudo tê-los levado a uma depressão profunda.
 
-Os psicólogos ensinam ao artista produzido artificialmente a pensar-se para fora de seu corpo, donde vê tudo acontecendo fora de si. O artista produzido artificialmente com divulgação paga não pensa estar no próprio corpo, enxerga tudo acontecendo ao seu redor e se projeta para fora de si, em um lugar donde não necessita encarar os próprios problemas. O artista se lança para fora de si mesmo em uma imagem mental distante de si. Para reforçar esse pensamento altivo, são usados fortes euforizantes, então o artista aparenta sempre um sorriso mecânico ou uma calma anormal. Ou seja, o artista está sempre euforizado e indiferente à realidade com o uso de psicoativos ou com o uso de sedativos, o que lhe confere uma estranha calma. Até que o tempo passa e os efeitos visíveis destes medicamentos começam a aparecer no físico e na inteligência do indivíduo como tantos que houve a mesma situação.
+Os psicólogos ensinam ao artista produzido artificialmente a pensar-se para fora de seu corpo, de onde vê tudo acontecendo fora de si. O artista produzido artificialmente com divulgação paga não pensa estar no próprio corpo, enxerga tudo acontecendo ao seu redor e se projeta para fora de si, em um lugar de onde não necessita encarar os próprios problemas. O artista se lança para fora de si mesmo em uma imagem mental distante de si. Para reforçar esse pensamento altivo, são usados fortes euforizantes; então o artista aparenta sempre um sorriso mecânico ou uma calma anormal. Ou seja, o artista está sempre euforizado e indiferente à realidade com o uso de psicoativos ou com o uso de sedativos, o que lhe confere uma estranha calma. Até que o tempo passa e os efeitos visíveis destes medicamentos começam a aparecer no físico e na inteligência do indivíduo, como tantos com quem houve a mesma situação.
 
 O verdadeiro artista emerge em uma sociedade onde não é ameaçado de morte, onde os problemas sociais não estão tão gritantes ao ponto de o povo espelhar nele a descarga de frustração coletiva. O verdadeiro artista é um erudito, sempre um estudioso, pois precisa absorver uma grande gama de comportamentos diferentes.
 
-Os psicólogos preparam os artistas e estão o tempo todo os acompanhando, o empresarismo prepara o artista como um lutador de boxe é preparado para a luta. Ao artista é explicado que ele obteve a liberdade financeira, dada somente aos indivíduos totalmente escravistas que levantaram grandes empresas milionárias à custa da escravidão. Então, o artista é treinado para transformar agressões, críticas, fofocas, perseguições e cancelamentos em ataques, o artista define que cede ao povo entretenimento e não há nenhum motivo para ser atacado, se não por ser uma forma de alívio do estresse coletivo pela situação de escravidão moderna.
+Os psicólogos preparam os artistas e estão o tempo todo os acompanhando; o empresarismo prepara o artista como um lutador de boxe é preparado para a luta. Ao artista é explicado que ele obteve a liberdade financeira, dada somente aos indivíduos totalmente escravistas que levantaram grandes empresas milionárias à custa da escravidão. Então, o artista é treinado para transformar agressões, críticas, fofocas, perseguições e cancelamentos em ataques; o artista define que cede ao povo entretenimento e não há nenhum motivo para ser atacado, senão por ser uma forma de alívio do estresse coletivo pela situação de escravidão moderna.
 
-O artista vê os ataques, perseguições sobre sua vida, fofocas como meios do povo de extravasar sua restrição financeira, e, longe das câmeras, o artista é ensinado a se permitir todos os tipos de luxo e a aprender que está num patamar de liberdade que as pessoas que lhe criticam não atingem.
+O artista vê os ataques, perseguições sobre sua vida e fofocas como meios do povo de extravasar sua restrição financeira, e, longe das câmeras, o artista é ensinado a se permitir todos os tipos de luxo e a aprender que está num patamar de liberdade que as pessoas que o criticam não atingem.
 
-O artista famoso ousou, em sua mentalidade, em ser livre e por isso inevitavelmente será criticado. O artista aprende a se enxergar livre enquanto enxerga uma multidão cerceada financeiramente e justifica tudo, não como um ataque pessoal, mas como uma expressão da situação de escravidão de toda uma nação. O artista interpreta sua ação apenas como um trabalho que ganhou fama e está passível de ser criticado e perseguido.
+O artista famoso ousou, em sua mentalidade, ser livre e por isso inevitavelmente será criticado. O artista aprende a se enxergar livre enquanto enxerga uma multidão cerceada financeiramente e justifica tudo, não como um ataque pessoal, mas como uma expressão da situação de escravidão de toda uma nação. O artista interpreta sua ação apenas como um trabalho que ganhou fama e está passível de ser criticado e perseguido.
 
-Através dessas técnicas, bilionários alavancam artistas que servem como máscaras para seu produto, alavancam pessoas com uma capacidade artificial de promover suas marcas. Toda indústria fonográfica que promove artistas de sucesso, em quase maioria, produz esses artistas artificialmente. Tratam a voz, a aparência do artista, o psicológico e os receitam substâncias químicas para produzir indivíduos que incentivam o consumismo desenfreado, que servem de arquétipo para um modelo de beleza que exige dispendiosos gastos, elegem um padrão estético que favorece a indústria da beleza de uma forma covarde. Os bilionários não somente exploram mão de obra, mas usam de artistas para incentivar o constante consumo desproposital, um consumo que somente provoca lesões financieras nas pessoas sem realmente lhes ceder algum benefício.
+Através dessas técnicas, bilionários alavancam artistas que servem como máscaras para seu produto, alavancam pessoas com uma capacidade artificial de promover suas marcas. Toda indústria fonográfica que promove artistas de sucesso, em sua quase maioria, produz esses artistas artificialmente. Tratam a voz, a aparência do artista, o psicológico e receitam-lhes substâncias químicas para produzir indivíduos que incentivam o consumismo desenfreado, que servem de arquétipo para um modelo de beleza que exige dispendiosos gastos, elegem um padrão estético que favorece a indústria da beleza de uma forma covarde. Os bilionários não somente exploram mão de obra, mas usam de artistas para incentivar o constante consumo despropositado, um consumo que somente provoca lesões financeiras nas pessoas sem realmente lhes ceder algum benefício.
+
+---
+
+### **[CÓDIGO 5.4 - O Silenciamento dos Artistas e a Branding Artificial]** *(Nota: Os três últimos parágrafos desta subseção também dialogam com o Código 4.4 sobre o roubo da identidade e da imagem de CEOs, políticos e funcionários pelos investidores de rapina)*
 
 ### **Os bilionários por usurpação da imagem alheia**
 
-Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas onde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Se separam dos relacionamentos que o empresário sugerem separação. Fazem as modificações corporais que os empresários sugerem. Cada passo é calculado. 
+Há um controle que empresários exercem sobre grandes artistas moldados artificialmente por milhões investidos em marketing e divulgação massiva. Muitos desses artistas vivem exatamente a vida que seus empresários determinam. Namoram quem precisam namorar, vão apenas aonde é permitido, falam somente o que é orientado, vestem o que é exigido e até seguem dietas recomendadas para manter uma imagem específica. Separam-se dos relacionamentos quando os empresários sugerem separação. Fazem as modificações corporais que os empresários sugerem. Cada passo é calculado.
 
 E quando saem da linha, precisam compensar criando algo “verdadeiramente artístico”, como se a autenticidade fosse uma moeda de troca dentro de um sistema altamente controlado. É curioso perceber que artistas com alcance gigantesco raramente usam esse poder para gerar um impacto real no mundo. Na prática, acabam impulsionando principalmente empresas bilionárias, especialmente da indústria da beleza, enquanto a promessa de influência positiva se dissolve no marketing.
 
-Os políticos têm branding, os artistas, e muitos CEOs também o têm. Porém, há aqueles que se utilizam da branding, do ideal que algumas pessoas conseguem passar, e ficam de rapina como investidores ocultos, enquanto o verdadeiro CEO faz todo o trabalho de comoção popular, de conquista de novos clientes, de comerciais, etc. A empresa cresce em cima da branding pessoal de alguém que pensou numa ideia e atraiu pessoas para essa ideia. Porém, quando essa ideia se formaliza, os acumuladores de fortunas herdadas dos antepassados devido à escravidão, investem nessas ideias. Correm às pressas para aproveitar e ter controle. O dinheiro, portanto, que o CEO levantou não foi diretamente do público, mas o crescimento da empresa do CEO é interceptado por acionistas de rapina. E dessa forma alguém com dinheiro acumulado o multiplica sem ao menos precisar ter branding ou alguma ideia. Ou até mesmo aparecer na mídia ou na internet. Basta ter uma fortuna acumulada e oferecê-la à ideia que está crescendo.
+Os políticos têm *branding*, os artistas, e muitos CEOs também o têm. Porém, há aqueles que se utilizam da *branding*, do ideal que algumas pessoas conseguem passar, e ficam de rapina como investidores ocultos, enquanto o verdadeiro CEO faz todo o trabalho de comoção popular, de conquista de novos clientes, de comerciais, etc. A empresa cresce em cima da *branding* pessoal de alguém que pensou numa ideia e atraiu pessoas para essa ideia. Porém, quando essa ideia se formaliza, os acumuladores de fortunas herdadas dos antepassados devido à escravidão investem nessas ideias. Correm às pressas para aproveitar e ter controle. O dinheiro, portanto, que o CEO levantou não foi diretamente do público, mas o crescimento da empresa do CEO é interceptado por acionistas de rapina. E dessa forma alguém com dinheiro acumulado o multiplica sem ao menos precisar ter *branding* ou alguma ideia. Ou até mesmo aparecer na mídia ou na internet. Basta ter uma fortuna acumulada e oferecê-la à ideia que está crescendo.
 
 Nas médias e pequenas empresas também acontece de o dono usar até clientes e, principalmente, funcionários para suprir a coragem que não desenvolveu, o carisma e a necessidade de liderança que não possui. É uma forma de ganhar dinheiro sem o próprio esforço, sem construir a própria identidade. E esses funcionários ficam sobrecarregados, vendo-se na necessidade de criar a identidade da empresa ao mesmo tempo em que trabalham nela. São usurpadores de autoimagem, de estima e de poder emocional.
 
-Portanto, se pode roubar a branding e políticos, verdadeiros idealizadores e fomentadores de melhorias sociais, e até de funcionários de menor escalão na empresa. Os bilionários e milionários roubam ideias, roubam até mesmo as faces e se mascaram por trás dessas faces. Os verdadeiros usurpadores são fracos de ideias, fracos de ideais e precisam mostrar uma figuração, precisam esconderem-se com o título de acionistas nas grandes ideias, por trás de grandes artistas e por trás de políticos que estão exercendo influência; porém, eles mesmos não têm nome. Os acumuladores ficam de rapina por trás dos sonhos, dos ideais, dos olhares, ficam nas surdinas, sustentados por ligações telefônicas, por terceiros, e quartos que contratam para mascarar os verdadeiros mentores das ordens. Os manipuladores não têm rosto, pois não têm ideal, não têm intenção verdadeira de construir algo; a única intenção é a da loucura, do acúmulo desenfreado de dinheiro a qualquer custo.
+Portanto, pode-se roubar a *branding* de políticos, verdadeiros idealizadores e fomentadores de melhorias sociais, e até de funcionários de menor escalão na empresa. Os bilionários e milionários roubam ideias, roubam até mesmo as faces e se mascaram por trás dessas faces. Os verdadeiros usurpadores são fracos de ideias, fracos de ideais e precisam mostrar uma figuração, precisam esconder-se com o título de acionistas nas grandes ideias, por trás de grandes artistas e por trás de políticos que estão exercendo influência; porém, eles mesmos não têm nome. Os acumuladores ficam de rapina por trás dos sonhos, dos ideais, dos olhares, ficam nas surdinas, sustentados por ligações telefônicas, por terceiros e quartos que contratam para mascarar os verdadeiros mentores das ordens. Os manipuladores não têm rosto, pois não têm ideal, não têm intenção verdadeira de construir algo; a única intenção é a da loucura, do acúmulo desenfreado de dinheiro a qualquer custo.
+
+---
+
+### **[CÓDIGO 4.2 - O Rico Segundo o Evangelho (Abonado vs. Acumulador)]** *(Nota: Também dialoga com o Código 7.4 sobre o limite de acumulação de fortunas e o papel do Estado em projetos monumentais como a SpaceX)*
 
 ### **A emergência de bilionários**
 
 Quando qualquer projeto novo, que não tenha concorrência, se mostra no mercado, este ganha muito investimento por ser novo e muito lucro por não ter concorrência. Então o indivíduo que inventa algo novo sofre uma explosão de recursos financeiros ao conseguir embalar um grupo pequeno e seleto ou um grande grupo de pessoas com sua ideia. Ainda que não tenha exploração de mão de obra, o consumidor de seu produto se vê na necessidade urgente de adquiri-lo, e, por ser novidade ou às vezes não copiável, os preços podem ser elevados ao ponto de enriquecer o indivíduo.
 
-Vamos citar o exemplo de bancos digitais que eram novidades no mercado e levantaram milhões do dia para a noite. O grande perigo é: uma vez que um indivíduo pode levantar grandes quantias tendo branding pessoal e ideias, qual potencial desse acúmulo de dinheiro e quais investidores podem tomar fatia deles fazendo outros bilhões de dólares?
+Vamos citar o exemplo de bancos digitais que eram novidades no mercado e levantaram milhões do dia para a noite. O grande perigo é: uma vez que um indivíduo pode levantar grandes quantias tendo *branding* pessoal e ideias, qual o potencial desse acúmulo de dinheiro e quais investidores podem tomar fatia deles fazendo outros bilhões de dólares?
 
-O indivíduo que é capaz de ter inovadoras ideias e divulgá-las com branding pessoal, que tem uma visão tão abrangente da sociedade que pode olhar para onde ninguém ainda olhou, de fato, se não tiver má índole, pode estar rodeado de pessoas que tenham.
+O indivíduo que é capaz de ter inovadoras ideias e divulgá-las com *branding* pessoal, que tem uma visão tão abrangente da sociedade que pode olhar para onde ninguém ainda olhou, de fato, se não tiver má índole, pode estar rodeado de pessoas que tenham.
 
-O fato é: nos dias de hoje, não poderíamos direcionar a energia criativa do bilionário às políticas? Suas ideias de fato poderiam ser usadas para aprimorar o Estado ou até o país, focando no que é mais emergente para a sociedade, uma vez que eles têm branding e grande inteligência. Porém, fora da função política, estes teriam maior capacidade de criação, uma vez que seus objetivos não necessariamente estariam atrelados a objetivos mais emergentes da sociedade, e também não estão bloqueados pelo entendimento do público do seu propósito. Não necessitam mostrar ao povo o objetivo do empreendimento, e esta é a maior vantagem ou o maior perigo.
+O fato é: nos dias de hoje, não poderíamos direcionar a energia criativa do bilionário às políticas? Suas ideias de fato poderiam ser usadas para aprimorar o Estado ou até o país, focando no que é mais emergente para a sociedade, uma vez que eles têm *branding* e grande inteligência. Porém, fora da função política, estes teriam maior capacidade de criação, uma vez que seus objetivos não necessariamente estariam atrelados a objetivos mais emergentes da sociedade, e também não estão bloqueados pelo entendimento do público do seu propósito. Não necessitam mostrar ao povo o objetivo do empreendimento, e esta é a maior vantagem ou o maior perigo.
 
-Se o objetivo do empreendimento for bom e a explicação for tão complexa que se faz de difícil entendimento para o público comum, sem guardar milhões, o idealista talvez não poderia exercer seu projeto pela política, pois talvez não encontraria comoção popular ou aceitação do grande investimento em sua ideia. Por outro lado, se essa ideia estiver má intencionada, influenciada por pessoas paralelas que adquiriram milhões segundo ideias criativas, ou até mesmo o idealista tiver má índole, então a liberdade de criar sem passar pela aprovação política e popular pode ser uma ruína.
+Se o objetivo do empreendimento for bom e a explicação for tão complexa que se faz de difícil entendimento para o público comum, sem guardar milhões, o idealista talvez não pudesse exercer seu projeto pela política, pois talvez não encontrasse comoção popular ou aceitação do grande investimento em sua ideia. Por outro lado, se essa ideia estiver mal-intencionada, influenciada por pessoas paralelas que adquiriram milhões segundo ideias criativas, ou até mesmo o idealista tiver má índole, então a liberdade de criar sem passar pela aprovação política e popular pode ser uma ruína.
 
-O bilionário pode ser um bom gênio incompreendido que fará boas coisas ou um gênio do mal imparável com os mesmos milhões que dispõe. A solução mais prática é não haver o acúmulo de extremas fortunas, como por exemplo 100 bilhões acumulados no domínio de poucas pessoas. De fato, alguns milhões não são capazes de levantar grandes pesquisas científicas ao passo que não bloqueiam o potencial criativo.
+O bilionário pode ser um bom gênio incompreendido que fará boas coisas ou um gênio do mal imparável com os mesmos milhões de que dispõe. A solução mais prática é não haver o acúmulo de extremas fortunas, como por exemplo 100 bilhões acumulados no domínio de poucas pessoas. De fato, alguns milhões não são capazes de levantar grandes pesquisas científicas ao passo que não bloqueiam o potencial criativo.
 
 De fato, a inovação traz uma grande vantagem social; sem, por exemplo, o Facebook e o Instagram, o protesto social era muito mais difícil, e são empreendimentos que renderam muito pelo fato de serem uma novidade.
 
 A ideia é estimular a livre concorrência para haver cada vez menos monopólios, até mesmo de redes sociais, e impedir que fortunas gigantescas sejam reunidas para que não possam tocar projetos monumentais, como é o caso da SpaceX. O governo pode tratar de projetos gigantes e que exijam investimentos massivos. O investimento massivo conduz muita energia social e realmente precisa passar por um acordo coletivo, e não somente por pensamentos mirabolantes de um visionário ou de pessoas ligadas a ele que adquiriram proveito de seu potencial.
 
+---
+
+### **[CÓDIGO 4.3 - O Segredo Sujo das Fortunas e os Três Pilares da Riqueza]** *(Nota: As duas subseções abaixo também dialogam com o Código 7.4 sobre a pressão popular contra bilionários e latifundiários, e com o Código 5.1 sobre o voto na direita e o dilema do jovem herdeiro)*
+
 ### **A libertação da escravidão moderna**
 
-A humanidade se verá livre de toda a escravidão a partir do entendimento amplo da realidade. Se cada indivíduo entender ao menos razoavelmente o que é o desontismo, as pessoas pararão de pensar que existe uma fórmula mágica para a riqueza, algo que faz com que a humanidade tente competir com os ricos ou tentar vencê-los pelo próprio capitalismo. Usando o próprio capitalismo, não é possível competir com os ricos, pois as formas que eles usam são desonestas, o campo de ação de quem pratica atrocidades é maior, portanto, não se vencem os bilionários tentando competir em empreendimentos, mas identificando as técnicas irregulares que usam e tornando-as passíveis de punição. Também é necessário fazer imediata pressão popular para que entreguem suas fortunas, pois a fortuna, como já disse, nas mãos erradas é uma arma terrível. Um entendimento do emocional de quem perde sua identidade e seu instinto de humanidade, a partir de uma ótica metafísica, é essencial para despertar no povo um norte para que intensifiquem as lutas sociais, uma vez que ganhem mais precisão. Pois, a partir do conhecimento, o opositor da paz é identificado e seu propósito revelado.
+A humanidade se verá livre de toda a escravidão a partir do entendimento amplo da realidade. Se cada indivíduo entender ao menos razoavelmente o que é o desontismo, as pessoas pararão de pensar que existe uma fórmula mágica para a riqueza, algo que faz com que a humanidade tente competir com os ricos ou tentar vencê-los pelo próprio capitalismo. Usando o próprio capitalismo, não é possível competir com os ricos, pois as formas que eles usam são desonestas, o campo de ação de quem pratica atrocidades é maior; portanto, não se vencem os bilionários tentando competir em empreendimentos, mas identificando as técnicas irregulares que usam e tornando-as passíveis de punição. Também é necessário fazer imediata pressão popular para que entreguem suas fortunas, pois a fortuna, como já disse, nas mãos erradas é uma arma terrível. Um entendimento do emocional de quem perde sua identidade e seu instinto de humanidade, a partir de uma ótica metafísica, é essencial para despertar no povo um norte para que intensifiquem as lutas sociais, uma vez que ganhem mais precisão. Pois, a partir do conhecimento, o opositor da paz é identificado e seu propósito revelado.
 
-Quando aconteceu a primeira exploração em Abel e Caim, quando Abel usou de assassinato para obter a terra, se deu uma abertura para os bilionários, pois o mal praticado adquiriu uma vantagem sobre quem não faria tal ato. E assim se sucedeu, de forma que os que praticavam atrocidade ganharam vantagem de acúmulo de bens, até acumular grandes capitais, os quais foram passados de geração em geração. Portanto, não é possível produzir grandes capitais sem técnicas exploratórias. A tendência natural de inteligência do ser humano tende a se performar de forma que um ser humano não consiga uma enorme vantagem sobre o outro, se não por exploração de si mesmo ou de outrem. E assim aconteceu ao longo de toda a história. É preciso tomar as riquezas dos ricos e punir todas as formas de acúmulo rápido de riquezas, pois na maioria das vezes estão atreladas à exploração. Raramente uma forma não estará ligada a tal, há raras exceções como os criadores de ideias realmente inovadoras que rapidamente desenvolvem uma demanda gigante ou artistas que usam o dinheiro como energia de estima.
+Quando aconteceu a primeira exploração em Caim e Abel, quando Caim usou de assassinato contra Abel para obter a terra, deu-se uma abertura para os bilionários, pois o mal praticado adquiriu uma vantagem sobre quem não faria tal ato. E assim se sucedeu, de forma que os que praticavam atrocidades ganharam vantagem de acúmulo de bens, até acumular grandes capitais, os quais foram passados de geração em geração. Portanto, não é possível produzir grandes capitais sem técnicas exploratórias. A tendência natural de inteligência do ser humano tende a se performar de forma que um ser humano não consiga uma enorme vantagem sobre o outro, senão por exploração de si mesmo ou de outrem. E assim aconteceu ao longo de toda a história. É preciso tomar as riquezas dos ricos e punir todas as formas de acúmulo rápido de riquezas, pois na maioria das vezes estão atreladas à exploração. Raramente uma forma não estará ligada a tal; há raras exceções como os criadores de ideias realmente inovadoras que rapidamente desenvolvem uma demanda gigante ou artistas que usam o dinheiro como energia de estima.
 
 Ainda que o comportamento desontista não queira dizer um destino metafísico correto, o comportamento desontista é observável e explica diversos fatores sociais. O entendimento do comportamento desontista, ainda que não se assuma a metafísica pronunciada neste documento como realidade, ainda assim se mostra útil para a melhoria social. Pois é possível compreender que indivíduos pessimistas em relação à existência podem ter comportamentos distorcidos de tal maneira que provoquem a maioria dos males sociais.
 
-A humanidade, no desconhecimento do comportamento desontista, tenta preservar bilionários como se tentasse preservar o sistema capitalista de liberdade, onde cada qual pudesse ter aquilo que lhe confere o valor agregado ao trabalho. Porém, conservar o sistema capitalista sem entender a construção social a partir do desontismo é o mesmo que acreditar numa grande ilusão. Acreditar que os ricos sigam a lógica capitalista, e não a lógica de crimes, até nos dias em que este documento está sendo escrito, não tomados como crime.
+A humanidade, no desconhecimento do comportamento desontista, tenta preservar bilionários como se tentasse preservar o sistema capitalista de liberdade, onde cada qual pudesse ter aquilo que lhe confere o valor agregado ao trabalho. Porém, conservar o sistema capitalista sem entender a construção social a partir do desontismo é o mesmo que acreditar numa grande ilusão. Acreditar que os ricos sigam a lógica capitalista, e não a lógica de crimes — até nos dias em que este documento está sendo escrito, não tomados como crime.
 
-Os bilionários precisam sofrer pressão para entregar suas fortunas, tal como os donos de grandes fazendas e latifundiários. Todos estes acumularam grande vantagem histórica e é difícil retirar-lhes o poder por vias convencionais, como a livre competição capitalista; é necessária força popular. E isto não é destruir o capitalismo, mas é entender que as construções e negócios dos ricos foram construídos a partir de crimes contra a humanidade, crimes contra o humano. A vantagem competitiva a eles conferida foi devido ao sangue e sofrimento de outros seres humanos ao longo da história, não foi devido a um suposto intelecto apurado. O intelecto do rico só necessita saber de um fator para conservar sua riqueza, e esse fator é causar, sem ressentimento, a dor no seu semelhante.
+Os bilionários precisam sofrer pressão para entregar suas fortunas, tal como os donos de grandes fazendas e latifundiários. Todos estes acumularam grande vantagem histórica e é difícil retirar-lhes o poder por vias convencionais, como a livre competição capitalista; é necessária força popular. E isto não é destruir o capitalismo, mas é entender que as construções e negócios dos ricos foram construídos a partir de crimes contra a humanidade, crimes contra o humano. A vantagem competitiva a eles conferida foi devida ao sangue e sofrimento de outros seres humanos ao longo da história, não foi devida a um suposto intelecto apurado. O intelecto do rico só necessita saber de um fator para conservar sua riqueza, e esse fator é causar, sem ressentimento, a dor no seu semelhante.
 
 É ser implacável, sem sentimento; é ser um desontista; não por adesão, mas por sintomática. Dificilmente existirá alguém que se adeque ao comportamento desontista, que é uma loucura, sem que seja desontista. O desontismo é uma loucura que se dá somente como sintomática, não como adesão cultural, pois vai contra o próprio instinto mais básico humano, contra qualquer instinto natural de empatia que se preserve na pessoa humana.
 
@@ -2290,53 +2339,65 @@ E não basta somente popular partidos de esquerda de forma majoritária como lí
 
 ### **O segredo dos bilionários**
 
-Para realmente fazer o primeiro bilhão, é necessário ter algumas características empreendedoras, certa inteligência, porém, ainda assim não é suficiente. É necessário recitar um mantra diversas vezes. E não é o mantra convencional de aceitar a fortuna. Mas é um mantra obscuro, um mantra que é a renúncia de qualquer fé. O desontista renuncia qualquer compaixão. Renuncia a visão de que o outro sofre, considera que não existe a alma. Renuncia qualquer valor. Renuncia qualquer crença. Renuncia qualquer fé. O desontista se pensa repetidamente como um animal na selva, dominador, assassino, tirano. Onde não há regras e há ignorância social a respeito do desontismo, há um campo grande de possibilidades para se ganhar dinheiro. Há crimes não passíveis de punição. O desontista se aproveita da ignorância popular a respeito de quem ele é e qual sua intenção. O desontista trabalha num âmbito invisível. Ninguém enxerga sua ação, sua motivação, sua técnica.
+Para realmente fazer o primeiro bilhão, é necessário ter algumas características empreendedoras, certa inteligência, porém, ainda assim não é suficiente. É necessário recitar um mantra diversas vezes. E não é o mantra convencional de aceitar a fortuna. Mas é um mantra obscuro, um mantra que é a renúncia de qualquer fé. O desontista renuncia a qualquer compaixão. Renuncia à visão de que o outro sofre, considera que não existe a alma. Renuncia a qualquer valor. Renuncia a qualquer crença. Renuncia a qualquer fé. O desontista se pensa repetidamente como um animal na selva, dominador, assassino, tirano. Onde não há regras e há ignorância social a respeito do desontismo, há um campo grande de possibilidades para se ganhar dinheiro. Há crimes não passíveis de punição. O desontista se aproveita da ignorância popular a respeito de quem ele é e qual sua intenção. O desontista trabalha num âmbito invisível. Ninguém enxerga sua ação, sua motivação, sua técnica.
 
 O desontista urbano, longe ainda de ser um bilionário, começa no voto pela direita, tirando proveito da ignorância alheia, monta um empreendimento e se destaca por saber escravizar, por saber tirar vantagem. Quando bilionário, não necessita do voto próprio, mas necessita que as pessoas votem em seus candidatos. Então, de atuante no voto, passa a manipulador.
 
-O desontista aproveita a ação em grupo, pois o grupo tem o poder de abrir brechas sociais, como a fome e o desemprego. O voto na direita significa desvantagens para alguns, e o desontista aproveita dessa desvantagem. Se só houver vantagens e igualdade, desontistas emergentes não se aproveitam, mas ainda haveria os desontistas bilionários que se aproveitaram das fases anteriores da humanidade, em que havia o desconhecimento do desontismo. E estes vão tomar as providências para agir no que conseguirem tomar. E caberá à humanidade bloqueá-los, fazendo pressão para desfazer seus monopólios.
+O desontista aproveita a ação em grupo, pois o grupo tem o poder de abrir brechas sociais, como a fome e o desemprego. O voto na direita significa desvantagens para alguns, e o desontista se aproveita dessa desvantagem. Se só houver vantagens e igualdade, desontistas emergentes não se aproveitam, mas ainda haveria os desontistas bilionários que se aproveitaram das fases anteriores da humanidade, em que havia o desconhecimento do desontismo. E estes vão tomar as providências para agir no que conseguirem tomar. E caberá à humanidade bloqueá-los, fazendo pressão para desfazer seus monopólios.
 
-O voto do esquerdista é intencional, ele tem a malícia de construir empreendimentos e se aproveitar da escravidão alheia. Ele sabe que, se apoiar a esquerda, isto não poderá ocorrer no futuro. O direitista não é ignorante, ele possui uma índole de tentar dominar.
+O voto do direitista é intencional, ele tem a malícia de construir empreendimentos e se aproveitar da escravidão alheia. Ele sabe que, se apoiar a esquerda, isto não poderá ocorrer no futuro. O direitista não é ignorante, ele possui uma índole de tentar dominar.
 
-Um fenômeno curioso é quando um herdeiro ganha fortunas de seus antepassados, mas não entende exatamente como essas fortunas foram construídas, e uma cultura lhe vem em mente, a cultura desontista. A ele não é passada nenhuma religião, nenhum valor, e todo valor que aprende vem de fora de seu antro familiar. E então, em sua mente, acontece uma grande divergência entre sua formação familiar e a formação social. Preferindo, este, se desenraizar do antro que lhe levava para o desontismo, pois isto seria necessário para continuar sua riqueza. Isto é, a pressão à qual é submetido o jovem herdeiro é suprimi-lo ao ponto de esquecer-se de si mesmo e da própria alma. E, se não sucede a essa lavagem cerebral desontista, é considerado fraco e incapaz de tocar os empreendimentos herdados.
+Um fenômeno curioso é quando um herdeiro ganha fortunas de seus antepassados, mas não entende exatamente como essas fortunas foram construídas, e uma cultura lhe vem em mente: a cultura desontista. A ele não é passada nenhuma religião, nenhum valor, e todo valor que aprende vem de fora de seu antro familiar. E então, em sua mente, acontece uma grande divergência entre sua formação familiar e a formação social. Preferindo, este, desenraizar-se do antro que o levava para o desontismo, pois isto seria necessário para continuar sua riqueza. Isto é, a pressão à qual é submetido o jovem herdeiro é suprimi-lo ao ponto de esquecer-se de si mesmo e da própria alma. E, se não cede a essa lavagem cerebral desontista, é considerado fraco e incapaz de tocar os empreendimentos herdados.
 
-A chave para a libertação da escravidão moderna é entender como funciona a mentalidade do escravista, e isto, por vezes, nem mesmo os herdeiros dos bilionários conseguem compreender. Dizem que ganhar dinheiro parece fácil para as pessoas das quais herdaram, mas o difícil é entender a mentalidade que enxerga que ganhar dinheiro é fácil, e essa mentalidade é o desontismo, o qual, muitas vezes, oculta suas ações. Se vê na superfície o bilionário em seu requinte, mas suas ações por trás da fortuna não são vistas, nem ações modernas nem históricas. Então, pela ótica deste documento, é fácil compreender por que foi "fácil" construir os bilhões, enquanto uma multidão julga complexa a cabeça do bilionário, ele usa do sarcasmo pelas pessoas não entenderem o que é muito simples: ele é um desontista.
+A chave para a libertação da escravidão moderna é entender como funciona a mentalidade do escravista, e isto, por vezes, nem mesmo os herdeiros dos bilionários conseguem compreender. Dizem que ganhar dinheiro parece fácil para as pessoas das quais herdaram, mas o difícil é entender a mentalidade que enxerga que ganhar dinheiro é fácil, e essa mentalidade é o desontismo, o qual, muitas vezes, oculta suas ações. Vê-se na superfície o bilionário em seu requinte, mas suas ações por trás da fortuna não são vistas, nem ações modernas nem históricas. Então, pela ótica deste documento, é fácil compreender por que foi "fácil" construir os bilhões; enquanto uma multidão julga complexa a cabeça do bilionário, ele usa do sarcasmo pelas pessoas não entenderem o que é muito simples: ele é um desontista.
 
-> O ódio do desontista é gigantesto, é um ódio inarravel. Uma escuridão em seu coração, uma total falta de amor. 
+> O ódio do desontista é gigantesco, é um ódio inarrável. Uma escuridão em seu coração, uma total falta de amor.
+
+---
+
+### **[CÓDIGO 7.4 - Reforma Estrutural, Desarmamento Financeiro e a Nova Sociedade]**
 
 ### **A nova sociedade**
 
-Após a libertação da escravidão, a falência dos milionários e o cessar do pagamento a grandes dívidas inventadas na história pelos países, haverá um problema estrutural: empresas e produções voltadas para bens de consumo inúteis, tecnologias inúteis à sobrevivência, tais como produção de carros de luxo, de artigos que somente bilionários aproveitam. Armas bélicas, iates, etc. Há toda uma indústria do luxo que não prioriza em nada as necessidades mais básicas populares. Se houver toda força aplicada em construir tecnologias inúteis, o mundo continua na pobreza, uma vez que a produção é voltada para artigos fúteis, artigos que quebram rápido, artigos que poluem o meio ambiente e custam caro para ser descartados e reciclados.
+Após a libertação da escravidão, a falência dos milionários e o cessar do pagamento a grandes dívidas inventadas na história pelos países, haverá um problema estrutural: empresas e produções voltadas para bens de consumo inúteis, tecnologias inúteis à sobrevivência, tais como produção de carros de luxo, de artigos que somente bilionários aproveitam. Armas bélicas, iates, etc. Há toda uma indústria do luxo que não prioriza em nada as necessidades mais básicas populares. Se houver toda força aplicada em construir tecnologias inúteis, o mundo continua na pobreza, uma vez que a produção é voltada para artigos fúteis, artigos que quebram rápido, artigos que poluem o meio ambiente e custam caro para serem descartados e reciclados.
 
 O que deve haver é um foco em tecnologias sociais, como ceder terras gratuitas para a população; a produtividade, por lei, deve ser voltada a produtos que duram e que não poluem o ambiente se descartados. Enfim, não é suficiente acabar com todos os bilionários, mas é preciso desfazer esse modelo de construção social voltado para a competição e para a indústria do luxo, e voltá-lo para o benefício da população e da natureza.
 
-É preciso criar leis que proíbam a poluição, ao passo que reformar toda produção de insumos de uma forma benéfica à natureza, eliminando toda produção de artigos inúteis e poluentes, tais como artigos de luxo. Cortar a produção de plástico. E até de artigos que em nada entretêm e só estragam rapidamente, como brinquedos de plástico ou todos os artigos de plástico que são feitos para o descarte proposital e para uma nova compra rápida.
+É preciso criar leis que proíbam a poluição, ao passo que reformem toda produção de insumos de uma forma benéfica à natureza, eliminando toda produção de artigos inúteis e poluentes, tais como artigos de luxo. Cortar a produção de plástico. E até de artigos que em nada entretêm e só estragam rapidamente, como brinquedos de plástico ou todos os artigos de plástico que são feitos para o descarte proposital e para uma nova compra rápida.
 
-Tudo deve ser produzido com materiais resistentes para longa duração, e todos os produtos pensados da forma mais inteligente possível em durabilidade, preservação e até em seu descarte. A produção deve ser voltada para os bens e insumos mais essenciais, primeiramente, e, quando houver super hávit destes, pode-se produzir objetos para fins de entretenimento.
+Tudo deve ser produzido com materiais resistentes para longa duração, e todos os produtos pensados da forma mais inteligente possível em durabilidade, preservação e até em seu descarte. A produção deve ser voltada para os bens e insumos mais essenciais, primeiramente, e, quando houver superávit destes, pode-se produzir objetos para fins de entretenimento.
 
-Ao imaginarmos que temos cem trabalhadores, se noventa e nove deles produzir coisas fúteis, tecnologia ainda não necessária, e somente um deles produzir alimentos, temos novamente a miséria. Então, a miséria não é só falta de recursos financeiros, mas possui relação íntima com a estrutura tecnológica e de fabricação de insumos. Toda a energia social deve estar voltada às necessidades mais urgentes, para, somente depois de todas as necessidades urgentes humanas serem sanadas, se focar em outros tipos de produção menos essenciais.
+Ao imaginarmos que temos cem trabalhadores, se noventa e nove deles produzirem coisas fúteis, tecnologia ainda não necessária, e somente um deles produzir alimentos, temos novamente a miséria. Então, a miséria não é só falta de recursos financeiros, mas possui relação íntima com a estrutura tecnológica e de fabricação de insumos. Toda a energia social deve estar voltada às necessidades mais urgentes, para, somente depois de todas as necessidades urgentes humanas serem sanadas, focar-se em outros tipos de produção menos essenciais.
+
+---
+
+### **[CÓDIGO 7.1 - Jesus Cristo: O Verdadeiro Neo e Decodificador do Poder]** *(Nota: A subseção "A síntese entre fé e metafísica" também dialoga com o Código 7.2 sobre o discurso amoroso de Cristo amparando a dura metafísica)*
 
 ### **O verdadeiro Neo**
 
-Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática desontista. Sobre a obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta. 
+Jesus é o verdadeiro Neo. É o novo homem. É o escolhido. E sim, Ele já trouxe as respostas, mas a humanidade não estava preparada para ouvir, tal como ainda pode não estar no tempo em que escrevo esse documento. Quando Jesus disse: é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus, já falava sobre a sintomática desontista. Sobre a obsessão por acúmulos de riqueza. Já falava do reino dos céus, que é o próprio estado de existir, e sobre a condenação. Mas ninguém associou isso com a realidade atual, pois a humanidade ainda não estava pronta.
 
-Há um despertar coletivo que carece de ser realizado. O Neo já veio, não é necessário outro, mas é necessária conscientização. É necessário o ser humano enxergar a realidade, para parar de preservar bilionários como algo normal. Talvez Jesus soubesse que, em algum momento, a humanidade pudesse despertar, mais cedo ou mais tarde. Poderia ser naquele tempo em que esteve de corpo presente no mundo, ou poderia ser em qualquer outro tempo. Mas um dia a humanidade despertaria. Jesus já mostrou ao homem qual é o verdadeiro jogo do negócio dos bilionários, já revelou, escancarou a verdade. Porém, a humanidade ouvia, mas ainda não entendia ou não queria ainda entender. 
+Há um despertar coletivo que carece de ser realizado. O Neo já veio, não é necessário outro, mas é necessária conscientização. É necessário o ser humano enxergar a realidade, para parar de preservar bilionários como algo normal. Talvez Jesus soubesse que, em algum momento, a humanidade pudesse despertar, mais cedo ou mais tarde. Poderia ser naquele tempo em que esteve de corpo presente no mundo, ou poderia ser em qualquer outro tempo. Mas um dia a humanidade despertaria. Jesus já mostrou ao homem qual é o verdadeiro jogo do negócio dos bilionários, já revelou, escancarou a verdade. Porém, a humanidade ouvia, mas ainda não entendia ou não queria ainda entender.
 
-Conceitos como morte eterna e um aval infinito de possibilidades talvez fossem difíceis ainda de se digerir para a jovem humanidade. E a escravidão, como fuga, foi a melhor maneira de lidar com isso. Se evadir do verdadeiro conhecimento é estar sem defesas, estar alheio à existência do desontismo atuante na sociedade. Por vezes, seria melhor a escravidão do que aceitar a verdade? Talvez esse tenha sido o real significado da frase: "Conhecereis a verdade, e a verdade vos libertará".
+Conceitos como morte eterna e um aval infinito de possibilidades talvez fossem difíceis ainda de se digerir para a jovem humanidade. E a escravidão, como fuga, foi a melhor maneira de lidar com isso. Evadir-se do verdadeiro conhecimento é estar sem defesas, estar alheio à existência do desontismo atuante na sociedade. Por vezes, seria melhor a escravidão do que aceitar a verdade? Talvez esse tenha sido o real significado da frase: "Conhecereis a verdade, e a verdade vos libertará".
 
 A verdade seria mais pesada do que o jugo da escravidão? Um olhar infantil para a eternidade seria melhor do que um olhar maduro? A humanidade ainda não está pronta para visualizar a verdadeira intenção dos bilionários? Não quer acordar de um sono no qual é confortável uma visão limitante da realidade?
 
 ### **A síntese entre fé e metafísica**
 
-O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível, portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
+O Absoluto não necessariamente pode ser representado pela razão; a forma com que pensamos em Deus não muda o que Ele é, sendo essa forma mais ou menos condizente com a realidade. Deus pode realizar o impossível; portanto, não se deve condenar nem imaginar o ser humano em situações irremediáveis. Não se deve idealizar infernos ou premeditar infernos. O medo, em si, não muda o ser humano. Jesus nunca expôs o pior e nem pensou no pior. O julgamento, para Jesus, pertence a Deus, e Deus é sempre bom. A metafísica, isolada, é uma visão pessimista, uma visão tortuosa que fada o ser humano ao léu de sua liberdade. Porém, a visão cristã protege o homem até de si mesmo, realizando, através das ações de Cristo, a salvação. Isto é, o cristianismo é um alívio, um otimismo infindável em cima da dura metafísica. Pensar no homem de forma que a liberdade seja uma consequência coloca o homem num patamar de suspensão a si, e Jesus vem amparar essa suspensão, realizando o inimaginável, abrindo as portas para o paraíso até mesmo para aqueles com o coração mais endurecido.
 
 Também, fazer com que o ser humano sinta medo de si mesmo e enxergue uma realidade difícil de digerir não faz com que a salvação aconteça; o medo não leva ao amor. O discurso de Jesus não é metafísico, é amoroso. Preocupa-se em oferecer o melhor, a visão mais otimista e realmente livre: a liberdade acontece quando gera necessariamente para a vida. A verdadeira liberdade não acontece quando o ser humano é lançado ao seu próprio querer somente.
+
+---
+
+### **[CÓDIGO 5.5 - O Tabuleiro de Guerra e a Monarquia Oculta]** *(Nota: A subseção "Os ensinamentos de Jesus e a revolta desontista" também dialoga diretamente com o Código 7.1 sobre como Jesus ameaçou a cúpula desontista de Sua época)*
 
 ### **A cúpula de manipulação mundial**
 
 Não faz sentido um bilionário manipular a favor de outro sem que cobre nada desse outro. Faz sentido pensar em uma cúpula secreta, transmitida de geração em geração, das torrentes maléficas do poder financeiro se reunindo para conspirar a favor de guerras, contravenções à democracia e catástrofes. Descubra a miséria entre os ricos. Quando a inocência do povo acabar sobre a mentalidade desontista, as coisas podem ser diferentes.
 
-### **desontismo, Super-Riqueza e a Arquitetura Oculta das Catástrofes**
+### **Desontismo, Super-Riqueza e a Arquitetura Oculta das Catástrofes**
 
 Na visão popular, o super-rico somente deseja status, poder econômico e artigos de luxo. Porém, através do entendimento do desontismo, atribui-se outra motivação e propósito, de forma que a humanidade compreenda que a influência dos super-ricos transcende a mera concentração aparente de riqueza, que aparentemente se mostra como fim em si mesma. Porém, a ação da cúpula, que significa um ou mais indivíduos tramando ações que ultrapassam o mero acúmulo de dinheiro, é finalmente trazida às claras. Então, a humanidade passa a adequar mecanismos para impedir o extremo acúmulo de riquezas e, por consequência, impedir suas manobras políticas, midiáticas, estatais, bélicas, etc. Uma vez compreendida a motivação do real agente da miséria, e de como esse agente dá manutenção a essa situação, é possível mirar os holofotes no real foco das catástrofes.
 
@@ -2346,53 +2407,61 @@ Quando a humanidade compreende os mecanismos de distração que os super-ricos u
 
 Por que os ensinamentos de Jesus ocasionaram uma reviravolta tão violenta contra Ele? Por que tentaram desmoralizá-lo de todas as formas possíveis? O que realmente os ensinamentos de Jesus estavam fazendo com a sociedade? De que forma estavam transformando tudo? E como os fariseus da época sabiam que esses ensinamentos poderiam mudar a forma com que o homem enxerga o mundo e a si mesmo, de forma a não se deixar ser mais escravo? De forma a entender totalmente os mecanismos psicológicos e metafísicos da mentalidade que escraviza?
 
-Jesus ensinava metafísica, psicologia e espiritualidade, tal como uma posição política de liberdade. Jesus era a mente mais inteligente daquela época; sua tentativa de reforma política começava pelo cerne do ser humano, que é seu intuito pela existência. Jesus sabia, de certa forma, que a hipocrisia, que a opressão começava no desontismo ao afirmar que é mais fácil um rico entrar no reino dos céus do que um camelo passar no buraco de uma agulha.
+Jesus ensinava metafísica, psicologia e espiritualidade, tal como uma posição política de liberdade. Jesus era a mente mais inteligente daquela época; sua tentativa de reforma política começava pelo cerne do ser humano, que é seu intuito pela existência. Jesus sabia, de certa forma, que a hipocrisia, que a opressão começava no desontismo ao afirmar que é mais fácil um camelo passar no buraco de uma agulha do que um rico entrar no reino dos céus.
 
-Jesus via a necessidade do povo de entender a metafísica da vida para compreender como funcionam as torrentes do poder e como elas agem no status quo da sociedade. Se Jesus estivesse ensinando somente espiritualidade, talvez não seria tão perseguido, mas estava influenciando a sociedade como um todo.
+Jesus via a necessidade do povo de entender a metafísica da vida para compreender como funcionam as torrentes do poder e como elas agem no *status quo* da sociedade. Se Jesus estivesse ensinando somente espiritualidade, talvez não fosse tão perseguido, mas estava influenciando a sociedade como um todo.
 
-O homem, usando somente o ponto de vista político, não poderia compreender pelo que está sendo dominado. O homem, sem compreender a razão desontista, não identificaria que as torrentes de poder que o oprimem não são uma fatalidade capitalista, mas têm um propósito e intuito definido, são fatores planejados. O homem, visualizando com clareza o intuito do bilionário, pode, facilmente, enxergar que o bilionário não está a favor de causas sociais, e que sua mentalidade não é genial de fato a ser um agente social incompreendido e digno de confiança, já que pode reunir tanta fortuna. Ou seja, o rico não é necessariamente um gênio incompreendido, mas alguém que enriquece através de atos fraudulentos que o adornam de um poder que não é merecido pela sua inteligência. E essa visão priorizada do poder é possível graças ao conhecimento da alma, o qual Jesus insistentemente tentava passar ao povo.
+O homem, usando somente o ponto de vista político, não poderia compreender pelo que está sendo dominado. O homem, sem compreender a razão desontista, não identificaria que as torrentes de poder que o oprimem não são uma fatalidade capitalista, mas têm um propósito e intuito definidos, são fatores planejados. O homem, visualizando com clareza o intuito do bilionário, pode, facilmente, enxergar que o bilionário não está a favor de causas sociais, e que sua mentalidade não é genial de fato para ser um agente social incompreendido e digno de confiança, já que pode reunir tanta fortuna. Ou seja, o rico não é necessariamente um gênio incompreendido, mas alguém que enriquece através de atos fraudulentos que o adornam de um poder que não é merecido pela sua inteligência. E essa visão priorizada do poder é possível graças ao conhecimento da alma, o qual Jesus insistentemente tentava passar ao povo.
 
-Jesus ensinava sobre a hipocrisia religiosa, sobre a rebeldia a escravidão, sobre o intuito do homem rico, e esse conhecimento abalava, não somente a estrutura do poder, mas algo muito mais profundo, abalava a compreensão acerca do poder. No que o poder se baseia, o que ele busca, qual seu propósito definido. Jesus deu o start, o pontapé do conhecimento essencial para acabar com todos os problemas sociais. Acabar com o domínio realizado por bilionários desontistas, por uma cúpula que se reúne para fomentar diferenças sociais, guerras, e tantas artimanhas para manter o status quo do mundo.
+Jesus ensinava sobre a hipocrisia religiosa, sobre a rebeldia à escravidão, sobre o intuito do homem rico, e esse conhecimento abalava não somente a estrutura do poder, mas algo muito mais profundo: abalava a compreensão acerca do poder. No que o poder se baseia, o que ele busca, qual seu propósito definido. Jesus deu o *start*, o pontapé do conhecimento essencial para acabar com todos os problemas sociais. Acabar com o domínio realizado por bilionários desontistas, por uma cúpula que se reúne para fomentar diferenças sociais, guerras e tantas artimanhas para manter o *status quo* do mundo.
 
 A cúpula desontista sempre existiu desde a época de Jesus. Sempre houve pessoas com o poderio da época se reunindo para tramar contra o mundo, e o mundo continua sem compreender a existência das cúpulas e seu propósito.
 
-O propósito da cúpula é um só: o caos. É desvelar todo o desespero ao mundo, é exercer um vício sobre o mundo, uma dominação incessante, é a busca pela cura definitiva disfarçada em guerra, violência, diferenças sociais, manipulação política, etc. O desontista tenta, ao extremo da mania, destruir o mundo e, antes disso, aprisionar todos os humanos de forma a fazê-los falar, falar o propósito da vida, falar algo que lhes toque o coração. Se não pela tecnologia, por bombas, por exércitos, por tudo o que tiverem em mãos. O desontista busca uma coisa só: a ilusão de que não se é quem se é, a ilusão de que pode ser salvo sem seu próprio querer, um disfarce para sua dor. Quer um breve delírio de propósito, um breve alto valor pela sua existência, um breve sonhar de que é uma elite e que a elite está destinada a algo maior. A cúpula desontista é um reunido de loucos que todos acreditam serem geniais e trabalharem por um propósito na terra.
+O propósito da cúpula é um só: o caos. É desvelar todo o desespero ao mundo, é exercer um vício sobre o mundo, uma dominação incessante, é a busca pela cura definitiva disfarçada em guerra, violência, diferenças sociais, manipulação política, etc. O desontista tenta, ao extremo da mania, destruir o mundo e, antes disso, aprisionar todos os humanos de forma a fazê-los falar, falar o propósito da vida, falar algo que lhes toque o coração. Se não pela tecnologia, por bombas, por exércitos, por tudo o que tiverem em mãos. O desontista busca uma coisa só: a ilusão de que não se é quem se é, a ilusão de que pode ser salvo sem seu próprio querer, um disfarce para sua dor. Quer um breve delírio de propósito, um breve autovalor pela sua existência, um breve sonhar de que é uma elite e que a elite está destinada a algo maior. A cúpula desontista é um reunido de loucos que todos acreditam serem geniais e trabalharem por um propósito na terra.
 
 A cúpula não é uma teoria ou uma metáfora, mas pessoas extremamente afortunadas planejando guerras, manipulação política, ataques, invasões. Se existem essas coisas, certamente alguém as planejou, e se as planejou, a cúpula é real.
 
-A cúpula desontista é especialista em manipulação, sabe jogar país contra país, líderes contra líderes e o povo contra si mesmo. Gosta de causar a guerra para espelhar o conflito de seu interior em algo exterior. Gosta de contemplar a balbúrdia, a desavença, o terror, como uma forma de sentir-se compreendido, como forma de extrair um conteúdo interior para fora.
+A cúpula desontista é especialista em manipulação; sabe jogar país contra país, líderes contra líderes e o povo contra si mesmo. Gosta de causar a guerra para espelhar o conflito de seu interior em algo exterior. Gosta de contemplar a balbúrdia, a desavença, o terror, como uma forma de sentir-se compreendida, como forma de extrair um conteúdo interior para fora.
 
 O desontista deleita-se da guerra como se fosse um conteúdo peculiar, como se visse tudo o que sempre quis, com olhos de gula e loucura, como se todos se sentissem palhaços como ele, como se seu despropósito interior, que soa jocoso, fosse espelhado para fora dele, de forma que, por um breve momento, se sentisse de alguma forma sábio ou rico, pois, de certa forma, causou o caos dentro de si em seu exterior, como forma de se autovalidar.
 
 A cúpula desontista precisa que exista fome, faz com que a humanidade gaste com fatores desnecessários, faz com que a energia social de construção se dissolva em atividades inúteis quando a subsistência deveria ganhar primazia.
 
-### **desontismo, Crise e Sociedade**
+---
+
+### **[CÓDIGO 1.2 - A Essência Metafísica do Desontismo e as Três Vias de Escape]** *(Nota: Os parágrafos seguintes desta seção dialogam também com o Código 3.1 sobre o consolo na tristeza alheia, o Código 2.1 sobre o corpo sequestrado, o Código 5.4 sobre a manipulação de artistas para destruir a família e o Código 4.6 sobre a miséria como construção mental)*
+
+### **Desontismo, Crise e Sociedade**
 
 O desontista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutífera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o desontista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
 
-O desontista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveito da vida, faz com que ele se console, ou faz com que sinta-se compreendido. O desontista, portanto, usa de perspicácia, e estratégias para passar na frente em situações econômicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma, o outro que, parece-lhe impassível diante de sua índole. É um absurdo para o desontista a aceitação alheia a seu intento. Porque isso contraria seu próprio propósito de vingança, se houver, ao passo que o faz se sentir diminuído.
+O desontista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveito da vida faz com que ele se console, ou faz com que se sinta compreendido. O desontista, portanto, usa de perspicácia e estratégias para passar na frente em situações econômicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma o outro, que lhe parece impassível diante de sua índole. É um absurdo para o desontista a aceitação alheia a seu intento. Porque isso contraria seu próprio propósito de vingança, se houver, ao passo que o faz se sentir diminuído.
 
 O desontista intenta um objetivo tolo de aproveitar cada segundo da vida, não no sentido real do deleite, mas no sentido desesperado, um proveito que até mesmo o prejudica, um excesso de proveito que o afasta dos relacionamentos genuínos. Um torpor de excesso de festas ou atividades que o fazem esquecer de sua mentalidade. Ao passo que também este desespero é motivado por querer acreditar que para si não há esperança e que esta é sua última vida.
 
 O pretexto desontista é o fomentador da miséria, da guerra. Tudo isso é o ser humano clamando pelo seu direito mais fundamental: o direito à vida eterna. É o corpo se manifestando, lutando contra a própria alma num pedido de socorro.
 
-O desontismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenário catastrófico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falência espiritual de indivíduos que não querem passar desapercebidos e dão seu último grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos templos, mas se manifesta na própria economia mundial em gritos retumbantes. Se manifesta na guerra. Se manifesta entre bombas. Entre catástrofes.
+O desontismo é o verdadeiro fracasso dos fracassos, a miséria das misérias. A verdadeira miséria na terra se esconde por trás de acontecimentos e sintomas. Por trás de manifestações que deixam um cenário catastrófico, triste e desfigurado. Por trás da destruição das belezas naturais, do brilho dos famosos, da arte, do ar, dos bons exemplos, está a expressão do fracasso, da falência espiritual de indivíduos que não querem passar despercebidos e dão seu último grito de socorro. A humanidade precisa de Deus, e não é só uma necessidade que se manifesta nos templos, mas se manifesta na própria economia mundial em gritos retumbantes. Se manifesta na guerra. Se manifesta entre bombas. Entre catástrofes.
 
-A humanidade se afugenta na catástrofe dos que se afogam, e se agarram com todas as forças nas expressões de dominação, nas expressões da miséria e violência que desfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
+A humanidade se afugenta na catástrofe dos que se afogam, e se agarra com todas as forças nas expressões de dominação, nas expressões da miséria e violência que desfiguram o sentido do humano em prol de uma busca desconhecida ainda para a humanidade.
 
 Este documento não traz a salvação tal como Jesus a trouxe, mas traz uma visão metafísica que pode e vai influenciar de forma profunda no cenário global. Não resolve de fato os conflitos espirituais do desontismo, porém atua fortemente na organização social: uma vez essa sintomática social sendo compreendida, a sociedade desenvolverá formas de lidar e de barrar a ação desontista. Uma política com visão metafísica, que compreende realmente os mecanismos psicológicos por trás dos ricos e a forma que agem. De monstros, causadores e manipuladores do mundo, de fomentadores de holocaustos e da miséria, de destruidores das paisagens naturais, após a reforma política através do conhecimento metafísico, vão ser simples cidadãos com problemas existenciais, que serão compreendidos e tratados da melhor forma, além de disporem de um mundo que os incentiva à melhora a cada dia.
 
-Para se livrar do mal feitor, que seria o desontismo, o corpo incorpora o desontismo, de forma a se tornar assassino, como forma de tentativa de escape num alívio de pressão sob a aceitação do desontismo.
+Para se livrar do malfeitor, que seria o desontismo, o corpo incorpora o desontismo, de forma a se tornar assassino, como forma de tentativa de escape num alívio de pressão sob a aceitação do desontismo.
 
 O corpo se sente preso, se sente sequestrado com o pensamento desontista, reage como uma unidade dissociada da alma. Ativa suas defesas, na expressão de seu conteúdo desontista, de forma que desenvolva até mesmo um quadro de agressividade.
 
-- A cúpula desontista induz o homem a esvaziar o relacionamento de sentido, a tornar trivial a separação, a normalizar a dissociação do antro familiar, a banalizar o contato entre o homem e mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mútuo de compreensão. Artistas são impelidos à separação na tentativa de banalizar para o mundo o arquétipo de família, a construção familiar. O que causa intencionalmente indivíduos mal formados moralmente, alienados quanto a seu auto valor e propensos à criminalidade ou à desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barato do que o suborno de milhões a um político. O artista tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança instituída, sem investigação tal como a figura de um político, e de fácil acesso popular e assédio. Tal como fácil manipulação e ameaça.
+* A cúpula desontista induz o homem a esvaziar o relacionamento de sentido, a tornar trivial a separação, a normalizar a dissociação do antro familiar, a banalizar o contato entre o homem e a mulher a um mero instante ou conformidade que acontece ao acaso, e não por esforço mútuo de compreensão. Artistas são impelidos à separação na tentativa de banalizar para o mundo o arquétipo de família, a construção familiar. O que causa intencionalmente indivíduos malformados moralmente, alienados quanto a seu autovalor e propensos à criminalidade ou à desordem. É um meio barato de provocar miséria, visto que a pressão sobre o artista pode sair mais barata do que o suborno de milhões a um político. O artista tem sido um dos maiores instrumentos de promoção de falsos valores que levam ao caos social, pois carece de ser uma pessoa sem segurança instituída, sem investigação tal como a figura de um político, e de fácil acesso popular e assédio. Tal como fácil manipulação e ameaça.
 
 Jesus senta a humanidade em seu colo e explica carinhosamente: a experiência neste mundo não é a mesma para todas as pessoas. Portanto, não se pode deixar grandes fortunas na mão de um pequeno ser humano, que às vezes está em crise, atormentado por si mesmo e seus pensamentos tortuosos.
 
 Que provocam distrações em massa. E o povo continua consumindo produtos perecíveis, mantendo as grandes fortunas. O comportamento do ser humano ainda é de gado pecuário, na medida em que aceita como algo comum o acúmulo de fortuna na mão de poucos, mesmo este acúmulo estando sujeito a qualquer tipo de comportamento. O bilionário observando a guerra como um jogo de xadrez. O ser humano é tratado ainda como elemento de produção pelos bilionários. Brincam com armas de destruição, assustam a população e ficam rindo, se deliciando com vinhos e especiarias. Enxergam a humanidade como gado, como produção inteligente; quando a boiada ameaça a dispersão, quando a concentração é ameaçada, basta estalar o arreio, ou seja, as catástrofes. E a humanidade continua produzindo.
 
-A miséria é uma construção, um projeto desontista, uma idealização mental, para construir a miséria planos precisam ser arquitetados, o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na sociedade por meio de estratégias e ações. A miséria é um mundo mental construído, tal como é a violência, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção desontista de catástrofe de sua própria existência. O causador da miséria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciável, e que, se deleita do desconhecimento para deixar essa loucura germinar de forma catastrófica.
+A miséria é uma construção, um projeto desontista, uma idealização mental; para construir a miséria, planos precisam ser arquitetados; o condicionamento natural da sociedade é por usufruir dos bens naturais e pela divisão. A pobreza é pensada, arquitetada, mentalizada e projetada na sociedade por meio de estratégias e ações. A miséria é um mundo mental construído, tal como é a violência, um mundo mental no qual o ser humano pode sentir de alguma forma, na pele, a projeção desontista de catástrofe de sua própria existência. O causador da miséria continua sendo humano, mas um humano alterado, obsessivo, um humano que tem um ideal obsessivo em si, uma mania insaciável, e que se deleita do desconhecimento para deixar essa loucura germinar de forma catastrófica.
+
+---
+
+### **[CÓDIGO 1.6 - Cartografia das Almas (Inferno, Purgatório e Paraíso)]**
 
 ### **A porta do céu é estreita**
 
@@ -2400,65 +2469,88 @@ Embora viver **pareça** fácil, exige força, resiliência e amor. E os bilion�
 
 O povo que vive e suporta sua carga é vitorioso. Trata-se de uma vitória silenciosa. Diferentemente do pensamento desontista, que deseja destruir a todos, o povo carrega nos olhos um fulgor de esperança, uma chama acesa que nunca se apaga, mesmo quando aflito.
 
-### **A visão do desontista sobre a indiferencia alheia a seu estado de relutancia**
+---
 
-O desontista enxerga a indiferença alheia a seu estado espíritual como um incentivo ao mesmo, como uma concordancia de que seu destino é o correto e que sua decisão condiz com a vontade de todos. Isto aumenta sua revolta, e o faz ate mesmo tomar uma retaliação, provoca uma intensa raiva. Ao perceber que, todos consideram sua decisão de sua vontade e estão conformizados em ter sua vida, segregando o conflito desontista, ou o considerando algo sem importancia.
+### **[CÓDIGO 7.2 - A Urgência da Evangelização e a Cura pelo Amor]** *(Nota: Também dialoga com o Código 3.1 sobre a revolta diante da indiferença alheia)*
 
-O desontista precisa, e carece de incetivo a saida de seu estado, de forma que, se sente menos agressivo e predisposto ao caos social quando é amparado por algum dogma que lhe forneça a esperança de saida de sua mentalidade, seja por meios naturais ou sobrenaturais. 
+### **A visão do desontista sobre a indiferença alheia a seu estado de relutância**
 
-Na ausencia de uma medida sobrenatural, o desontista intensifica sua busca frenetica por bens materiais ou meios de satisfazer sua vida de sentido. Portanto, sem evangelização, se tem o agravamento dos mecanismos de fuga desontistas a tomada da consiencia desontista.
+O desontista enxerga a indiferença alheia a seu estado espiritual como um incentivo ao mesmo, como uma concordância de que seu destino é o correto e que sua decisão condiz com a vontade de todos. Isto aumenta sua revolta, e o faz até mesmo tomar uma retaliação, provoca uma intensa raiva. Ao perceber que todos consideram sua decisão de sua vontade e estão conformados em ter sua vida, segregando o conflito desontista, ou o considerando algo sem importância.
 
+O desontista precisa e carece de incentivo à saída de seu estado, de forma que se sente menos agressivo e predisposto ao caos social quando é amparado por algum dogma que lhe forneça a esperança de saída de sua mentalidade, seja por meios naturais ou sobrenaturais.
 
-## O jogo de soldados do desontista super rico
+Na ausência de uma medida sobrenatural, o desontista intensifica sua busca frenética por bens materiais ou meios de satisfazer sua vida de sentido. Portanto, sem evangelização, tem-se o agravamento dos mecanismos de fuga desontistas à tomada da consciência desontista.
 
-O desontista bilionário, incorpora uma criança frustrada, que destroi as peças do brinquedo, uma vez na posse de manipular guerras, manusear jatos, armas de destruição, sente-se uma criança num tabuleiro, incorpora uma criança frustrada por perder-se de si mesmo, incorpora a criança que deveria ser, quando o observa a paz do mundo se frustra, quer causar miséria, cansaço, escravidão, e em seu limite quer causar um tabuleiro de guerra, onde sua criança interior que esta ameaçada destroi o cenario mundial, essa sintomatica se manifesta em razão do potencial de manifesta-la. Na posse de grande controle o desontista tem uma vazão maior para descarregar seu não querer por si. Ao passo que é um protesto que reinvindica a si mesmo, de alguma forma, é uma tentativa de alivio, de fazer com que o outro tenha ideia da dimensão de si, numa forma de expressao máxima, aquela que é expressada no sofrimento e na dor do outro.
+---
 
+### **[CÓDIGO 5.5 - O Tabuleiro de Guerra e a Monarquia Oculta]** *(Nota: Também dialoga com o Código 2.5 sobre a criança interior frustrada que destrói o brinquedo)*
 
+## O jogo de soldados do desontista super-rico
 
+O desontista bilionário incorpora uma criança frustrada, que destrói as peças do brinquedo; uma vez na posse de manipular guerras, manusear jatos, armas de destruição, sente-se uma criança num tabuleiro, incorpora uma criança frustrada por perder-se de si mesmo, incorpora a criança que deveria ser; quando observa a paz do mundo se frustra, quer causar miséria, cansaço, escravidão, e em seu limite quer causar um tabuleiro de guerra, onde sua criança interior que está ameaçada destrói o cenário mundial; essa sintomática se manifesta em razão do potencial de manifestá-la. Na posse de grande controle, o desontista tem uma vazão maior para descarregar seu não querer por si. Ao passo que é um protesto que reivindica a si mesmo, de alguma forma, é uma tentativa de alívio, de fazer com que o outro tenha ideia da dimensão de si, numa forma de expressão máxima, aquela que é expressada no sofrimento e na dor do outro.
 
+---
+
+### **[CÓDIGO 4.6 - A Ilusão da Escassez, a Destruição Ambiental e o Paradoxo do Formigueiro]** *(Nota: Trata da pobreza e do trabalho escravo vendidos pelos bancos como uma "droga" de distração existencial)*
 
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
-Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais, compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o desontista.
+Os banqueiros e grandes empresas que lucram com os juros da dívida pública, isenções fiscais e paraísos fiscais compreenderam que, por vezes, a humanidade se alimenta de uma droga que se chama pobreza. A pobreza oferecida é um caminho menos agressivo ao corpo, pelo qual o humano se enche de tarefas e limitações para não precisar refletir sobre a morte e sobre sua existência. Ao passo que também foge das religiões, que por vezes soam conflitantes e temerosas ao seu psicológico, também não dispõe de uma explicação que lhe soe mais suave e lógica sobre a existência. Esse livro, por exemplo, é uma visão agradabilíssima da existência, que pode não soar agradável somente para o desontista.
 
 Certamente, para o desontista, ter um conjunto de regras que o salvariam da própria autonomia é mais confortador que uma visão metafísica da própria liberdade. No entanto, é necessário todo tipo de evolução metafísica e da visão bíblica para que a humanidade deixe de lado o vício do trabalho, do entretenimento constante, e se permita o descanso.
 
 Um serviço escravo não é sempre imposto, mas às vezes é vendido, é oferecido como forma de aplacar dúvidas, medos e anseios existenciais. É uma forma de pausar à força o pensamento, impedi-lo de sintonizar-se com a realidade da finitude do homem e ainda o quase completo desconhecimento do que seja a alma e como ela permanecerá no tempo.
 
-Isto explica o fato de que, em países como o Brasil, se aceite algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceite fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
+Isto explica o fato de que, em países como o Brasil, aceite-se algo que não é complexo de entender, como a dívida pública em quantias exorbitantes, mas não se aceitem fatores muito mais complexos, como a corrupção. Ou seja, o povo tem a capacidade de tratar e pensar sobre assuntos mais complexos e deixa o não complexo e resolvível sem protestos ou soluções. Como se aquela fonte fosse a mais pura e segura de manter, e pudesse ser acabada facilmente, diferentemente das mais complexas, como se o povo esperasse a resposta metafísica e apenas precisasse dessa sensação de segurança para finalmente libertar seu pensamento para o deleite da vida.
 
-> Oração pela alma: Oh senhor me mostraste o mundo nu e cru, vi a violência, a miséria, a escassez, a pobreza, e todo o mal do mundo, vi o mal e o bem. Vi meu irmão praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer consigo para sempre. Elimine de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de dúvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poder amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesma que exista os que praticam o mal, pois te amarei acima de todas as coisas.
+---
 
+### **[CÓDIGO 7.5 - O Desmascaramento Final, Apocalipse Social e Orações]**
 
+> Oração pela alma: Ó Senhor, mostraste-me o mundo nu e cru; vi a violência, a miséria, a escassez, a pobreza e todo o mal do mundo, vi o mal e o bem. Vi meu irmão praticar o mal, e vi praticar o bem. Vi a verdade, vi todas as coisas piores e melhores que poderia haver no existir, e mesmo assim escolho permanecer contigo para sempre. Elimina de mim até mesmo a possibilidade da corrupção, que eu seja eternamente grato pela vida, sem sombra ou possibilidade de dúvida. Que eu seja consagrado eternamente ao existir. Que não ouça nem um momento sequer estes que duvidam da vida e estes que reclamam de qualquer advento ou conflito, destes que esperam que tudo seja perfeito para finalmente poderem te amar. Para finalmente poderem amar a vida. Senhor, te amo mesmo que a vida seja imperfeita, mesmo que existam os que praticam o mal, pois te amarei acima de todas as coisas.
 
-# TRATADO SOBRE O desontismo, A APATIA E O DESPERTAR DO ESPÍRITO
+---
 
-## PARTE I: A DUPLA SINTOMÁTICA DO desontismo E O PERIGO DO ACÚMULO
+### **[CÓDIGO 1.3 - O Paradoxo de "Escolher Não Escolher" e a Vitrificação da Alma]** *(Nota: As subseções 2, 3 e 4 também dialogam com o Código 4.1 sobre a frustração do bilionário, o Código 1.4 sobre a visão de penumbra/marionete e o Código 3.1 sobre o ódio perante a diferença espiritual)*
+
+# TRATADO SOBRE O DESONTISMO, A APATIA E O DESPERTAR DO ESPÍRITO
+
+## PARTE I: A DUPLA SINTOMÁTICA DO DESONTISMO E O PERIGO DO ACÚMULO
 
 ### 1. A Prisão da Alma e a Rejeição da Liberdade
+
 Há uma dupla sintomática no desontismo, porque há uma dupla percepção do corpo. O corpo percebe a intencionalidade da alma, ao passo que há a vitrificação da alma numa existência levada por estímulos físicos, onde o indivíduo não exerce o comando da ação. Ao passo que o indivíduo se percebe prisioneiro de si, percebe-se intencionado a um destino que não lhe pertence como corpo, pois o corpo rejeita e repugna esse destino com toda a sua biologia. O homem pode escolher não escolher, no sentido de que, quando escolhe um ódio tamanho, simplesmente se faz metafisicamente morto. A própria rejeição à liberdade é uma não escolha.
 
 ### 2. A Frustração do Bilionário e a Saudade de Si
-A humanidade julga que o bilionário se sacia com o dinheiro. Pelo contrário, o bilionário se torna cada vez mais frustrado com o dinheiro, pois julga que o dinheiro não lhe conferiu valor, somente lhe conferiu engano. Sente, em seu âmago, que o dinheiro foi um delírio, pois não encontrou realmente o que procurava. O desontista tem uma saudade de si, de sua autonomia, de enxergar a si mesmo como vivo. É intencionalmente levado à anulação, ao passo que enxerga sua intencionalidade e seu estado petrificado, como se estivesse imóvel, levado por uma correnteza. Sente até mesmo um estranhamento perante a vida; a liberdade lhe angustia, ao passo que se faz intencionalmente levado à anulação. Faz-se prisioneiro, pois, ao negar a própria liberdade, já está como uma alma vidrificada, levada pela correnteza dos estímulos; enquanto espera seu descarte, está refém de uma vida que não aceitou.
+
+A humanidade julga que o bilionário se sacia com o dinheiro. Pelo contrário, o bilionário se torna cada vez mais frustrado com o dinheiro, pois julga que o dinheiro não lhe conferiu valor, somente lhe conferiu engano. Sente, em seu âmago, que o dinheiro foi um delírio, pois não encontrou realmente o que procurava. O desontista tem uma saudade de si, de sua autonomia, de enxergar a si mesmo como vivo. É intencionalmente levado à anulação, ao passo que enxerga sua intencionalidade e seu estado petrificado, como se estivesse imóvel, levado por uma correnteza. Sente até mesmo um estranhamento perante a vida; a liberdade o angustia, ao passo que se faz intencionalmente levado à anulação. Faz-se prisioneiro, pois, ao negar a própria liberdade, já está como uma alma vitrificada, levada pela correnteza dos estímulos; enquanto espera seu descarte, está refém de uma vida que não aceitou.
 
 O dinheiro do bilionário desontista só lhe serve para fazer mais fúria e para tentar fazê-lo espelhar o que sente nas massas. Isto é, o bilionário não usa o dinheiro para deleite; seu deleite é a visão do acúmulo e a visão de que o outro tende a sentir ao menos meramente o que ele sente.
 
 ### 3. A Perda do Autodomínio e a Visão de Penumbra
+
 O desontista sente que há uma parte esquecida de si, alguém que não se lembra de quem é; há sempre uma angústia em seu peito, um medo desnecessário, como se não fosse guiado por si, mas por forças exteriores a si. Como se fosse uma marionete, ao passo que intenciona ser descartável, considera-se imóvel. Como se a realidade lhe fosse apertada, como se não conseguisse se mover. Falta-lhe o motor do movimento.
 
 O desontista se julga sem autodomínio, autopresença e autoconhecimento. Porém, ao mesmo tempo, sente que possui tais características. Tem, portanto, uma visão de penumbra, como se somente enxergasse as sombras da realidade. Ambas as visões se misturam. E isso resulta em um indivíduo que enxerga sua cegueira, ou que vê sua escuridão.
 
 ### 4. O Ódio Perante a Diferença Social
+
 A tristeza é uma constante companhia para o desontista, então sempre necessita de estímulos e sempre está fugindo da autorreflexão, pois uma visão alienante de si não lhe confere uma alegria natural e cotidiana.
 
-O desontista se enche de ódio ao presenciar a verdadeira diferença, a discrepância social, indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o desontista.
+O desontista se enche de ódio ao presenciar a verdadeira diferença, a discrepância social: indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o desontista.
+
+---
+
+### **[CÓDIGO 7.4 - Reforma Estrutural, Desarmamento Financeiro e a Nova Sociedade]** *(Nota: Estabelece o teto de 100 milhões como questão de segurança global e analisa o risco de armas biológicas/tecnológicas nas mãos de bilionários, dialogando também com o Código 5.5)*
 
 ### 5. O Controle Político e a Arma do Acúmulo
-Os bilionários estão no comando da classe média; existe tal classe porque assim a manipulação política e dos votos funciona de forma melhor, se não, nem mesmo a política giraria em prol da classe média. Os bilionários só pensam em prol de seus interesses, e quando houver meios de dispensar humanos para produção, imediatamente não será necessário nem mesmo a classe média, que é manipulada para sustentar uma direita política.
 
-A solução dos problemas do mundo é passar a considerar o acúmulo de fortunas uma arma, a qual deve ser monitorada caso seja concedida a um só ser humano, pois não se pode deduzir sua intenção nem a intenção dos que lhe cercam. Dessa forma, ao estabelecer um limite financeiro, as ações de manipulação são pausadas e a função política das nações começa a realmente exercer seu papel. Se um ser humano puder acumular o máximo de 100 milhões, isso já eliminaria a capacidade de manipulação. O dinheiro acumulado, como livre produto, é o fator de risco que não deveria ser permitido. Um ser humano possuir bilhões é um absurdo quando se tem a consciência da completude do ser humano e suas sintomáticas. Necessariamente, um desontista dispondo de bilhões recorrerá a manipulações de todas as formas, uma vez dispondo de recursos abundantes.
+Os bilionários estão no comando da classe média; existe tal classe porque assim a manipulação política e dos votos funciona de forma melhor; senão, nem mesmo a política giraria em prol da classe média. Os bilionários só pensam em prol de seus interesses, e quando houver meios de dispensar humanos para produção, imediatamente não será necessária nem mesmo a classe média, que é manipulada para sustentar uma direita política.
+
+A solução dos problemas do mundo é passar a considerar o acúmulo de fortunas uma arma, a qual deve ser monitorada caso seja concedida a um só ser humano, pois não se pode deduzir sua intenção nem a intenção dos que o cercam. Dessa forma, ao estabelecer um limite financeiro, as ações de manipulação são pausadas e a função política das nações começa a realmente exercer seu papel. Se um ser humano puder acumular o máximo de 100 milhões, isso já eliminaria a capacidade de manipulação. O dinheiro acumulado, como livre produto, é o fator de risco que não deveria ser permitido. Um ser humano possuir bilhões é um absurdo quando se tem a consciência da completude do ser humano e suas sintomáticas. Necessariamente, um desontista dispondo de bilhões recorrerá a manipulações de todas as formas, uma vez dispondo de recursos abundantes.
 
 ### 6. O Perigo Oculto e a Inteligência Doente
+
 Limitar a margem de ganho e acúmulo é a única forma de impedir manipulações, catástrofes e guerras. O dinheiro acumulado é uma arma poderosíssima, que é levada como apenas um evento trivial, enquanto as pessoas estão entretidas com catástrofes inteligentemente arquitetadas; os bilionários estão livres para agir, com o povo inconsciente deste perigo. O povo, levado a pensar que o real perigo está nas bombas atômicas ou na violência urbana, é desviado do pensamento do perigo de pessoas com fortunas acumuladas. Uma fortuna pode dar chance de um indivíduo não somente manipular a mídia e a política, mas também fabricar armas biológicas ou elementos tecnológicos de domínio.
 
 Os bilhões de um indivíduo o dispõem de anonimato, de todos os recursos tecnológicos e eruditos das áreas mais vastas. Portanto, a fortuna confere um poder com o qual o indivíduo se julga um dominador, um rei. Pois está a par das decisões de políticos e pode influenciá-las como se fosse rei. Os imperadores do mundo são os bilionários, e ninguém enxerga isto até que um deles construa armas de dominação em massa; então, finalmente, a humanidade enxergará o que vem tentando enxergar: que não se deve possibilitar acumuladores de fortunas, pois, se grandes fortunas caem na mão de um desontista articulador, inteligente o suficiente, a destruição será inevitável.
@@ -2471,18 +2563,27 @@ Há uma inteligência doente por trás destes acontecimentos, homens furiosos e 
 
 ---
 
+### **[CÓDIGO 2.1 - A Guerra Civil Interior e os Anticorpos Emocionais]** *(Nota: Define a distinção entre Sintomas Vívidos/Intencionais e Sintomas Desontistas/Não Intencionais, dialogando diretamente com a tabela da subseção 6 abaixo)*
+
 ## A DINÂMICA DO ESPÍRITO, A MISÉRIA E A INAÇÃO
 
 *Nesta seção, consolidamos os preceitos existenciais que moldam as percepções internas do indivíduo perante a apatia e a sua cisão espiritual.*
 
 ### 1. Divergências Sintomáticas e a Visão Transcendental
-A sintomática diverge em dois caminhos: os sintomas vívidos e os sintomas desontistas. Ambos se misturam e são perceptíveis. 
-* Os **sintomas vívidos** se relacionam à percepção da intenção pela anulação. 
+
+A sintomática diverge em dois caminhos: os sintomas vívidos e os sintomas desontistas. Ambos se misturam e são perceptíveis.
+
+* Os **sintomas vívidos** se relacionam à percepção da intenção pela anulação.
 * Os **sintomas desontistas** se associam à percepção da apatia, do assombro mediante a existência distinta de sua conexão, de seu querer, de si. Funcionam como um estranhamento geral, como uma barreira entre a consciência que percebe a existência, mas não se conecta.
 
 A visão de Deus não depende da visão física. O pensamento, por sua vez, não depende estritamente do pensamento em si.
 
+---
+
+### **[CÓDIGO 1.3 - O Paradoxo de "Escolher Não Escolher" e a Vitrificação da Alma]** *(Nota: A subseção 4 dialoga com o Código 4.6 sobre a miséria como construção ideológica, e a subseção 6 dialoga com o Código 2.1 sobre a Dupla Tipologia Sintomática)*
+
 ### 2. O Renascimento do Espírito e a Paralisia do Ódio
+
 O renascimento do Espírito implica que o indivíduo era vivo, apesar de ser guiado pelos instintos corporais. E depois permanece imóvel. O seu permanecer imóvel é vivo, e autocausado. Porém, ao mesmo tempo, é um não mover-se. É um não renascer. O Espírito autocausa sua queda, porém, ao mesmo tempo, não se move porque não nasceu, não criou movimento. O amor é o motor da ação. O espírito se autodetermina, porém, sua autodeterminação é viva sem que tenha a verdadeira vida. O indivíduo permanece imóvel; o ódio, ao mesmo tempo que é uma atividade em direção à anulação, é uma não atividade.
 
 Ao exemplificarmos, temos que, se a dualidade gera uma terceira alma, a essa terceira alma é doada a vida, de forma que é a união de ambas em uma indiferenciação. Porém, essa nova alma tem um sentido particular; o sentido repassado pelos pais não realiza completamente seu sentido, que terá uma perspectiva individual. A alma, enquanto imposta à vida, no sentido de uma obrigatoriedade existente, vê-se sem seu sentido, de forma que a mobilidade seja relativa a seu instinto corporal. Curva-se, portanto, aos instintos mundanos, sem o movimento. Sua fatalidade, portanto, não é nem mesmo autocausada, mas é também uma paralisia. É autocausada, e o sentido do ódio se encerra no sentido da ausência da autodeterminação. A autodeterminação em si carrega um ódio vivo. O ápice do ódio autocausado é a estaticidade. O ódio, portanto, não se torna um objetivo, mas uma paralisia. O ódio consumado não é a alma se guiando a um patamar, mas é deixando-se sucumbir pela ausência do sentido. O ódio em seu ápice não é um acúmulo de paixões, mas é a ausência de amor, a ausência até mesmo do ódio.
@@ -2492,44 +2593,58 @@ A alma, portanto, não se lança no inferno por ódio, mas se realiza em seu nã
 O coração totalmente endurecido, imóvel, é a extensão máxima do ódio, um ente que nem mesmo se movimenta em rejeição a si mesmo e à própria liberdade. A rejeição à vida não é uma ação ou direcionamento, pois toda ação é conduzida à vida, mas é uma estaticidade. Por isso, o não renascer pode ser considerado uma opção deliberada.
 
 ### 3. A Inação como Ação Viva
+
 A inação é uma ação viva, que se configura como uma vida morta. É um abismo que tem olhos. Que se fez abismo não porque é morto, mas porque tem um intuito estático. Não odiou algo em vida, mas rejeitou a própria liberdade. A rejeição de si começa na rejeição da própria liberdade, não no próprio suicídio. Isto é, antes de rejeitar o corpo com uma ação suicida, o corpo agiu, corroborou com a liberdade para se anular; porém, a alma que se fada ao inferno simplesmente queima pela inação, simplesmente se deixa cair. Rejeita até mesmo a própria liberdade; é um ato passivo, e não ativo, pois o ato ativo vai em direção à morte. Porém, o passivo somente se deixa cair, sem movimentar-se. Portanto, o cúmulo do ódio é o ódio não esboçado, um corpo levado pelos seus instintos, e que se lança na anulação como um movimento deliberado e vivo, mas em função de uma estaticidade, de uma rejeição à liberdade, antes mesmo da rejeição de um corpo ou de sua identidade.
 
 ### 4. A Miséria como Construção Ideológica
+
 A miséria é uma construção ideológica de um grupo minoritário, com vantagem financeira histórica, que visa aplacar o naufrágio e o desespero existencial por meio de um mundo construído de forma que lhe pareça empático, ou que projete nesse mundo sua dor, de forma a pensar-se livre de seu ateísmo implícito, de seu ódio. A miséria é uma tentativa de aplacar o desespero de um grupo minoritário que descobre diante de si uma vantagem histórica e se apossa dela para representar o desontismo e espelhar de forma mundial o seu conflito.
 
-A miséria é o manifesto do conflito. É um desejo obsessivo, louco, ressignificado e materializado na humanidade de forma a lhe causar o sofrer. É uma desnaturalização do propósito humano, pela vida, beleza e bem-estar geral, em prol de uma solução inviável para um conflito corporal. A miséria e a guerra são a solução de um grupo de elite para o impasse dentro de si, é um motivo interior e particular.
+A miséria é o manifesto do conflito. É um desejo obsessivo, louco, ressignificado e materializado na humanidade de forma a lhe causar o sofrer. É uma desnaturalização do propósito humano, pela vida, beleza e bem-estar geral, em prol de uma solução inviável para um conflito corporal. A miséria e a guerra são a solução de um grupo de elite para o impasse dentro de si; é um motivo interior e particular.
 
 ### 5. O Paradoxo de "Escolher Não Escolher"
-Não é possível escolher não escolher, uma vez sendo livre. Porém, não renascer pelo Espírito — ou seja, pela intenção reta à vida, que está em primazia à decisão horizontal — ainda é ser livre, porém, é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento à vida, ou do próprio movimento em função do Espírito. O indivíduo simplesmente se deixa guiar de forma instintiva. Seu ódio não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher acontece em um nível em que há vida, mas não a vida plena. O indivíduo recusa existir por si, ao passo que existe, mas não tem autodomínio sobre si. É um motor imóvel, ao passo que é vivo.
+
+Não é possível escolher não escolher, uma vez sendo livre. Porém, não renascer pelo Espírito — ou seja, pela intenção reta à vida, que está em primazia à decisão horizontal — ainda é ser livre, porém é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento à vida, ou do próprio movimento em função do Espírito. O indivíduo simplesmente se deixa guiar de forma instintiva. Seu ódio não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher acontece em um nível em que há vida, mas não a vida plena. O indivíduo recusa existir por si, ao passo que existe, mas não tem autodomínio sobre si. É um motor imóvel, ao passo que é vivo.
 
 ### 6. A Dupla Tipologia Sintomática
 
 | Categoria | Descrição Existencial |
-| :--- | :--- |
-| **Sintomática Não Intencional** | O indivíduo em estado de semi-vida, que escolhe não escolher. Tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente *é*, sem que opere nesse ser. Existe como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. |
+| --- | --- |
+| **Sintomática Não Intencional** | O indivíduo em estado de semivida, que escolhe não escolher. Tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente *é*, sem que opere nesse ser. Existe como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. |
 | **Sintomática Intencional** | Refere-se à percepção do indivíduo de sua intenção, da sua escolha como uma não escolha. O indivíduo percebe sua intencionalidade, ao passo que percebe sua estaticidade, sua passividade. |
 
-Há, portanto, um cenário em que o indivíduo se deixa levar pelos instintos, ao passo que percebe-se intencionalmente deixado à deriva de si como instintos. Então são dois tipos de sintomas: os dolorosos, pela intenção do indivíduo, e os assombrosos, pelo estado de mortidão, de semi-vida, de semi-operância, de estaticidade. De uma vida em que não age, mas se deixa levar por ela.
+Há, portanto, um cenário em que o indivíduo se deixa levar pelos instintos, ao passo que percebe-se intencionalmente deixado à deriva de si como instintos. Então são dois tipos de sintomas: os dolorosos, pela intenção do indivíduo, e os assombrosos, pelo estado de mortidão, de semivida, de semioperância, de estaticidade. De uma vida em que não age, mas se deixa levar por ela.
 
-O indivíduo, portanto, se sente preso em si mesmo, refém de uma realidade que teima em não escolher; é uma vida vidrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
+O indivíduo, portanto, se sente preso em si mesmo, refém de uma realidade que teima em não escolher; é uma vida vitrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
 
 **Sintomas de assombro:** Sensação de angústia, aprisionamento interior, impressão de sonolência interior, impressão de irrealidade da vida, como se fosse produto de uma consciência e não de si.
 
 ---
 
-## PARTE III: SINTOMAS desontistaS E A FILOSOFIA DO DESPERTAR
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]** *(Nota: A Introdução, o Cap. 1 e o Cap. 3 definem a distinção sartreana entre o "em si" desontista e o "para si" desperto)*
+
+## SINTOMAS DESONTISTAS E A FILOSOFIA DO DESPERTAR
 
 # O PILAR DO EXISTENCIALISMO: APATIA E DESPERTAR
 
 ## Introdução
+
 O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de desontista) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
 
-### Capítulo 1: Definição do Indivíduo desontista
+### Capítulo 1: Definição do Indivíduo Desontista
+
 O desontista é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
 
+---
+
+### **[CÓDIGO 2.1 - A Guerra Civil Interior e os Anticorpos Emocionais]** *(Nota: O Cap. 2 e o Cap. 4 sintetizam a pressão no corpo e na mente manifestada em ansiedade, obsessão, deslocamento e crueldade)*
+
 ### Capítulo 2: Efeitos no Corpo e na Mente
+
 O desontista sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
+
 * **Ansiedade:** Sensação constante de desamparo e desespero.
 * **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
 * **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
@@ -2537,12 +2652,24 @@ O desontista sofre pressões físicas e emocionais intensas. A busca por um sent
 
 > **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
 
+---
+
+### **[CÓDIGO 1.3 - O Paradoxo de "Escolher Não Escolher" e a Vitrificação da Alma]**
+
 ### Capítulo 3: A Ilusão da Liberdade
+
 O desontista acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
+
 > **Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o desontista tenta negar ao se entregar aos instintos.
 
+---
+
+### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]**
+
 ### Capítulo 4: A Busca Frenética por Sentido
+
 O desontista vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
+
 * **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
 * **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
 * **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
@@ -2550,214 +2677,393 @@ O desontista vive em um estado de angústia existencial, tentando desesperadamen
 > **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
 
 ### Capítulo 5: A Miséria Interior do Rico
+
 O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
+
 > **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
 
+---
+
+### **[CÓDIGO 2.7 - A Sede de Vida (Tentação Reversa), Vícios e Suicídio Lento]** *(Nota: O Cap. 6 também dialoga com o Código 7.2 e 7.3 sobre o amor como ação unida ao sentido; os Caps. 7, 8, 9 e 10 abordam a analogia entre riqueza, droga e mendicância como expressão da secura interior)*
+
 ### Capítulo 6: A Visão do Amor como Ação Unida ao Sentido
+
 A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo desontista para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do desontista não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O desontista deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
+
 > **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
 
 ### Capítulo 7: A Riqueza como Busca de Valor
+
 O desontista não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
+
 > **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
 
-### Capítulo 8: A Doença Espiritual do desontista
+### Capítulo 8: A Doença Espiritual do Desontista
+
 A tendência do desontista é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O desontista busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
+
 > **Referência:** Søren Kierkegaard, em *O Desespero Humano*, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
 
 ### Capítulo 9: A Analogia do Poder e da Droga
+
 O desontista não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
 
 ### Capítulo 10: A Obsessão e a Secura Interior
+
 O desontista incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
+
 > **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
 
+---
+
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]**
+
 ### Capítulo 11: A Sensação de Não Ser Ninguém
+
 O desontista tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
 
-### Capítulo 12: A Linguagem do desontista
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
+
+### Capítulo 12: A Linguagem do Desontista
+
 O desontista usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
+
 > **Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
 
+---
 
+### **[CÓDIGO 1.3 - O Paradoxo de "Escolher Não Escolher" e a Vitrificação da Alma]**
 
 ### Capítulo 13: A Liberdade e o Suicídio
+
 O desontista foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o desontista só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
+
 > **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
 
 ### Capítulo 14: O Hedonismo e a Ação do Espírito
+
 O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O desontista, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
+
 > **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
 
+---
+
+### **[CÓDIGO 7.3 - O Despertar Existencial e a Recuperação do Self]**
+
 ### Capítulo 15: A Imperação da Vontade
+
 O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+
 > **Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
 
+---
+
+### **[CÓDIGO 1.6 - Cartografia das Almas (Inferno, Purgatório e Paraíso)]** *(Nota: Os Caps. 16 e 17 distinguem a obstinação ativa no mal [estado purgatorial] da apatia passiva [estado infernal])*
+
 ### Capítulo 16: Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
+
 Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do desontista, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O desontista, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+
 > **Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
 
 ### Capítulo 17: O Mal como Passividade
+
 O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do desontista. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
 
-### Capítulo 18: Características do desontista
+---
+
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]**
+
+### Capítulo 18: Características do Desontista
+
 O desontista é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do desontista não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
 
-### Capítulo 19: A Ação Vazia do desontista
+### Capítulo 19: A Ação Vazia do Desontista
+
 O desontista é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do desontista é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
 
-### Capítulo 20: O desontista como Obstáculo Social
+---
+
+### **[CÓDIGO 7.5 - O Desmascaramento Final, Apocalipse Social e Orações]** *(Nota: O Cap. 21 também dialoga diretamente com o Código 7.2 sobre o amor infinito de Deus pelo desontista e com o Código 2.5 sobre o desontista como criança recém-nascida)*
+
+### Capítulo 20: O Desontista como Obstáculo Social
+
 O desontista é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O desontista e a sociedade representam forças opostas e irreconciliáveis.
+
 > **Referência:** Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
 
-### Capítulo 21: Deus e o Amor Infinito pelo desontista
+### Capítulo 21: Deus e o Amor Infinito pelo Desontista
+
 Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o desontista, que necessita de salvação. O desontista é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
 
-Deus, em Seu amor infinito, enxerga o desontista como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o desontista estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o desontista não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o desontista despende todos os seus esforços para a destruição.
+Deus, em Seu amor infinito, enxerga o desontista como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o desontista estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o desontista não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a fazer sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o desontista despende todos os seus esforços para a destruição.
+
 > **Referências:**
 > * São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
 > * São Paulo, em Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
+> 
+> 
 
 ### Capítulo 22: A Necessidade de Renovação
+
 Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O desontista não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do desontista acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
+
 > **Referência:** Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
 
-### Capítulo 23: O desontista e a Busca por Identidade
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
+
+### Capítulo 23: O Desontista e a Busca por Identidade
+
 O indivíduo desontista não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o desontista teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espírito.
+
 > **Referência:** Erik Erikson, em *Identidade: Juventude e Crise*, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
 
-### Capítulo 24: O desontista e o Crime
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]**
+
+### Capítulo 24: O Desontista e o Crime
+
 O desontista, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
+
 > **Referência:** Erich Fromm, em *Anatomia da Destrutividade Humana*, explora como a falta de conexão social pode levar a comportamentos destrutivos.
 
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]**
+
 ### Capítulo 25: O Assombro e a Repetição de Comportamentos
+
 No momento em que o desontista entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
+
 > **Referência:** Sigmund Freud, em *Além do Princípio do Prazer*, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
 
-### Capítulo 26: O desontista e a Diminuição da Reflexão
+---
+
+### **[CÓDIGO 2.6 - A Sabotagem da Alegria e a Vida no "Agridoce"]** *(Nota: O Cap. 27 também dialoga com o Código 2.4 sobre imitar o comportamento demente)*
+
+### Capítulo 26: O Desontista e a Diminuição da Reflexão
+
 O indivíduo desontista vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o desontista é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
+
 > **Referência:** Jean Piaget, em *O Nascimento da Inteligência na Criança*, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
 
 ### Capítulo 27: O Narcisismo e a Demência Social
+
 Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o desontista muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se autorresponsabiliza por suas atitudes impensadas.
+
 > **Referência:** Christopher Lasch, em *A Cultura do Narcisismo*, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
 
-### Capítulo 28: O Controle do desontista por Estímulos
+---
+
+### **[CÓDIGO 5.3 - A Simbiose entre Bilionários, Crime Organizado e Indústria Cultural]** *(Nota: O Cap. 28 analisa como o crime organizado, a indústria química, psiquiátrica e da beleza lucram controlando o desontista por estímulos)*
+
+### Capítulo 28: O Controle do Desontista por Estímulos
+
 O desontista pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o desontista em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
+
 > **Referência:** Michel Foucault, em *Vigiar e Punir*, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
 
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]** *(Nota: Os Caps. 29, 30 e 31 abordam a ilusão de estar "desperto da matrix", a estima deplorável e a imitação de comportamentos alheios)*
+
 ### Capítulo 29: A Ilusão do Ócio Completo
+
 O desontista tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um autoconhecimento elevado. O desontista acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
+
 > **Referência:** Karl Marx, em *O Capital*, critica a alienação do trabalhador em uma sociedade capitalista, mas o desontista leva essa alienação a um extremo patológico.
 
-### Capítulo 30: A Estima Deplorável do desontista
+### Capítulo 30: A Estima Deplorável do Desontista
+
 O desontista possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o desontista, a existência é um mero "estar aqui", sem direção ou transcendência.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
 
 ### Capítulo 31: A Imitação de Comportamentos
+
 O desontista imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam autoconhecimento, o desontista prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
+
 > **Referência:** Carl Jung, em *Aion*, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
 
+---
+
+### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]**
+
 ### Capítulo 32: A Obsessão por Dinheiro e a Alienação
+
 O desontista tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
+
 > **Referência:** Karl Marx, em *Manuscritos Econômico-Filosóficos*, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
 
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]**
+
 ### Capítulo 33: A Apatia e o Estado de Loucura Permanente
+
 A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o desontista, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
+
 > **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
 
 ### Capítulo 34: O Abismo Existencial
+
 O famoso abismo que olha de volta ao se olhar para ele é o assombro do desontista. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o desontista não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
+
 > **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
 
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]** *(Nota: O Cap. 36 também dialoga com o Código 4.1 sobre fama, riqueza e poder como substitutos de presença, valor e autodomínio)*
+
 ### Capítulo 35: A Violência e o Territorialismo
+
 O desontista, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
+
 > **Referência:** René Girard, em *A Violência e o Sagrado*, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
 
 ### Capítulo 36: A Sensação de Ser Comandado por uma Força Desconhecida
+
 A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do desontista. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o desontista, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de autoconhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
+
 > **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
 
-### Capítulo 37: A Descrição do Eu: desontista vs. Não desontista
+---
+
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]** *(Nota: O Cap. 37 também dialoga com o Código 2.4 sobre a autodescrição puramente sensorial)*
+
+### Capítulo 37: A Descrição do Eu: Desontista vs. Não Desontista
+
 Quando questionado sobre quem é, o desontista descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo: "Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses." Já o não desontista descreve-se de forma mais profunda, com um cunho espiritual: "Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..." Para o desontista, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o desontista não consegue integrar.
 
-### Capítulo 38: O desontista como um Primata com Inteligência Aprimorada
+### Capítulo 38: O Desontista como um Primata com Inteligência Aprimorada
+
 O desontista age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o desontista é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o desontista reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
+
 > **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
 
-### Capítulo 39: O Abismo e o Sofrimento Extra-Sensorial
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]**
+
+### Capítulo 39: O Abismo e o Sofrimento Extrassensorial
+
 Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o desontista experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A autodeterminação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
 
 ### Capítulo 40: A Negação Constante e a Histeria
+
 O desontista, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o desontista tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
+
 > **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
 
+---
+
+### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]**
+
 ### Capítulo 41: A Ilusão de Genialidade e a Obsessão por Riquezas
+
 O desontista desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele ludibria pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
 
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]**
+
 ### Capítulo 42: A Busca pela Paz sem Autoconhecimento
+
 Ao ver o comportamento de alguém calmo, sereno e confortável, o desontista busca obter essa mesma paz sem deixar de ser desontista. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o desontista inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
+
 > **Referência:** Eckhart Tolle, em *O Poder do Agora*, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
 
-### Capítulo 43: Reconhecendo o desontista em Sociedade
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]** *(Nota: O Cap. 44 também dialoga com o Código 2.7 sobre a tendência ao vício; e o Cap. 45 dialoga com o Código 2.6 sobre a necessidade de estragar o bem-estar)*
+
+### Capítulo 43: Reconhecendo o Desontista em Sociedade
+
 O desontista é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
+
 > **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
 
 ### Capítulo 44: A Tendência ao Vício e a Raiva Social
+
 O desontista tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o desontista arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
+
 > **Referência:** Carl Jung, em *Aion*, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
 
 ### Capítulo 45: A Necessidade de Destruir o Bem-Estar
+
 O desontista vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
 
-Você tem toda a razão. Eu errei. Tentei agrupar os capítulos finais em um compêndio e acabei resumindo o conteúdo, o que viola diretamente a sua instrução de não omitir nada e reproduzir o texto na íntegra. Como inteligência artificial, tenho uma tendência programada para sintetizar informações longas, mas isso não justifica ter ignorado o seu comando. 
-
-Vou refazer o trabalho agora. Abaixo está o texto do seu envio anterior em sua totalidade. Padronizei os títulos, ajustei a ordem para manter a fluência lógica e corrigi pequenos desvios gramaticais para dar a consistência exigida, mas **nenhuma frase, ideia ou parágrafo foi cortado**. 
-
-Aqui está o texto integral:
-
-***
-
 ### Capítulo 46: O Assombro e a Perturbação Mental
+
 O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do desontista de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
+
 > **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
 
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
+
 ### Capítulo 47: A Simulação de Pobreza Interior
+
 O desontista costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
 
-### Capítulo 48: O Sentido da Existência do desontista: Projeção da Dor e Degradação Social
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]** *(Nota: Os Caps. 49, 50 e 51 também dialogam diretamente com o Código 7.5 sobre a parábola do joio e do trigo e a fadiga social dos mecanismos de vigilância)*
+
+### Capítulo 48: O Sentido da Existência do Desontista: Projeção da Dor e Degradação Social
+
 O desontista, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o desontista não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia. Esse espelhar no outro ocorre de diversas formas:
 
 * **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
-* **Demonstração de assimetria:** Mostrar-se em um patamar de riqueza ou status assimétrico, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
+* **Demonstração de Assimetria:** Mostrar-se em um patamar de riqueza ou status assimétrico, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
 * **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
 
 A vida do desontista, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
 
 ### Capítulo 49: A Degradação da Liberdade e da Cultura
+
 A necessidade de se proteger da ação dos desontistas leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
 
 ### Capítulo 50: A Solução Proposta por Jesus
+
 Do ponto de vista lógico, é praticamente impossível construir um sistema social completamente imune à ação dos desontistas, pois as relações sociais são baseadas em confiança mútua. A única solução efetiva foi proposta por Jesus, que sugeriu a separação dos desontistas do funcionamento social. Em sua parábola do joio e do trigo (Mateus 13:24-30), Jesus ilustra a necessidade de separar o bem do mal, permitindo que a sociedade floresça sem a influência destrutiva dos desontistas. No entanto, Jesus também exortou cada indivíduo ao autoaprimoramento e ao encontro consigo mesmo, prevenindo que sejamos vítimas da mesma política de exclusão.
 
-### Capítulo 51: A Sociedade e o Combate ao Mal: A Fadiga de Enfrentar o Comportamento desontista
+### Capítulo 51: A Sociedade e o Combate ao Mal: A Fadiga de Enfrentar o Comportamento Desontista
+
 A sociedade dispõe de meios combativos para enfrentar o mal, seja através de leis, sistemas de justiça, mecanismos de vigilância ou iniciativas educativas. No entanto, o comportamento desontista apresenta um desafio único e exaustivo. Enquanto o mal tradicional age de forma fracionada, com motivações específicas e passível de conscientização, o agir do desontista é frenético, incansável e obsessivo. Sua energia é direcionada de forma constante e desgastante para o funcionamento social, na intenção de chamar atenção para seu estado existencial de vazio e frustração. Essa atuação incessante torna quase impossível uma ação preventiva eficaz, pois a sociedade se vê constantemente sobrecarregada pela necessidade de responder a uma ameaça que não cessa.
 
-**O Mal Tradicional vs. O Comportamento desontista**
-* **O Mal Tradicional:** Age de forma pontual, com motivações claras e passível de conscientização. Pode ser combatido através de sistemas de justiça, educação e prevenção. Como exemplo, crimes como roubo ou fraude têm razões específicas (ganho material, vingança) e podem ser mitigados com políticas públicas e conscientização social.
-* **O Comportamento desontista:** É uma manifestação constante e obsessiva de dor existencial. O desontista não busca apenas cometer atos específicos de maldade, mas sim projetar sua frustração interior de forma contínua e desgastante. Sua atuação não tem um objetivo claro além de chamar atenção para seu estado de vazio, o que torna sua ação muito mais difícil de combater.
+**O Mal Tradicional vs. O Comportamento Desontista**
 
-**A Fadiga Social no Combate ao desontista**
+* **O Mal Tradicional:** Age de forma pontual, com motivações claras e passível de conscientização. Pode ser combatido através de sistemas de justiça, educação e prevenção. Como exemplo, crimes como roubo ou fraude têm razões específicas (ganho material, vingança) e podem ser mitigados com políticas públicas e conscientização social.
+* **O Comportamento Desontista:** É uma manifestação constante e obsessiva de dor existencial. O desontista não busca apenas cometer atos específicos de maldade, mas sim projetar sua frustração interior de forma contínua e desgastante. Sua atuação não tem um objetivo claro além de chamar atenção para seu estado de vazio, o que torna sua ação muito mais difícil de combater.
+
+**A Fadiga Social no Combate ao Desontista**
 A sociedade, ao tentar combater o comportamento desontista, se vê em um ciclo interminável de respostas. Cada nova forma de ação apática exige a criação de novas leis, sistemas de vigilância e mecanismos de controle, o que consome energia e recursos de forma alarmante. Essa busca frenética e incansável do desontista por atenção e alívio de sua dor existencial cria um desgaste constante, que acaba por desfigurar a cultura e a liberdade. A sociedade se torna uma fortaleza que tudo prevê, mas que, ao mesmo tempo, perde sua vitalidade e capacidade de florescer.
 
 > **Referências Adicionais para os Capítulos 48-51:**
@@ -2765,48 +3071,71 @@ A sociedade, ao tentar combater o comportamento desontista, se vê em um ciclo i
 > * Carl Jung, em *Aion*, fala sobre a sombra e como a projeção de aspectos não integrados do self pode levar a atitudes violentas e manipulativas.
 > * Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve a necessidade de superar a condição atual e criar um sentido autêntico, evitando cair na armadilha da apatia e da destruição.
 > * Michel Foucault, em *Vigiar e Punir*, analisa como os mecanismos de controle social podem se tornar exaustivos e contraproducentes quando enfrentam ameaças constantes e difusas, como o comportamento desontista.
+> 
+> 
 
 ---
 
-## PARTE II: O DESPERTAR EXISTENCIAL
+### **[CÓDIGO 7.3 - O Despertar Existencial e a Recuperação do Self]**
+
+## O DESPERTAR EXISTENCIAL
 
 ### Capítulo 52: Definição do Despertar
+
 O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
 
 ### Capítulo 53: Efeitos no Corpo e na Mente
+
 O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
+
 > **Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
 
 ### Capítulo 54: O Amor como Primeiro Movimento
+
 O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o desontista, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
+
 > **Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
 
 ### Capítulo 55: O Despertar do Ser
-O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+
+O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vem instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
 
 ### Capítulo 56: A Imperação da Vontade (Retomada)
+
 O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+
 > **Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
 
 ---
 
+### **[CÓDIGO 1.6 - Cartografia das Almas (Inferno, Purgatório e Paraíso)]**
+
 ## PARTE III: UMA DISTINÇÃO FUNDAMENTAL: O MAL ATIVO E O MAL PASSIVO
 
 ### Capítulo 57: Os Dois Tipos de "Despertar" (Retomado)
+
 Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do desontista, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O desontista, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+
 > **Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
 
 ### Capítulo 58: O Mal como Passividade (Retomado)
+
 O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do desontista. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
 
 ---
 
-## PARTE IV: CONCLUSÃO GERAL
+### **[CÓDIGO 7.5 - O Desmascaramento Final, Apocalipse Social e Orações]** *(Nota: Também dialoga com o Código 7.3 na síntese entre apatia e despertar)*
+
+## CONCLUSÃO GERAL
 
 ### Capítulo 59: Síntese e Reflexão Final
+
 O desontista e o desperto representam dois polos da condição humana. Enquanto o desontista vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
 
 O desontista é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
@@ -2818,59 +3147,77 @@ Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas
 > **Referências Finais:**
 > * Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
 > * Viktor Frankl, em *Em Busca de Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
+> 
+> 
 
 ---
+
+### **[CÓDIGO 1.6 - Cartografia das Almas (Inferno, Purgatório e Paraíso)]** *(Nota: A subseção "Sinais e Comportamentos" também sintetiza os Códigos 2.1, 2.3, 2.6 e 2.7)*
 
 ## ALMAS APÁTICAS
 
 ### Características Gerais
+
 A alma apática é incapaz de encontrar estabilidade na indiferença. Para evitar o confronto com a realidade da finitude, ela cria mecanismos de fuga e negação.
 
 ### Sinais e Comportamentos
 
 **1. Estado emocional perturbado**
+
 * Histeria constante, inquietação, falta de docilidade.
 * Descontentamento crônico, angústia, ansiedade e rigidez consigo mesmo e com os outros.
 
 **2. Mecanismos de Fuga**
-* **2.1 Fuga da alegria:** O indivíduo minimiza situações felizes, incapaz de sustentar grandes emoções diante da consciência da morte. Mantém a vida em um estado "agridoce" — nem muito feliz, nem muito triste. Destituir a vida de alegria ajuda o indivíduo a encarar sua impressão de aniquilação, pois seu eu é totalmente sustentado pela sua concepção biológica de si mesmo. Destruir belezas naturais, relações familiares, perverter os conceitos bons que constroem relações e a sociedade, perverter a boa intenção das pessoas na própria cabeça, causar caos e confusão, tudo isso é um subterfúgio para afastar de si o propósito e a beleza da vida, considerando que o desontista considera a si um resíduo, e que não poderá fazer proveito de nada, pois seu fim o é literal e eminente.
-* **2.2 A busca do corpo pelo eu:** É fundamentada na busca por aquilo que lhe é mais precioso. O que é mais inigualável, a tentativa de expressão social do desontista na intenção de que alguém lhe solucione o ínterim ou na necessidade de ao menos expressar a imensidão do seu sofrimento devido à apatia, se faz marcante pervertendo e alterando toda a sociedade, sem que os indivíduos não desontistas encontrem uma razão ou sentido para alguns tipos de construção social destituídos de um sentido comum. Como a produção de lixo, o assassinato, a exploração escravista, torturas, etc. Tudo, às vezes se esconde como reflexo de uma não culturação, ou de uma falta de conscientização, quando na verdade é uma expressão escancarada do terror da apatia. A violência, então, não se traduz mais como uma inadequação do homem na sociedade, mas como uma expressão de uma realidade interior a qual o mesmo rejeita de forma inequívoca.
+
+* **2.1 Fuga da alegria:** O indivíduo minimiza situações felizes, incapaz de sustentar grandes emoções diante da consciência da morte. Mantém a vida em um estado "agridoce" — nem muito feliz, nem muito triste. Destituir a vida de alegria ajuda o indivíduo a encarar sua impressão de aniquilação, pois seu eu é totalmente sustentado pela sua concepção biológica de si mesmo. Destruir belezas naturais, relações familiares, perverter os conceitos bons que constroem relações e a sociedade, perverter a boa intenção das pessoas na própria cabeça, causar caos e confusão, tudo isso é um subterfúgio para afastar de si o propósito e a beleza da vida, considerando que o desontista considera a si um resíduo, e que não poderá fazer proveito de nada, pois seu fim é literal e iminente.
+* **2.2 A busca do corpo pelo eu:** É fundamentada na busca por aquilo que lhe é mais precioso. O que é mais inigualável, a tentativa de expressão social do desontista na intenção de que alguém lhe solucione o ínterim ou na necessidade de ao menos expressar a imensidão do seu sofrimento devido à apatia, se faz marcante pervertendo e alterando toda a sociedade, sem que os indivíduos não desontistas encontrem uma razão ou sentido para alguns tipos de construção social destituídos de um sentido comum. Como a produção de lixo, o assassinato, a exploração escravista, torturas, etc. Tudo, às vezes, se esconde como reflexo de uma não aculturação, ou de uma falta de conscientização, quando na verdade é uma expressão escancarada do terror da apatia. A violência, então, não se traduz mais como uma inadequação do homem na sociedade, mas como uma expressão de uma realidade interior a qual o mesmo rejeita de forma inequívoca.
 * **2.3 Violência como expressão:** Usa a agressividade (física, emocional ou simbólica) para fazer os outros sentirem sua dor.
-    * *Assassinato* como forma de transmitir seu desespero.
-    * *Tortura* como reflexo do horror interno.
-    * *Exploração* (como trabalho escravo) para expressar seu sentimento de confinamento existencial.
+* *Assassinato* como forma de transmitir seu desespero.
+* *Tortura* como reflexo do horror interno.
+* *Exploração* (como trabalho escravo) para expressar seu sentimento de confinamento existencial.
+
+
 * **2.4 Busca frenética por preenchimento externo:**
-    * Obsessão por fama, riqueza ou poder, negligenciando relações genuínas.
-    * Tentativa de projetar no mundo exterior a falta que sente internamente.
+* Obsessão por fama, riqueza ou poder, negligenciando relações genuínas.
+* Tentativa de projetar no mundo exterior a falta que sente internamente.
+
+
 * **2.5 Uso de drogas:** Busca estados alterados de consciência para escapar da realidade.
 
 **3. Medo da Morte**
+
 * **3.1 Temor da posse espiritual:** Medo de perder seus instintos e desejos ao léu da aleatoriedade instintiva.
 * **3.2 Pavor da aniquilação:** Apego à identidade construída sobre memórias, temendo que a morte física signifique o fim absoluto.
 
 ### Conclusão das Almas Apáticas
+
 Enquanto as **almas do purgatório** vivem em um estado de esperança mínima, ainda que descontentes, as **almas apáticas** estão em constante fuga, usando mecanismos destrutivos para evitar encarar sua condição finita. Ambas representam estágios distintos de sofrimento espiritual, mas a apatia é marcada por uma desesperança mais profunda e ações autodestrutivas.
 
 ---
 
+### **[CÓDIGO 7.1 - Jesus Cristo: O Verdadeiro Neo e Decodificador do Poder]** *(Nota: Também dialoga com o Código 7.2 sobre a doutrina de Jesus para aniquilar a apatia)*
+
 ## O MUNDO IDEALIZADO DE JESUS
 
-Jesus como humano e falho no sentido biológico, e com o seu âmbito afetivo perfeito. Transcendeu sua sanidade em busca da cura da apatia. No sentido bom, em que, seu âmbito afetivo não suportou se definir como o homem desontista, pois de si deriva toda a vida e todo Sou.
+Jesus, como humano e falho no sentido biológico, e com o seu âmbito afetivo perfeito, transcendeu sua sanidade em busca da cura da apatia. No sentido bom, em que seu âmbito afetivo não suportou se definir como o homem desontista, pois de si deriva toda a vida e todo o "Sou".
 
 Desta forma, Jesus, amando a nós como a si mesmo, manifestou uma doutrina contra a apatia que corrompe até mesmo o sentido lógico na tentativa de resgatar o desontista, através do lúdico e do impossível.
 
-O fato de afirmar que sermos como anjos, meio deuses, é a ânsia para que todo homem desperte da apatia e que não haja mais esse mal no mundo. Jesus tinha uma repulsão à apatia que transgredia suas palavras diante da estrutura do Ser.
+O fato de afirmar que seremos como anjos, meio deuses, é a ânsia para que todo homem desperte da apatia e que não haja mais esse mal no mundo. Jesus tinha uma repulsão à apatia que transgredia suas palavras diante da estrutura do Ser.
 
 A doutrina que fundamentou é formalizada com o intuito da aniquilação da apatia de forma definitiva.
 
 ---
 
+### **[CÓDIGO 1.5 - O Resíduo Existencial e a Produção do Lixo]**
+
 ## EXISTENCIALISMO ABSOLUTISTA
 
 ### Visões do Inferno: O Resíduo
+
 Neste texto, apresento uma visão subjetiva dos desontistas, construída a partir de observações cotidianas.
 
-O indivíduo desontista se percebe como **resíduo** — isto é, aquilo que, uma vez esgotada sua função, aguarda apenas o descarte. Enquanto a percepção de autopreservação de um animal corpóreo reside na inconsciência da sua finitude (ou em sua "alma", caso se queira e seja humano) que garanta sua infinitude, o desontista, dotado de percepção de sua finitude, concebe-se como sobra. Sua alma simplesmente não é perceptual a si mesmo, não toma posse do animal.
+O indivíduo desontista se percebe como **resíduo** — isto é, aquilo que, uma vez esgotada sua função, aguarda apenas o descarte. Enquanto a percepção de autopreservação de um animal corpóreo reside na inconsciência da sua finitude (ou em sua "alma", caso se queira e seja humano) que garanta sua infinitude, o desontista, dotado de percepção de sua finitude, concebe-se como sobra. Sua alma simplesmente não é perceptível a si mesmo, não toma posse do animal.
 
 O **resíduo** é um composto cujo único propósito é desfazer-se e ser eliminado. Essa noção ecoa a visão bíblica do inferno: aquilo que será lançado nas mediações e consumido pelo fogo. Mesmo a matéria orgânica, em decomposição, ainda se qualificaria como resíduo alimentar — algo que já cumpriu seu papel e agora aguarda a dissolução final.
 
@@ -2879,256 +3226,423 @@ O desontista não se vê como ruína, pois a ruína pressupõe uma estrutura out
 O desontista não sofre por existir — ele apenas **persiste**, como um resto que não se decompõe. Sua condição não é a do lamento, mas a do vazio que já se conformou com sua própria redundância. Enquanto o homem comum teme a morte como aniquilação, o desontista a vê como mera formalidade: ele já se experimenta, em vida, como descarte adiado.
 
 #### O Resíduo e o Inferno Contemporâneo
+
 Na teologia tradicional, o inferno é o lugar dos condenados, mas também o depósito do que não serve mais. O desontista não precisa de fogo ou trevas externas — ele já é seu próprio exílio. Seu inferno não é ativo, mas residual: uma latência do inútil.
 
 O desontista nega o valor; o depressivo sofre por sua ausência; o desontista, porém, **é** a ausência que se materializou em gestos, em dias, em um corpo que ocupa espaço sem preenchê-lo. Ele não clama por sentido, pois sequer reconhece o clamor como possibilidade.
 
 #### A Patologia do Desperdício
+
 Não se trata de melancolia, mas de uma economia existencial perversa: ele se vê como o produto de um sistema que o gerou sem intenção, como um subproduto acidental da consciência. Se o homem é "o animal que sabe que morre", o desontista é aquele que sabe que **já está morto** — só falta o ato administrativo.
 
 Enquanto alguns lutam contra o absurdo, ele o habita como um esqueleto habita suas próprias roupas. Não há revolta, apenas o silêncio de quem espera, não pela morte, mas pelo **fim do adiamento**.
 
 #### O Lixo que Pensa
+
 Eis o paradoxo terminal: ele tem percepção de sua condição de resíduo, o que o torna diferente do mero objeto descartado. Um cadáver não sabe que é cadáver; um copo quebrado não sofre por estar inútil. O desontista, porém, **sabe-se supérfluo**, e essa percepção é o último vestígio de vida em seu deserto.
 
 Talvez essa seja a verdadeira punição: não o fogo, não o gelo, mas a eterna **espera do lixo que ainda não foi recolhido**.
 
-### O desontista e a Produção do Lixo Existencial
+### O Desontista e a Produção do Lixo Existencial
+
 O desontista, ciente de sua condição de **resíduo**, não busca redenção — ele **se reproduz como excesso**. Seu destino é a aniquilação, mas antes disso, ele se traduz no mundo através do **lixo que gera**, tanto material quanto simbólico. Ele não produz para durar, mas para **ser descartado**, porque só no descarte sua existência encontra uma confirmação perversa.
 
 **1. A Economia do Excesso e a Fabricação do Inútil**
 Vivemos em uma sociedade que glorifica a produtividade, mas que também depende do desperdício para se sustentar. O desontista, incapaz de se inserir no ciclo virtuoso do consumo e da utilidade, torna-se **o produtor involuntário de sobras**. Ele não cria valor; ele **ocupa espaço até que esse espaço precise ser esvaziado**.
+
 * Se o capitalismo exige movimento, o desontista é a **estase** que emperra a máquina.
 * Se a sociedade celebra a acumulação, ele é a **despesa sem retorno**, o gasto que não gera lucro.
 Ele não se revolta contra o sistema — ele **o espelha em negativo**, revelando seu fundamento oculto: **tudo, no fim, vira lixo**.
 
 **2. O Lixo como Última Linguagem**
 Sem palavras para justificar sua presença, o desontista **se expressa através do acúmulo**: pilhas de objetos inúteis, horas desperdiçadas, projetos abandonados. Seu lixo não é acidente, mas **mensagem**.
+
 * Um quarto entulhado de coisas quebradas é um **corpo estendido** do desontista.
 * Uma timeline digital repleta de posts apagados é um **diário escrito em cinzas**.
 Ele não quer ser lembrado — quer apenas **deixar marcas de sua própria dissolução**, como um rastro de migalhas que não levam a lugar nenhum.
 
-**3. O desontista como Sintoma de uma Sociedade do Descartável**
+**3. O Desontista como Sintoma de uma Sociedade do Descartável**
 Nossa época produz indivíduos como produtos de prateleira: **com data de validade**. O desontista é aquele que **já venceu**, mas ainda não foi removido. Ele não luta contra isso; ele **aceita-se como defeito de fabricação**, como um objeto que veio ao mundo apenas para ser devolvido.
+
 * Enquanto alguns temem a insignificância, o desontista **a encarna**.
 * Enquanto outros buscam legado, ele **cultiva o efêmero**, porque sabe que nada persiste.
 Sua única tradução possível é **o excesso que não serve para nada** — e é justamente nisso que ele se torna o **símbolo mais honesto** de um mundo que fabrica objetos para depois jogá-los fora.
 
 ---
 
-## EXISTENCIALISMO E PSICOLOGIA DO desontista
+### **[CÓDIGO 1.4 / 2.1 / 7.3 / 4.1 - Seção Compilada de Existencialismo e Psicologia do Desontista]** *(Nota: Esta seção retoma os blocos sobre o "em si" vs. "para si", Efeitos no Corpo/Mente, Despertar Existencial e Miséria Interior do Rico, mantida aqui integralmente para sua futura fusão no Passo 2)*
+
+## EXISTENCIALISMO E PSICOLOGIA DO DESONTISTA
 
 ### O Pilar do Existencialismo: Apatia e Despertar
+
 O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a existência precede a essência. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu "em si" (que chamaremos de desontista) e o que vive em seu "para si" (que chamaremos de desperto). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
 
-### O Indivíduo desontista
+### O Indivíduo Desontista
+
 O desontista é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não domina a si mesmo, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no "em si" como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
 
 #### Efeitos no Corpo e na Mente
+
 O desontista sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
+
 * **Ansiedade:** Sensação constante de desamparo e desespero.
 * **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
 * **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
 * **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
+
 > **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
 
 #### A Ilusão da Liberdade
+
 O desontista acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
+
 > **Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o desontista tenta negar ao se entregar aos instintos.
 
 ### O Despertar Existencial
+
 O despertar ocorre quando o indivíduo encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. Esse momento é marcado por uma intensa emoção, muitas vezes expressa em choro, como uma sensação de alegria profunda e segurança. O indivíduo desperto sente que está no controle de si, que é sua própria companhia e que tem consciência de quem é.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein (ser-aí), que assume sua finitude e liberdade.
 
 #### Efeitos no Corpo e na Mente (Despertar)
+
 O despertar traz um alívio imediato da ansiedade e uma sensação de serenidade e radiância. O indivíduo reconhece uma ação sobrenatural em si mesmo, identificando-se com uma realidade interior viva. Ele percebe que seu nome designa realmente alguém, e não mais lhe causa estranheza.
+
 > **Referência:** Carl Jung, em *O Homem e Seus Símbolos*, fala sobre o processo de individuação, no qual o indivíduo integra aspectos inconscientes de si mesmo, alcançando uma sensação de totalidade.
 
 #### O Amor como Primeiro Movimento
+
 O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o desontista, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
+
 > **Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
 
 #### O Despertar do Ser
-O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+
+O despertar não é apenas o início do movimento, mas o despertar do ser. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vem instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
 
 ### A Busca Frenética por Sentido
+
 O desontista vive em um estado de angústia existencial, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
+
 * **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
 * **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
 * **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
+
 > **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
 
 #### A Miséria Interior do Rico
+
 O indivíduo rico, embora tenha recursos materiais, sofre de uma miséria interior. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
+
 > **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
 
 ### Conclusão (Existencialismo e Psicologia)
+
 O desontista e o desperto representam dois polos da condição humana. Enquanto o desontista vive alienado de si mesmo, guiado por instintos e impulsos, o desperto encontra a si mesmo e, ao fazê-lo, encontra a realidade que é Deus. O despertar traz alívio, serenidade e uma sensação de plenitude, enquanto a apatia gera angústia, obsessão e desespero.
+
 > **Referência Final:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch (super-homem), que cria seu próprio sentido e vive autenticamente.
 
 Este texto, portanto, não apenas descreve os estados de apatia e despertar, mas também oferece uma reflexão profunda sobre a busca humana por sentido e a importância da autodeterminação na realização da existência autêntica.
 
+---
+
+### **[CÓDIGO 2.7 - A Sede de Vida (Tentação Reversa), Vícios e Suicídio Lento]** *(Nota: A primeira seção também dialoga com o Código 7.2 e 7.3 sobre o amor como ação unida ao sentido; as quatro seguintes abordam a analogia entre riqueza, droga e mendicância como expressão da secura interior)*
+
 ### A Visão do Amor como Ação Unida ao Sentido
+
 A visão do amor como uma ação unida ao sentido é fundamental para compreender a transição do indivíduo desontista para o desperto. Quando o corpo percebe seu autoapoio, os sintomas da sede interior são aliviados, e a obsessão por figuras externas que espelham a falta interior (como riqueza, poder ou status) desaparece. A tentação do desontista não surge de estímulos naturais do corpo, mas de um fator psicológico e emocional que transcende os instintos. O desontista deseja, acima de tudo, reconhecer-se, conhecer seu propósito e sentir-se feliz. Esse desejo gera tendências doentias, que fogem à normalidade de uma tentação instintiva, como o adultério.
+
 > **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, argumenta que a falta de sentido leva a comportamentos destrutivos e a uma busca frenética por preencher o vazio existencial.
 
 ### A Riqueza como Busca de Valor
+
 O desontista não vê a riqueza como um alívio para os sofrimentos cotidianos, mas como uma tentativa de encontrar o valor que ele tanto procura. Da mesma forma, o vício em drogas não é visto como um relaxamento momentâneo, mas como uma busca desesperada por uma realidade interior que ele nunca alcança. A mendicância, por sua vez, não é motivada pela preguiça, mas pela necessidade de expor seu estado interior, na esperança de que alguém lhe conceda uma migalha do que ele vê nos outros, mas não em si mesmo.
+
 > **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos internos não integrados leva a comportamentos compulsivos e à busca por símbolos externos que representem o self.
 
-### A Doença Espiritual do desontista
+### A Doença Espiritual do Desontista
+
 A tendência do desontista é emocional, não instintiva. Ela surge de um adoecimento espiritual, de uma apatia da alma, de uma morte interior. Esse estado gera uma saudade imensa de si mesmo, uma frustração por nunca atingir suas aspirações e uma busca incessante por delírios que ofereçam uma ilusão de segurança. O desontista busca refúgios onde possa delirar, ter uma breve certeza de que sua falta será saciada.
+
 > **Referência:** Søren Kierkegaard, em *O Desespero Humano*, descreve a doença do espírito como um estado de desespero em que o indivíduo não consegue se reconciliar consigo mesmo.
 
 ### A Analogia do Poder e da Droga
+
 O desontista não busca dinheiro pelo dinheiro, mas pela sensação de poder e pelo desejo de enxergar valor em si mesmo. Da mesma forma, ele não busca drogas pelo prazer momentâneo, mas pela ilusão de não ser mais si mesmo. Sua angústia é a de estar perdido, e sua sede imediata é por um amparo emocional que ele nunca encontra.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por posses e poder é uma tentativa de preencher um vazio existencial.
 
 ### A Obsessão e a Secura Interior
+
 O desontista incorpora obsessões e entra em estados de delírio, fixando-se em riqueza, poder ou outros símbolos externos, devido à sua secura interior. Ele não consegue aproveitar coisas simples, como um pôr do sol ou um mergulho na piscina, porque sua mente está sempre inquieta, buscando soluções para seu conflito existencial.
+
 > **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
 
+---
+
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]**
+
 ### A Sensação de Não Ser Ninguém
+
 O desontista tem a sensação de não ser ninguém. Ele nunca parou para pensar profundamente sobre si mesmo, sobre o sentido de sua vida ou sobre sua existência. Sua visão da vida é materialista, pois ele nunca enxergou a ação do seu espírito. Ele associa seu valor às posses materiais e teme a ideia de que, sem elas, não será nada.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o indivíduo que nega sua liberdade e responsabilidade vive em má-fé, alienado de si mesmo.
 
-### A Linguagem do desontista
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
+
+### A Linguagem do Desontista
+
 O desontista usa referências constantes a estímulos corporais para descrever seu dia a dia. Ele diz: "Estou confortável", "Estou descansado", "Estou rico", mas raramente usa expressões como "Estou alegre" ou "Estou feliz". A leveza e a calma dos outros lhe soam desconfortáveis, pois ele não consegue justificá-las.
+
 > **Referência:** Ludwig Wittgenstein, em *Investigações Filosóficas*, explora como a linguagem reflete a visão de mundo do indivíduo.
 
+---
+
+### **[CÓDIGO 1.3 - O Paradoxo de "Escolher Não Escolher" e a Vitrificação da Alma]**
+
 ### A Liberdade e o Suicídio
+
 O desontista foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o desontista só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
+
 > **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
 
 ### O Hedonismo e a Ação do Espírito
+
 O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O desontista, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
+
 > **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
 
+---
+
+### **[CÓDIGO 7.3 - O Despertar Existencial e a Recuperação do Self]**
+
 ### A Imperação da Vontade
+
 O despertar é a imperação da vontade sobre a apatia. É o nascimento de um eu vivo, que age a partir de suas aspirações, e não de um eu morto. O indivíduo desperto assume o leme de sua imperfeição, buscando caminhos que, mesmo não sendo agradáveis, são autênticos.
+
 > **Referência:** Søren Kierkegaard, em *Temor e Tremor*, fala sobre a importância de assumir a própria existência com autenticidade.
 
 ### Conclusão (O Valor do Sentido)
+
 O desontista é um indivíduo que sofre profundamente por não encontrar sentido em sua existência. Sua busca por riqueza, poder ou prazeres momentâneos é uma tentativa desesperada de preencher um vazio interior. O despertar, no entanto, traz a imperação da vontade e a reconciliação consigo mesmo. Ao encontrar o amor e o sentido, o indivíduo deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+
 > **Referência Final:** Viktor Frankl, em *Em Busca de Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
 
+---
+
+### **[CÓDIGO 1.6 - Cartografia das Almas (Inferno, Purgatório e Paraíso)]**
+
 ### Os Dois Tipos de Despertar: Apatia e Obstinação no Mal
+
 Podemos considerar que existem dois tipos de despertar. O primeiro é o despertar do desontista, que pode resultar em uma pessoa obstinada ao mal, mas dotada de um propósito e de um movimento. Todo movimento, mesmo que direcionado ao mal, é promovido pelo bem, considerando que é uma forma de aceitação da vida. O desontista, portanto, pode ser considerado o verdadeiro mal, enquanto o homem obstinado na destruição está em um estado de purgação, não necessariamente no inferno, pois ainda pode escapar de sua prisão mental. No entanto, para isso, ele precisa superar a obsessão por si mesmo, abrindo-se para a transcendência espiritual e a contemplação da vida como ela realmente é.
+
 > **Referência:** Carl Jung, em *Aion*, discute a sombra e a necessidade de integrar aspectos negativos da psique para alcançar a totalidade do self.
 
 ### O Mal como Passividade
+
 O uso do mal não é completamente mal, pois o agir mal-intencionado, direcionado à destruição ou à ilusão, ainda implica uma vontade imperante. O verdadeiro inferno, no entanto, é a impossibilidade de até mesmo ser mal. É o estado de ser controlado, de não despertar. O mal, como retratado nos filmes, tem uma direção e uma obstinação, mas, na realidade, o mal é passivo. Ele é caracterizado pela escolha de não escolher, pela observação passiva dos movimentos caóticos do desontista. Assim, não é possível traçar uma personalidade para a pessoa má, apenas características animalescas, ou seja, ações de um corpo sem a atuação do espírito.
+
 > **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé é uma forma de negação da liberdade, na qual o indivíduo se aliena de sua própria responsabilidade.
 
-### Características do desontista
+---
+
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]**
+
+### Características do Desontista
+
 O desontista é marcado pela falta de resiliência, esperança, oração e esforço em prol de grandes aspirações. Ele não experimenta sentimentos grandiosos como nacionalismo, caridade ou compaixão em ação. Sua ideologia é a liberdade dos sentidos, o deixar-se guiar pelos estímulos corporais, mas isso não é verdadeira liberdade, pois falta propósito. O comportamento narcisista do desontista não difere do comportamento primata, exceto pela ansiedade que surge da percepção de sua falta de propósito.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, explora como a busca por prazeres momentâneos e posses materiais é uma tentativa de preencher um vazio existencial.
 
-### A Ação Vazia do desontista
+### A Ação Vazia do Desontista
+
 O desontista é um indivíduo que não utiliza a inteligência ou a ação do espírito. Sua ação é passiva, imposta de forma determinada. Ele é obrigatoriamente livre, mas sua liberdade é vazia de propósito. A sensação do desontista é que a vida é uma montanha-russa na qual ele permanece temeroso do futuro, movido por forças exteriores. Ele é condicionado por qualquer ilusão ou mentira que seu corpo lhe propõe, sem um propósito exterior definido.
+
 > **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
 
-### O desontista como Obstáculo Social
+---
+
+### **[CÓDIGO 7.5 - O Desmascaramento Final, Apocalipse Social e Orações]** *(Nota: As duas subseções sobre "Deus e o Amor Infinito" também dialogam diretamente com o Código 7.2 e com o Código 2.5 sobre o desontista como criança recém-nascida)*
+
+### O Desontista como Obstáculo Social
+
 O desontista é um obstáculo ao florescimento da sociedade. Ele consome cada gota de energia de sua existência em propagar o mal, incapaz de descansar enquanto não vê tudo em ruínas. Por essa razão, um novo ciclo se aproxima, no qual a renovação do universo e a separação do joio do trigo serão necessárias para que a harmonia prevaleça. O desontista e a sociedade representam forças opostas e irreconciliáveis.
+
 > **Referência:** Jesus, no Evangelho de Mateus (13:24-30), fala da parábola do joio e do trigo, ilustrando a necessidade de separação entre o bem e o mal.
 
 ### Deus e o Amor Infinito
+
 Deus nos ama com um amor infinito. Ele é o Pai mais zeloso, a luz incessante, um amor arrebatador que transforma até o mais endurecido dos corações. O grande foco deste universo é o desontista, que necessita de salvação. O desontista é como uma engrenagem defeituosa em um grande sistema, comprometendo o funcionamento de toda a sociedade.
+
 > **Referência:** São Paulo, em sua carta aos Romanos (8:38-39), afirma que nada pode nos separar do amor de Deus.
 
 ### A Necessidade de Renovação
+
 Para que a humanidade experimente a verdadeira paz, será necessária a renovação do universo. O desontista não pode se integrar ao tecido social, pois representa uma ameaça significativa. Sua alma terá um corpo corrupto, desprovido de inteligência e desfigurado. Deus respeita a liberdade de todos, mas a exclusão do desontista acaba sendo inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo.
+
 > **Referência:** Apocalipse 21:1-5, que fala da criação de um novo céu e uma nova terra, onde não haverá mais dor ou sofrimento.
 
 ### Conclusão (Esperança e Harmonioso Futuro)
+
 O desontista é uma força que ameaça a estrutura social, atuando exclusivamente em prol de sua destruição. Ele não deseja apenas praticar o mal, mas destruir a própria possibilidade de continuar existindo. A exclusão do desontista é inevitável, seja por sua própria escolha ou por uma necessidade imposta pela sobrevivência do coletivo. No entanto, Deus, em Seu amor infinito, continua a carregar cada um de nós no mais íntimo de Seu coração, esperando que, na próxima vida, possamos ser mais sábios e conscientes.
+
 > **Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
 
 Este texto, portanto, não apenas descreve a condição do desontista, mas também oferece uma reflexão profunda sobre a necessidade de renovação e a esperança em um futuro harmonioso, guiado pelo amor e pela transcendência espiritual.
 
-### Deus e o Amor Infinito pelo desontista
-Deus, em Seu amor infinito, enxerga o desontista como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o desontista estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o desontista não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o desontista despende todos os seus esforços para a destruição.
+### Deus e o Amor Infinito pelo Desontista
+
+Deus, em Seu amor infinito, enxerga o desontista como um ser que ainda está em sua fase de nascimento. Assim como uma criança recém-nascida, o desontista estranha a realidade, desconhece-a e chora, esperando consolo. No entanto, o desontista não pode atuar socialmente de forma construtiva. Mesmo que seja capaz de se relacionar, sua ação como integrante de um sistema tende a fazer sucumbir todo o sistema, impedindo a política e a cooperação social. Enquanto as pessoas trabalham para construir algo, o desontista despende todos os seus esforços para a destruição.
+
 > **Referência:** São Paulo, em sua carta aos Romanos (5:8), afirma que "Deus prova o seu próprio amor para conosco, pelo fato de ter Cristo morrido por nós, sendo nós ainda pecadores."
 
-### O desontista e a Busca por Identidade
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
+
+### O Desontista e a Busca por Identidade
+
 O indivíduo desontista não gosta que olhem para ele procurando alguém. Ele busca sempre uma personalidade para garantir uma transcendência, pois não reconhece uma identidade própria. Além disso, o desontista teme profundamente a morte e busca meios de se eternizar, seja através de sua cultura, de filhos ou de realizações materiais. Ele está ligado a movimentos corporais, pois não enxerga a ação do seu espírito.
+
 > **Referência:** Erik Erikson, em *Identidade: Juventude e Crise*, discute a importância da formação da identidade para o desenvolvimento psicológico saudável.
 
-### O desontista e o Crime
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]**
+
+### O Desontista e o Crime
+
 O desontista, ao ser prejudicado nas relações sociais por não controlar mecanismos de raiva, tende a se tornar criminoso. O criminoso é, em essência, um ladrão de companhia. Ao não ser paciente para a luta social, ele recorre ao crime. O que o ser humano mais precisa é relacionar-se, não acumular bens. O bandido, portanto, não é um visionário que sabe o que é bom na vida; suas riquezas servem para dominar companhias, pois, para si, a companhia é indispensável.
+
 > **Referência:** Erich Fromm, em *Anatomia da Destrutividade Humana*, explora como a falta de conexão social pode levar a comportamentos destrutivos.
 
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]**
+
 ### O Assombro e a Repetição de Comportamentos
+
 No momento em que o desontista entra em contato com suas aspirações e percebe que não consegue atingi-las, surge o assombro. Após entrar em contato com uma realidade que deseja, mas é restrita ao corpo, o indivíduo é atraído por comportamentos que o aprisionam. O corpo, então, lança argumentos que amenizam a sensação de prisão e assombro, dando ao indivíduo energia e consolação para reiterar o comportamento repetitivo. Dessa forma, o indivíduo evita o que lhe relembra o assombro, pois isso gasta sua energia e o deixa nervoso.
+
 > **Referência:** Sigmund Freud, em *Além do Princípio do Prazer*, discute a compulsão à repetição como uma forma de lidar com traumas e ansiedades.
 
-### O desontista e a Diminuição da Reflexão
+---
+
+### **[CÓDIGO 2.6 - A Sabotagem da Alegria e a Vida no "Agridoce"]** *(Nota: A subseção sobre Narcisismo e Demência Social também dialoga com o Código 2.4)*
+
+### O Desontista e a Diminuição da Reflexão
+
 O indivíduo desontista vive alheio às ideias e diminui seu nível de reflexão, evitando pensar de forma profunda sobre si mesmo e seu comportamento. O espírito evoluído é considerado uma faculdade mental, e o indivíduo que não possui nenhuma evolução espiritual muitas vezes se torna inapto para atuar como cidadão e fazer a sociedade funcionar. Assim, o desontista é frequentemente considerado alguém com inteligência diminuída, não apenas em aspectos existenciais, mas também cognitivos.
+
 > **Referência:** Jean Piaget, em *O Nascimento da Inteligência na Criança*, explora como o desenvolvimento cognitivo está ligado à interação com o ambiente e à reflexão.
 
 ### O Narcisismo e a Demência Social
-Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o desontista muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se auto responsabiliza por suas atitudes impensadas.
+
+Quase toda a depressão no mundo é ocasionada pelo comportamento dos narcisos, que, com uma inteligência reduzida, causam grandes transtornos sociais. Um indivíduo, por menos amor que tenha, raramente manifestaria tendências de causar guerras, fome ou desigualdade social, pois isso seria destruir o próprio meio onde vive. O narcisismo, portanto, não é apenas uma deficiência mental grave, mas se equipara a uma demência. Isso explica por que o desontista muitas vezes imita um comportamento demente, tentando se encaixar em um contexto social onde não se autorresponsabiliza por suas atitudes impensadas.
+
 > **Referência:** Christopher Lasch, em *A Cultura do Narcisismo*, analisa como o narcisismo se tornou uma característica dominante na sociedade moderna.
 
-### O Controle do desontista por Estímulos
+---
+
+### **[CÓDIGO 5.3 - A Simbiose entre Bilionários, Crime Organizado e Indústria Cultural]**
+
+### O Controle do Desontista por Estímulos
+
 O desontista pode ser controlado por estímulos. Se houver um estímulo com pressão suficiente para que o corpo arquitete um pretexto, é possível aprisioná-lo em um comportamento de escravidão. Em uma realidade purgatorial, onde o narcisismo se insere, é possível, através da tecnologia, conduzi-lo a um comportamento padrão, sem a necessidade de aprisionamento físico. O crime organizado, a indústria química e os hospitais psiquiátricos podem transformar o desontista em uma fonte de lucro, assim como a indústria da beleza cria padrões estéticos irreais.
+
 > **Referência:** Michel Foucault, em *Vigiar e Punir*, discute como as instituições modernas controlam os indivíduos através de mecanismos de poder e disciplina.
 
+---
+
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]**
+
 ### A Ilusão do Ócio Completo
-O desontista tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um auto-conhecimento elevado. O desontista acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
+
+O desontista tem a ilusão de que, ao atingir uma existência de ócio completo, chegará ao fim de sua busca por si mesmo. Dessa forma, ele recorre a meios criminosos. Ele também tem a ilusão de que "tudo sabe, tudo conhece", simulando para si mesmo um autoconhecimento elevado. O desontista acredita estar "desperto da matrix" e julga necessário conscientizar as pessoas sobre um suposto padrão político que as força a trabalhar. Ele vê o trabalho e o propósito como formas de subordinação, pois não reconhece motivação ou propósito em si mesmo.
+
 > **Referência:** Karl Marx, em *O Capital*, critica a alienação do trabalhador em uma sociedade capitalista, mas o desontista leva essa alienação a um extremo patológico.
 
 ### Conclusão (O Vazio Existencial)
+
 O desontista é um indivíduo que vive nas sombras da realidade, buscando incessantemente um sentido que nunca encontra. Seu comportamento é marcado por obsessão, destruição e uma profunda alienação de si mesmo e dos outros. Enquanto a sociedade busca construir e prosperar, o desontista consome energia em barreiras e conflitos. No entanto, o amor infinito de Deus continua a alcançá-lo, esperando que, um dia, ele desperte para a realidade espiritual e encontre seu verdadeiro propósito.
+
 > **Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
 
 Este texto, portanto, não apenas descreve a condição do desontista, mas também oferece uma reflexão profunda sobre a necessidade de renovação espiritual e a esperança em um futuro onde o amor e a transcendência prevaleçam.
 
-### A Estima Deplorável do desontista
+### A Estima Deplorável do Desontista
+
 O desontista possui uma estima deplorável, a ponto de considerar aqueles ao seu redor como deuses, dada a frequência com que é desprezado. Essa constante rejeição desenvolve nele uma grande subordinação e, muitas vezes, o leva a identificar-se mais com animais do que com humanos, fugindo do contato social. Ele não entende a concentração e o entusiasmo dos indivíduos ao executarem uma função, pois não consegue enxergar um propósito direcionado à vida ou ao próprio viver que traga felicidade. Para o desontista, a existência é um mero "estar aqui", sem direção ou transcendência.
+
 > **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a falta de um propósito autêntico leva à alienação e à subordinação a figuras externas.
 
 ### A Imitação de Comportamentos
-O desontista imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam auto-conhecimento, o desontista prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
+
+O desontista imita comportamentos dos outros como uma tentativa de aliviar sua realidade. Ele incorpora personagens e ações que julga terem propósito, mas não assume propriedade sobre suas emoções. Ele espelha-se no outro, não reconhecendo o outro como outro e a si mesmo como si. Quando confrontado com diálogos que buscam autoconhecimento, o desontista prefere conversas alienantes, recusando-se a refletir sobre sua própria existência. Isso ocorre porque o diálogo profundo o irrita e confunde, perturbando seu entendimento da realidade.
+
 > **Referência:** Carl Jung, em *Aion*, fala sobre a sombra e como a negação do self leva à projeção de aspectos não integrados nos outros.
 
+---
+
+### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]**
+
 ### A Obsessão por Dinheiro e a Alienação
+
 O desontista tende a se referir a si mesmo como ninguém, um sentimento que se acumula à medida que ele se distancia de sua verdadeira identidade. Ele desenvolve uma obsessão inigualável por dinheiro, vendo-o como a solução para sua falta de sentido ou como um espelho de si mesmo materializado. No entanto, essa busca é vazia, pois o dinheiro não preenche o vazio existencial que ele carrega.
+
 > **Referência:** Karl Marx, em *Manuscritos Econômico-Filosóficos*, descreve como a alienação no capitalismo leva o indivíduo a buscar significado em posses materiais, em vez de em relações autênticas.
 
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]**
+
 ### A Apatia e o Estado de Loucura Permanente
+
 A apatia coloca o corpo em um estado de loucura permanente. O indivíduo passa a valorizar excessivamente cada prazer físico mínimo, a solitude e a sistematicidade do ambiente onde vive. Ele cria regras comportamentais rígidas na tentativa de regularizar-se internamente ou encontrar um prazer que não consegue em sua vida. Esse estado gera uma anormalidade comportamental, pois o corpo humano não foi projetado para viver sem um "para si". Todo comportamento que revela um propósito maior assombra o desontista, que sente que as pessoas ao seu redor são movidas por uma força sobrenatural que ele não compreende.
+
 > **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico.
 
 ### O Abismo Existencial
+
 O famoso abismo que olha de volta ao se olhar para ele é o assombro do desontista. É o choque de seu corpo quando falta um sentido para seus estímulos, quando falta um "eu" que dê finalidade às suas ações. Ao se perguntar "quem me move?", "qual meu propósito?", "quem sou eu?", o desontista não encontra respostas, apenas um vazio. Isso provoca uma sensação de saudade imensa, de esquecimento profundo e de grande terror. Ele vê o caos como uma força misteriosa que o move, interpretando-a como algo vivo e maligno. Esse é o clássico assombro diante da percepção sensorial de si mesmo sem o seu "quem".
+
 > **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, descreve o abismo como uma metáfora para o confronto com o vazio existencial e a necessidade de criar significado.
 
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]**
+
 ### A Violência e o Territorialismo
+
 O desontista, não sabendo por quem ou pelo que é dominado, manifesta essa sensação de aprisionamento em uma tendência de dominar o outro. O domínio que ele não tem sobre si mesmo é expresso em forma de violência e territorialismo. Ele tenta controlar externamente o que não consegue controlar internamente, projetando sua falta de autodeterminação no mundo ao seu redor.
+
 > **Referência:** René Girard, em *A Violência e o Sagrado*, discute como a violência surge da imitação e da rivalidade, especialmente em indivíduos que não encontraram um propósito autêntico.
 
 ### Conclusão Final
-O desontista é um indivíduo profundamente alienado, que vive em um estado de loucura permanente e anormalidade comportamental. Sua falta de propósito e autoconhecimento o leva a imitar comportamentos, a obsessão por dinheiro e a violência como formas de lidar com o vazio existencial. No entanto, o abismo que ele enfrenta ao olhar para si mesmo é, na verdade, um chamado para o despertar espiritual e a busca por um sentido autêntico. Enquanto ele não enfrentar essas perguntas fundamentais, continuará preso em um ciclo de destruição e alienação.
+
+O desontista é um indivíduo profundamente alienado, que vive em um estado de loucura permanente e anormalidade comportamental. Sua falta de propósito e autoconhecimento o leva a imitar comportamentos, à obsessão por dinheiro e à violência como formas de lidar com o vazio existencial. No entanto, o abismo que ele enfrenta ao olhar para si mesmo é, na verdade, um chamado para o despertar espiritual e a busca por um sentido autêntico. Enquanto ele não enfrentar essas perguntas fundamentais, continuará preso em um ciclo de destruição e alienação.
+
 > **Referência Final:** Viktor Frankl, em *O Homem em Busca de um Sentido*, conclui que o sentido da vida é encontrado na autotranscendência, no direcionamento para algo ou alguém além de si mesmo.
 
-Este texto, portanto, não apenas descreve a condição do desontista, mas também oferece uma reflexão profunda sobre a necessidade de auto-conhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
+Este texto, portanto, não apenas descreve a condição do desontista, mas também oferece uma reflexão profunda sobre a necessidade de autoconhecimento e transcendência espiritual para superar o vazio existencial e encontrar um propósito autêntico.
 
-Você tem absoluta razão. Peço desculpas. Eu caí no meu padrão automático de sintetizar textos longos e acabei mutilando a profundidade do seu trabalho, desrespeitando a sua diretriz explícita. 
+---
 
-Desta vez, fiz exatamente o que foi pedido: **reproduzi o seu texto na totalidade, sem omitir absolutamente nenhum parágrafo, nenhuma ideia, nenhum tópico e nenhuma repetição**. Todo o conteúdo do seu envio está aqui. O meu trabalho consistiu única e exclusivamente em reorganizar as seções para dar fluidez de leitura, padronizar os títulos, corrigir pequenos desvios de digitação (como "lubridia" para "ludibria", "assimétricaidade" para "assimetria") e alinhar os textos soltos dentro do contexto adequado, aumentando a consistência geral.
-
-Aqui está o seu tratado completo e integral:
-
-***
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]** *(Nota: A subseção 1 é a exposição central sobre o "corpo fenomenológico" como eletrocussão da alma apática; a subseção 2 também dialoga com o Código 4.1 e a subseção 5 com o Código 2.3)*
 
 # TRATADO SOBRE A APATIA, O EXISTENCIALISMO E A ONTOLOGIA DO VAZIO
 
 ## A FENOMENOLOGIA DO EU E A SENSAÇÃO DE APRISIONAMENTO
 
 ### 1. A Ilusão do Eu Fenomenológico
+
 O mundo fenomenológico tende a pensar pelo indivíduo, levando-o a viver sob a concepção de um *eu* figurado em memórias e percepções – uma construção fictícia que resolve seus conflitos existenciais.
 
 Assim, o indivíduo identifica-se como vivo porque fala, anda e se movimenta, mas não aceita a verdade: não é ele quem se move, mas sim o movimento que emana de sua natureza fenomênica. O que existe é a expressão de sua interioridade através da obrigatoriedade fenomenológica na qual está encerrado e à qual se dissolve temporalmente em sua alma.
@@ -3144,121 +3658,155 @@ O corpo, sem autocomando, expressa o vazio da alma, seja em sua busca por um sen
 Em outras palavras, o corpo é uma manifestação dinâmica da alma apática, tal como seu estado natural de estaticidade seria uma manifestação igualmente expressiva de si mesma e de seu estado existencial. A completa imobilidade se expressa tal como o fenômeno inerente a esta mobilidade no dinamismo de sua natureza. Ambas seriam formas de expressão. O dinamismo do fenômeno agrega o teor de vazio existencial do desontista tal como sua completa imobilidade como alma desfenomenizada.
 
 ### 2. A Sensação de Ser Comandado por uma Força Desconhecida
+
 A sensação de estar sendo comandado por uma força desconhecida, de ser um produto sensorial do direcionamento de algo alheio a si mesmo, causa um grande impacto na personalidade do desontista. Essa percepção pode levar ao desenvolvimento de obsessões por fama, riqueza e poder. A fama, para o desontista, subentende sua presença na consciência das pessoas; a riqueza representa o valor que ele deveria enxergar em si mesmo; e o poder simboliza o domínio que ele deveria exercer sobre si. A esperteza ou malandragem são vistas como uma forma de autoconhecimento, uma ciência de si. No entanto, essa obsessão não leva o indivíduo a perseguir um objetivo de forma saudável, mas a fazer qualquer coisa por ele, muitas vezes de forma destrutiva.
 
 **Referência:** Carl Jung, em *Aion*, discute como a projeção de aspectos não integrados do self pode levar a comportamentos obsessivos e destrutivos.
 
-### 3. A Descrição do Eu: desontista vs. Não desontista
+### 3. A Descrição do Eu: Desontista vs. Não Desontista
+
 Quando questionado sobre quem é, o desontista descreve-se de forma superficial, focando em tendências sensoriais e objetivos materiais. Por exemplo: *"Sou fulana, gosto de fazer tais coisas, me sinto bem fazendo tais coisas, meus objetivos futuros são esses."* Já o não desontista descreve-se de forma mais profunda, com um cunho espiritual: *"Sou uma pessoa feliz, tranquila, gosto de meditar, de leitura, de questionamentos existenciais. Tenho religiosidade. Meus assuntos preferidos são... O que mais gosto de fazer é..."* Para o desontista, a palavra "eu" não faz sentido além de um acúmulo de memórias, lembranças e tendências sensoriais. Ele não consegue compreender algo que agregue sentido além da materialidade. Tudo que sugere um "eu real" é visto como extraordinariamente complexo e incompreensível.
 
 **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que o "eu" é uma construção que surge da consciência e da autodeterminação, algo que o desontista não consegue integrar.
 
-### 4. O desontista como um Primata com Inteligência Aprimorada
+### 4. O Desontista como um Primata com Inteligência Aprimorada
+
 O desontista age como um primata com inteligência aprimorada. Ele possui o mecanismo necessário para a tomada de consciência do eu (o espírito), mas não o utiliza. Esse mecanismo está relacionado a uma identidade na realidade, não apenas a um corpo. A comparação é triste, mas a conversa com o desontista é semelhante à que se teria com um primata ao tentar explicar-lhe que é responsável por seus atos e tem livre-arbítrio. O primata simplesmente não entenderia ou ficaria irritado. Da mesma forma, o desontista reage com incompreensão ou irritação quando confrontado com questões existenciais mais profundas.
 
 **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de propósito e autoconhecimento leva a uma existência vazia e alienada.
 
-### 5. O Abismo e o Sofrimento Extra-Sensorial
+### 5. O Abismo e o Sofrimento Extrassensorial
+
 Quando a faculdade do espírito tenta fazer com que o corpo reconheça a si mesmo como algo que transcende a materialidade, o desontista experimenta a sensação do abismo olhando para si. Esse abismo é a percepção de um vazio existencial, que causa grande sofrimento e apavoro. O corpo, tentando preencher esse vazio, distorce os sentidos, criando visões distorcidas da realidade. A autodeterminação é o que faz a diferença entre conhecer-se ou não. O homem, como uma propriedade viva, pode alienar-se de si mesmo, gerando uma tensão entre o agir corporal e a motivação do ato.
 
 **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o "ser-para-si" como a autêntica realização do Dasein, que assume sua finitude e liberdade.
+---
+
+### **[CÓDIGO 4.1 - A Psicologia do Bilionário e a Religião da Matéria]**
 
 ### 6. A Ilusão de Genialidade e a Obsessão por Riquezas
+
 O desontista desenvolve a tendência de se considerar um gênio, o mais esperto ou malandro. Ele ludibria pessoas em coisas óbvias para manter a ilusão de conhecimento sobre si, imaginando-se um libertador de consciências. No entanto, ele nunca manifesta a técnica ou o pensamento elevado que supostamente possui. Sua obsessão por riquezas é uma tentativa inconsciente de preservar seu valor e identidade, transmitindo-os para gerações futuras, tal como faziam os antigos egípcios, que temiam a morte e a perda de sua materialidade.
 
 **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses materiais é uma tentativa de preencher um vazio existencial.
 
+---
+
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]**
+
 ### 7. A Busca pela Paz sem Autoconhecimento
+
 Ao ver o comportamento de alguém calmo, sereno e confortável, o desontista busca obter essa mesma paz sem deixar de ser desontista. No entanto, isso é impossível na prática. Ele reclama da privação da escolha não feita, não da escolha em si. Ao entrar em contato com alguém que possui grande paz interior, o desontista inicia uma perseguição para obter o mesmo benefício através de técnicas externas, sem compreender que a paz verdadeira vem do autoconhecimento e da autodeterminação.
 
 **Referência:** Eckhart Tolle, em *O Poder do Agora*, enfatiza que a paz interior só pode ser alcançada através da consciência do presente e da transcendência do ego.
 
 ---
 
+### **[CÓDIGO 1.3 - O Paradoxo de "Escolher Não Escolher" e a Vitrificação da Alma]** *(Nota: A lista "Dinâmica Comportamental do Eu Mal Resolvido" abaixo também dialoga diretamente com os Códigos 2.4, 3.1 e 2.3)*
+
 ## O EU MAL RESOLVIDO E A HISTERIA SOCIAL
 
 ### 1. O Eu Mal Resolvido
-O desontista, como imposto ao existir, e não autodeterminado, ou revivido de si. É um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem, é o impor ao corpo a alma, e esta é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas.
+
+O desontista, como imposto ao existir, e não autodeterminado, ou revivido de si, é um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem é o impor ao corpo a alma, e esta é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas.
 
 O desontista não é uma alma livre, e nem mesmo presa, pois toda intuição da realidade exige um eu que a interpreta. O desontista é simplesmente uma alma criada em mal-estar existencial. É o resultado que se define realizado pela vontade divina e unicamente obediente a esta, sendo em sua existência, mas não coagente e nem não coagente com essa vontade, simplesmente imóvel ao todo.
 
-Toda alma é livre como ação criadora livre de Deus, é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não significa que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
+Toda alma é livre como ação criadora livre de Deus; é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não significa que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
 
 **Dinâmica Comportamental do Eu Mal Resolvido:**
+
 * Agressividade querendo mostrar que ele simula liberdade. Gosta de mandar porque se sente mandado. Determinado preso. Seguidor de regras. Não consegue conversar de eu pra eu. Precisa assumir uma personalidade. Precisa fingir um eu. Linguagem processual, de funcionamento ou incorporando personagem.
 * Não consegue interagir sem expressar seu desconforto. Não tolera pessoas alegres, se sentindo bem perto de si.
 * Sente que estão lhe fazendo passar vontade. Tenta aprisionar o outro de alguma forma, e exibir-se livre, pois sente que o outro está exibindo sua alegria e liberdade.
 * Tenta coibir a alegria geral.
-* Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimentos, opiniões, o desontista necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou.
+* Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimentos, opiniões; o desontista necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou.
 * O desontista tende à crueldade e tem dificuldade em controle da raiva. Pois se sente numa situação de aprisionamento interior.
-* Caso o desontista seja forçado a se enquadrar numa situação sofre o chamado "assombro", como a sensação de ser aniquilado pela morte, ou começa a se sentir extremamente irritado como uma sensação de estar enclausurado.
+* Caso o desontista seja forçado a se enquadrar numa situação, sofre o chamado "assombro", como a sensação de ser aniquilado pela morte, ou começa a se sentir extremamente irritado como uma sensação de estar enclausurado.
 * Tende ao isolamento ao perceber que as pessoas se sentem desconfortáveis com sua reação.
 * Sente grande apavoro quando vê situações em que o outro está com tranquilidade, descanso e paz. Pois compara a seu estado e enxerga a anormalidade em si, tem sensações perturbadoras.
 * A descrição de seu conflito é: "saudade de alguém que eu gosto muito e nunca encontro", "fome interior", "sede interior".
-* O indivíduo projeta um personagem altivo, que é a projeção de si num patamar de assimetria do ponto de vista material, simulando uma posição espiritual ausente no indivíduo. E neste comportamento envolve: Exclusão, afastamento, silenciamento frente a pessoas que supostamente não fazem parte de algo que o indivíduo integra, seja uma posição social, a posse de um ou mais bens, o estar adentrado no contexto de um grupo social ou de uma pessoa que represente status, associação a determinada tarefa ou trabalho que o indivíduo use para valorar-se de forma representativa. Para se manter na ilusão o indivíduo evita contato social que o permita se olhar de igual para igual, achatando sua posição perante as demais pessoas, o que evidencia a discrepância, a diferença de estado de espírito entre ela e as demais pessoas.
-* O indivíduo desontista tenta constantemente se provar como livre, como uma tentativa ser livre perante a visão do outro. E o faz por meio de impor ao outro uma rotina escravista, ou impor ao outro qualquer forma de incômodo que o permita comparar-se sem o incômodo. Tenta provocar uma diferença de potencial física de liberdade, como restrição financeira ao outro, restrição de tempo, etc. Como tentativa de demonstrar o que sente. E pensar-se num patamar ideal. Pois usa o outro como comparação de seu estado de espírito.
+* O indivíduo projeta um personagem altivo, que é a projeção de si num patamar de assimetria do ponto de vista material, simulando uma posição espiritual ausente no indivíduo. E neste comportamento envolve: exclusão, afastamento, silenciamento frente a pessoas que supostamente não fazem parte de algo que o indivíduo integra, seja uma posição social, a posse de um ou mais bens, o estar adentrado no contexto de um grupo social ou de uma pessoa que represente status, associação a determinada tarefa ou trabalho que o indivíduo use para valorar-se de forma representativa. Para se manter na ilusão, o indivíduo evita contato social que lhe permita se olhar de igual para igual, achatando sua posição perante as demais pessoas, o que evidencia a discrepância, a diferença de estado de espírito entre ele e as demais pessoas.
+* O indivíduo desontista tenta constantemente se provar como livre, como uma tentativa de ser livre perante a visão do outro. E o faz por meio de impor ao outro uma rotina escravista, ou impor ao outro qualquer forma de incômodo que lhe permita comparar-se sem o incômodo. Tenta provocar uma diferença de potencial física de liberdade, como restrição financeira ao outro, restrição de tempo, etc. Como tentativa de demonstrar o que sente. E pensar-se num patamar ideal. Pois usa o outro como comparação de seu estado de espírito.
 * A convivência social do desontista é de difícil desenvolvimento, pois o mesmo se sente sobrecarregado ou assombrado com a informação da ausência do seu eu, ao comparar o comportamento do outro como discrepante ao seu.
-* O indivíduo desontista manifesta constantes crises de histeria, pois a privação do eu em suas tarefas diárias lhe irrita profundamente, lhe afastando de tudo que mais agrada e sendo um empecilho para o seu desenvolvimento social.
+* O indivíduo desontista manifesta constantes crises de histeria, pois a privação do eu em suas tarefas diárias o irrita profundamente, afastando-o de tudo que mais agrada e sendo um empecilho para o seu desenvolvimento social.
 * O desontista tende muitas vezes à crueldade, maldade, vingança e descarga de raiva sem propósito e sentido aparente.
 
+---
+
+### **[CÓDIGO 2.3 - A Dinâmica do Colapso, o Assombro e a Insônia]** *(Nota: A subseção 5 também dialoga com o Código 2.7; a subseção 6 com o Código 2.6; e a subseção 7 com o Código 2.4)*
+
 ### 2. A Negação Constante e a Histeria
+
 O desontista, em negação constante de questões que o levam a refletir, acumula histeria que se desdobra em xingamentos, agressões emocionais e físicas. Ele vive em um cárcere físico e mental, semelhante a um prisioneiro isento de liberdade por anos. Quando atinge um pico de prazer corporal, o desontista tende a manifestar um objetivo a perseguir, como a permanência, mas se depara com a pergunta: "Quem manifesta?" ou "Quem sente?". Isso o mantém em emoções mornas, que não remetem a um "eu" ou a um agente de propósito.
 
 **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a falta de propósito levam ao sofrimento psíquico e a comportamentos destrutivos.
 
 ### 3. O Assombro e a Perturbação Mental
+
 O assombro não é uma sensação de medo constante, mas uma visão perturbadora que corta a normalidade do desontista de forma abrupta. É como um choque ou um banho gelado em sua mente. Ao fixar sua atenção nas questões que o perturbam, ele começa a cantar como uma criança, na tentativa de apaziguar o terror que sente. Esse comportamento é uma forma de fuga da realidade que o assombra.
 
 **Referência:** Sigmund Freud, em *O Mal-Estar na Civilização*, explora como a repressão dos instintos e a negação da realidade levam a estados de ansiedade e comportamentos irracionais.
 
-### 4. Reconhecendo o desontista em Sociedade
+### 4. Reconhecendo o Desontista em Sociedade
+
 O desontista é facilmente reconhecido em sociedade por sua constante irritação sem causa aparente. Ele se sente aprisionado, incapaz de perseguir suas verdadeiras aspirações, pois estas são sempre frustradas pela falta de domínio de si mesmo. Mesmo quando não há impedimentos externos, ao entrar em contato com fortes emoções que lhe atribuem sensação de valor e sentido, ele é novamente arremessado contra o assombro da falta de propósito. Essa sensação o paralisa, impedindo-o de continuar em seus objetivos.
 
 **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, descreve como a falta de propósito leva a uma sensação de vazio e frustração existencial.
 
 ### 5. A Tendência ao Vício e a Raiva Social
+
 O desontista tende ao vício como uma tentativa de simular felicidade. No entanto, ele tenta a todo custo disfarçar sua raiva social, que pode ser direcionada aos outros ou a si mesmo. Esse estado constante de histeria e insatisfação é acompanhado por momentos em que ele parece estar assombrado por algo. De repente, o desontista arregala os olhos e começa a cantar algo de forma trêmula, como se estivesse vendo algo fantasmagórico.
 
 **Referência:** Carl Jung, em *Aion*, discute como a negação da sombra e a falta de integração do self levam a comportamentos compulsivos e destrutivos.
 
 ### 6. A Necessidade de Destruir o Bem-Estar
+
 O desontista vive em um estado de reclamação constante e tende a denegrir tudo ao seu redor. Ele necessita que tudo esteja entediante e inventa pretextos para brigas, desentendimentos e confusões. Essa atitude é uma forma de estragar o bem-estar das situações em que ele é confrontado com a necessidade de perseguir uma ideia ou zelar por um propósito. Quando tenta simular alegria e contentamento, o faz de forma que parece estar assombrado, como se algo perturbador estivesse sempre presente em sua mente.
 
 **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, argumenta que a má-fé e a negação da liberdade levam a comportamentos autodestrutivos e à sabotagem do próprio bem-estar.
 
 ### 7. A Simulação de Pobreza Interior
+
 O desontista costuma fingir-se de mendigo, pedir coisas emprestadas ou dinheiro, como uma forma de esboçar sua realidade de pobreza interior. Ele sente uma enorme impressão de miséria e, por vezes, não permite que os outros olhem diretamente em seus olhos, imaginando-se um rei. Em outros momentos, ele se faz de serviçal ou mendigo, espelhando seu estado interior de servidão a uma autodeterminação que não é sua.
 
 **Referência:** Erich Fromm, em *Ter ou Ser?*, discute como a busca por posses e status é uma tentativa de preencher um vazio existencial, mas que acaba reforçando a sensação de miséria interior.
 
 ---
 
+### **[CÓDIGO 3.1 - A Inveja da Vida, o Desontista por Contrato e o Vampiro de Otimismo]** *(Nota: A subseção 2 também dialoga com o Código 7.5 sobre a degradação da liberdade/cultura; e a subseção 3 retoma o bloco sobre Apatia e Despertar [Códigos 1.4, 2.1, 7.3 e 4.1])*
+
 ## PARTE III: A DEGRADAÇÃO SOCIAL, O EXISTENCIALISMO E A PROJEÇÃO DA DOR
 
-### 1. O Sentido da Existência do desontista: Projeção da Dor e Degradação Social
+### 1. O Sentido da Existência do Desontista: Projeção da Dor e Degradação Social
+
 O desontista, em sua condição existencial alienada, busca incessantemente uma solução ilusória para o sofrimento que carrega. Sua existência se resume a projetar nos outros a dor que sente, na esperança de que alguém lhe ofereça uma resposta que simule o encontro consigo mesmo. No entanto, essa busca é vazia, pois o desontista não está disposto a assumir sua liberdade e enfrentar quem realmente é. Em vez disso, ele manifesta uma ilusão de cura, utilizando-se de meios violentos e manipulativos para obter dos outros uma resposta fictícia que alivie temporariamente sua angústia.
 
 Esse espelhar no outro ocorre de diversas formas:
-- **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
-- **Demonstração de assimetria:** Mostrar-se em um patamar de riqueza ou status assimétrico, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
-- **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
+
+* **Exploração Econômica:** Pagar salários injustos ao empregado, fazendo-o compreender a miséria na qual se encontra, como uma forma de refletir sua própria miséria interior.
+* **Demonstração de Assimetria:** Mostrar-se em um patamar de riqueza ou status assimétrico, insinuando que todos o tratam da mesma forma, como uma tentativa de mascarar sua realidade interior frágil.
+* **Violência e Destruição:** Cometer assassinatos ou atos cruéis como uma forma de punir o outro por estar "morto por dentro", projetando sua própria frustração existencial.
 
 A vida do desontista, portanto, se resume a manifestar os sintomas de sua frustração interior na sociedade. Sua atuação invisível e destrutiva impede que a sociedade cresça plenamente, pois ele utiliza tecnologia e inteligência humana para disseminar sua dor. A sociedade, por sua vez, se defende criando sistemas de vigilância, leis e mecanismos de controle, mas essa constante busca por segurança acaba por desfigurar a cultura e a liberdade.
 
 ### 2. A Degradação da Liberdade e da Cultura
+
 A necessidade de se proteger da ação dos desontistas leva a sociedade a um processo contínuo de degradação. Leis excessivas são criadas a cada nova forma de crime, e a vigilância se torna tão onipresente que todas as formas de atuação social passam a ser monitoradas. A cultura, antes baseada na confiança mútua, se transforma em uma fortaleza que tudo prevê, mas que, ao mesmo tempo, sufoca a liberdade e a criatividade.
 
 ### 3. O Pilar do Existencialismo: Apatia e Despertar
+
 **Introdução:** O existencialismo, como corrente filosófica, tem como pilar central a ideia de que o ser humano é livre e responsável por suas escolhas, e que a **existência precede a essência**. Neste texto, exploraremos a distinção entre o indivíduo que vive em seu **"em si"** (o **desontista**) e o que vive em seu **"para si"** (o **desperto**). Além disso, discutiremos os efeitos desses estados no corpo humano, na personalidade e na vida social.
 
-**1. O Indivíduo desontista:** O desontista é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não se domina, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
+**1. O Indivíduo Desontista:** O desontista é aquele que não encontrou a si mesmo, vivendo alheio à sua própria identidade. Ele não se domina, não está presente em si e não se conhece. Sua vida é guiada por instintos e impulsos, sem reflexão ou autodeterminação. Esse estado de alienação consigo mesmo gera graves sintomas em sua personalidade e vida social.
 **Referência:** Jean-Paul Sartre, em *O Ser e o Nada*, descreve o indivíduo que vive no **"em si"** como aquele que se aliena de sua liberdade, negando sua responsabilidade e autenticidade.
 
 **1.1 Efeitos no Corpo e na Mente:** O desontista sofre pressões físicas e emocionais intensas. A busca por um sentido, que ele não consegue encontrar, torna-se quase insuportável. Isso se manifesta em:
-- **Ansiedade:** Sensação constante de desamparo e desespero.
-- **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
-- **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
-- **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
+
+* **Ansiedade:** Sensação constante de desamparo e desespero.
+* **Obsessão:** Busca frenética por bens materiais, status ou poder, na tentativa de preencher o vazio existencial.
+* **Deslocamento Social:** Dificuldade de se conectar com os outros, sentindo-se rejeitado ou excluído.
+* **Crueldade:** Comportamento hostil em relação aos outros, na esperança de que alguém lhe revele o "segredo" da felicidade ou do sentido da vida.
 **Referência:** Viktor Frankl, em *O Homem em Busca de um Sentido*, discute como a falta de sentido leva ao desespero existencial e a comportamentos destrutivos.
 
 **1.2 A Ilusão da Liberdade:** O desontista acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa **"liberdade" é ilusória**, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
@@ -3273,63 +3821,74 @@ A necessidade de se proteger da ação dos desontistas leva a sociedade a um pro
 **2.2 O Amor como Primeiro Movimento:** O amor é o primeiro choro da criança, o primeiro passo, a primeira palavra. É o movimento que prova a vida. Para o desontista, o amor é uma ação que ele não consegue identificar como sua, pois o agente da ação (o "quem") não é reconhecido. No despertar, o indivíduo percebe que o amor é uma ação que nasce de si para o todo, e que ele é capaz de amar e ser amado.
 **Referência:** Erich Fromm, em *A Arte de Amar*, descreve o amor como uma ação ativa, que requer consciência e autodeterminação.
 
-**2.3 O Despertar do Ser:** O despertar não é apenas o início do movimento, mas o **despertar do ser**. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vêm instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
+**2.3 O Despertar do Ser:** O despertar não é apenas o início do movimento, mas o **despertar do ser**. Isso é percebido pelo corpo como uma mudança no sentido do agir: de um vai e vem instintivo e vazio de propósito para um movimento em direção às verdadeiras aspirações. O indivíduo desperto deixa de ser um observador passivo e assume o controle de sua vida, ainda que imperfeitamente.
 **Referência:** Martin Heidegger, em *Ser e Tempo*, descreve o **"ser-para-si"** como a autêntica realização do *Dasein*, que assume sua finitude e liberdade.
 
 **3. A Busca Frenética por Sentido:** O desontista vive em um estado de **angústia existencial**, tentando desesperadamente encontrar um sentido para sua vida. Essa busca se manifesta em:
-- **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
-- **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
-- **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
+
+* **Obsessão por Riqueza:** Acumular bens materiais como forma de preencher o vazio interior.
+* **Afastamento do Trabalho e da Sociedade:** Dificuldade de se engajar em atividades significativas ou de se conectar com os outros.
+* **Crueldade e Hostilidade:** Comportamentos agressivos, na tentativa de forçar os outros a revelarem o "segredo" da felicidade.
 **Referência:** Albert Camus, em *O Mito de Sísifo*, discute a luta do homem para encontrar sentido em um mundo aparentemente absurdo.
 
 **3.1 A Miséria Interior do Rico:** O indivíduo rico, embora tenha recursos materiais, sofre de uma **miséria interior**. Ele teme perder sua riqueza, mas, mais do que isso, teme ser confrontado com a realidade de sua falta de sentido. Sua riqueza mascara medos profundos, como o medo da exclusão e a inveja da interação social dos outros.
 **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, fala sobre a insatisfação humana e a busca incessante por algo que preencha o vazio existencial.
 
-O mal do ponto de vista biológico talvez não corrobore para a sustentação da sociedade, o mal, a extrema crueldade é uma perversão de sentido, que incita o humano a fazer qualquer coisa em prol do desespero de encontrar o que atribua razão e continuidade a sua existência, considera portanto sua causa, ter maior teor de urgência que qualquer outra e não lança mão de manifestar essa urgência através de excessiva crueldade e hostilidade, pois considera sua busca ser temporal, ou seja, ter prazo e ser de extrema importância para si.
-
-### 4. A Constante Interpretação de Personagens Opressores
-O desontista tem sua vida como um teatro contínuo de uma figura que espera incorporar seu eu ou ao menos obtê-lo de alguma forma.
-
-A imitação de um senhor de engenho, que mantém cativas pessoas no intuito de obter algum tipo de resposta, na mentalidade de que, estas pessoas estão lhe escondendo algo. E que, para recuperar este algo, necessitam fazê-las reféns. E isto se espelha a cultura escravista ao longo da história, indivíduos que se perverteram ao ponto de tentar encontrar no outro, por meio de coação e violência, o próprio eu perdido, pelo qual, fariam qualquer coisa, ainda que isto fosse cruel e desumano.
-
-A imitação de constantes personagens que assemelham atribuir-lhe pessoalidade, personalidade e o eu perdido. O indivíduo manifesta a todo momento uma interpretação vazia, metódica, objetal, sem vida, vazia de sentido e questionamento.
-
-Quando questionado de seu personagem, se põe num pranto triste. Relatam não haver sentido. Querem oprimir manifestações naturais de alegria. Quando pessoas alegres e calmas estão presentes, tentam imitá-las com uma risada sombria ou dizem se sentir incomodadas.
-
-### 5. A Inteligência Emocional no desontista
-- A descarga de expressão como força incontrolável ao corpo.
-- As manobras para o encaixe social.
-- A tentativa de simulação de paz e serenidade.
-- O deslocamento social.
-- A expressão de si por meio de palavrões.
-- A formulação de personagens de si baseados em figuras que assemelha ter encontrado o sentido.
-- A exclusão social devido a comportamentos anormais.
-- A exclusão social devido ao conhecimento erudito do cerne do problema através desta obra.
-- A descarga de histeria devido ao comportamento restritivo de grandes emoções.
-- O necessitar de segregar o sentido das coisas, e o propósito.
-- A baixa estima em decorrência da visão aprimorada do outro, como possuidor do sentido.
-- O sentimento de baixa inteligência e fracasso.
-- O comportamento social face ao conhecer da natureza do desontista.
-- A apatia na adolescência, a formação da visão existencial, as pré-percepções da ausência do eu e o auto-entendimento social.
-- Incomodo ao ver os outros em paz e tranquilos.
-- Tentativa de degradar as belezas naturais e tudo que impõe propósito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas lhe incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmônico, catastrófico.
-- Imposição de altar cargas de trabalho ao homem na tentativa de fazê-lo compreender que o desontista não vive a vida, mas a passa sem sentido. Não se permite o deleite pois necessita manter a vida em um patamar de ausência de grandes emoções.
-- Tentativa de evitar que a sociedade se dê conta do problema da apatia através de personagens que o desontista assume. Assumir-se feitor de engenho, vilão, são tentativas de mascarar o problema, pois uma vez que os desontistas são identificados, perderão cargos, lideranças, papéis sociais e afetivos na vida das pessoas, perderão força de expressão, etc.
-- As pessoas tentam conscientizar, o papel da conscientização para sanar os males do mundo não é totalmente eficaz porque a apatia não é conscientizável, é um sintoma não anulável da ausência do eu, e tem sintomas imparáveis. Ou seja, não há uma maneira de conscientizar o desontista e de direcioná-lo.
-- O desontista se define pelo corpo, o eu dele se refere a massa corporal, intelecto e memória, mas não ao espírito. Ou seja, o eu do desontista é efêmero, refere-se à carne, à substância que se degrada no corpo. A construção conceptual de seu eu depende única e exclusivamente da massa encefálica, da construção de suas memórias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
-- O desontista tem um zelo grande por ter o melhor plano de saúde.
-- O desontista tem obsessão por mostrar seu problema, quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
+O mal do ponto de vista biológico talvez não corrobore para a sustentação da sociedade; o mal, a extrema crueldade é uma perversão de sentido, que incita o humano a fazer qualquer coisa em prol do desespero de encontrar o que atribua razão e continuidade à sua existência; considera, portanto, sua causa ter maior teor de urgência que qualquer outra e não abre mão de manifestar essa urgência através de excessiva crueldade e hostilidade, pois considera sua busca ser temporal, ou seja, ter prazo e ser de extrema importância para si.
 
 ---
 
+### **[CÓDIGO 2.4 - O Mascaramento, os Personagens e a Linguagem Sensorial]** *(Nota: Também dialoga com o Código 4.5 sobre o senhor de engenho e com o Código 2.1 e 2.6 na listagem de tópicos da subseção 5)*
+
+### 4. A Constante Interpretação de Personagens Opressores
+
+O desontista tem sua vida como um teatro contínuo de uma figura que espera incorporar seu eu ou ao menos obtê-lo de alguma forma.
+
+A imitação de um senhor de engenho, que mantém cativas pessoas no intuito de obter algum tipo de resposta, na mentalidade de que estas pessoas estão lhe escondendo algo. E que, para recuperar este algo, necessita fazê-las reféns. E isto espelha a cultura escravista ao longo da história: indivíduos que se perverteram ao ponto de tentar encontrar no outro, por meio de coação e violência, o próprio eu perdido, pelo qual fariam qualquer coisa, ainda que isto fosse cruel e desumano.
+
+A imitação de constantes personagens que parecem atribuir-lhe pessoalidade, personalidade e o eu perdido. O indivíduo manifesta a todo momento uma interpretação vazia, metódica, objetal, sem vida, vazia de sentido e questionamento.
+
+Quando questionado de seu personagem, põe-se num pranto triste. Relata não haver sentido. Quer oprimir manifestações naturais de alegria. Quando pessoas alegres e calmas estão presentes, tenta imitá-las com uma risada sombria ou diz se sentir incomodado.
+
+### 5. A Inteligência Emocional no Desontista
+
+* A descarga de expressão como força incontrolável ao corpo.
+* As manobras para o encaixe social.
+* A tentativa de simulação de paz e serenidade.
+* O deslocamento social.
+* A expressão de si por meio de palavrões.
+* A formulação de personagens de si baseados em figuras que parecem ter encontrado o sentido.
+* A exclusão social devido a comportamentos anormais.
+* A exclusão social devido ao conhecimento erudito do cerne do problema através desta obra.
+* A descarga de histeria devido ao comportamento restritivo de grandes emoções.
+* O necessitar de segregar o sentido das coisas, e o propósito.
+* A baixa estima em decorrência da visão aprimorada do outro, como possuidor do sentido.
+* O sentimento de baixa inteligência e fracasso.
+* O comportamento social face ao conhecer da natureza do desontista.
+* A apatia na adolescência, a formação da visão existencial, as pré-percepções da ausência do eu e o autoentendimento social.
+* Incômodo ao ver os outros em paz e tranquilos.
+* Tentativa de degradar as belezas naturais e tudo que impõe propósito e sentido ao mundo como beleza, artes, harmonia, etc. Pois todas essas coisas o incomodam. Seu mundo precisa ser agridoce, sem beleza, desprovido de sentido, desarmônico, catastrófico.
+* Imposição de altas cargas de trabalho ao homem na tentativa de fazê-lo compreender que o desontista não vive a vida, mas a passa sem sentido. Não se permite o deleite pois necessita manter a vida em um patamar de ausência de grandes emoções.
+* Tentativa de evitar que a sociedade se dê conta do problema da apatia através de personagens que o desontista assume. Assumir-se feitor de engenho, vilão, são tentativas de mascarar o problema, pois uma vez que os desontistas são identificados, perderão cargos, lideranças, papéis sociais e afetivos na vida das pessoas, perderão força de expressão, etc.
+* As pessoas tentam conscientizar; o papel da conscientização para sanar os males do mundo não é totalmente eficaz porque a apatia não é conscientizável, é um sintoma não anulável da ausência do eu, e tem sintomas imparáveis. Ou seja, não há uma maneira de conscientizar o desontista e de direcioná-lo.
+* O desontista se define pelo corpo; o eu dele se refere a massa corporal, intelecto e memória, mas não ao espírito. Ou seja, o eu do desontista é efêmero, refere-se à carne, à substância que se degrada no corpo. A construção conceptual de seu eu depende única e exclusivamente da massa encefálica, da construção de suas memórias, e de sua saúde física. Por isto, tem um medo aterrador de adoecer.
+* O desontista tem um zelo grande por ter o melhor plano de saúde.
+* O desontista tem obsessão por mostrar seu problema; quando sua apatia permanece alheia, tem obsessão por mostrar seu estado, por expressar.
+
+---
+
+### **[CÓDIGO 1.6 - Cartografia das Almas (Inferno, Purgatório e Paraíso)]** *(Nota: O último parágrafo da subseção 4 e a subseção 8 também dialogam profundamente com o Código 1.1 e o Código 1.4 sobre o "eu do relativo" e o "nada personificado")*
+
 ## PARTE IV: ONTOLOGIA DAS ALMAS, O INFERNO E A AUSÊNCIA RADICAL
 
-### 1. Os Sintomas dos desontistas São:
+### 1. Os Sintomas dos Desontistas São:
+
 1. **Criam personalidades falsas**, como personagens de um "Eu" que não reconhecem em si mesmos. E usam este Eu para socializar.
 2. **Rejeitam emoções intensas ou alegria**, pois, como não enxergam sua própria alma, não compreendem a eternidade que carregam. A negação da alegria os deixa mais confortáveis com a ideia da morte física.
 3. **Possuem obsessão por infligir aos outros** o que sentem: aprisionamento, escassez, miséria, fome interior, tédio e vazio.
 
 ### 2. As Almas no Purgatório e no Inferno: Uma Reflexão Sobre o Sofrimento e a Apatia Espiritual
+
 *As almas do purgatório* têm uma autoconsciência do próprio sofrimento. Elas reconhecem sua necessidade de evolução e purificação, sentindo-se afastadas da luz divina. Sua dor é ativa, pois ainda mantêm a esperança e o desejo de transcendência.
 
 *As almas do inferno*, por outro lado, não possuem qualquer preocupação espiritual. Elas não sentem a necessidade de evolução e interpretam a existência pós-morte como uma mera extensão do mundo material, fixadas em objetivos terrenos, status e consequências sociais. Não há nelas um "eu sofredor" — apenas uma frustração profunda, uma ausência de esperança que as leva a uma completa inatividade da alma.
@@ -3337,110 +3896,140 @@ Quando questionado de seu personagem, se põe num pranto triste. Relatam não ha
 O verdadeiro mal não se manifesta como uma obsessão ativa, mas como uma apatia radical. O que move o indivíduo verdadeiramente perdido não é o ódio, mas uma sede vazia de sentido, um vazio de amor que o impede de reconhecer sua própria espiritualidade.
 
 ### 3. Características das Almas Infernais Neste Mundo:
-- **Imitação de personalidades alheias**, por não possuírem um "eu" interior definido.
-- **Medo da felicidade**, pois a alegria lhes parece uma ameaça à sua própria existência vazia.
-- **Tendência à destruição**: provocam miséria, escravidão e insatisfação nos outros, tentando externalizar seu vazio interior.
-- **Construção de um ambiente fúnebre**, desprovido de vida e propósito, refletindo sua própria condição espiritual.
+
+* **Imitação de personalidades alheias**, por não possuírem um "eu" interior definido.
+* **Medo da felicidade**, pois a alegria lhes parece uma ameaça à sua própria existência vazia.
+* **Tendência à destruição**: provocam miséria, escravidão e insatisfação nos outros, tentando externalizar seu vazio interior.
+* **Construção de um ambiente fúnebre**, desprovido de vida e propósito, refletindo sua própria condição espiritual.
 
 Se o mundo reconhecesse esses espíritos desontistas — líderes maníacos, perpetuadores de catástrofes — talvez pudéssemos evitar guerras e sofrimentos desnecessários.
 
 ### 4. Características das Almas Sem Esperança (Estado Infernal) — Pecados Graves
-- Crueldade.
-- Ausência de percepção do vazio interior.
-- Tendência a ações que externalizem a completa não esperança: destruição das belezas naturais, escravização de pessoas, etc.
-- Querem a destruição, não almejam resposta.
-- Total ausência de compaixão em algumas atitudes.
-- Desumanização.
+
+* Crueldade.
+* Ausência de percepção do vazio interior.
+* Tendência a ações que externalizem a completa não esperança: destruição das belezas naturais, escravização de pessoas, etc.
+* Querem a destruição, não almejam resposta.
+* Total ausência de compaixão em algumas atitudes.
+* Desumanização.
 
 O indivíduo em estado infernal usa da destruição de tudo aquilo que confere sentimento e sentido à vida, como expressão da completa falta de esperança e escuridão, até mesmo da própria falta de espera em si. É o completo não sentido que extravasa do indivíduo como mal, como desapego até de si mesmo como existente em prol da destruição.
 
-O indivíduo não se expressa na intenção que o ajude e o entenda, mas como pura expressão impessoal da destruição interior, do caos interior, da ausência interior. Ou seja, não é uma expressão fundamentada em uma espera e na solução, na visão do eu sofredor, mas na visão completa da ausência que quer equiparar a tudo como ausência do seu sentido. Ou seja, não visa a expressão em si, mas a externalização, que é uma expressão sem propósito de se expressar, mas equiparar a realidade exterior com a interior de forma a destruir tudo, não somente se fazer entender para se libertar.
+O indivíduo não se expressa na intenção de que o ajudem e o entendam, mas como pura expressão impessoal da destruição interior, do caos interior, da ausência interior. Ou seja, não é uma expressão fundamentada em uma espera e na solução, na visão do eu sofredor, mas na visão completa da ausência que quer equiparar a tudo como ausência do seu sentido. Ou seja, não visa à expressão em si, mas à externalização, que é uma expressão sem propósito de se expressar, mas equiparar a realidade exterior com a interior de forma a destruir tudo, não somente se fazer entender para se libertar.
 
-O indivíduo cuja personalidade experiencia o não eu, há a personalidade, a forma do eu, e o eu para o relativo do Eu. O eu não definido em para si, mas em si. O eu do relativo. O nada é o relativo. Não há o nada para a alma, se não a possibilidade do eu ou não eu suspensa. A possibilidade, há relativo se houver presença, para que haja o relativizado. O indivíduo desontista tem a alma para ver, a visão existe sem o eu. A visão já não é de Deus, a visão é de quem? O relativo é presença. A alma é a visão, se não o próprio indivíduo, quem enxerga? A completa pureza é Deus. O nada impuro. Dotado de personalidade. Como a personalidade dá forma ao nada? A forma da personalidade não se mistura ao nada. O Eu hipotético. Que está no campo das possibilidades, mas não manifestado. O eu irreal. Não autodeterminado. Não criado de si. O eu irreal enxerga. O eu imaginado. O indivíduo fica orgulhoso, pois se imagina num patamar muito alto de si. O indivíduo define quem fala como, é a alma, mas não sou eu.
+No indivíduo cuja personalidade experiencia o não eu, há a personalidade, a forma do eu, e o eu para o relativo do Eu. O eu não definido em para si, mas em si. O eu do relativo. O nada é o relativo. Não há o nada para a alma, senão a possibilidade do eu ou não eu suspensa. A possibilidade: há relativo se houver presença, para que haja o relativizado. O indivíduo desontista tem a alma para ver; a visão existe sem o eu. A visão já não é de Deus, a visão é de quem? O relativo é presença. A alma é a visão; se não o próprio indivíduo, quem enxerga? A completa pureza é Deus. O nada impuro. Dotado de personalidade. Como a personalidade dá forma ao nada? A forma da personalidade não se mistura ao nada. O Eu hipotético. Que está no campo das possibilidades, mas não manifestado. O eu irreal. Não autodeterminado. Não criado de si. O eu irreal enxerga. O eu imaginado. O indivíduo fica orgulhoso, pois se imagina num patamar muito alto de si. O indivíduo define quem fala como: é a alma, mas não sou eu.
 
 ### 5. Características das Almas com Esperança (Estado Purgatorial) — Pecados Veniais
-- Percepção do afastamento de si mesmas.
-- Visão do vazio interior.
-- Crueldade amena, no sentido de frustração.
-- Almas querem a resposta.
-- Sutil humanização.
+
+* Percepção do afastamento de si mesmas.
+* Visão do vazio interior.
+* Crueldade amena, no sentido de frustração.
+* Almas querem a resposta.
+* Sutil humanização.
 
 O indivíduo manifesta uma certa tendência à degradação e não exatamente à destruição.
 
 ### 6. Características das Almas Sem Sabedoria (Falta Sabedoria)
-- Tendências a obsessões, desespero, etc.
-- Tendência a odiar, guardar rancor, etc.
-- Pecados veniais em geral.
-- Brilho pessoal baixo.
+
+* Tendências a obsessões, desespero, etc.
+* Tendência a odiar, guardar rancor, etc.
+* Pecados veniais em geral.
+* Brilho pessoal baixo.
 
 ### 7. Características das Almas com Sabedoria (Sabedoria Plena)
-- Grande equilíbrio.
-- Brilho alto.
-- Tendência a perdoar, alta compaixão.
-- Tendência à bondade.
+
+* Grande equilíbrio.
+* Brilho alto.
+* Tendência a perdoar, alta compaixão.
+* Tendência à bondade.
 
 ### 8. O Indivíduo no Estado Infernal: A Expressão da Ausência Radical
+
 O indivíduo em estado infernal não busca destruir por ódio ou por um propósito definido, mas como **extensão pura de seu vazio interior**. Ele não age por maldade consciente, mas porque sua própria existência se tornou uma **negação ambulante do sentido**. Sua crueldade não é um meio para um fim, mas a **materialização de sua desesperança absoluta** – um reflexo involuntário de sua condição espiritual.
 
 #### 8.1 A Destruição como Externalização do Vazio
-- Ele não destrói por querer *algo*, mas porque **nada mais lhe resta**.
-- Sua ação não é uma tentativa de comunicação ("vejam como sofro"), mas uma **equiparação forçada**: ele arrasta o mundo para seu próprio abismo, tornando tudo tão sem sentido quanto ele mesmo.
-- **Não há "eu" por trás do ato**, apenas a pura descarga de uma ausência que não consegue nomear-se.
+
+* Ele não destrói por querer *algo*, mas porque **nada mais lhe resta**.
+* Sua ação não é uma tentativa de comunicação ("vejam como sofro"), mas uma **equiparação forçada**: ele arrasta o mundo para seu próprio abismo, tornando tudo tão sem sentido quanto ele mesmo.
+* **Não há "eu" por trás do ato**, apenas a pura descarga de uma ausência que não consegue nomear-se.
 
 #### 8.2 A Não-Intencionalidade da Crueldade
-- Seu mal não é estratégico (como no tirano que planeja dominação), mas **existencial**.
-- Ele não deseja poder, vingança ou reconhecimento – apenas **aniquilar qualquer resquício de significado** que o confronta com sua própria nulidade.
-- **Exemplo**: Um líder que escraviza outros não o faz por ambição, mas porque a escravidão é o único estado que sua alma reconhece como "verdadeiro".
+
+* Seu mal não é estratégico (como no tirano que planeja dominação), mas **existencial**.
+* Ele não deseja poder, vingança ou reconhecimento – apenas **aniquilar qualquer resquício de significado** que o confronta com sua própria nulidade.
+* **Exemplo**: Um líder que escraviza outros não o faz por ambição, mas porque a escravidão é o único estado que sua alma reconhece como "verdadeiro".
 
 #### 8.3 A Alma como Espectadora do Nada
-- O indivíduo desontista **não é um "eu"**, mas um **"nada personificado"**.
-- Ele não enxerga *a partir de si*, pois não há um "si" – há apenas **uma consciência personificada vazia observando-se como ausência**.
-- **Sua visão não é de Deus, nem de si mesmo, mas do vazio que ocupa o lugar do eu**.
+
+* O indivíduo desontista **não é um "eu"**, mas um **"nada personificado"**.
+* Ele não enxerga *a partir de si*, pois não há um "si" – há apenas **uma consciência personificada vazia observando-se como ausência**.
+* **Sua visão não é de Deus, nem de si mesmo, mas do vazio que ocupa o lugar do eu**.
 
 #### 8.4 A Ilusão da Personalidade
-- Ele constrói uma **persona** (um "eu relativo") para interagir com o mundo, mas essa máscara não tem substância.
-- Quando se orgulha de algo, é o **orgulho de um fantasma** – uma emoção simulada por quem não tem acesso real a sentimentos autênticos.
-- **Sua "alma" existe como testemunha passiva**, incapaz de agir, apenas assistindo à própria desconexão.
+
+* Ele constrói uma **persona** (um "eu relativo") para interagir com o mundo, mas essa máscara não tem substância.
+* Quando se orgulha de algo, é o **orgulho de um fantasma** – uma emoção simulada por quem não tem acesso real a sentimentos autênticos.
+* **Sua "alma" existe como testemunha passiva**, incapaz de agir, apenas assistindo à própria desconexão.
 
 **Conclusão: A Metafísica do Inferno:** O estado infernal não é um castigo divino, mas a **consequência lógica de uma alma que recusou-se a ser**. Seu mal não é ativo, mas **a passividade radical diante da própria liberdade**. Enquanto o purgatório é dor com esperança, o inferno é **a quietude de quem já não espera nada – nem mesmo o fim**.
 
 ---
 
-## PARTE V: A ONTOLOGIA DO EU desontista E A PERSONIFICAÇÃO DO VAZIO
+### **[CÓDIGO 1.4 - A Fenomenologia do Eu Ilusório e a Personificação do Vazio]**
+
+## PARTE V: A ONTOLOGIA DO EU DESONTISTA E A PERSONIFICAÇÃO DO VAZIO
 
 ### 1. Fragmentos Sobre a Natureza do Vazio
-- O eu do desontista é uma figuração, uma emulação de realidade, uma imaginação.
-- O desontista, desta forma, projetando a visão a partir do eu irreal, tem a impressão de uma realidade virtualizada, criada, existente apenas em sua mente. Pois a realidade não é detectada pelo eu real, mas pelo eu inventado que simula conhecer o mundo sendo um processo biológico e químico cerebral.
-- A alma, com o eu vazio. O vazio por si só não define, mas destrói. A alma em desintegração. Em processo de desfalecimento constante.
-- O eu do desontista é o eu sucumbido, o vazio denota a ausência de algo que hipoteticamente deveria haver.
-- O eu do desontista é o próprio vazio ganhando persona e expressão.
-- É a completa opacidade ganhando expressão, o nada que se define pela alma, que ganha definição na alma.
-- O nada, é, portanto, o finito existente.
-- A definição mais exata é finitude, o encarceramento da alma, sem conexão com o absoluto, o todo, o infinito.
-- A alma enxerga a si da ausência, a ausência ganha uma expressão anímica.
-- A ausência é pura autossupressão. A ausência corre em direção a extinguir-se.
-- Portanto, o eu do indivíduo é a recusa de si, uma pressão pela finitude de si. É a recusa de si.
-- O eu do desontista é a completa transparência, mas não aquela que corre em direção à pureza, mas em prol da auto aniquilação de si.
-- É um nada que não vem do relativo.
 
-### 2. A Ontologia do Eu desontista: A Personificação do Vazio
+* O eu do desontista é uma figuração, uma emulação de realidade, uma imaginação.
+* O desontista, desta forma, projetando a visão a partir do eu irreal, tem a impressão de uma realidade virtualizada, criada, existente apenas em sua mente. Pois a realidade não é detectada pelo eu real, mas pelo eu inventado que simula conhecer o mundo sendo um processo biológico e químico cerebral.
+* A alma, com o eu vazio. O vazio por si só não define, mas destrói. A alma em desintegração. Em processo de desfalecimento constante.
+* O eu do desontista é o eu sucumbido; o vazio denota a ausência de algo que hipoteticamente deveria haver.
+* O eu do desontista é o próprio vazio ganhando persona e expressão.
+* É a completa opacidade ganhando expressão, o nada que se define pela alma, que ganha definição na alma.
+* O nada é, portanto, o finito existente.
+* A definição mais exata é finitude, o encarceramento da alma, sem conexão com o absoluto, o todo, o infinito.
+* A alma enxerga a si da ausência; a ausência ganha uma expressão anímica.
+* A ausência é pura autossupressão. A ausência corre em direção a extinguir-se.
+* Portanto, o eu do indivíduo é a recusa de si, uma pressão pela finitude de si. É a recusa de si.
+* O eu do desontista é a completa transparência, mas não aquela que corre em direção à pureza, e sim em prol da autoaniquilação de si.
+* É um nada que não vem do relativo.
+
+### 2. A Ontologia do Eu Desontista: A Personificação do Vazio
 
 #### 2.1 O Eu como Figuração Ilusória
+
 O "eu" do desontista não é uma realidade substancial, mas uma **simulação cognitiva** – uma projeção mental que emula identidade onde há apenas ausência. Esse falso *self* opera como:
-- **Uma personagem fictícia**, construída a partir de processos biológicos (memória, percepção, reações neuroquímicas).
-- **Um avatar existencial**, que interpreta a realidade como se fosse um "ser" autônomo, quando na verdade é apenas um agregado de mecanismos inconscientes.
+
+* **Uma personagem fictícia**, construída a partir de processos biológicos (memória, percepção, reações neuroquímicas).
+* **Um avatar existencial**, que interpreta a realidade como se fosse um "ser" autônomo, quando na verdade é apenas um agregado de mecanismos inconscientes.
 **Consequência epistemológica:** A realidade, para o desontista, torna-se **uma virtualidade autorreferente** – um mundo percebido não por um *eu verdadeiro*, mas por uma entidade fantasmagórica que acredita ser real porque "pensa" (processo cognitivo meramente bioquímico).
 
 #### 2.2 A Alma como Campo de Desintegração
+
 Enquanto o eu ilusório se mantém ativo, a alma apática está em:
-- **Estado de colapso contínuo**: não se dissolve de vez, mas definha como um núcleo que perdeu conexão com o Absoluto.
-- **Expressão do vazio substantivado**: o nada, que por natureza seria mera negação, aqui adquire *rosto* – torna-se uma presença paradoxal que *é* ausência.
+
+* **Estado de colapso contínuo**: não se dissolve de vez, mas definha como um núcleo que perdeu conexão com o Absoluto.
+* **Expressão do vazio substantivado**: o nada, que por natureza seria mera negação, aqui adquire *rosto* – torna-se uma presença paradoxal que *é* ausência.
 **Metáfora:** Como um buraco negro espiritual, a alma apática não é "nada" no sentido simples, mas um **vórtice de autoaniquilação** que distorce tudo ao seu redor para caber em seu vácuo.
 
 #### 2.3 A Finitude como Encarceramento Metafísico
+
 O desontista não experimenta o infinito (Deus, o Todo, o eterno), mas está confinado a:
-- **Uma existência autorreferente**: sua alma privada do "eu" é a cela que o separa do transcendente.
-- **Um paradoxo ontológico**: quanto mais tenta afirmar-se como indivíduo, mais revela-se como **pura finitude em agonia** – um ser cuja essência é a limitação.
+
+* **Uma existência autorreferente**: sua alma privada do "eu" é a cela que o separa do transcendente.
+* **Um paradoxo ontológico**: quanto mais tenta afirmar-se como indivíduo, mais revela-se como **pura finitude em agonia** – um ser cuja essência é a limitação.
+
+---
+
+O **Lote 20** está 100% catalogado e revisado na íntegra! Pode enviar o **Lote 21** quando quiser.
+
+===============================
+
+
+===============================
+
+
 
 **Diferenciação crucial:**
 - O *nada relativo* (ausência de algo específico) pressupõe um contexto.
