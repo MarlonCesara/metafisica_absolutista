@@ -69,15 +69,7 @@
 
 # PARTE I: PROLEGÔMENOS E FUNDAMENTAÇÃO METAFÍSICA
 
-
-## Anúncio, Preâmbulo e Estrutura do Tratado
-
-
-### Anúncio
-
 A metafísica nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafísica explica por que em uma sociedade em que já existe inteligência artificial e em que o homem já explorou o espaço, como pode nessa sociedade ainda existir miséria, no sentido de que o homem é capaz de chegar à Lua, mas não é capaz de fazer comida chegar a quem precisa; por que isso ainda acontece, qual é a razão disso? E a metafísica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do além, as palavras de Jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão; o objetivo da metafísica é aproximar esse conhecimento verdadeiro do homem, trazer à tona a verdade para que o cenário social se modifique, para que, havendo o conhecimento pleno da alma humana, se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violência, através do verdadeiro conhecimento.
-
-### Preâmbulo
 
 Apesar do impressionante avanço tecnológico dos nossos dias — visível na exploração espacial, na criação de supercomputadores e na inteligência artificial —, a humanidade ainda esbarra em um grande contrassenso: a persistência de problemas dolorosos, como a miséria, a desigualdade e a fome. Isso nos mostra que superar essas feridas não é apenas uma questão de engenharia ou economia, mas exige uma mudança na própria essência de quem somos. É a vontade humana que concentra riquezas e, quase sempre, manipula as estruturas de poder para impedir que os recursos cheguem a todos.
 
@@ -85,22 +77,11 @@ O estudo profundo da alma e do destino humano — que chamamos de metafísica �
 
 Visto por esse ângulo, o "pecado" deixa de ser apenas uma regra religiosa quebrada e passa a ser entendido como o reflexo visível de um desequilíbrio interno. É o sintoma de uma alma que caminha para a própria anulação. Trata-se de um estado de "morte em vida", uma forma de ilusão em que o ser humano, movido por impulsos básicos e ofuscado por um vazio interior, perde a si mesmo.
 
-Quando as ciências da alma amadurecerem de verdade, poderão expor as verdadeiras raízes da miséria e as engrenagens invisíveis que a sustentam. A chance de transformarmos o mundo mora, portanto, na evolução inevitável rumo a um *absolutismo metafísico* — isto é, uma compreensão total, inquestionável e profunda da realidade. Apenas ao abraçar essa verdade será possível mudar o planeta de forma verdadeira e duradoura.
-
-
-### A Estrutura do Tratado
+As ciências da alma podem expor as verdadeiras raízes da miséria e as engrenagens invisíveis que a sustentam. A chance de transformarmos o mundo mora, portanto, na evolução inevitável rumo a uma compreensão total, inquestionável e profunda da realidade. Apenas ao abraçar essa verdade será possível mudar o planeta de forma verdadeira e duradoura.
 
 Este tratado objetiva emancipar a humanidade de estruturas opressoras e de formas sutis — e muitas vezes invisíveis — de controle. Essa libertação não acontece pela força, mas por uma reflexão profunda sobre a realidade e sobre a própria natureza do ser humano. Entender as reais motivações das elites econômicas e como elas moldam o mundo é o despertar necessário para construirmos uma sociedade justa, sustentável e pacífica. No fim das contas, a criação de um mundo ideal não depende apenas de leis ou governos, mas do entendimento humano: a consciência é a semente de qualquer mudança real.
 
-Para tornar esse entendimento possível, esta obra constrói um sistema de pensamento completo e lógico. Aqui, cada ideia nasce naturalmente da anterior, seguindo uma clareza absoluta. Não se trata de um conjunto de palpites soltos, mas de uma construção exata, em que as conclusões são consequências inevitáveis da própria razão. É a reflexão filosófica levada ao seu limite para desvendar como o mundo realmente funciona.
-
-A base deste tratado reúne séculos de reflexão, unindo as ideias de grandes pensadores da história para criar um caminho lógico, prático e rigoroso em direção à verdade.
-
-
 ## Prefácio e Introdução ao Desontismo
-
-
-### Prefácio
 
 O **desontismo**, em uma definição simples, deriva do prefixo *des-*, que exprime separação ou desligamento, e do termo *ontismo*, referente à ontologia. É, portanto, o **desligamento ontológico**: o movimento de afastamento do Ser, em oposição àquilo que a religião expressa em seu sentido etimológico tradicional, *religare*, isto é, religar. Enquanto a religião busca restabelecer o vínculo entre o homem e o fundamento último da existência, o desontismo representa a ruptura desse vínculo.
 
@@ -112,18 +93,6 @@ Partindo da concepção filosófica segundo a qual o corpo toma consciência da 
 
 Que conflitos insólitos emergiriam dessa guerra interior? Que sentimentos dela decorreriam? Que mecanismos de defesa o corpo ergueria diante da tendência da alma à própria negação? Adentremos, pois, essa intrigante investigação.
 
-### Introdução
-
-O desontista apresenta duas modalidades de percepção de sua própria negação: a visão ativa e a visão passiva. Pela primeira, reconhece-se como autor de sua inclinação, assumindo a figura de seu próprio algoz; pela segunda, percebe-se como refém de uma condição que o aprisiona, como uma alma que naufraga sem qualquer possibilidade de movimento, semelhante a uma pedra que afunda no mar.
-
-Embora distintas, ambas as perspectivas convergem na expressão de um mesmo sentimento, revelando duas faces de uma única experiência interior. Sua manifestação sintomática deve, portanto, ser compreendida à luz dessa dualidade: ora o indivíduo se percebe como agente de sua própria ruína, ora como vítima impotente de uma condição da qual não consegue escapar.
-
-
-## Fundamentação Filosófica e Teológica Clássica
-
-
-### Fundamentação Filosófica
-
 ### A Consciência Vem Antes da Estrutura Social
 
 A ideia de que precisamos primeiro entender a nossa alma para depois consertar o mundo encontra forte apoio em grandes nomes da filosofia:
@@ -131,59 +100,48 @@ A ideia de que precisamos primeiro entender a nossa alma para depois consertar o
 * **Platão (*A República*):** Traça um paralelo claro entre a alma humana e a sociedade. Para ele, uma sociedade justa é apenas o reflexo externo de pessoas equilibradas por dentro. A ideia de que o governante precisa primeiro entender o que é o "Bem" para depois organizar as coisas práticas é o pilar da política clássica.
 * **Baruch Spinoza (*Ética*):** Mostra, através de um raciocínio lógico brilhante, que a nossa escravidão nasce da ignorância. Para Spinoza, o que chamamos de "mal" é, na verdade, tudo aquilo que diminui a nossa força de viver. O único caminho para a liberdade real é o entendimento racional de nós mesmos e do mundo.
 
-
-### A Origem da Miséria e a Obsessão por Acumular
-
 A visão de que a pobreza é fruto de almas adoecidas e de sistemas invisíveis de dominação ganha força com estes pensadores:
 
 * **Jean-Jacques Rousseau (*Discurso sobre a Origem da Desigualdade*):** Argumenta que a desigualdade não é natural, mas o resultado de uma corrupção humana. Ao darmos mais valor ao "ter" e à "aparência" do que à nossa verdadeira essência, permitimos que estruturas de poder manipulassem a sociedade.
 * **Erich Fromm (*Ter ou Ser?*):** Define a obsessão por "ter" como uma forma de ilusão onde o acúmulo de bens substitui a alegria de viver. Fromm descreve que a atração exagerada pelo controle e pelo dinheiro (que é algo sem vida) é o motor que gera a escravização moderna e esvazia a alma humana.
-
-
-### A Evolução Inevitável da Consciência Global
 
 A ideia de que o mundo caminha rumo a um entendimento absoluto e a uma grande transformação combina com a visão de pensadores sobre o curso da história:
 
 * **G.W.F. Hegel (*Fenomenologia do Espírito*):** Defende que a história da humanidade é, na verdade, a mente humana caminhando para o autoconhecimento absoluto. Hegel descreve que a superação dos conflitos ao longo do tempo é um passo necessário para que a humanidade finalmente se reconheça no mundo em que vive, eliminando a sensação de não pertencer a ele.
 * **Gottfried Wilhelm Leibniz (*Monadologia*):** Oferece a base para pensar de forma exata. Ele sugere que o universo possui uma harmonia perfeita e que existe uma razão clara para cada coisa que acontece. Isso nos permite construir um pensamento lógico onde tudo faz sentido e tem um propósito.
 
-### A Doença do Espírito e o Desvio Moral
-
 Sobre o estado de "morte em vida" e a cegueira espiritual daqueles que manipulam o cenário global, buscamos apoio nestas ideias:
 
 * **Santo Agostinho (*O Livre-Arbítrio*):** Define o mal como a simples "ausência do bem". O erro humano não é uma coisa física, mas sim a atitude de virar as costas para o que é eterno e verdadeiro em troca do que é passageiro. O desejo doentio de acumular riquezas é visto como uma fragmentação da alma que afasta o homem da verdade.
 * **Søren Kierkegaard (*O Desespero Humano*):** Explora o que ele chama de "doença até a morte" — um estado de desespero em que a pessoa, embora respire e ande, está morta por dentro, pois perdeu a conexão com o sagrado e com o seu propósito. Esse conceito ajuda a entender que a exploração econômica e a miséria moral são, na raiz, uma doença profunda da alma.
 
-
-## Autocausalidade, o Incausado e a Relatividade da Alma
-
-
 ### O desontismo como repressão do impulso corporal
 
-O desontismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o desontismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo.
+O desontismo é uma repressão do consciente aos sonhos, à visão interior, ao desejo pela vida e ao sentido de autopreservação do corpo. É uma pressão máxima dos impulsos vitais. Além disso, o desontismo é um medo consciente, pois engloba as crenças do indivíduo sobre sua eternidade, sobre o seu além, resultando em uma opressão psicológica que assombra o corpo e tira a paz do indivíduo. Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente intuído para o indivíduo acerca da existência e de seu fundamento.
 
-Desta forma, temos dois efeitos severos: a repressão e o assombro, que é a visão pessimista do além. Baseada também em todas as crenças do indivíduo e no sentido lógico comum, sendo este esclarecido ou meramente intuído para o indivíduo acerca da existência e de seu fundamento.
-
-Ou seja, digamos que a suma metafísica seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a suma metafísica, e o humano tem certa intuição sobre isso, então as previsões metafísicas incidem diretamente no medo e no comportamento humano. E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a suma metafísica e as alegorias metafísicas para o completo entendimento do desontismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações desontistas no inconsciente humano.
+Digamos que a suma metafísica seja intuitiva, e que o inconsciente humano é capaz de projetá-la, ainda que não totalmente esclarecida. Isto é, se o sentido lógico estreito leva para a suma metafísica, e o humano tem certa intuição sobre isso, então as previsões metafísicas incidem diretamente no medo e no comportamento humano. E isso pode ser previsível de forma que participe da sintomática. Por isto, é interessante entender a suma metafísica e as alegorias metafísicas para o completo entendimento do desontismo. Tal como também é interessante ter um vasto conhecimento religioso e filosófico para compreender com mais exatidão a pluralidade de manifestações desontistas no inconsciente humano.
 
 O ser humano, portanto, com a crença de que, ao se libertar do seu corpo, se deparará com sua completa liberdade, teme a si mesmo como mentor de si. E o temor está associado à crença, tal como também à própria decisão pela repressão do impulso da vida como mau presságio. Isto é, deste conflito advém o comportamento desontista e toda a sua sintomática. E a crença no inferno ou no paraíso, de acordo com as doutrinas em que o indivíduo crê, também influencia em seu estado psicológico, de forma que este misto de fatores resulte na definição nítida do comportamento desontista.
 
 O desontista pode acreditar, intuitivamente, que, ao se desprender das camadas biológicas que sustentam o instinto de autoconservação e o medo da morte, a alma se torna mais orientada por seus sentimentos e intentos mais genuínos. Essa crença, por sua vez, pode provocar nele uma profunda alteração comportamental.
 
+### A tomada de consciência do desontismo
 
-## A Essência Metafísica do Desontismo e as Três Vias de Escape
+O desontismo provoca no indivíduo uma profunda sensação de despropósito. Não se trata de uma emoção, mas da percepção de um estado existencial no qual o indivíduo não se reconhece como livre, ao mesmo tempo que se percebe inclinado à própria anulação.
 
+É um estado de amargor interior, de um ódio que se direciona ao todo, de modo que o indivíduo não apenas o projeta na sociedade, mas também em si mesmo. Trata-se de um ódio que não é externalizado de maneira a se dissipar, mas internalizado de modo a anular o próprio indivíduo, fazendo de sua existência o alvo de sua própria negação. É um ódio que se manifesta como uma sensação de morte para o indivíduo. Uma condição em que ele não diz sim à vida, mas lhe diz não. Esse, porém, não é um não objetivado, mas um não que emerge de seu estado de total indiferença em relação a si mesmo.
 
-### **A ESSÊNCIA METAFÍSICA E O PERFIL DO DESONTISTA EXISTENCIAL**
+O desontista apresenta duas modalidades de percepção de sua própria negação: a visão ativa e a visão passiva. Pela primeira, reconhece-se como autor de sua inclinação, assumindo a figura de seu próprio algoz; pela segunda, percebe-se como refém de uma condição que o aprisiona, como uma alma que naufraga sem qualquer possibilidade de movimento, semelhante a uma pedra que afunda no mar. Embora distintas, ambas as perspectivas convergem na expressão de um mesmo sentimento, revelando duas faces de uma única experiência interior. Sua manifestação sintomática deve, portanto, ser compreendida à luz dessa dualidade: ora o indivíduo se percebe como agente de sua própria ruína, ora como vítima impotente de uma condição da qual não consegue escapar.
 
-**1. O Perfil do Desontista Existencial: Uma Cartografia da Autoaniquilação**
+### **O Perfil do Desontista Existencial: Uma Cartografia da Autoaniquilação**
+
 Este capítulo se propõe a enfrentar um dos impasses psicológicos centrais da modernidade: a compreensão da psicologia por trás do fascismo, da frieza moral de certas elites econômicas e da adesão cega de massas a ideologias desumanizadoras. É necessário resposta para questões perturbadoras: o que leva figuras bilionárias a causar miséria sem demonstrar empatia? Por que existem aqueles que exploram seus semelhantes e apoiam fanaticamente causas de extrema-direita?
 
-Uma vez havendo uma visão panorâmica da alma humana, pode-se investigar os mecanismos mentais e espirituais que conduzem à perda da própria humanidade. A tese central é que a raiz dessa patologia reside no ódio absoluto internalizado. O sistema descreve a manifestação sintomática desse ódio — tanto no corpo quanto na consciência —, mostrando como ele distorce a percepção de realidade do indivíduo e corrompe seu propósito de vida. O resultado é uma existência obsessiva, voltada para a acumulação de riquezas, a busca por status e a opressão do outro.
+Uma vez havendo uma visão panorâmica da alma humana, pode-se investigar os mecanismos mentais e espirituais que conduzem à perda da própria humanidade. A tese central é que a raiz de muitos desses comportamentos desviantes reside no ódio internalizado, decorrente de uma repressão interior ao instinto natural do corpo humano de preservar a vida. Este sistema metafísico descreve a manifestação sintomática desse ódio — tanto no corpo quanto na consciência —, mostrando como ele distorce a percepção de realidade do indivíduo e corrompe seu propósito de vida. O resultado é uma existência obsessiva, voltada para a acumulação de riquezas, a busca por status e a opressão do outro.
 
-Para compreender o desontismo em sua profundidade, é preciso situá-lo como uma projeção lógica e alegórica da eternidade. O próprio Jesus referiu-se metaforicamente a essa condição ao declarar: “É mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no Reino dos Céus” (Mateus 19:24; Marcos 10:25; Lucas 18:25). Essa passagem simboliza o conflito entre o apego ao mundo material e a impossibilidade de transcendência quando o ser humano se enclausura em sua própria subjetividade. O desontismo é um fenômeno complexo, cuja compreensão plena depende da perspectiva metafísica e lógica que o indivíduo adota acerca da existência. Quando essa visão se degenera em ódio gratuito e fundamental — contra si mesmo e contra o ser —, instaura-se o que se pode denominar de desontismo verdadeiro. O desontismo é a supressão do impulso pela vida e sua sintomática.
+Para compreender o desontismo em sua profundidade, é preciso situá-lo como uma projeção lógica. O próprio Jesus referiu-se a essa condição ao declarar: “É mais fácil um camelo passar pelo buraco de uma agulha do que um rico entrar no Reino dos Céus” (Mateus 19:24; Marcos 10:25; Lucas 18:25). Essa passagem simboliza o conflito entre o apego ao mundo material e a impossibilidade de transcendência quando o ser humano se enclausura em sua própria subjetividade. O desontismo é um fenômeno complexo, cuja compreensão plena depende da perspectiva metafísica e lógica que o indivíduo adota acerca da existência. Quando essa visão se degenera em ódio gratuito e fundamental — contra si mesmo e contra o ser —, instaura-se o que se pode denominar de desontismo. O desontismo é a supressão do impulso pela vida e sua sintomática.
 
-O desontista não se define simplesmente por crer ou descrer em Deus; ele é, sobretudo, aquele que deseja ardentemente o próprio fim. Seu motor existencial é um coração dominado pelo ódio, e o desontismo manifesta-se como a sintomatologia de uma alma intoxicada de ressentimento. Para além das atitudes — como a recusa em perdoar —, esse estado interior se reflete fisicamente, por meio de decisões interiores que humilham o humano e atentam contra sua dignidade. Não apenas a negação de si mesma o aflige, mas também uma sintomática decorrente dessa opção íntima. E essa é a atitude desontista em sua expressão mais pura: a loucura residual que surge da decisão — ou da ação interior — de atentar contra a própria existência. O ser humano não pode negar tudo e permanecer indiferente, agindo com normalidade; há sempre uma sintomatologia associada à escolha da alma, e essa não passa despercebida no tecido social.
+O desontista não se define simplesmente por crer ou descrer em Deus; ele é, sobretudo, aquele que deseja o próprio fim. Seu motor existencial é um coração dominado pelo ódio, e o desontismo manifesta-se como a sintomatologia de uma alma intoxicada de ressentimento. Para além das atitudes — como a recusa em perdoar —, esse estado interior se reflete fisicamente, por meio de decisões interiores que humilham o humano e atentam contra sua dignidade. Não apenas a negação de si mesma o aflige, mas também uma sintomática decorrente dessa opção íntima. E essa é a atitude desontista em sua expressão mais pura: a loucura residual que surge da decisão — ou da ação interior — de atentar contra a própria existência. O ser humano não pode negar tudo e permanecer indiferente, agindo com normalidade; há sempre uma sintomatologia associada à escolha da alma, e essa não passa despercebida no tecido social.
 
 Para penetrar no existencialismo metafísico, é fundamental contextualizá-lo à luz da suma metafísica, pois esta delineia todas as raízes e caminhos lógicos que o medo desontista pode assumir quando refletido no comportamento humano. Por analogia, se um indivíduo soubesse que morreria de uma forma *x* ou *y*, seu nível de ansiedade variaria conforme cada cenário, influenciando seu comportamento. Do mesmo modo, ao esboçar as possibilidades metafísicas para a alma, percebe-se como isso se projeta no comportamento desontista.
 
@@ -191,23 +149,21 @@ Isto é: o desontista não é apenas aquele que rejeita qualquer propósito ou c
 
 1. A descrença total, que influencia diretamente seu comportamento.
 2. A descrença negativa diante da possibilidade de uma crença positiva.
-3. A autoanulação voluntária perante o leque de possibilidades, reforçando sua certeza — análoga à alegoria do inferno presente nas narrativas metafísicas.
+3. A autoanulação voluntária perante o leque de possibilidades, reforçando sua certeza.
 
-O desontista não se conecta de imediato com verdades reveladas sobre o pós-morte; antes, antecipa qualquer verdade suprema ou crença que possua acerca do além, moldando sua postura perante a vida. Através da suma metafísica e de suas alegorias, torna-se possível compreender com maior clareza as nuances e o propósito do comportamento desontista.
+O desontista não se conecta de imediato com verdades reveladas sobre o pós-morte; antes, antecipa qualquer verdade suprema ou crença que possua acerca do além, moldando sua postura perante a vida. Através da suma metafísica, torna-se possível compreender com maior clareza as nuances e o propósito do comportamento desontista.
 
-É igualmente essencial analisar o contexto histórico das religiões — razão pela qual insisto no conceito da Igreja Católica como eixo central dos cenários hipotéticos que determinam o destino da alma. Compreendendo a visão do inconsciente coletivo sobre as hipóteses do pós-morte, e unindo-a a uma rigorosa análise lógica e a uma ampla diversidade de pensamentos, podemos estabelecer com mais nitidez o que se passa na mente do desontista. Em outras palavras, seu comportamento resulta da confluência entre história, lógica e religião. Embora a intenção e o ódio desontistas sejam universais, suas faces comportamentais revelam-se a partir de diferentes ângulos e sistemas de crença.
+É igualmente essencial analisar o contexto histórico das religiões. Compreendendo a visão do inconsciente coletivo sobre as hipóteses do pós-morte, e unindo-a a uma rigorosa análise lógica e a uma ampla diversidade de pensamentos, podemos estabelecer com mais nitidez o que se passa na mente do desontista. Em outras palavras, seu comportamento resulta da confluência entre história, lógica e religião. Embora a intenção e o ódio desontistas sejam universais, suas faces comportamentais revelam-se a partir de diferentes ângulos e sistemas de crença.
 
-Existem, contudo, traços comuns ao desontista que transcendem o contexto histórico:
+Existem, contudo, traços comuns ao desontista que transcendem o contexto histórico, como o pessimismo existencial radical, a negação de sentido e de qualquer verdade que revele sua dimensão espiritual, o desejo de explorar os limites do ódio em suas mais diversas manifestações, a recusa em reconhecer a própria liberdade e o medo de exercê-la diante de suas próprias intenções.
 
-* Pessimismo existencial radical, negação de sentido e até mesmo de qualquer verdade que revele sua dimensão espiritual.
-* Desejo de explorar os limites do ódio em todas as suas possíveis manifestações.
-* Recusa em acreditar na própria liberdade.
-* Medo da liberdade perante a sua própria intenção.
+
+revisar
 
 
 ### **Desontismo, Crise e Sociedade**
 
-O desontista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada absoluto, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutífera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o desontista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
+O desontista quer ser maior do que Deus no sentido de que quer ser mais puro do que Deus, quer transcender para o nada, sem que seja puro para tal, sem que reste nada de si para tal. Não é, portanto, uma vida positiva, mas uma não vida, não uma vida indiferenciada, que tem seus efeitos como a do Ser, mas uma vida sem efeitos. Uma vida infrutífera, sem vida. Um estado, não de pureza, mas de alienação total. Neste sentido o desontista quer transcender a pureza perfeita, porém, isto não o torna maior que a pureza, mas o nadifica. Não o indiferencia, mas o anula.
 
 O desontista gosta da tristeza alheia, não porque sua natureza humana é ruim, mas porque ver o outro num estado de não proveito da vida faz com que ele se console, ou faz com que se sinta compreendido. O desontista, portanto, usa de perspicácia e estratégias para passar na frente em situações econômicas, e seu proveito é poder manifestar uma risada jocosa, como se estivesse vencendo de alguma forma o outro, que lhe parece impassível diante de sua índole. É um absurdo para o desontista a aceitação alheia a seu intento. Porque isso contraria seu próprio propósito de vingança, se houver, ao passo que o faz se sentir diminuído.
 
@@ -4958,3 +4914,23 @@ Essa mensagem é extremamente complexa, porém, se você não quiser ter o traba
 
 
 O desontista busca por um falso messias, por um imitador como tentativa de segregar a história cristã, como tentativa de mascarar o sentido da religião.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Nova parte:
+
+É necessário acabar com a cultura de votar na direita. O direitismo nada mais é do que fortalecer super ricos, é a esquerda que se encarrega de fortalecer a industria fazendo o dinheiro girar, fazendo a inflação diminuir. É a esquerda quem incentiva a competitividade empresárial fortalecendo o micro empreenedor, financiamento estudo e formação. A direita não tem papel politico se não criar condições para oprimir o mais fragilizado, estagnar pessoas para que não atinjam o mesmo patamar de uma elite.
+
+Porém
