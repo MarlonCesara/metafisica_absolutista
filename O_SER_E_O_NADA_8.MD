@@ -373,7 +373,19 @@ Dessa forma, um Absoluto determinado não se apresentaria simplesmente como aqui
 
 Assim, um absoluto que dependesse de uma determinação externa não seria propriamente autônomo, pois sua realidade enquanto determinada dependeria da ação de algo outro que o estabelecesse como tal. O verdadeiramente absoluto, ao contrário, não pode receber de outro a razão pela qual é isto e não aquilo; ele deve possuir em si mesmo a razão de seu ser, sem que sua realidade dependa de uma escolha ou determinação exterior.
 
+Toda determinação implica uma delimitação: determinar algo é estabelecer aquilo que ele é e, simultaneamente, excluir aquilo que ele não é. Nesse sentido, toda determinação pressupõe uma diferença entre possibilidades, na medida em que uma realidade determinada se distingue de outras formas possíveis de ser. Determinar-se, portanto, significa, ao menos conceitualmente, afirmar uma possibilidade em detrimento das demais, estabelecendo uma fronteira ontológica entre o que se realiza e o que permanece excluído.
 
+Essa estrutura, contudo, não pode ser atribuída ao Incausado sem que se incorra em uma contradição fundamental. Se o Incausado tivesse de escolher entre possibilidades distintas para constituir a si mesmo, sua existência dependeria de uma alternativa anterior ao próprio ato de Ser. Haveria, assim, uma multiplicidade de possibilidades logicamente precedentes à sua realidade, o que comprometeria sua condição de princípio incausado.
+
+O Incausado, portanto, não se determina por escolha, pois não necessita eleger, entre alternativas, aquilo que deve ser. Não há, para ele, uma possibilidade a ser preferida, uma condição a ser alcançada ou uma determinação a ser adquirida. Ele simplesmente é. Seu ato não consiste em escolher o Ser entre outras possibilidades, mas no próprio ato de Ser, sem anterioridade, dependência ou necessidade de atualização. O Incausado não se constitui por uma decisão que o conduza à existência; sua realidade é o próprio fundamento de toda determinação possível.
+
+Para compreender melhor o conceito de Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
+
+
+===========
+abaixo o rascunho
+
+Toda determinação é uma escolha que repele o que algo não poderia ser, isto é, toda determinação é uma opção entre as demais. Ou até mesmo uma negação, considerando que se existe mais escolhas e se nega uma delas. O determinar designa uma realidade que exige uma ação de escolha, e isto necessariamente não pode ser atributo do incausado, pois o incausado não se escolhe entre demais opções, mas simplesmente é. Não há outro ato se não o próprio ato de Ser para o incausado.
 
 
 
