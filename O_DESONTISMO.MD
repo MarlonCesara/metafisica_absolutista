@@ -67,7 +67,7 @@
 
 ---
 
-# PARTE I: PROLEGÔMENOS E FUNDAMENTAÇÃO METAFÍSICA
+# PROLEGÔMENOS E FUNDAMENTAÇÃO METAFÍSICA
 
 A metafísica nada mais é do que a aproximação do homem ao conhecimento gerado através da razão. A metafísica explica por que em uma sociedade em que já existe inteligência artificial e em que o homem já explorou o espaço, como pode nessa sociedade ainda existir miséria, no sentido de que o homem é capaz de chegar à Lua, mas não é capaz de fazer comida chegar a quem precisa; por que isso ainda acontece, qual é a razão disso? E a metafísica absolutista explica que a razão disto está na alma humana. A alma humana ainda foi pouco explorada e entendida, o conhecimento do além, as palavras de Jesus ainda não foram totalmente entendidas, não estão totalmente claras à razão; o objetivo da metafísica é aproximar esse conhecimento verdadeiro do homem, trazer à tona a verdade para que o cenário social se modifique, para que, havendo o conhecimento pleno da alma humana, se possa modificar o cenário global, o cenário social, saciar a fome, aplacar a violência, através do verdadeiro conhecimento.
 
@@ -80,6 +80,10 @@ Visto por esse ângulo, o "pecado" deixa de ser apenas uma regra religiosa quebr
 As ciências da alma podem expor as verdadeiras raízes da miséria e as engrenagens invisíveis que a sustentam. A chance de transformarmos o mundo mora, portanto, na evolução inevitável rumo a uma compreensão total, inquestionável e profunda da realidade. Apenas ao abraçar essa verdade será possível mudar o planeta de forma verdadeira e duradoura.
 
 Este tratado objetiva emancipar a humanidade de estruturas opressoras e de formas sutis — e muitas vezes invisíveis — de controle. Essa libertação não acontece pela força, mas por uma reflexão profunda sobre a realidade e sobre a própria natureza do ser humano. Entender as reais motivações das elites econômicas e como elas moldam o mundo é o despertar necessário para construirmos uma sociedade justa, sustentável e pacífica. No fim das contas, a criação de um mundo ideal não depende apenas de leis ou governos, mas do entendimento humano: a consciência é a semente de qualquer mudança real.
+
+Toda investigação que perscruta os limites da condição humana — analisando os nexos entre a ontologia, o sofrimento psíquico e as estruturas de opressão que moldam a civilização — defronta-se com uma restrição metodológica: a impossibilidade de abarcar a totalidade da existência por meio de um sistema estático e exaustivo. O conteúdo reunido neste tratado não constitui um sistema dogmático fechado, mas um conjunto de percepções fragmentadas.
+
+O pensamento aqui estruturado reconhece que a análise exata dos fenômenos psíquicos e sociais não se presta a compêndios definitivos; ela se articula por meio de recortes analíticos, hipóteses parciais e observações empíricas e conceituais distintas.
 
 ## Prefácio e Introdução ao Desontismo
 
@@ -197,9 +201,7 @@ O convívio do desontista com aqueles que lhe aparentam tranquilidade é conflit
 
 O estado de autoluto faz com que o desontista suponha que as pessoas devam compreendê-lo e respeitá-lo. Quando amizades se aproximam, surgem boas notícias ou qualquer outra circunstância que o faça recordar o valor de viver, ele se irrita profundamente e tenta afastar de si tais ideias, pois deseja preservar seu propósito autoexcludente. A convivência com o desontista torna-se angustiante, uma vez que ele exige dos outros um profundo “respeito” ao seu luto. Conservar tal decisão significa, ao mesmo tempo, tentar conviver com os demais e manter a aparência de uma pessoa normal, o que exige um grande dispêndio de energia mental.
 
-
-
-### 1. A Prisão da Alma e a Rejeição da Liberdade
+### A Prisão da Alma e a Rejeição da Liberdade
 
 Há uma dupla sintomática no desontismo, porque há uma dupla percepção do corpo. O corpo percebe a intencionalidade da alma direcionada ao seu autoabandono, ao passo que também percebe a vitrificação da alma em uma existência conduzida por estímulos físicos, na qual o indivíduo não exerce o comando da própria ação. O indivíduo percebe-se prisioneiro de si mesmo e, ao mesmo tempo, intenciona um destino que não lhe pertence enquanto corpo, pois o corpo rejeita e repugna esse destino com toda a sua biologia. O homem pode escolher não escolher, no sentido de que, quando escolhe um ódio dessa magnitude, torna-se, metafisicamente, morto. A própria rejeição à liberdade constitui uma não escolha.
 
@@ -213,26 +215,22 @@ O desontista, em seu absoluto orgulho, sente que seu direcionamento à autoanula
 
 Podemos citar como exemplo uma rocha que deseja ser rocha para sempre: seu desejo é indistinguível de seu estado de rocha, julgando-se rocha em virtude de sua decisão infinita. É rocha porque não pode não ser rocha, e não pode deixar de ser rocha em razão de sua decisão infinita. Isto é, a decisão infinita pela imobilidade é indistinguível da própria imobilidade.
 
+### A Visão da Penumbra
 
+O desontista sente que há uma parte esquecida de si mesmo, que há alguém que necessita encontrar, como se não se lembrasse de quem é. Há sempre uma angústia em seu peito, um medo desnecessário, como se não fosse guiado por si mesmo, mas por forças exteriores a si. É como se fosse uma marionete que, ao mesmo tempo que intenciona tornar-se descartável, considera-se imóvel. É como se a realidade lhe fosse estreita, como se não conseguisse mover-se. Falta-lhe o motor do movimento.
 
-revisar
+O desontista julga-se desprovido de autodomínio, autopresença e autoconhecimento. Contudo, ao mesmo tempo, sente que possui tais características. Tem, portanto, uma visão de penumbra, como se enxergasse apenas as sombras da realidade. Ambas as percepções se misturam, resultando na sensação de quem enxerga a própria cegueira ou contempla a própria escuridão. Há consciência, mas ela não se orienta para a liberdade, e sim para uma prisão interior.
 
-### 3. A Perda do Autodomínio e a Visão de Penumbra
-
-O desontista sente que há uma parte esquecida de si, alguém que não se lembra de quem é; há sempre uma angústia em seu peito, um medo desnecessário, como se não fosse guiado por si, mas por forças exteriores a si. Como se fosse uma marionete, ao passo que intenciona ser descartável, considera-se imóvel. Como se a realidade lhe fosse apertada, como se não conseguisse se mover. Falta-lhe o motor do movimento.
-
-O desontista se julga sem autodomínio, autopresença e autoconhecimento. Porém, ao mesmo tempo, sente que possui tais características. Tem, portanto, uma visão de penumbra, como se somente enxergasse as sombras da realidade. Ambas as visões se misturam. E isso resulta em um indivíduo que enxerga sua cegueira, ou que vê sua escuridão.
-
-### 4. O Ódio Perante a Diferença Social
+### O Ódio Perante a verdadeira Diferença Social
 
 A tristeza é uma constante companhia para o desontista, então sempre necessita de estímulos e sempre está fugindo da autorreflexão, pois uma visão alienante de si não lhe confere uma alegria natural e cotidiana.
 
 O desontista se enche de ódio ao presenciar a verdadeira diferença, a discrepância social: indivíduos que despertaram para si, que assumiram sua autonomia e liberdade, convivendo com indivíduos que estão se fadando à ruína eterna. Essa discrepância tenta ser amenizada por formas opressoras, como se a visão do bem-estar do outro fosse dilacerante para o desontista.
 
+revisar
+### O Renascimento do Espírito e a Paralisia do Ódio
 
-### 2. O Renascimento do Espírito e a Paralisia do Ódio
-
-O renascimento do Espírito implica que o indivíduo era vivo, apesar de ser guiado pelos instintos corporais. E depois permanece imóvel. O seu permanecer imóvel é vivo, e autocausado. Porém, ao mesmo tempo, é um não mover-se. É um não renascer. O Espírito autocausa sua queda, porém, ao mesmo tempo, não se move porque não nasceu, não criou movimento. O amor é o motor da ação. O espírito se autodetermina, porém, sua autodeterminação é viva sem que tenha a verdadeira vida. O indivíduo permanece imóvel; o ódio, ao mesmo tempo que é uma atividade em direção à anulação, é uma não atividade.
+O renascimento do Espírito implica que o indivíduo, ainda que vivo, necessita da verdadeira vida, necessita abandonar sua vida instintiva, abandonar sua imobilidade espiritual. O permanecer imovel do desontista é vivo, porém, ao mesmo tempo, é um não mover-se. É um não renascer. A alma desontista provoca sua queda, porém, ao mesmo tempo, não se move porque não nasceu, não criou movimento. O amor é o motor da ação. O espírito do homem existe, porém, seu movimento é vivo ainda que sem a verdadeira vida. O indivíduo permanece imóvel; o ódio, ao mesmo tempo que é uma atividade em direção à anulação, é uma não atividade.
 
 Ao exemplificarmos, temos que, se a dualidade gera uma terceira alma, a essa terceira alma é doada a vida, de forma que é a união de ambas em uma indiferenciação. Porém, essa nova alma tem um sentido particular; o sentido repassado pelos pais não realiza completamente seu sentido, que terá uma perspectiva individual. A alma, enquanto imposta à vida, no sentido de uma obrigatoriedade existente, vê-se sem seu sentido, de forma que a mobilidade seja relativa a seu instinto corporal. Curva-se, portanto, aos instintos mundanos, sem o movimento. Sua fatalidade, portanto, não é nem mesmo autocausada, mas é também uma paralisia. É autocausada, e o sentido do ódio se encerra no sentido da ausência da autodeterminação. A autodeterminação em si carrega um ódio vivo. O ápice do ódio autocausado é a estaticidade. O ódio, portanto, não se torna um objetivo, mas uma paralisia. O ódio consumado não é a alma se guiando a um patamar, mas é deixando-se sucumbir pela ausência do sentido. O ódio em seu ápice não é um acúmulo de paixões, mas é a ausência de amor, a ausência até mesmo do ódio.
 
