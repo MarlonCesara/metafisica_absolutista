@@ -379,6 +379,8 @@ Essa estrutura, contudo, não pode ser atribuída ao Incausado sem que se incorr
 
 O Incausado, portanto, não se determina por escolha, pois não necessita eleger, entre alternativas, aquilo que deve ser. Não há, para ele, uma possibilidade a ser preferida, uma condição a ser alcançada ou uma determinação a ser adquirida. Ele simplesmente é. Seu ato não consiste em escolher o Ser entre outras possibilidades, mas no próprio ato de Ser, sem anterioridade, dependência ou necessidade de atualização. O Incausado não se constitui por uma decisão que o conduza à existência; sua realidade é o próprio fundamento de toda determinação possível.
 
+O determinado necessita, como o próprio nome sugere, de ser determinado, isto é, de ser escolhido entre as demais opções. Portanto, necessita de uma causa, de um ente que o escolha e que seja anterior àquilo que foi escolhido. Nesse sentido, dispensa-se a qualidade de determinado no incausado, pois, como o próprio termo indica, o incausado não pode ter uma causa anterior, isto é, não pode ser escolhido, sob pena de deixar de ser absoluto.
+
 Para compreender melhor o conceito de Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
 
 
