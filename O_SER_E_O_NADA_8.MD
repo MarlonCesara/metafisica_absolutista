@@ -585,9 +585,9 @@ O Ser é uma dedução do auto causar, de forma que, o Ser represente e simboliz
 
 Tal como o auto causal é aquele que se causa, e é sua própria substancia causada. Portanto, a semelhança entre o termo Ser e auto causar, é tal que, o Ser é dado pelo auto causar. O termo auto causar carrega a explicação, o esclarecimento do seu produto: o Ser. Portanto, ambo os conceitos são idênticos, porem, o termo Ser é inevitavelmente o que se infere da auto causalidade e é um conceito mais compacto do que o auto causar. Em síntese, o auto causar é o próprio Ser, porém, em uma forma de apresentação que se deixa entender seu estatuto para Absoluto perante o senso da causalidade.
 
+O Ser é necessariamente auto causal, e o auto causal é Ser. Desta forma, ao pronunciarmos o termo auto causar, temos a mesma visão que se tem ao se pronunciar o termo Ser. O auto causar supõe uma realidade que se constitui por si mesma.
 
-
-
+O auto causar já subentende o Ser, já é um verbo. O auto causar já existe, ainda que sem o produto do auto causado, sendo o auto causar o próprio produto. Sendo assim, temos o auto causar como o indiferenciado. E o auto causar já idêntico ao Ser, pois é um ato que se concretiza em si mesmo. Isto é, um ato que produz a si mesmo como causado. E o que se deduz do auto causar é o Ser, o Ser é o nome que se dá para o auto causar. O Ser é o auto causar sem esboçar em seu próprio termo sua origem. O Ser, ao se considerado originado em si mesmo, é chamado de auto causar.
 
 
 
@@ -599,6 +599,10 @@ Uma vez que não há espaço externo ou matéria prévia para sofrer o impacto d
 Sob a ótica determinista, a ação é vista como um movimento acionado por um fator externo (como a força que arremessa um objeto). A autoação poderia ser erroneamente imaginada como um movimento físico que se inicia sem causa mecânica. Contudo, no Absoluto, o "movimento" não pode ser físico. Qualquer movimento produz oscilações e altera o estado indiferenciado anterior. O movimento do Ser, portanto, deve ser puro: não move algo fora de si e não produz mutação em si. Em síntese, não é um movimento espacial ou físico, mas a afirmação perene de sua própria realidade indiferenciada.
 corrija pt
 O movimento do Ser não é a produção de si mesmo, no sentido de que não existia antes e passou a existir, não é a determinação de si próprio, não é uma auto escolha considerando que não existia antes. O movimento do Ser, a ação pura, é o seu próprio ato de existir, e não o ato de produzir a si mesmo considerando-se ainda não existente. Isto é, a ação do Ser é sua própria identidade fundida a seu fundamento, sua ação é Ser, é existir.
+
+
+
+
 
 **2. A Autopresença e a Intencionalidade Imanente**
 Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o desejo ou a vontade do agente.
