@@ -524,6 +524,32 @@ Em suma, o Ser é o agente sendo o próprio e perpétuo efeito de seu desejo de 
 
 Como o Absoluto é indiferenciado, não é restrito por uma substância predeterminada. Sua substância é a própria capacidade ativa de se autocausar. O Absoluto não é o "causado", mas o eterno "causar". O fim último dessa ação é a substância pura e inefável. Na ausência de um molde prévio, o próprio fundamento é o ato contínuo de fundar-se. Autocausar-se é autocriar-se, resultando na convergência onde o ato de realizar-se já é a própria realidade pura.
 
+**4. A descristalização do Ser e do auto causar**
+revisar
+Ao estabelecermos um Ser como um sou, no sentido de que houve a construção, temos, portanto um evento anterior e um ato posterior ao evento. Neste sentido incorremos de novo no erro de supor uma causa que posteriormente manifesta seu efeito. Porém, ao considerarmos somente o Ser, temos a ação de se fazer ser sem seu efeito, tendo como próprio efeito e forma final a ação.
+
+Da mesma forma, ao considerarmos a existencia de um auto causado, ou seja, de um efeito da ação de auto causar, temos um ente cristalizado após a ação de causar, estabelecendo uma causa para o que queriamos que fosse incausado. Portanto, o movimento da ação auto causal, deve ser seu próprio desfecho. Ao definirmos o incausado como "auto causado" ou como "Sou", já o imbuimos de uma indentidade, já o produzimos de forma diferenciada. 
+
+Isto é, ao fazermos isto, desunimos o indiferenciado separado a identidade de seu próprio fundamento. Se antes tinhamos o Ser, que seria a identidade unida ao seu próprio existir de forma a ser homogenea. Temos, o ente identificado e cristalizado como "o ente", ou "o causado". 
+
+Ao tornamos o Ser, o ente construido ou o auto causar, o ente causado, temos a causa dissociada do ente causado, temos o produto dotado de identidade.
+
+Porém, ao pronunciarmos o auto causar sem a imposição de uma identidade, temos auto causar como identico a si mesmo, e que não atribui essa identidade a uma forma criada pelo ato causal.
+
+Ao atribuirmos o cristalizado ao absoluto, introduzimos imediatamente o nível de escolha, introduzimos a identidade. Porém, ao considerar somente a auto causalidade em seu ato, sem deduzir uma forma que exista a ser modelada deste ato, como se houvesse um subproduto para que se modele pelo ato causal para lhe atribuir existência e forma, temos somente o ato auto causal, um ato que já se identifica como ato e já se funda também como ato.
+
+De forma que a identidade é o ato de Ser, e o fundamento também, o ato de Ser. Desta forma, temos a identidade no próprio ato, justamente ao fundamento. Da mesma forma, no auto causar, temos a identidade como o auto causar, e o fundamento no mesmo ato.
+
+O Ser, portanto, se identifica pelo seu próprio ato de existir, e se funda também pelo mesmo. Sua identidade é o existir, e seu fundamento é também o existir. O Ser é seu ato, e sua identidade é também seu ato. O Ser não é o sou cristalizado, mas é o próprio existir, se define e se identifica no próprio existir, ou seja, em seu próprio ato. 
+
+Da mesma forma que o auto causal se identifica por seu próprio ato auto causal, e se fundamenta através do mesmo ato.
+
+O auto causal, é o próprio auto causar, e o auto causar é indistinguível do Ser, tal como o Ser se faz, o auto causal se causa.
+
+
+
+
+
 **4. A Resolução do Problema da Relação na *Causa Sui***
 Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A autocausalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
 
