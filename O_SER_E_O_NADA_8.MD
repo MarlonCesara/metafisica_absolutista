@@ -546,11 +546,14 @@ Da mesma forma que o auto causal se identifica por seu próprio ato auto causal,
 
 O auto causal, é o próprio auto causar, e o auto causar é indistinguível do Ser, tal como o Ser se faz, o auto causal se causa.
 
+Para abordarmos mais claramente este tópico, a identidade deixa de se distinguir do fundamneto, quando o fundamento é identico a si mesmo. Isto é, quando o existente é identico ao seu existir, temos o indeterminado, isto é, a diluição da identidade do existente de seu fundamento.
+
+Para que isso fique ainda mais claro, imaginemos que um determinado existente, tenha o nome de existir e que seu nome é sua identidade. Ao atribuirmos a identidade do ente que existe ao seu próprio ato de existir, temos uma diluição na qual o fundamento (existente), torna-se igual ao seu nome (identidade). Não temos, então, mais a identidade, sendo que, a identidade é indistinguível do fundamento. Ao passo que também a identidade é indistinguível do fundamento. O existir, portanto é o próprio existente, e o existente é o próprio existir.
 
 
 
 
-**4. A Resolução do Problema da Relação na *Causa Sui***
+**5. A Resolução do Problema da Relação na *Causa Sui***
 Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A autocausalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
 
 Quando utilizamos o termo "causa" no pensamento cotidiano ou mesmo na filosofia tradicional, estamos operando com uma estrutura que contém três elementos implícitos:
@@ -570,7 +573,7 @@ A questão que se coloca, então, é: podemos falar em "causa" no Absoluto sem t
 
 Não há, portanto, o causado; há o autocausar. Isto é, no Absoluto, o autocausar já é o próprio causado, de modo que o para-si do Absoluto constitui o seu próprio em-si, em uma diluição fundamental dessa distinção. Dessa forma, o Absoluto é o próprio causar. O autocausar é o Ser. Autocausar é, nesse sentido, fazer ser.
 
-**5. A Intencionalidade e a Distinção Semântica do Ser**
+**6. A Intencionalidade e a Distinção Semântica do Ser**
 Quando nos referimos ao Ser como uma realidade autojustificada, também desenvolvemos uma dupla fundamentação entre aquele que faz ser e o ente produto desta ação, que é o ente sido. Temos o mesmo conflito na autocausalidade, no qual o ente causador é o mesmo que é causado. No entanto, com a palavra "causar" nos referimos a um impulso cego, inanimado, tal como é o impulso de uma força mecânica; porém, a palavra "Ser" denota uma causa viva, que não é mais um mero "causar", mas é o Ser em função de uma propriedade que o designa como Ser autopossuidor, autoconsciente e autodominante.
 
 A palavra Ser difere ligeiramente do termo "auto causar" pois, ao Ser, ligamos mentalmente propriedades personificadas. Já o "auto causar" associamos intuitivamente a forças naturais, mais do que a pessoalidade, intencionalidade e vontade. Necessitamos, portanto, justificar a presença, a intencionalidade ou a vontade do auto causar, achar no auto causar atributos pessoais, para que o transformemos em Ser, para que criemos um novo conceito sobre o auto causar. Isto quer dizer que, ao longo da história, o Ser sempre é associado à pessoalidade, enquanto o auto causar, que designa o mesmo conceito, é associado a forças naturais ou à contingência por não ser usado para inferir o Ser ou não ser analisado corretamente.
