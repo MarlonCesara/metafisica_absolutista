@@ -550,7 +550,9 @@ Para abordarmos mais claramente este tópico, a identidade deixa de se distingui
 
 Para que isso fique ainda mais claro, imaginemos que um determinado existente, tenha o nome de existir e que seu nome é sua identidade. Ao atribuirmos a identidade do ente que existe ao seu próprio ato de existir, temos uma diluição na qual o fundamento (existente), torna-se igual ao seu nome (identidade). Não temos, então, mais a identidade, sendo que, a identidade é indistinguível do fundamento. Ao passo que também a identidade é indistinguível do fundamento. O existir, portanto é o próprio existente, e o existente é o próprio existir.
 
+Neste mesmo sentido, o Ser, é aquele é e se identifica pelo seu próprio fundamento. Tal como o auto causar, que é o causado se identificando por seu próprio ato de causar.
 
+Se auto causar, e Ser, não carregam diferenças conceituais. 
 
 
 **5. A Resolução do Problema da Relação na *Causa Sui***
