@@ -554,7 +554,6 @@ Neste mesmo sentido, o Ser, é aquele é e se identifica pelo seu próprio funda
 
 Auto causar, e Ser, não carregam diferenças conceituais. No entanto, o termo auto causar trás um sentido explicativo, deixa explicito que o termo veio da inferencia de uma propriedade para absoluto. Enquanto o termo Ser não deixa claro que foi inferido devido a uma propriedade do Absoluto.
 
-
 **5. A Resolução do Problema da Relação na *Causa Sui***
 Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção é apenas aparente. A autocausalidade não é uma relação, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste: se a causa é algo "nele", ainda assim temos uma dualidade.
 
@@ -584,7 +583,7 @@ Isto quer dizer que o auto causar designa o mesmo sentido que o Ser. Ambos neces
 
 O Ser é uma dedução do auto causar, de forma que, o Ser represente e simbolize aquele cuja identidade é identica ao seu fundamento. Isto é, o incausado necessariamente é puro e necessariamente é ontológico, portanto, se existe é indiscernivel sua identidade de seu fundamento. Não podemos definir o auto causal, como um ente auto causado, desta forma, já o consideraríamos diferente em si mesmo. Há, em primeira instancia a auto causalidade, que é um verbo identico ao seu conteudo, o fundamento de auto causar, é indentico a sua identidaed, de forma que não exista o auto causado, mas o auto causar já é em si o auto causado. O auto causado indiscernível de sua identidade de auto causar, é indinstinguivel do Ser, pois o ser é aquele que se faz, aquele que se produz e é sua própria substancia em seu produzir.
 
-Tal como o auto causal é aquele que se causa, e é sua própria substancia causada. Portanto, a semelhança entre o termo Ser e auto causar, é tal que, o Ser é dado pelo auto causar. O termo auto causar carrega a explicação, o esclarecimento do seu produto: o Ser. Portanto, ambo os conceitos são idênticos, porem, o termo Ser é inevitavelmente o que se infere da auto causalidade e é um conceito mais compacto do que o auto causar.
+Tal como o auto causal é aquele que se causa, e é sua própria substancia causada. Portanto, a semelhança entre o termo Ser e auto causar, é tal que, o Ser é dado pelo auto causar. O termo auto causar carrega a explicação, o esclarecimento do seu produto: o Ser. Portanto, ambo os conceitos são idênticos, porem, o termo Ser é inevitavelmente o que se infere da auto causalidade e é um conceito mais compacto do que o auto causar. Em síntese, o auto causar é o próprio Ser, porém, em uma forma de apresentação que se deixa entender seu estatuto para Absoluto perante o senso da causalidade.
 
 
 
