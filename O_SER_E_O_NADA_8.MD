@@ -552,7 +552,7 @@ Para que isso fique ainda mais claro, imaginemos que um determinado existente, t
 
 Neste mesmo sentido, o Ser, é aquele é e se identifica pelo seu próprio fundamento. Tal como o auto causar, que é o causado se identificando por seu próprio ato de causar.
 
-Se auto causar, e Ser, não carregam diferenças conceituais. 
+Auto causar, e Ser, não carregam diferenças conceituais. No entanto, o termo auto causar trás um sentido explicativo, deixa explicito que o termo veio da inferencia de uma propriedade para absoluto. Enquanto o termo Ser não deixa claro que foi inferido devido a uma propriedade do Absoluto.
 
 
 **5. A Resolução do Problema da Relação na *Causa Sui***
