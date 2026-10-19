@@ -582,6 +582,16 @@ A palavra Ser difere ligeiramente do termo "auto causar" pois, ao Ser, ligamos m
 
 Isto quer dizer que o auto causar designa o mesmo sentido que o Ser. Ambos necessitam de intencionalidade; porém, o termo autocausar não é um termo compacto, necessita do pronome "auto" para que se entenda o verbo causar como autor de si mesmo, já o Ser tem este entendimento da ação instaurado de forma singular. O Ser não só é, como se faz Ser. O causar, por si só, é um ato ao qual falta o fecho ontológico onde a ação se debruça sobre si mesma e forma o que é a partir de si mesma. Isto é, o Ser é o auto causar em uma só palavra.
 
+O Ser é uma dedução do auto causar, de forma que, o Ser represente e simbolize aquele cuja identidade é identica ao seu fundamento. Isto é, o incausado necessariamente é puro e necessariamente é ontológico, portanto, se existe é indiscernivel sua identidade de seu fundamento. Não podemos definir o auto causal, como um ente auto causado, desta forma, já o consideraríamos diferente em si mesmo. Há, em primeira instancia a auto causalidade, que é um verbo identico ao seu conteudo, o fundamento de auto causar, é indentico a sua identidaed, de forma que não exista o auto causado, mas o auto causar já é em si o auto causado. O auto causado indiscernível de sua identidade de auto causar, é indinstinguivel do Ser, pois o ser é aquele que se faz, aquele que se produz e é sua própria substancia em seu produzir.
+
+Tal como o auto causal é aquele que se causa, e é sua própria substancia causada. Portanto, a semelhança entre o termo Ser e auto causar, é tal que, o Ser é dado pelo auto causar. O termo auto causar carrega a explicação, o esclarecimento do seu produto: o Ser. Portanto, ambo os conceitos são idênticos, porem, o termo Ser é inevitavelmente o que se infere da auto causalidade e é um conceito mais compacto do que o auto causar.
+
+
+
+
+
+
+
 ### A Qualidade da Ação do Ser como Presença Operante 
 
 **1. A Ação Pura, sem Movimento e sem Matéria**
