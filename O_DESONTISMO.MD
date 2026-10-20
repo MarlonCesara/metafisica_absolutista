@@ -4985,3 +4985,11 @@ Porém, há o direitismo que se dá por ignorancia ou que o individuo realmente 
 
 
 O desontista tem em seu olhar uma tristeza que sempre está presente, um sentimento de saldade, de perda de si, um sentimento de solidão interior. Um choro não chorado, algo gelido em si, uma negação a si mesmo que se esconde e se sintomatiza de diversas formas. E, quanto maior a sensibilidade deste individuo, mas severos são os sintomas de sua repressão interior.
+
+
+
+
+
+
+
+O desontista, seja sendo um obsessor ou um desontista, isto é, mesmo havendo esperança em si e ainda boas ações, se tratando de sua vida politica, ele não quer ter mais porque desfruta disto, mas deseja que o outro tenha menos, portanto, se dito ao obsessor (alma do purgatório) que um determinado candidato vai prejudicar o país inteiro, o obsessor ou desontista aceita desde que prejudique mais o outro, desde que produza diferença sociais, desde que o outro sofra. Ainda que o desontista tenha seu salário diminuido, ele escolhe um mal candidato pensando em fazer o outro sofrer ainda que ele tenha que sofrer para isto. Esta posição, num contexto metafisico onde a alma impera, resulta num auto exilio, numa alto anulação como tentativa de punir o outro com seu proóprio apagão. D
