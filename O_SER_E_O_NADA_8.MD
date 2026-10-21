@@ -613,7 +613,7 @@ O auto causar já é ato existente, que tem seu fundamento em seu ato causal. Po
 
 E, desta forma, é possível a inferencia de outras propriedades do Ser, pois se tem a irrefutabilidade do fato de que o Ser é soberano se dá conforme sua própria liberdade e vontade. Sendo o Ser absoluto, o Ser é Ser porque se afirma Ser, e não há outra via que o determine Ser se não ele mesmo. Portanto, a afirmação do Ser auto causal impodera o Ser sob caracteristicas como intencionalidade, auto presença, poder sobre si e conhecimento de si.
 
-A auto causalidade faz com que o Ser se execute como Ser em razão Absoluta, ou seja, em razão exclusiva de si mesmo.
+A auto causalidade faz com que o Ser se execute como Ser em razão Absoluta, ou seja, em razão exclusiva de si mesmo. Sendo está razão exclusiva do Ser, isto é, atribuindo ao Ser a soberania Absoluta do ato causal, temos que, o Ser herda a responsabilidade de Ser, e desta responsabilidade inferimos suas atribuições. O Ser, portanto, se afirma o fundamento, se afirma em plenitude de Ser, e se afirma totalmente livre em seu sentido já realizado de Ser. Se há o sentido obrigatório de Ser, como veremos a seguir, essa afirmação não é mecanica, mas é o Ser em perfeição, o Ser que é necessariamente obstinado ao Ser, no sentido de imutável.
 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
@@ -638,10 +638,23 @@ Desta dedução, emerge a primeira propriedade cristalina da autocausalidade: a 
 
 Não havendo movimento espacial, resta o despertar da ação, que é a pura intenção. Não há movimento senão o movimento da intenção formalizada instantaneamente como ato.
 
-**3. O Ser como Puro Querer**
 Na física contingente, o que causa o movimento é um impulso anterior. No contexto da presença absoluta, o motor é a própria intenção; a intenção não é apenas o *start*, mas a totalidade da ação. Não havendo necessidade de deslocamento, há a intenção permanentemente instaurada: o bem-querer por si, o desejo de si. O movimento primeiro é a intenção, e essa intenção já é o próprio ente desejado e formalizado. Temos aqui a definição mais profunda do Ser: o querer inefável.
 
-Inferimos, assim, que a substância do Ser emana diretamente do princípio autocausal. A ação não atua sobre uma "coisa", pois não há nada a ser movido, nem gera um "produto" separado. O desejo é a ação prévia e simultânea à atividade. O causar-se é validado por essa intencionalidade imanente. O Ser é uma inclinação que se concretiza em si mesma — o amor inefável voltado para a própria plenitude de si mesmo.
+Inferimos, assim, que a substância do Ser emana diretamente do princípio autocausal. A ação não atua sobre uma "coisa", pois não há nada a ser movido, nem gera um "agente" separado. O desejo é a ação prévia e simultânea à atividade. O causar-se é validado por essa intencionalidade imanente. O Ser é uma inclinação que se concretiza em si mesma — o amor inefável voltado para a própria plenitude de si mesmo.
+
+Isto quer dizer que a ação de Ser já é concluída em si mesma, não gera um segundo Ser, nem determina uma segunda realidade. Não há uma ação externa, há uma ação interna, um relacionamento interior. O construir-se do Ser, não é uma construção externa, mas é uma alto construção, no sentido de se Ser ao passo que se direciona a este mesmo Ser perpetuamente. O ato de Ser, é um ato consumado ao passo que um ato perpetuamente atualizado. Não há o ente a se construir, há o ente a se renovar. Portanto, o causar-se é Ser e se renovar.
+
+No entanto, a ação de causar-se, isto é, de fundamentar-se e a ação renovadora não acontecem segundo uma renovação ou construção externa. O causar-se é um ato volitivo e interno, no sentido de que, não possui um objeto construído. Todo ente construído, no sentido de criado, se dá de forma determinada. Portanto, não há uma construção, no sentido de que o Ser não se cria e nem se recria como um ente externo e determinado.
+
+Sua criação e renovação, desta forma, não porta ação determinística. Mas uma ação inerente ao Ser. Ao investigarmos a ação, entendemos que a palavra ação é o resultado da intenção. 
+
+Como atribuir ação ao verbo Ser, que já é a própria ação? Não há como atribuir uma auto criação ao Ser. Portanto, o auto causar, não é uma ação que move o ser ou que o recria. O auto causar. Toda ação tem como start a intenção. Portanto, a ação do Ser, inevitavelmente começa no auto querer, na auto intenção. A auto intenção de uma realidade que já se dá em ato de Ser, se dá como auto intencionar. Desta forma, temos o Ser, imbuído da propriedade intencional. 
+
+corrigir
+
+
+
+
 
 Porém, o "se" do querer — isto é, o querer-se — não é direcional a um agente, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
 
