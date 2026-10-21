@@ -609,6 +609,8 @@ O auto causar, indica não somente o ato de Ser, mas de Ser Absoluto. E abre a �
 
 Portanto, sendo o Ser, um ato de fazer-se Ser, tal como indica sua identidade unida ao fundamento, sendo a identidade um ato de auto identificação, homogêneo ao fundamento, o Ser não somente é, mas se faz Ser. E não somente se faz Ser mas se faz Ser Absoluto.
 
+O auto causar já é ato existente, que tem seu fundamento em seu ato causal.
+
 
 ### A Qualidade da Ação do Ser como Presença Operante 
 
