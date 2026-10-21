@@ -648,17 +648,13 @@ No entanto, a ação de causar-se, isto é, de fundamentar-se e a ação renovad
 
 Sua criação e renovação, desta forma, não porta ação determinística. Mas uma ação inerente ao Ser. Ao investigarmos a ação, entendemos que a palavra ação é o resultado da intenção. 
 
-Como atribuir ação ao verbo Ser, que já é a própria ação? Não há como atribuir uma auto criação ao Ser. Portanto, o auto causar, não é uma ação que move o ser ou que o recria. O auto causar. Toda ação tem como start a intenção. Portanto, a ação do Ser, inevitavelmente começa no auto querer, na auto intenção. A auto intenção de uma realidade que já se dá em ato de Ser, se dá como auto intencionar. Desta forma, temos o Ser, imbuído da propriedade intencional. 
+Como atribuir ação ao verbo Ser, que já é a própria ação? Não há como atribuir uma auto criação ao Ser. Portanto, o auto causar, não é uma ação que move o ser ou que o recria. O auto causar. Toda ação tem como start a intenção. Portanto, a ação do Ser, inevitavelmente começa no auto querer, na auto intenção. A auto intenção de uma realidade que já se dá em ato de Ser, se dá como auto intencionar. Desta forma, temos o Ser, imbuído da propriedade intencional. Porém não reduzido a propriedade intencional. Ato e intenção convergem no sentido de que a intenção é o rumo do Ser, tal como a correnteza é o rumo do rio, a intenção é o rumo da verdadeira vida. O Ser, portanto, tem o intencionar em seu ato de auto construção, ao passo que mantem seu ato auto construtivo.
 
-corrigir
+Sua intenção, no entanto, se indiferencia consigo, no sentido de que não é a intenção a algo externo ou a um ente determinado, no sentido de que é uma auto intenção a si, mas é um intenção sem que seja direcionada a uma determinação. 
 
+Porém, o "se" do "querer-se" — isto é, o auto querer — não é direcional a um agente determinado, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
 
-
-
-
-Porém, o "se" do querer — isto é, o querer-se — não é direcional a um agente, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
-
-Em outras palavras, não há o ente intencionado ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica em sua própria intenção. Em suma, o Ser é o puro querer, sem o "se" do querer-se.
+Em outras palavras, não há o ente intencionado externamente ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica com em sua própria intenção. Em suma, há no Ser o puro querer, sem o "se" do querer-se. Em palavras mais simples, o amor do Ser não é amor a si mesmo, ou a um Ser externo a si, mas é um amor em doação. 
 
 
 
@@ -687,7 +683,7 @@ Em outras palavras, não há o ente intencionado ou o ente que quer a si mesmo. 
 
 
 
-
+revisar
 
 
 ## A Autocausalidade do Absoluto e a Falsa Dupla Exigência
