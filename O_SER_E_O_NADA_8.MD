@@ -589,6 +589,10 @@ O Ser é necessariamente auto causal, e o auto causal é Ser. Desta forma, ao pr
 
 O auto causar já subentende o Ser, já é um verbo. O auto causar já existe, ainda que sem o produto do auto causado, sendo o auto causar o próprio produto. Sendo assim, temos o auto causar como o indiferenciado. E o auto causar já idêntico ao Ser, pois é um ato que se concretiza em si mesmo. Isto é, um ato que produz a si mesmo como causado. E o que se deduz do auto causar é o Ser, o Ser é o nome que se dá para o auto causar. O Ser é o auto causar sem esboçar em seu próprio termo sua origem. O Ser, ao se considerado originado em si mesmo, é chamado de auto causar.
 
+O Ser é o existir sendo identificado por sua própria qualidade de existir. Se toda a determinação é um ato ou escolha, portanto, para o Ser, este ato já é unido ao fundamento, de forma a não precisar ter acontecido ou se realizado antes de si mesmo, tornando o Ser passível da incausalidade. 
+
+
+
 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
