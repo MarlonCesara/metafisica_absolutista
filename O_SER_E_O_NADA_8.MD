@@ -491,6 +491,15 @@ Por fim, vale ressaltar que uma realidade completamente pura é categoricamente 
 
 
 
+
+
+
+
+
+
+
+
+
 ### A Autocausalidade como Substância do Absoluto 
 
 **1. A Convergência entre a Causa e o Ser**
@@ -595,6 +604,10 @@ O Ser é o existir sendo identificado por sua própria qualidade de existir. Se 
 O auto causar, significa, auto fazer-se, auto existir, no sentido de existir por si mesmo, sem dependência de outra força. O auto causar é o Ser se reafirmando por si mesmo no contexto absoluto. A palavra Ser, afirma como indiferencialdo, ao passo que o auto causar, afirma como indifenciado e Absoluto.
 
 O auto causar, portanto, é idêntico ao Ser, no entanto, o termo ''auto causar'', refere ao Ser, não somente sendo a pureza, mas sendo a pureza Absoluta, aquela que não é causada, a pureza que não é somente indiferenciada, mas consciente de si, causadora de si, potente de si e presente em si.
+
+O auto causar, indica não somente o ato de Ser, mas de Ser Absoluto. E abre a ótica sob o Ser de que, se o Ser necessariamente é responsável pelo seu próprio estatuto, então devemos atribui-lo as propriedades necessárias para estabelecer este estatuto, que correspondem a presença em si, poder sobre si e conhecimento de si.
+
+Portanto, sendo o Ser, um ato de fazer-se Ser, tal como indica sua identidade unida ao fundamento, sendo a identidade um ato de auto identificação, homogêneo ao fundamento, o Ser não somente é, mas se faz Ser. E não somente se faz Ser mas se faz Ser Absoluto.
 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
