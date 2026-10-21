@@ -592,7 +592,9 @@ O auto causar já subentende o Ser, já é um verbo. O auto causar já existe, a
 O Ser é o existir sendo identificado por sua própria qualidade de existir. Se toda a determinação é um ato ou escolha, portanto, para o Ser, este ato já é unido ao fundamento, de forma a não precisar ter acontecido ou se realizado antes de si mesmo, tornando o Ser passível da incausalidade. 
 
 
+O auto causar, significa, auto fazer-se, auto existir, no sentido de existir por si mesmo, sem dependência de outra força. O auto causar é o Ser se reafirmando por si mesmo no contexto absoluto. A palavra Ser, afirma como indiferencialdo, ao passo que o auto causar, afirma como indifenciado e Absoluto.
 
+O auto causar, portanto, é idêntico ao Ser, no entanto, o termo ''auto causar'', refere ao Ser, não somente sendo a pureza, mas sendo a pureza Absoluta, aquela que não é causada, a pureza que não é somente indiferenciada, mas consciente de si, causadora de si, potente de si e presente em si.
 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
