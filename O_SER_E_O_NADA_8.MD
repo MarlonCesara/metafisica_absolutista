@@ -625,6 +625,8 @@ Sob a ótica determinista, a ação é vista como um movimento acionado por um f
 corrija pt
 O movimento do Ser não é a produção de si mesmo, no sentido de que não existia antes e passou a existir, não é a determinação de si próprio, não é uma auto escolha considerando que não existia antes. O movimento do Ser, a ação pura, é o seu próprio ato de existir, e não o ato de produzir a si mesmo considerando-se ainda não existente. Isto é, a ação do Ser é sua própria identidade fundida a seu fundamento, sua ação é Ser, é existir.
 
+Sua substancia é o Ser, e o que se entende por Ser se define de forma melhor ao deslindarmos as caracteristicas inerentes ao verbo. De forma indireta, se define o Ser pela experiencia direta.
+
 
 
 
@@ -655,6 +657,15 @@ Sua intenção, no entanto, se indiferencia consigo, no sentido de que não é a
 Porém, o "se" do "querer-se" — isto é, o auto querer — não é direcional a um agente determinado, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
 
 Em outras palavras, não há o ente intencionado externamente ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica com em sua própria intenção. Em suma, há no Ser o puro querer, sem o "se" do querer-se. Em palavras mais simples, o amor do Ser não é amor a si mesmo, ou a um Ser externo a si, mas é um amor em doação. 
+
+
+
+
+
+
+
+
+
 
 
 
