@@ -387,11 +387,6 @@ Ao se conceber o incausado como determinado, incorre-se em uma contradição ont
 Para compreender melhor o conceito de Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
 
 
-===========
-abaixo o rascunho
-
-Toda determinação é uma escolha que repele o que algo não poderia ser, isto é, toda determinação é uma opção entre as demais. Ou até mesmo uma negação, considerando que se existe mais escolhas e se nega uma delas. O determinar designa uma realidade que exige uma ação de escolha, e isto necessariamente não pode ser atributo do incausado, pois o incausado não se escolhe entre demais opções, mas simplesmente é. Não há outro ato se não o próprio ato de Ser para o incausado.
-
 
 
 
@@ -624,13 +619,9 @@ Uma vez que não há espaço externo ou matéria prévia para sofrer o impacto d
 
 Sob a ótica determinista, a ação é vista como um movimento acionado por um fator externo (como a força que arremessa um objeto). A autoação poderia ser erroneamente imaginada como um movimento físico que se inicia sem causa mecânica. Contudo, no Absoluto, o "movimento" não pode ser físico. Qualquer movimento produz oscilações e altera o estado indiferenciado anterior. O movimento do Ser, portanto, deve ser puro: não move algo fora de si e não produz mutação em si. Em síntese, não é um movimento espacial ou físico, mas a afirmação perene de sua própria realidade indiferenciada.
 corrija pt
-O movimento do Ser não é a produção de si mesmo, no sentido de que não existia antes e passou a existir, não é a determinação de si próprio, não é uma auto escolha considerando que não existia antes. O movimento do Ser, a ação pura, é o seu próprio ato de existir, e não o ato de produzir a si mesmo considerando-se ainda não existente. Isto é, a ação do Ser é sua própria identidade fundida a seu fundamento, sua ação é Ser, é existir.
+O movimento do Ser não é a produção de si mesmo, no sentido de que não existia antes e passou a existir, não é a determinação de si próprio, não é uma auto escolha considerando que não existia antes. O movimento do Ser, a ação pura, é o seu próprio ato de existir, e não o ato de produzir a si mesmo considerando-se ainda não existente. Isto é, a ação do Ser é sua própria identidade fundida a seu fundamento, sua ação é Ser, é existir. 
 
-Sua substancia é o Ser, e o que se entende por Ser se define de forma melhor ao deslindarmos as caracteristicas inerentes ao verbo. De forma indireta, se define o Ser pela experiencia direta.
-
-
-
-
+Sua ação não é uma auto determinação de si, pois tal ação exigiria ser feita a nível de escolha, isto é, a nível determinístico. E toda escolha dada escolhida, exige um ato prévio de seleção dentre escolhas possíveis. Desta forma, concluímos que o Ser não é autodeterminado, mas puramente auto causal. E que sua substancia é puramente Ser, e o que se entende por Ser se define de forma melhor ao deslindarmos as características inerentes ao verbo.
 
 **2. A Autopresença e a Intencionalidade Imanente**
 Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o desejo ou a vontade do agente.
@@ -639,9 +630,7 @@ Ao analisarmos o Ser sob a ótica do autocausal, inferimos imediatamente uma cau
 
 Desta dedução, emerge a primeira propriedade cristalina da autocausalidade: a presença. Se a ação do Absoluto não é mecânica, deve ser compreendida como uma ação intencional e imanente. O ato de causar-se é, na sua essência, o querer-se. É uma inclinação volitiva que encontra sua realização plena e inesgotável apenas em si mesma. O Ser é relacional consigo mesmo; pode ser comparado ao autodesejo absoluto, a um querer primordial ou a um amor inefável.
 
-Não havendo movimento espacial, resta o despertar da ação, que é a pura intenção. Não há movimento senão o movimento da intenção formalizada instantaneamente como ato.
-
-Na física contingente, o que causa o movimento é um impulso anterior. No contexto da presença absoluta, o motor é a própria intenção; a intenção não é apenas o *start*, mas a totalidade da ação. Não havendo necessidade de deslocamento, há a intenção permanentemente instaurada: o bem-querer por si, o desejo de si. O movimento primeiro é a intenção, e essa intenção já é o próprio ente desejado e formalizado. Temos aqui a definição mais profunda do Ser: o querer inefável.
+Não havendo movimento espacial, resta o despertar da ação, que é a pura intenção. Não há movimento senão o movimento da intenção formalizada instantaneamente como ato. Na física contingente, o que causa o movimento é um impulso anterior. No contexto da presença absoluta, o motor é a própria intenção; a intenção não é apenas o *start*, mas a totalidade da ação. Não havendo necessidade de deslocamento, há a intenção permanentemente instaurada: o bem-querer por si, o desejo de si. O movimento primeiro é a intenção, e essa intenção já é o próprio ente desejado e formalizado. Temos aqui a definição mais profunda do Ser: o querer inefável.
 
 Inferimos, assim, que a substância do Ser emana diretamente do princípio autocausal. A ação não atua sobre uma "coisa", pois não há nada a ser movido, nem gera um "agente" separado. O desejo é a ação prévia e simultânea à atividade. O causar-se é validado por essa intencionalidade imanente. O Ser é uma inclinação que se concretiza em si mesma — o amor inefável voltado para a própria plenitude de si mesmo.
 
@@ -658,6 +647,14 @@ Sua intenção, no entanto, se indiferencia consigo, no sentido de que não é a
 Porém, o "se" do "querer-se" — isto é, o auto querer — não é direcional a um agente determinado, de forma a se pensar no Ser como um ente que quer a si mesmo ou deseja a si mesmo. Esse querer do Ser não é direcionado a um ente específico; ele é o próprio querer sem agente. Da mesma forma que o "construir-se" não possui aquilo que se constrói, sendo apenas o próprio ato de construir, o desejo ou intenção não possui "o que" se intenciona: é a própria intenção que se faz seu agente intencionado.
 
 Em outras palavras, não há o ente intencionado externamente ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica com em sua própria intenção. Em suma, há no Ser o puro querer, sem o "se" do querer-se. Em palavras mais simples, o amor do Ser não é amor a si mesmo, ou a um Ser externo a si, mas é um amor em doação. 
+
+
+
+
+
+
+
+
 
 
 
