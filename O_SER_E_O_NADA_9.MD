@@ -623,6 +623,8 @@ O movimento do Ser não é a produção de si mesmo, no sentido de que não exis
 
 Sua ação não é uma auto determinação de si, pois tal ação exigiria ser feita a nível de escolha, isto é, a nível determinístico. E toda escolha dada escolhida, exige um ato prévio de seleção dentre escolhas possíveis. Desta forma, concluímos que o Ser não é autodeterminado, mas puramente auto causal. E que sua substancia é puramente Ser, e o que se entende por Ser se define de forma melhor ao deslindarmos as características inerentes ao verbo.
 
+> O Ser é vida. Não o vivente, mas a vida do vivente. 
+
 **2. A Autopresença e a Intencionalidade Imanente**
 Tratando-se de um agente que causa a si mesmo, não lidamos com um vazio ontológico, mas com aquilo que, inicialmente, podemos conceber como o desejo ou a vontade do agente.
 
