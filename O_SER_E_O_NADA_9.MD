@@ -863,8 +863,9 @@ A palavra Ser, portanto, também denota o existente tendo como forma o próprio 
 O Ser é uma palavra que tenta representar essa união. Porém, como signo mental, ainda denota uma tentativa de reunir, em um som ou em uma imagem mental, dois significados. Deve haver, portanto, um processo pelo qual não seja necessário unir duas coisas em uma, ainda que continuemos imaginando duas coisas unidas. Deve haver uma palavra que designe uma coisa só, sem que sequer precisemos pensar que havia duas coisas separadas que posteriormente se uniram.
 
 ### 5. O Amor como Ato Fundante Sem Sujeito/Objeto
-
-Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se sem o "se", por não produzir um produto distinto de si, tem como produto mais imediato o próprio querer-se (sem o objeto que se quer), a intenção sem o ente cristalizado exterior à própria intenção.
+revisar parte errada - não se deve reduzir o Ser a sua intencionalidade
+=========
+Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se sem o "se", por não produzir um produto distinto de si, tem como caracteristica mais imediata o próprio querer-se (sem o objeto que se quer), a intenção sem o ente cristalizado exterior à própria intenção.
 
 O auto causar, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
 
@@ -880,7 +881,7 @@ Ao afirmarmos simplesmente que **o Ser é amor**, compreendendo esse amor no sen
 
 O amor é querer; e, sendo querer, é também pessoalidade. Assim, a noção de amor nos oferece uma maneira de conceber uma realidade que não apenas **age sobre si mesma**, mas que **é, em sua própria realidade, o agente, o ato e o querer**. É nessa direção que a unidade procurada pela investigação metafísica encontra sua expressão mais radical.
 
-
+================
 
 
 
