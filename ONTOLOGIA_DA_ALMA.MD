@@ -241,7 +241,7 @@ Há, porém, uma camada intermediária, que é a alma que se faz indiferente, ma
 
 
 
-
+Sentimento são passageiros, não definem exatamente a alma. A alma é uma vida em pertencimento a si mesma. E que pode se apropriar de si, sendo viva em verdade.
 
 
 
