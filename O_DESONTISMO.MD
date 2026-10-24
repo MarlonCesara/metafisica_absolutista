@@ -5006,3 +5006,14 @@ O desontista, portanto, deposita no governo e na sociedade a responsabilidade po
 
 Quando o desontista contempla um mundo de justiça e paz, essa realidade colide com sua imagem interior e com seu propósito de autoanulação, fazendo-o experimentar a sensação do absurdo. Por isso, um cenário de desigualdade e sofrimento, desprovido de naturezas, torna-se mais confortável para que o desontista suporte a própria visão interior. Nesse sentido, o voto representa uma tentativa de aliviar suas pressões subjetivas. O desontista, portanto, coloca sua postura espiritual à frente de suas aspirações políticas, fazendo de seu voto a expressão de sua própria catástrofe subjetiva.
 
+
+
+
+
+
+
+O desontista, quando aparentemente consegue disfarçar seus sintomas, pode apresentar ataques súbitos de violência, que se manifestam socialmente por meio de ofensas inesperadas, roubos, contravenções diversas e outros comportamentos socialmente desajustados, inclusive pelo voto em pessoas que corroboram com a destruição das coisas belas.
+
+Para o desontista, os bens naturais que revelam o sentido da vida, as coisas belas e a paz social conferem sentido à existência e, por isso, entram em desacordo com sua própria postura interior. O desontista se pergunta: como posso negar tamanha beleza? Como posso me declarar niilista diante de tanto sentido? Então, uma sensação de desespero o acomete enquanto experimenta o absurdo de sua própria decisão diante do sentido da vida e da beleza que se desvela.
+
+O desontismo também pode se ocultar por trás de grupos religiosos que se fecham em círculos de distinção, nos quais determinados indivíduos se consideram superiores aos demais em um contexto específico. Por exemplo, em um grupo de jovens, pode haver um círculo seleto que se julga mais agraciado, mais dotado de dons e privilegiado por visões divinas. Seus integrantes excluem os demais e formam uma elite dentro da própria igreja, considerando-se em um patamar superior e reivindicando privilégios divinos. Esses grupos de leigos, portanto, podem apresentar maior propensão ao desontismo, na medida em que não buscam propriamente a religião, mas um lugar de destaque dentro dela. Não buscam a vivência religiosa em si, mas o reconhecimento, a distinção e a constituição de uma elite religiosa.
