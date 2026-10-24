@@ -596,7 +596,6 @@ O auto causar já subentende o Ser, já é um verbo. O auto causar já existe, a
 
 O Ser é o existir sendo identificado por sua própria qualidade de existir. Se toda a determinação é um ato ou escolha, portanto, para o Ser, este ato já é unido ao fundamento, de forma a não precisar ter acontecido ou se realizado antes de si mesmo, tornando o Ser passível da incausalidade. 
 
-
 O auto causar, significa, auto fazer-se, auto existir, no sentido de existir por si mesmo, sem dependência de outra força. O auto causar é o Ser se reafirmando por si mesmo no contexto absoluto. A palavra Ser, afirma como indiferencialdo, ao passo que o auto causar, afirma como indifenciado e Absoluto.
 
 O auto causar, portanto, é idêntico ao Ser, no entanto, o termo ''auto causar'', refere ao Ser, não somente sendo a pureza, mas sendo a pureza Absoluta, aquela que não é causada, a pureza que não é somente indiferenciada, mas consciente de si, causadora de si, potente de si e presente em si.
@@ -618,10 +617,12 @@ A auto causalidade faz com que o Ser se execute como Ser em razão Absoluta, ou 
 Uma vez que não há espaço externo ou matéria prévia para sofrer o impacto de uma ação física, essa autocausalidade não pode ser compreendida sob a categoria de "movimento". O movimento pressupõe determinação temporal e dimensional — a transição de uma potência para um ato em um meio preexistente. No Absoluto, não há o que ser movido. A ação primordial não se concretiza como um acidente (uma alteração) num substrato anterior.
 
 Sob a ótica determinista, a ação é vista como um movimento acionado por um fator externo (como a força que arremessa um objeto). A autoação poderia ser erroneamente imaginada como um movimento físico que se inicia sem causa mecânica. Contudo, no Absoluto, o "movimento" não pode ser físico. Qualquer movimento produz oscilações e altera o estado indiferenciado anterior. O movimento do Ser, portanto, deve ser puro: não move algo fora de si e não produz mutação em si. Em síntese, não é um movimento espacial ou físico, mas a afirmação perene de sua própria realidade indiferenciada.
-corrija pt
+
 O movimento do Ser não é a produção de si mesmo, no sentido de que não existia antes e passou a existir, não é a determinação de si próprio, não é uma auto escolha considerando que não existia antes. O movimento do Ser, a ação pura, é o seu próprio ato de existir, e não o ato de produzir a si mesmo considerando-se ainda não existente. Isto é, a ação do Ser é sua própria identidade fundida a seu fundamento, sua ação é Ser, é existir. 
 
 Sua ação não é uma auto determinação de si, pois tal ação exigiria ser feita a nível de escolha, isto é, a nível determinístico. E toda escolha dada escolhida, exige um ato prévio de seleção dentre escolhas possíveis. Desta forma, concluímos que o Ser não é autodeterminado, mas puramente auto causal. E que sua substancia é puramente Ser, e o que se entende por Ser se define de forma melhor ao deslindarmos as características inerentes ao verbo.
+
+O ato do Ser é o ato de sua identidade fundida a sua fundamentação. Aquele que se identifica como existir do existente, é, portanto o ato de se identificar como existir ao passo que é o fundamento. A identidade do Ser é o existir do existente. E essa identidade é ato, é ato realizado em sua fundamentação, é ato realizado de Ser.
 
 > O Ser é vida. Não o vivente, mas a vida do vivente. 
 
@@ -651,7 +652,8 @@ Porém, o "se" do "querer-se" — isto é, o auto querer — não é direcional 
 Em outras palavras, não há o ente intencionado externamente ou o ente que quer a si mesmo. Há apenas o querer ou a intenção, de forma que o inefável seja a construção que se qualifica com em sua própria intenção. Em suma, há no Ser o puro querer, sem o "se" do querer-se. Em palavras mais simples, o amor do Ser não é amor a si mesmo, ou a um Ser externo a si, mas é um amor em doação. 
 
 
-
+O bem e o amor é a propria manifestação da vida nao uma ativiade extrinseca ou uma propriedade ou dom desenvolvido ou desempenhado
+O ser que envolve o querer-se Ser, o direcionamento a vida já é o amor e o bem. A própria estabilidade, ou manutenção do Ser como Ser é o Bem. O direcionamento do Ser ao Ser, a liberdade exercida de simplesmente Ser já é o bem. O bem, portanto, não é uma propriedade externa ao Ser, mas é a intenção pela qual ele se realiza e já se dá realizado.
 
 
 
