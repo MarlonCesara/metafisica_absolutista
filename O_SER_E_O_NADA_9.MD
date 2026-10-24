@@ -610,6 +610,10 @@ E, desta forma, é possível a inferencia de outras propriedades do Ser, pois se
 
 A auto causalidade faz com que o Ser se execute como Ser em razão Absoluta, ou seja, em razão exclusiva de si mesmo. Sendo está razão exclusiva do Ser, isto é, atribuindo ao Ser a soberania Absoluta do ato causal, temos que, o Ser herda a responsabilidade de Ser, e desta responsabilidade inferimos suas atribuições. O Ser, portanto, se afirma o fundamento, se afirma em plenitude de Ser, e se afirma totalmente livre em seu sentido já realizado de Ser. Se há o sentido obrigatório de Ser, como veremos a seguir, essa afirmação não é mecanica, mas é o Ser em perfeição, o Ser que é necessariamente obstinado ao Ser, no sentido de imutável.
 
+O auto causar, não é uma determinada realidade que causa a si mesma e nem poderia ser, caso contrário, se fosse determinada, necessitaria ser anterior a si mesma. O auto causar, também não dispõe de qualquer substancia que não seja seu próprio ato auto causal. Auto causar, é auto Ser, auto construir-se em seu próprio ato auto causal. O auto causar é o seu próprio verbo. Tudo aquilo que se faz a si mesmo, é necessariamente o ato de fazer-se. Portanto, o Ser e o auto causal são conceitos semelhantes, porém, o auto causar denota o Ser agregado de sua explicação de autonomia ontológica.
+
+
+
 
 ### A Qualidade da Ação do Ser como Presença Operante 
 
