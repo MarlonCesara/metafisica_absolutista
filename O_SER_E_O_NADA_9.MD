@@ -612,7 +612,9 @@ A auto causalidade faz com que o Ser se execute como Ser em razão Absoluta, ou 
 
 O auto causar, não é uma determinada realidade que causa a si mesma e nem poderia ser, caso contrário, se fosse determinada, necessitaria ser anterior a si mesma. O auto causar, também não dispõe de qualquer substancia que não seja seu próprio ato auto causal. Auto causar, é auto Ser, auto construir-se em seu próprio ato auto causal. O auto causar é o seu próprio verbo. Tudo aquilo que se faz a si mesmo, é necessariamente o ato de fazer-se. Portanto, o Ser e o auto causal são conceitos semelhantes, porém, o auto causar denota o Ser agregado de sua explicação de autonomia ontológica.
 
+Se definíssemos o auto causado como realidade, essa seria determinada. Portanto, ao definir o ato causal, como a substancia inefável, temos, portanto, o ato unido ao seu próprio fundamento, temos, portanto, uma via para inferir o Ser. O que se sucede o auto causar, é Ser, no sentido que o auto causar é ato, e é o fundamento do ato. Da mesma forma, o Ser é ato e fundamento do ato. A substancia do auto causar é puríssima, no sentido de que, o auto causar é indiscernível do Ser. Investigando o conceito de Ser, se investiga o conceito de auto causar.
 
+Para aproximar a mentalização desta assertiva, podemos montar o seguinte cenário. O nada não existe, mas imagine que existisse. Este nada seria auto causal. Porém, como nada é nada, não haveria o causado, pois o causado seria o nada. Não havendo o causado haveria o causar. E o causar substituiria o causado sendo a si mesmo seu próprio produto construído. Temos, portanto, a imagem formalizada do auto causar usando de aparato mental somente para visualização a realidade impossível de um nada existente. O auto causar impera sob si mesmo, e não sob uma realidade externa a si mesmo ou sobre o nada. O auto auto causar se realiza em seu próprio sentido.
 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
