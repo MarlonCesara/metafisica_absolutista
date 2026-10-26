@@ -617,6 +617,11 @@ Se definíssemos o auto causado como realidade, essa seria determinada. Portanto
 
 Para aproximar a mentalização desta assertiva, podemos montar o seguinte cenário. O nada não existe, mas imagine que existisse. Este nada seria auto causal. Porém, como nada é nada, não haveria o causado, pois o causado seria o nada. Não havendo o causado haveria o causar. E o causar substituiria o causado sendo a si mesmo seu próprio produto construído. Temos, portanto, a imagem formalizada do auto causar usando de aparato mental somente para visualização a realidade impossível de um nada existente. O auto causar impera sob si mesmo, e não sob uma realidade externa a si mesmo ou sobre o nada. O auto auto causar se realiza em seu próprio sentido.
 
+### **4. A substancia do auto causar**
+
+Ao pensarmos em nível Absoluto, sendo o absoluto aquele sem causa anterior, externa ou motivo pelo qual deva ser como tal se não em si mesmo. Não devemos pensar num ente determinado, caso contrário não pensamos no incausado. Pois, toda determinação exige o determinador que a antecede. Portanto, o definirmos o absoluto pela sua via positiva, o auto causal. E não pela sua via negativa que é o incausado. Temos que pensar no absoluto sem antecessores a si, e isso implica em pensa-lo de forma indeterminada. Isto faz com que não pensemos no Absoluto como auto causado, mas como o auto causar. Como o causar que se identifica pelo seu próprio ato. Temos, portanto, uma substancia comum que unifica o conceito de Ser e o auto causar. 
+
+> O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
 
