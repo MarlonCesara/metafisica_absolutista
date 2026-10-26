@@ -621,6 +621,11 @@ Para aproximar a mentalização desta assertiva, podemos montar o seguinte cená
 
 Ao pensarmos em nível Absoluto, sendo o absoluto aquele sem causa anterior, externa ou motivo pelo qual deva ser como tal se não em si mesmo. Não devemos pensar num ente determinado, caso contrário não pensamos no incausado. Pois, toda determinação exige o determinador que a antecede. Portanto, o definirmos o absoluto pela sua via positiva, o auto causal. E não pela sua via negativa que é o incausado. Temos que pensar no absoluto sem antecessores a si, e isso implica em pensa-lo de forma indeterminada. Isto faz com que não pensemos no Absoluto como auto causado, mas como o auto causar. Como o causar que se identifica pelo seu próprio ato. Temos, portanto, uma substancia comum que unifica o conceito de Ser e o auto causar. O Ser necessariamente é auto causar, pois é Absoluto. O auto causar, portanto, é o Ser Absoluto.
 
+O Ser, designa o ente em processo de si mesmo, ao passo que designa também o Ser totalizado, consumado. Pois o Ser ao passo que é sua construção, é a si. Ao passo que há o ato da determinação, a o ente fundamentado como tal. Portanto, há a atualização incessante, e a consumação em um só processo. O Ser é, ao passo que se faz. O auto causar, por sua vez, se faz, ao passo que é.
+
+O Ser é em ato, porque a determinação é uma ato. Ao passo que a fundamentação é o ser consolidado. Ambas as realidades em fusão, se dá uma realidade fundamentada, ao passo que essa fundamentação é pura atualidade. Essa bivalência será investigada mais adiante, definiremos, dentro dessa ambivalência a temporalidade e atemporalidade do Espírito.
+
+
 > O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
 
 ### A Qualidade da Ação do Ser como Presença Operante 
