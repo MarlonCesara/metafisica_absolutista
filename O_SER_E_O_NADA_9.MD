@@ -625,6 +625,8 @@ O Ser, designa o ente em processo de si mesmo, ao passo que designa também o Se
 
 O Ser é em ato, porque a determinação é uma ato. Ao passo que a fundamentação é o ser consolidado. Ambas as realidades em fusão, se dá uma realidade fundamentada, ao passo que essa fundamentação é pura atualidade. Essa bivalência será investigada mais adiante, definiremos, dentro dessa ambivalência a temporalidade e atemporalidade do Espírito.
 
+Há o auto determinístico, unido, ao ente cristalizado, que é o fundamento. Há, portanto, há a realidade em eterna atualidade, e a realidade consumada. Da mesma forma que há, o ato determinístico fundido ao ato concretizado que é o fundamento. Portanto, isto necessariamente resulta numa atualidade devido ao ato da identidade, e uma consumação devido ao ato fundamentador. Ao analisarmos a consumação em uma escala temporal, temos o ato de Ser em finalização, no sentido de totalmente consumado. Ao passo que temos o ato em eterna atualização. 
+
 
 > O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
 
