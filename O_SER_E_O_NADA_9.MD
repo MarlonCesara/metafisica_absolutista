@@ -386,6 +386,7 @@ Ao se conceber o incausado como determinado, incorre-se em uma contradição ont
 
 Para compreender melhor o conceito de Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
 
+Em palavras mais simples, podemos definir o determinado como realidade dependente de escolha e não somente de si mesma. Já o indeterminado não depende de uma escolha para que seja realidade, é uma realidade cuja identidade já é o próprio fundamento. O indeterminado não está entre mais opções possíveis, pois sua identidade é unida ao seu ato de ser, portanto, o indeterminado é seu próprio Ser. Numa realidade absoluta não há uma escolha entre opções, mas há o próprio determinar fundido ao fundamento. Portanto, a ação determinadora é dispensada e a realidade que é seu próprio existir, que tem a ação determinística em seu próprio fundamento, torna-se soberana. A realidade indeterminada, dispensa, portanto, uma ação exterior ou anterior de determinação, não depende de fator externo ou anterior para existir, pois realiza-se independente de determinação. Seu existir é identico a si mesmo, ou seja, quando o existir é a própria identidade do que existe, temos o indeterminado.
 
 
 
