@@ -5017,3 +5017,17 @@ O desontista, quando aparentemente consegue disfarçar seus sintomas, pode apres
 Para o desontista, os bens naturais que revelam o sentido da vida, as coisas belas e a paz social conferem sentido à existência e, por isso, entram em desacordo com sua própria postura interior. O desontista se pergunta: como posso negar tamanha beleza? Como posso me declarar niilista diante de tanto sentido? Então, uma sensação de desespero o acomete enquanto experimenta o absurdo de sua própria decisão diante do sentido da vida e da beleza que se desvela.
 
 O desontismo também pode se ocultar por trás de grupos religiosos que se fecham em círculos de distinção, nos quais determinados indivíduos se consideram superiores aos demais em um contexto específico. Por exemplo, em um grupo de jovens, pode haver um círculo seleto que se julga mais agraciado, mais dotado de dons e privilegiado por visões divinas. Seus integrantes excluem os demais e formam uma elite dentro da própria igreja, considerando-se em um patamar superior e reivindicando privilégios divinos. Esses grupos de leigos, portanto, podem apresentar maior propensão ao desontismo, na medida em que não buscam propriamente a religião, mas um lugar de destaque dentro dela. Não buscam a vivência religiosa em si, mas o reconhecimento, a distinção e a constituição de uma elite religiosa.
+
+
+
+
+
+
+
+O oligarca desontista não deseja apenas o acúmulo de riquezas, nem se limita a fazer da própria destruição política uma estratégia de negócio. Ele deseja a paralisia do povo; objetiva provocar um vazio de esperança no povo que de certa forma, pensa se igualar ao seu próprio vazio existencial. Busca impedir a manifestação da liberdade e expressar sua própria paralisia interior por meio do boicote à liberdade alheia.
+
+Para alcançar seus objetivos, o desontista recorre à desonestidade intelectual, torna-se um mentiroso mordaz e utiliza toda sorte de artifícios. Distorce a própria natureza humana a tal ponto que chega a se forçar a acreditar nas próprias mentiras.
+
+O oligarca desontista não busca, em última instância, o lucro em si, pois não há verdadeiro proveito na destruição dos bens naturais, dos quais nem mesmo ele poderá desfrutar caso sejam destruídos. Seu objetivo último não é o lucro, mas a destruição. Se sua motivação fosse genuinamente o ganho material, o oligarca desontista encontraria satisfação em suas posses, em vez de continuar acumulando riquezas até o ponto de comprometer a própria existência do mundo que lhe permite usufruí-las.
+
+A busca do desontista é, portanto, uma busca por sentido: nasce da rebeldia do próprio corpo diante de uma postura tão funesta da alma. Incapaz de encontrar conciliação entre sua existência e sua disposição interior, ele converte a destruição em finalidade, como se pudesse, por meio dela, dar expressão à própria condição existencial.
