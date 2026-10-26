@@ -5031,3 +5031,21 @@ Para alcançar seus objetivos, o desontista recorre à desonestidade intelectual
 O oligarca desontista não busca, em última instância, o lucro em si, pois não há verdadeiro proveito na destruição dos bens naturais, dos quais nem mesmo ele poderá desfrutar caso sejam destruídos. Seu objetivo último não é o lucro, mas a destruição. Se sua motivação fosse genuinamente o ganho material, o oligarca desontista encontraria satisfação em suas posses, em vez de continuar acumulando riquezas até o ponto de comprometer a própria existência do mundo que lhe permite usufruí-las.
 
 A busca do desontista é, portanto, uma busca por sentido: nasce da rebeldia do próprio corpo diante de uma postura tão funesta da alma. Incapaz de encontrar conciliação entre sua existência e sua disposição interior, ele converte a destruição em finalidade, como se pudesse, por meio dela, dar expressão à própria condição existencial.
+
+
+
+
+
+
+
+
+O desontista possui um orgulho desmedido: julga que nada é suficiente para si e almeja chantagear Deus, exigindo, em última instância, a suspensão das leis naturais para que possa obter sempre mais. Não se contenta com os frutos do próprio trabalho, pois seu despropósito o impede de sentir gratidão e de encontrar satisfação naquilo que conquista. Há nele uma contrariedade interior diante da possibilidade de aceitar o que lhe é oferecido. Não abre mão de querer sempre mais, ainda que esse desejo o conduza à própria destruição. Sua ausência de gratidão é tão profunda que o torna orgulhoso a ponto de rejeitar até mesmo o paraíso, quando este lhe é oferecido, e de recusar a própria liberdade, preferindo aprisionar-se em troca de qualquer promessa de superioridade.
+
+
+
+
+
+
+O desontismo tem seus sintomas amortecidos na maioria dos indivíduos. Os mais sensíveis manifestam-no de maneira explícita e violenta, enquanto os menos sensíveis quase conseguem mascará-lo por meio de comportamentos sutis, como um orgulho desleal que os leva a eleger líderes opressores em troca de promessas de superioridade social. Há, ainda, indivíduos que afirmam que tudo é pouco, que os frutos do trabalho não passam de migalhas e que estão sempre desmerecendo aquilo que conquistam, enquanto procuram obter vantagens em todas as situações. São atitudes que se ocultam por trás de uma aparente falta de autoestima ou de uma tola mania de se julgarem à frente dos demais nos cenários sociais. Tais comportamentos, contudo, podem ocultar manifestações do desontismo.
+
+
