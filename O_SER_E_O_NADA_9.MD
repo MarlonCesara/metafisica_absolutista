@@ -627,6 +627,17 @@ O Ser é em ato, porque a determinação é uma ato. Ao passo que a fundamentaç
 
 Há o auto determinístico, unido, ao ente cristalizado, que é o fundamento. Há, portanto, há a realidade em eterna atualidade, e a realidade consumada. Da mesma forma que há, o ato determinístico fundido ao ato concretizado que é o fundamento. Portanto, isto necessariamente resulta numa atualidade devido ao ato da identidade, e uma consumação devido ao ato fundamentador. Ao analisarmos a consumação em uma escala temporal, temos o ato de Ser em finalização, no sentido de totalmente consumado. Ao passo que temos o ato em eterna atualização. 
 
+nova parte
+==========
+
+
+Ao nos perguntarmos o que causa o Ser, ou o Ser é de que origem? Temos que o Ser é ser de si mesmo. No sentido de que o Ser é auto causal. O Ser é aquilo que existe e se faz, porém, não só se faz, mas se faz em si mesmo. Temos, portanto o Ser auto causal. O Ser auto causal é o Ser considerado Absoluto.
+
+Temos que, o Ser, como Absoluto, não pode ser qualquer Ser. O Ser, indica, a existência fundida a identidade. Mas a existência fundida a identidade de forma que essa fusão represente o incausado, ou o Absoluto. O Ser, portanto, é uma propriedade do auto causal. A qual demonstra que, o produto da causalidade não pode ser cristalizado ou determinado, pois não faria sentido considerar uma existência anterior a primeira causa. Portanto, necessariamente, essa primeira causa é Ser, no sentido de que não é determinada, mas não ainda no sentido de Absoluta. Porém, se o Ser necessariamente é dado pelo auto causar, temos que, o auto causar é Ser, mas é Ser em evidencia de si como causa de si.
+
+
+
+=============
 
 > O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
 
