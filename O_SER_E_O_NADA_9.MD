@@ -642,7 +642,9 @@ Através do Ser inferimos uma existência puríssima que justifica uma existênc
 
 O auto causar, é o construir de algo, e este algo necessariamente existe. O construir existe, apesar de não existir o construido em si, mas o construir já é o próprio constrido. O fazer, construir existe. Notoriamente, o construir-se, fazer-se, causar-se remete a algo que existe, pois o construir existe. Se existe, deduzimos que esse existir é Ser, no sentido que sua identidade necessariamente é fundida ao seu ato.
 
+O auto causar é o processo de construção do que existe finalizado em seu próprio processo. O construir existe, e existe indeterminado, e o construir indeterminado é necessariamente o Ser. A palavra Ser, portanto, e o resultado auto causal, sem que ainda seja considerado Absoluto. Isto é, o Ser é uma descrição isolada da liberdade. Ao adicionarmos o teor absoluto ao Ser, temos o auto causar. E, adicionando o teor da liberdade ao Ser o inferindo através do auto causar, podemos encontrar as demais propriedades do Ser, tal como intencionalidade.
 
+O Ser é Ser, mas não se explica por si só porque é Ser, explica sua natureza pura, mas não o processo libertário da constituição dessa natureza pura, e o auto causar o explica.
 
 =============
 
