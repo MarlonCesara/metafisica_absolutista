@@ -883,28 +883,11 @@ Dessa forma, o termo mais direto seria Ser, pois ele designa as duas realidades 
 
 A palavra Ser, portanto, também denota o existente tendo como forma o próprio existir. Isto é, a identidade é o existir, e o fundamento também é o existir. Algo é identificado por existir e é fundamentado pela mesma identificação. Ainda assim, temos o Ser como uma palavra dotada de dois significados que se fundam em uma só palavra. A palavra Ser denota, para o nosso pensamento, a forma e a fundamentação conjuntamente, mas ainda não conseguimos conceber uma palavra que não nos faça pensar na união de duas coisas, e sim em uma única coisa, uma essência que não comporte qualquer dualidade.
 
-O Ser é uma palavra que tenta representar essa união. Porém, como signo mental, ainda denota uma tentativa de reunir, em um som ou em uma imagem mental, dois significados. Deve haver, portanto, um processo pelo qual não seja necessário unir duas coisas em uma, ainda que continuemos imaginando duas coisas unidas. Deve haver uma palavra que designe uma coisa só, sem que sequer precisemos pensar que havia duas coisas separadas que posteriormente se uniram.
 
-### 5. O Amor como Ato Fundante Sem Sujeito/Objeto
-revisar parte errada - não se deve reduzir o Ser a sua intencionalidade
-=========
-Essa palavra poderia ser amor: um sentimento qualitativo de querer. Esse sentimento representa uma unicidade sem que nos remeta, no próprio pensamento, a uma dualidade. Ao definirmos o autocausar-se como um ato de autoquerer-se, sem que haja um ente que seja querido, temos um amor doado: um amor dirigido à totalidade. O causar-se sem o "se", por não produzir um produto distinto de si, tem como caracteristica mais imediata o próprio querer-se (sem o objeto que se quer), a intenção sem o ente cristalizado exterior à própria intenção.
 
-O auto causar, enquanto ato, não possui um produto distinto de si; e, se não possui um produto causado, possui somente o próprio processo de produção desse produto. Entretanto, essa linguagem, ao definir o inefável como um processo de construção que é simultaneamente o próprio construído, ainda designa o ato de construir como algo que parece necessitar de um construtor. Isto é, ainda não conseguimos mentalizar uma ação sem agente, de modo a imaginar o agente como sendo a própria ação. Temos, portanto, que considerar que a ação, em sua realidade fundamental, é o próprio querer.
 
-Em nível metafísico, não é necessária uma ação exercida sobre um objeto, pois não há transformação de um objeto. Não há ação sobre algo. Há ação pura. Essa ação não é o movimento de um membro, mas o movimento do querer. Se fosse o movimento de algo, existiria não a criação a partir do nada, mas a transformação do nada em algo. Portanto, trata-se de um movimento do querer. Sendo o movimento do querer, temos que a identidade do querer, concomitantemente à sua própria ação, deveria inevitavelmente chamar-se amor.
 
-O amor é a intenção, o querer, que não necessita de um mediador entre o querer e aquilo que é querido para ser compreendido. O amor designa simultaneamente a qualidade e o sujeito da qualidade, executando uma operação inversa àquela realizada pela palavra Ser. Na palavra amor, podemos identificar o autor da ação de querer junto à própria ação. O amor, visto como pessoa, é também fundamento. Dessa forma, "o Amor" não é um conceito que designa uma dualidade fundida, mas um conceito do qual uma dualidade pode ser extraída mediante a distinção de uma pessoa.
 
-Em termos mais claros, quando imaginamos o autocausar-se, temos em nossa mente a tentativa de unir a ação ao próprio agente. Entretanto, ainda não concebemos essa união de maneira verdadeiramente indiferenciada. O próprio conceito de **Ser**, embora procure nos remeter à ideia de uma realidade pura e fundamental, ainda nos conduz à representação de uma ação que se refere a um agente, fazendo com que mentalizemos, inevitavelmente, uma certa dualidade entre aquele que age e aquilo que é produzido por sua ação.
-
-Por isso, parece-nos quase inimaginável conceber uma realidade que, ao mesmo tempo, **é aquilo que constrói, é o próprio ato de construir e é o querer pelo qual se constrói**. É precisamente nesse ponto que a noção de **amor** oferece uma via de compreensão particularmente significativa.
-
-Ao afirmarmos simplesmente que **o Ser é amor**, compreendendo esse amor no sentido de *ágape*, ainda não dispomos de um conceito cujas características metafísicas possamos explorar plenamente. Trata-se, nesse momento, de uma intuição fundamental, cujo significado mais preciso somente poderá ser alcançada ao término da investigação metafísica. Contudo, esse conceito nos permite vislumbrar uma realidade na qual não há separação entre aquele que age e o próprio ato pelo qual a realidade se constitui.
-
-O amor é querer; e, sendo querer, é também pessoalidade. Assim, a noção de amor nos oferece uma maneira de conceber uma realidade que não apenas **age sobre si mesma**, mas que **é, em sua própria realidade, o agente, o ato e o querer**. É nessa direção que a unidade procurada pela investigação metafísica encontra sua expressão mais radical.
-
-================
 
 
 
