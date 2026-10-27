@@ -725,7 +725,23 @@ Para aproximar a mentalização desta assertiva, podemos montar o seguinte cená
 
 ---
 
+### 8. A libertação do Ser e a autocausalidade
 
+Ao nos perguntarmos o que causa o Ser ou de que origem ele procede, chegamos à concepção de que o Ser é de si mesmo, no sentido de que é autocausal. O Ser é aquilo que existe e se faz; porém, não apenas se faz, como também se faz em si mesmo. Temos, portanto, o Ser autocausal. O Ser autocausal é o Ser considerado em sua dimensão absoluta.
+
+O Ser, enquanto Absoluto, não pode ser um ser qualquer. O Ser designa a existência fundida à identidade, de tal modo que essa fusão represente o incausado, isto é, o Absoluto. O Ser é, portanto, uma propriedade do autocausal, pela qual se evidencia que o produto da causalidade não pode ser cristalizado ou determinado, pois não faria sentido pressupor uma existência anterior à primeira causa. Assim, necessariamente, essa primeira causa é Ser, no sentido de que não é determinada, embora ainda não seja considerada Absoluta. Entretanto, se o Ser necessariamente se manifesta pelo autocausar-se, temos que o autocausar é Ser, mas Ser enquanto evidência de si mesmo como causa de si.
+
+O autocausar não possui o causado como algo distinto de si; por isso, o ato causal é considerado seu próprio fundamento. Ao identificarmos o autocausar-se com o Ser, encontramos um atributo que está implícito na própria palavra *Ser*. O Ser causa a si mesmo: não é um existir indiferente, mas um existir que se afirma, que se faz em razão de si, que é livre para si e que não apenas é, mas é conforme a si mesmo.
+
+Por meio do Ser, inferimos uma existência puríssima, capaz de fundamentar uma existência inefável: uma existência sem acidentes, sem diferenças, considerada em sua pureza absoluta. Contudo, somente pela noção de Ser não justificamos uma existência livre, que se afirma existente, plena e personalizante. O Ser não é simplesmente ser de maneira mecânica; é ser por autocausalidade.
+
+O autocausar é o ato de construir algo, sendo que esse algo necessariamente existe enquanto construção. O construir existe, ainda que aquilo que é construído não exista como produto distinto do próprio ato. A construção, enquanto ato, já constitui aquilo que se constrói. O fazer, o construir, existe. Desse modo, o construir-se, o fazer-se e o causar-se remetem necessariamente a algo que existe, pois o próprio ato de construir possui existência. Se existe, deduzimos que esse existir é Ser, no sentido de que sua identidade está necessariamente fundida ao seu próprio ato.
+
+A autocausalidade é o processo de constituição daquilo que existe, cujo resultado não se separa do próprio processo constitutivo. O construir existe e existe de maneira indeterminada; esse construir indeterminado é, necessariamente, o Ser. A palavra *Ser* designa, portanto, o resultado autocausal, ainda que ele não seja considerado, nesse primeiro momento, em sua dimensão absoluta. O Ser, tomado isoladamente, descreve a existência, mas ainda não explicita plenamente sua liberdade. Ao reconhecermos no Ser o caráter absoluto, chegamos à autocausalidade. E, ao reconhecermos a liberdade do Ser a partir da autocausalidade, podemos inferir outras de suas propriedades, como a intencionalidade.
+
+O Ser é Ser, mas sua simples afirmação não explica, por si só, como ele é Ser. Ela expressa sua natureza pura, mas não esclarece o processo libertário pelo qual essa natureza se constitui. É a autocausalidade que, nesta concepção, permite compreender esse processo. O Ser não é apenas Ser, mas Ser por si mesmo. Ao ser por si mesmo, deixa de ser concebido como mera existência estática ou atividade mecânica e passa a ser compreendido como autocausalidade: uma atividade viva e livre.
+
+O Ser autocausal é, portanto, o Ser que se afirma, e não apenas o Ser que está. É o Ser que exerce a si mesmo e cuja liberdade se manifesta nesse próprio exercício. Sua existência não consiste somente em estar presente, mas em constituir-se a partir de si, afirmando a própria identidade no ato de existir. A libertação do Ser consiste, assim, em compreendê-lo não como uma existência passivamente dada, mas como uma existência que, sendo causa de si mesma, encontra em si o fundamento de seu próprio exercício.
 
 
 
@@ -1532,6 +1548,11 @@ A não contingência não é um fator que sistematize o absoluto de forma a lhe 
 
 
 
+
+
+
+
+
 ## Capítulo 2. A Estrutura da Autocausalidade e as Três Dimensões da Ação do Espírito
 
 ### 1. Primeira Formulação: As Três Dimensões da Ação do Espírito
@@ -1817,6 +1838,30 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 > Enquanto o Espírito da plenitude age sobre todas as coisas, Jesus agia no humano individual ou para onde sua personalidade o inspirava. Enquanto o Espírito plenificador está com todos, Jesus escolhia com quem estar, de acordo com as tendências de sua personalidade — ora gostaria de estar com sua mãe, ora com um amigo, e por vezes no templo.
 
 ---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # LIVRO V: A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO E A GÊNESE DA CRIAÇÃO
 
@@ -2220,6 +2265,43 @@ O tempo do Espírito é não linear. A linearidade, em si mesma, ocorre sem que 
 A autocausalidade a nível Absoluto revela uma estrutura dinâmica única: **uma causalidade que opera simultaneamente nos planos temporal e atemporal**. Esta dualidade não é contraditória, mas complementar, manifestando a plenitude do Espírito como fundamento último da realidade. O Espírito, sendo a infinitude manifesta, é naturalmente atemporal e temporal. Está em todo o tempo de si como Espírito consumado, e flui neste mesmo Espírito através de sua atualização.
 
 ---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # LIVRO VI: COSMOLOGIA E ÉTICA METAFÍSICA (O ABSOLUTO E O MUNDO)
 
