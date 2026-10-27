@@ -647,6 +647,13 @@ O auto causar é o processo de construção do que existe finalizado em seu pró
 
 O Ser é Ser, mas não se explica por si só porque é Ser, explica sua natureza pura, mas não o processo libertário da constituição dessa natureza pura, e o auto causar o explica. O Ser não é apenas Ser, mas é Ser por si mesmo. Ao ser como tal por si mesmo, não é mais simplesmente Ser, uma atividade mecânica, mas é auto causar, uma atividade viva, liberta. O Ser auto causal, é o Ser que se afirma, não somente o Ser que está. É o Ser que exerce a si mesmo e tem liberdade neste exercício. 
 
+O Ser, originalmente, se faz em função de ser um ato deterministico fundido ao seu fundamento. No entanto, se faz de que forma? Está implicito no Ser que se faz. 
+
+===
+O Ser, por si só, necessariamente é auto causal, pois se faz. Porém, a condição de auto causal para o Ser, só é totalmente isolada em si mesma, quando isto torna-se explicito. Isto é, o Ser se faz, mas se faz de forma soberana e sem brechas para outra causalidade se não sua própria quando se define auto causal. Portanto, ao se definir o auto causal, define-se o inicio da cadeia causal, porém, quando se define Ser, define-se auto gerador apenas. O auto causar é o Ser dotado de sua absolutes, e não somente de seu auto processo gerador.
+nova da nova
+===
+
 =============
 
 > O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
