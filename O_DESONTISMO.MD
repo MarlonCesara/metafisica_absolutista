@@ -5049,3 +5049,19 @@ O desontista possui um orgulho desmedido: julga que nada é suficiente para si e
 O desontismo tem seus sintomas amortecidos na maioria dos indivíduos. Os mais sensíveis manifestam-no de maneira explícita e violenta, enquanto os menos sensíveis quase conseguem mascará-lo por meio de comportamentos sutis, como um orgulho desleal que os leva a eleger líderes opressores em troca de promessas de superioridade social. Há, ainda, indivíduos que afirmam que tudo é pouco, que os frutos do trabalho não passam de migalhas e que estão sempre desmerecendo aquilo que conquistam, enquanto procuram obter vantagens em todas as situações. São atitudes que se ocultam por trás de uma aparente falta de autoestima ou de uma tola mania de se julgarem à frente dos demais nos cenários sociais. Tais comportamentos, contudo, podem ocultar manifestações do desontismo.
 
 
+
+
+
+
+
+## Capítulo 3. Patologia Ontológica: O Niilismo, o Desontismo e a Negação do Bem na História
+
+À medida que o poder imperialista cresce — a medida que o mundo permite um só indivíduo ter um trilhão —, maior a força de manipulação política cresce. O niilista quer ver o mundo perder toda a sua alegria, toda a sua liberdade, tirar o brilho de todo olhar; quer ver a terra em chamas, quer fazer um inferno em terra. O niilista vê a alegria social e para ele é insuportável, para ele é uma tortura tempestuosa, e a retaliação por essa mesma tortura ele quer manifestar na sociedade em forma de ditadura, repressão, até mesmo por tortura. O niilista julga estar sendo incomodado, torturado pelo sentido da vida que se esboça em todo lugar através da liberdade, da alegria popular.
+
+Um mundo de justiça, esperança e igualdade provoca o colapso interior do desontistano, ao confrontá-lo com a percepção do absurdo de seu próprio intento. Diante da beleza da vida e da natureza, diante da possibilidade de um paraíso construído na Terra, o desontista envergonha-se de sua própria postura interior e se aterroriza. Ao contemplar um mundo maravilhoso, percebe a incongruência de seu intento e o absurdo de sua própria postura. Nesse momento, seu conflito interior se agrava até se tornar insuportável. Portanto, prefere encontrar uma justificativa para promover o declínio do mundo, e o faz por meio de seu voto.
+
+Quando o grupo de desontistas fez com que Jesus fosse crucificado entre dois ladrões, procurou associá-lo à figura do criminoso, como se pretendesse identificá-lo com aqueles que ocupavam a mesma posição na condenação. A visão de Jesus como Deus encarnado, como expressão do bem e da plenitude do Ser, preenchia a existência de sentido, confrontando diretamente o niilismo no qual os desontistas se encerravam para suportar o próprio desontismo. Jesus confrontava de maneira radical essa disposição interior, provocando um colapso na estrutura sintomática do desontista. Diante disso, procuravam desfigurar o seu sentido, atribuindo-lhe uma identidade que o reduzisse à condição de criminoso.
+
+Essa dinâmica, em nossa interpretação, manifesta-se também nos tempos modernos, quando determinados setores atribuem a pecha de ladrão a políticos de boa índole, inclusive àqueles que promovem ações benéficas à sociedade. Assim, o desontista procuraria desfigurar o sentido daqueles que representam o bem, atribuindo-lhes qualificações negativas que permitam neutralizar o conflito provocado pela sua própria existência. O que se apresenta como acusação pode, nessa perspectiva, ser compreendido como uma tentativa de deslegitimar aquilo que confronta a sua visão interior de mundo.
+
+---
