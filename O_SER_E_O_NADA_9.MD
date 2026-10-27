@@ -638,7 +638,9 @@ Temos que, o Ser, como Absoluto, não pode ser qualquer Ser. O Ser, indica, a ex
 O auto causar, não possui o causado, por isso, se considera o ato causal como seu próprio fundamento. Ao igualarmos auto causar-se como Ser, encontramos um atributo do Ser que está implícito na palavra Ser. O Ser se causa, não é um existir indiferente. Mas é um existir que se afirma, que se faz em razão de si, que é livre para si e não somente é, mas é conforme a si.
 
 
+Através do Ser inferimos uma existência puríssima que justifica uma existência inefável. Uma existência sem acidentes, sem diferenças. Mas somente pelo Ser não justificamos uma existência livre, que se afirma existente, plena e personalizante. O Ser não é ser mecanicamente, é ser auto causal. 
 
+O auto causar, é o construir de algo, e este algo necessariamente existe. O construir existe, apesar de não existir o construido em si, mas o construir já é o próprio constrido. O fazer, construir existe. Notoriamente, o construir-se, fazer-se, causar-se remete a algo que existe, pois o construir existe. Se existe, deduzimos que esse existir é Ser, no sentido que sua identidade necessariamente é fundida ao seu ato.
 
 
 
