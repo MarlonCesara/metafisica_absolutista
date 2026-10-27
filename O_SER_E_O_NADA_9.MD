@@ -635,6 +635,11 @@ Ao nos perguntarmos o que causa o Ser, ou o Ser é de que origem? Temos que o Se
 
 Temos que, o Ser, como Absoluto, não pode ser qualquer Ser. O Ser, indica, a existência fundida a identidade. Mas a existência fundida a identidade de forma que essa fusão represente o incausado, ou o Absoluto. O Ser, portanto, é uma propriedade do auto causal. A qual demonstra que, o produto da causalidade não pode ser cristalizado ou determinado, pois não faria sentido considerar uma existência anterior a primeira causa. Portanto, necessariamente, essa primeira causa é Ser, no sentido de que não é determinada, mas não ainda no sentido de Absoluta. Porém, se o Ser necessariamente é dado pelo auto causar, temos que, o auto causar é Ser, mas é Ser em evidencia de si como causa de si.
 
+O auto causar, não possui o causado, por isso, se considera o ato causal como seu próprio fundamento. Ao igualarmos auto causar-se como Ser, encontramos um atributo do Ser que está implícito na palavra Ser. O Ser se causa, não é um existir indiferente. Mas é um existir que se afirma, que se faz em razão de si, que é livre para si e não somente é, mas é conforme a si.
+
+
+
+
 
 
 =============
