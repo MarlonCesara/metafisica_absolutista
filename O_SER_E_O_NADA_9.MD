@@ -631,12 +631,13 @@ nova parte
 ==========
 
 
+## A libertação do Ser e a auto causalidade
+
 Ao nos perguntarmos o que causa o Ser, ou o Ser é de que origem? Temos que o Ser é ser de si mesmo. No sentido de que o Ser é auto causal. O Ser é aquilo que existe e se faz, porém, não só se faz, mas se faz em si mesmo. Temos, portanto o Ser auto causal. O Ser auto causal é o Ser considerado Absoluto.
 
 Temos que, o Ser, como Absoluto, não pode ser qualquer Ser. O Ser, indica, a existência fundida a identidade. Mas a existência fundida a identidade de forma que essa fusão represente o incausado, ou o Absoluto. O Ser, portanto, é uma propriedade do auto causal. A qual demonstra que, o produto da causalidade não pode ser cristalizado ou determinado, pois não faria sentido considerar uma existência anterior a primeira causa. Portanto, necessariamente, essa primeira causa é Ser, no sentido de que não é determinada, mas não ainda no sentido de Absoluta. Porém, se o Ser necessariamente é dado pelo auto causar, temos que, o auto causar é Ser, mas é Ser em evidencia de si como causa de si.
 
 O auto causar, não possui o causado, por isso, se considera o ato causal como seu próprio fundamento. Ao igualarmos auto causar-se como Ser, encontramos um atributo do Ser que está implícito na palavra Ser. O Ser se causa, não é um existir indiferente. Mas é um existir que se afirma, que se faz em razão de si, que é livre para si e não somente é, mas é conforme a si.
-
 
 Através do Ser inferimos uma existência puríssima que justifica uma existência inefável. Uma existência sem acidentes, sem diferenças. Mas somente pelo Ser não justificamos uma existência livre, que se afirma existente, plena e personalizante. O Ser não é ser mecanicamente, é ser auto causal. 
 
@@ -644,7 +645,7 @@ O auto causar, é o construir de algo, e este algo necessariamente existe. O con
 
 O auto causar é o processo de construção do que existe finalizado em seu próprio processo. O construir existe, e existe indeterminado, e o construir indeterminado é necessariamente o Ser. A palavra Ser, portanto, e o resultado auto causal, sem que ainda seja considerado Absoluto. Isto é, o Ser é uma descrição isolada da liberdade. Ao adicionarmos o teor absoluto ao Ser, temos o auto causar. E, adicionando o teor da liberdade ao Ser o inferindo através do auto causar, podemos encontrar as demais propriedades do Ser, tal como intencionalidade.
 
-O Ser é Ser, mas não se explica por si só porque é Ser, explica sua natureza pura, mas não o processo libertário da constituição dessa natureza pura, e o auto causar o explica.
+O Ser é Ser, mas não se explica por si só porque é Ser, explica sua natureza pura, mas não o processo libertário da constituição dessa natureza pura, e o auto causar o explica. O Ser não é apenas Ser, mas é Ser por si mesmo. Ao ser como tal por si mesmo, não é mais simplesmente Ser, uma atividade mecânica, mas é auto causar, uma atividade viva, liberta. O Ser auto causal, é o Ser que se afirma, não somente o Ser que está. É o Ser que exerce a si mesmo e tem liberdade neste exercício. 
 
 =============
 
