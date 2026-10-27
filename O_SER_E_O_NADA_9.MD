@@ -651,6 +651,10 @@ O Ser, originalmente, se faz em função de ser um ato deterministico fundido ao
 
 ===
 O Ser, por si só, necessariamente é auto causal, pois se faz. Porém, a condição de auto causal para o Ser, só é totalmente isolada em si mesma, quando isto torna-se explicito. Isto é, o Ser se faz, mas se faz de forma soberana e sem brechas para outra causalidade se não sua própria quando se define auto causal. Portanto, ao se definir o auto causal, define-se o inicio da cadeia causal, porém, quando se define Ser, define-se auto gerador apenas. O auto causar é o Ser dotado de sua absolutes, e não somente de seu auto processo gerador.
+
+Se é Ser, necessariamente se é auto causal, porém, a propriedade auto causal não se declara explicita na palavra Ser. Ademais, é necessário declara-la, no sentido de que, não deduzamos do Ser o Absoluto, mas que deduzamos do auto causal o Ser. 
+
+
 nova da nova
 ===
 
