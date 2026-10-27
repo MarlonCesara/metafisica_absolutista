@@ -743,7 +743,9 @@ O Ser é Ser, mas sua simples afirmação não explica, por si só, como ele é 
 
 O Ser autocausal é, portanto, o Ser que se afirma, e não apenas o Ser que está. É o Ser que exerce a si mesmo e cuja liberdade se manifesta nesse próprio exercício. Sua existência não consiste somente em estar presente, mas em constituir-se a partir de si, afirmando a própria identidade no ato de existir. A libertação do Ser consiste, assim, em compreendê-lo não como uma existência passivamente dada, mas como uma existência que, sendo causa de si mesma, encontra em si o fundamento de seu próprio exercício.
 
+O Ser, por si só, é necessariamente autocausal, pois se faz. Contudo, a condição de autocausalidade do Ser só se encontra plenamente isolada em si mesma quando essa propriedade se torna explícita. Isto é, o Ser se faz, mas é ao defini-lo como autocausal que se estabelece sua soberania, sem brechas para qualquer causalidade que não seja a sua própria. Portanto, ao se definir o autocausal, define-se o início da cadeia causal; ao se definir o Ser, por sua vez, define-se apenas aquilo que se autogera. A autocausalidade é o Ser dotado de sua absolutez, e não somente de seu processo autogerador.
 
+Se é Ser, necessariamente é autocausal; entretanto, essa propriedade não se declara explicitamente na palavra Ser. Ademais, é necessário explicitá-la para que não deduzamos o Absoluto diretamente do Ser, mas, antes, deduzamos o Ser a partir do autocausal.
 
 
 
