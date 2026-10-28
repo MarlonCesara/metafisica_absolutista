@@ -747,7 +747,19 @@ O Ser, por si só, é necessariamente autocausal, pois se faz. Contudo, a condi�
 
 Se é Ser, necessariamente é autocausal; entretanto, essa propriedade não se declara explicitamente na palavra Ser. Ademais, é necessário explicitá-la para que não deduzamos o Absoluto diretamente do Ser, mas, antes, deduzamos o Ser a partir do autocausal.
 
+O Ser não é ato de si. Quando visto como ato de si, determina-se. O Ser é ato de Ser, ato absoluto. Portanto, ao inferir a liberdade a partir do Ser, temos que designar o Ser como Ser absoluto. O Ser, isto é, a indiferenciação, não determina a si. O Ser designa o existir indiferenciado. Porém, esta visão nos dá o significado do autocausar. O autocausar é Ser, no sentido de que é ato indiferenciado, mas não é um ser determinado como unidade de Ser. O Ser é ato absoluto, no sentido de que não se apropria de si, mas se faz primeira causa. É, em si, autocausar, e não um Ser designado a uma realidade determinada. O Ser é a pureza do autocausar. O autocausar é um existir sem diferença, e isto chamamos de Ser.
 
+O Ser se autoconstroi; no entanto, autoconstroi-se sob a perspectiva de Ser puro, não sob a perspectiva de Ser absoluto. O Ser também não explica sua absolutez nem se afirma absoluto; faz-se construtor de si, sem expressar se é realidade absoluta. O Ser é a pureza sem origem explicita. Ao Ser explicada, é o Ser do auto causar, e não apenas Ser. 
+
+O conceito de Ser puro garante que não há mistura, não há acidente e não há separação entre o existente e o existir. Contudo, essa pureza, por si só, é um estado descritivo; ela atesta o que a realidade é em sua essência, mas falha em declarar como essa realidade se sustenta perante a possibilidade lógica de dependência ou contingência.
+
+Ao conceber que o Ser se constrói, descreve-se a mecânica perfeita de uma identidade unida ao seu fundamento. No entanto, o termo Ser não carrega o atestado de sua própria soberania. Um ente poderia, na filosofia tradicional, participar do Ser ou exercer um ato de ser sem, contudo, ser a origem incondicionada de tudo. O conceito de Ser puro retrata o existir em sua forma mais limpa, mas permanece ontologicamente silencioso quanto à sua invulnerabilidade. Ele não se afirma ativamente como o princípio primeiro.
+
+É exatamente por essa deficiência conceitual que a autocausalidade se torna o motor indispensável do absolutismo. Enquanto o Ser entrega a pureza indiferenciada, é o autocausar que crava a absolutidade. O autocausar é a afirmação ativa e irrefutável de que essa pureza não possui um "antes", um "fora" ou uma "condição externa". Ele eleva a constatação do existir a um ato de poder, intencionalidade e liberdade suprema.
+
+Dessa forma, o Ser necessita da lente da causalidade voltada para si mesmo para ser blindado contra a contingência. A autocausalidade não altera a substância inefável do Ser — pois ambos continuam sendo o puro ato sem um "sou" cristalizado —, mas resgata o conceito de uma passividade perigosa. O autocausar revela que a fundação da realidade não é apenas um "existir" puro que calhou de estar ali, mas uma soberania viva e incondicionada que ativamente funda a si mesma, exigindo, por consequência lógica, o estatuto de Absoluto.
+
+O Ser é construtor de si, mas a pergunta fundamental é: de que forma o ser se constroi? Sua força construtora, no sentido de seu construir, de onde é proveniente? Se é de si mesmo, então é absoluto, no sentido de que é o auto causar, a propriedade intituida do absoluto em operação. É o puro auto causar.
 
 
 
