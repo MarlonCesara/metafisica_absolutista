@@ -649,9 +649,6 @@ O Ser, por si só, necessariamente é auto causal, pois se faz. Porém, a condi�
 
 Se é Ser, necessariamente se é auto causal, porém, a propriedade auto causal não se declara explicita na palavra Ser. Ademais, é necessário declara-la, no sentido de que, não deduzamos do Ser o Absoluto, mas que deduzamos do auto causal o Ser. 
 
-
-==================
-
 O Ser não é ato de si. Quando visto como ato de si, determina-se. O Ser é ato de Ser, ato absoluto. Portanto, ao inferir a liberdade a partir do Ser, temos que designar o Ser como Ser absoluto. O Ser, isto é, a indiferenciação, não determina a si. O Ser designa o existir indiferenciado. Porém, esta visão nos dá o significado do autocausar. O autocausar é Ser, no sentido de que é ato indiferenciado, mas não é um ser determinado como unidade de Ser. O Ser é ato absoluto, no sentido de que não se apropria de si, mas se faz primeira causa. É, em si, autocausar, e não um Ser designado a uma realidade determinada. O Ser é a pureza do autocausar. O autocausar é um existir sem diferença, e isto chamamos de Ser.
 
 O Ser se autoconstroi; no entanto, autoconstroi-se sob a perspectiva de Ser puro, não sob a perspectiva de Ser absoluto. O Ser também não explica sua absolutez nem se afirma absoluto; faz-se construtor de si, sem expressar se é realidade absoluta. O Ser é a pureza sem origem explicita. Ao Ser explicada, é o Ser do auto causar, e não apenas Ser. 
@@ -667,6 +664,11 @@ Dessa forma, o Ser necessita da lente da causalidade voltada para si mesmo para 
 O Ser é construtor de si, mas a pergunta fundamental é: de que forma o ser se constroi? Sua força construtora, no sentido de seu construir, de onde é proveniente? Se é de si mesmo, então é absoluto, no sentido de que é o auto causar, a propriedade intituida do absoluto em operação. É o puro auto causar.
 
 =============
+
+Ao se perguntar, o que o auto causar produz? O auto causar é um ato que se fundamenta. Mas, o que é esse ato e o que é este fundamento? Teríamos como resposta o Ser. Aquilo que se produz, que se realiza, e que tem o própria substancia produzida como seu ato de produção, é, o Ser. 
+
+==================
+
 
 > O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
 
