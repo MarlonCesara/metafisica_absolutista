@@ -627,10 +627,6 @@ O Ser é em ato, porque a determinação é uma ato. Ao passo que a fundamentaç
 
 Há o auto determinístico, unido, ao ente cristalizado, que é o fundamento. Há, portanto, há a realidade em eterna atualidade, e a realidade consumada. Da mesma forma que há, o ato determinístico fundido ao ato concretizado que é o fundamento. Portanto, isto necessariamente resulta numa atualidade devido ao ato da identidade, e uma consumação devido ao ato fundamentador. Ao analisarmos a consumação em uma escala temporal, temos o ato de Ser em finalização, no sentido de totalmente consumado. Ao passo que temos o ato em eterna atualização. 
 
-nova parte
-==========
-
-
 ## A libertação do Ser e a auto causalidade
 
 Ao nos perguntarmos o que causa o Ser, ou o Ser é de que origem? Temos que o Ser é ser de si mesmo. No sentido de que o Ser é auto causal. O Ser é aquilo que existe e se faz, porém, não só se faz, mas se faz em si mesmo. Temos, portanto o Ser auto causal. O Ser auto causal é o Ser considerado Absoluto.
@@ -649,14 +645,24 @@ O Ser é Ser, mas não se explica por si só porque é Ser, explica sua natureza
 
 O Ser, originalmente, se faz em função de ser um ato deterministico fundido ao seu fundamento. No entanto, se faz de que forma? Está implicito no Ser que se faz. 
 
-===
 O Ser, por si só, necessariamente é auto causal, pois se faz. Porém, a condição de auto causal para o Ser, só é totalmente isolada em si mesma, quando isto torna-se explicito. Isto é, o Ser se faz, mas se faz de forma soberana e sem brechas para outra causalidade se não sua própria quando se define auto causal. Portanto, ao se definir o auto causal, define-se o inicio da cadeia causal, porém, quando se define Ser, define-se auto gerador apenas. O auto causar é o Ser dotado de sua absolutes, e não somente de seu auto processo gerador.
 
 Se é Ser, necessariamente se é auto causal, porém, a propriedade auto causal não se declara explicita na palavra Ser. Ademais, é necessário declara-la, no sentido de que, não deduzamos do Ser o Absoluto, mas que deduzamos do auto causal o Ser. 
 
 
-nova da nova
-===
+==================
+
+O Ser não é somente ato de Ser, isto é, não é ato de si. Quando visto como ato de si, determina-se. O Ser é ato de Ser, ato absoluto. Portanto, ao inferir a liberdade a partir do Ser, temos que designar o Ser como Ser de si. O Ser, isto é, a indiferenciação, não determina a si. O Ser designa o existir indiferenciado. Porém, esta visão nos dá o significado do autocausar. O autocausar é Ser, no sentido de que é ato indiferenciado, mas não é um ser determinado como unidade de Ser. O Ser é ato absoluto, no sentido de que não se apropria de si, mas se faz primeira causa. É, em si, autocausar, e não um Ser designado a uma realidade determinada. O Ser é a pureza do autocausar. O autocausar é um existir sem diferença, e isto chamamos de Ser.
+
+O Ser se autoconstroi; no entanto, autoconstroi-se sob a perspectiva de Ser puro, não sob a perspectiva de Ser absoluto. O Ser também não explica sua absolutez nem se afirma absoluto; faz-se construtor de si, sem expressar se é realidade absoluta.
+
+O conceito de Ser puro garante que não há mistura, não há acidente e não há separação entre o existente e o existir. Contudo, essa pureza, por si só, é um estado descritivo; ela atesta o que a realidade é em sua essência, mas falha em declarar como essa realidade se sustenta perante a possibilidade lógica de dependência ou contingência.
+
+Ao conceber que o Ser se constrói, descreve-se a mecânica perfeita de uma identidade unida ao seu fundamento. No entanto, o termo Ser não carrega o atestado de sua própria soberania. Um ente poderia, na filosofia tradicional, participar do Ser ou exercer um ato de ser sem, contudo, ser a origem incondicionada de tudo. O conceito de Ser puro retrata o existir em sua forma mais limpa, mas permanece ontologicamente silencioso quanto à sua invulnerabilidade. Ele não se afirma ativamente como o princípio primeiro.
+
+É exatamente por essa deficiência conceitual que a autocausalidade se torna o motor indispensável do absolutismo. Enquanto o Ser entrega a pureza indiferenciada, é o autocausar que crava a absolutidade. O autocausar é a afirmação ativa e irrefutável de que essa pureza não possui um "antes", um "fora" ou uma "condição externa". Ele eleva a constatação do existir a um ato de poder, intencionalidade e liberdade suprema.
+
+Dessa forma, o Ser necessita da lente da causalidade voltada para si mesmo para ser blindado contra a contingência. A autocausalidade não altera a substância inefável do Ser — pois ambos continuam sendo o puro ato sem um "sou" cristalizado —, mas resgata o conceito de uma passividade perigosa. O autocausar revela que a fundação da realidade não é apenas um "existir" puro que calhou de estar ali, mas uma soberania viva e incondicionada que ativamente funda a si mesma, exigindo, por consequência lógica, o estatuto de Absoluto.
 
 =============
 
