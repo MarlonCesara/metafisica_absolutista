@@ -309,14 +309,11 @@ Como bem definiu Blaise Pascal, em *Pensées*: *"O último passo da razão é re
 * *Funciona como limite intrínseco:* Revela os contornos definitivos do espaço metafísico possível, demarcando a fronteira do pensável.
 * *É formalmente reconhecível:* Podemos identificar e nomear a contradição lógica que o define, ainda que seu conteúdo essencial seja ininteligível.
 
-
 * **Graus de Cognoscibilidade (ou melhor, de Ininteligibilidade):**
 1. *Reconhecível Formalmente:* A contradição lógica pode ser identificada e articulada (sabemos *por que* é impossível).
 2. *Ininteligível Essencialmente:* Não pode ser concebido como conteúdo positivo ou coerente pela mente humana.
 3. *Delimitador Transcendental:* Serve como termo de comparação que mostra os limites absolutos do pensamento coerente.
 4. *Mentalização Parcial:* Podemos mentalizar isoladamente os elementos que compõem a impossibilidade (ex.: um círculo e um quadrado), mas a síntese dos elementos contraditórios em um único conceito coerente falha irremediavelmente.
-
-
 
 #### Tipologia da Impossibilidade: A Violação dos Princípios
 
@@ -761,7 +758,7 @@ Dessa forma, o Ser necessita da lente da causalidade voltada para si mesmo para 
 
 O Ser é construtor de si, mas a pergunta fundamental é: de que forma o ser se constroi? Sua força construtora, no sentido de seu construir, de onde é proveniente? Se é de si mesmo, então é absoluto, no sentido de que é o auto causar, a propriedade intituida do absoluto em operação. É o puro auto causar.
 
-
+Ao perguntarmos o que o autocausar produz, temos que ele é um ato que se fundamenta. Mas o que é esse ato e o que é esse fundamento? A resposta seria o Ser: aquilo que se produz, que se realiza e que tem a própria substância produzida como seu ato de produção é o Ser.
 
 
 
