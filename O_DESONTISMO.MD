@@ -5065,3 +5065,27 @@ Quando o grupo de desontistas fez com que Jesus fosse crucificado entre dois lad
 Essa dinâmica, em nossa interpretação, manifesta-se também nos tempos modernos, quando determinados setores atribuem a pecha de ladrão a políticos de boa índole, inclusive àqueles que promovem ações benéficas à sociedade. Assim, o desontista procuraria desfigurar o sentido daqueles que representam o bem, atribuindo-lhes qualificações negativas que permitam neutralizar o conflito provocado pela sua própria existência. O que se apresenta como acusação pode, nessa perspectiva, ser compreendido como uma tentativa de deslegitimar aquilo que confronta a sua visão interior de mundo.
 
 ---
+
+
+
+
+O voto na direita, quando não decorre de equívoco, simplicidade de pensamento ou engano, pode decorrer de uma tentativa de produzir uma classe dominante, uma classe que subjuga e olha para os mais pobres de cima. Busca-se elevar a classe média à condição que antes pertencia à classe alta, enquanto se produz uma nova classe de miseráveis. Se já não é possível ter muito mais, retira-se daqueles que possuem o suficiente para produzir uma classe ainda mais pobre: aquela que não tem acesso sequer aos itens básicos de subsistência, que passa fome e vive em condições análogas à escravidão. Dessa forma, a elite passa a ser definida, paradoxalmente, pela simples capacidade de consumir o necessário, enquanto outros são privados até mesmo do essencial.
+
+Por isso, o indivíduo que vota na direita pode estar, consciente ou inconscientemente, favorecendo o aumento da mendicância, da fome nas regiões afastadas dos centros urbanos e da miséria como instrumento de elevação social perante os miseráveis. A produção de castas, de classes que se sobrepõem umas às outras, constitui uma estratégia desontista: uma maneira de apaziguar o desontismo e disfarçá-lo por meio de um comportamento aparentemente normal, justamente porque é socialmente aceito.
+
+O voto na direita, quando orientado pela intenção de impor sofrimento e produzir miséria, também pode ocasionar a miséria daqueles que a apoiam. Isso ocorre porque o preço cobrado por um político que aceita suborno pode ser tão alto que acaba atingindo até mesmo aqueles que desejavam se beneficiar emocionalmente da miséria alheia. Afinal, o indivíduo que se deixa subornar, que não tem piedade e aceita beneficiar determinado grupo enquanto impõe sofrimento a outro, tampouco terá piedade daqueles que se dispuseram a beneficiá-lo. O mal, portanto, pode proporcionar momentaneamente aquilo que o direitista deseja; mais tarde, porém, cobra seu preço.
+
+Portanto, o chamado pobre de direita não é necessariamente alguém que desconhece sua própria classe social. Ele pode, inclusive, estar consciente de sua condição, mas ainda assim desejar a produção social de miseráveis: pessoas que não conseguem trabalhar por estarem doentes, por terem idade avançada para o mercado de trabalho ou por não disporem das condições sociais necessárias sequer para frequentar o ensino que lhes permitiria conquistar um emprego digno, que não as submeta a condições degradantes.
+
+Há, portanto, maneiras de produzir e aprofundar as desigualdades sociais, de aumentar o número de miseráveis e até mesmo de ampliar o número de mortes entre aqueles que, submetidos à pobreza extrema, acabam recorrendo ao crime. Para que isso aconteça, não é necessário pertencer às classes altas. Basta que o indivíduo encontre, na degradação das condições de vida alheias, uma forma de se sentir socialmente superior. Assim, o voto na direita pode se tornar, para determinados indivíduos, um instrumento simbólico de empoderamento perante os mais pobres: mesmo sem ascender economicamente, podem alimentar a sensação de superioridade ao contribuir para a existência de uma classe ainda mais miserável do que a sua.
+
+O benefício do voto na direita, para o desontista, consiste em produzir uma antipolítica que, embora lhe provoque ansiedade, também lhe oferece a expectativa de assistir à degradação alheia. Afinal, o próprio desontista desconhece as medidas que a direita adotará em relação ao seu futuro, mas parece considerar mais atraente o prazer de ver o outro na miséria, doente, morrendo de fome ou até mesmo sendo morto em decorrência da criminalidade.
+
+Agrada ao desontista contemplar o pobre que, privado de condições dignas de subsistência, acaba recorrendo ao crime como alternativa de sobrevivência. Agrada-lhe, ainda, assistir àquele que, ao lutar pelo mínimo necessário à própria existência, acaba sendo fuzilado por tentar obter alimento. Esse circo de horrores da miséria humana sacia o olhar do desontista e lhe proporciona uma breve sensação de alívio diante de sua própria miséria interior. Trata-se de um vislumbre momentâneo de satisfação, capaz de fazê-lo sentir-se interiormente melhor, ainda que permaneça imerso em sua própria escassez de vida eterna.
+
+
+
+
+
+
+
