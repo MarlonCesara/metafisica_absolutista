@@ -669,6 +669,12 @@ Ao se perguntar, o que o auto causar produz? O auto causar é um ato que se fund
 
 ==================
 
+### 9. O ato da identidade e a consumação fundamentada
+
+O Ser é Ser em ato, no sentido de que sua autodeterminação, que é uma determinação diluída na fundamentação, lhe confere uma ação, uma constante atualização de si, no sentido de que é Ser sem cessar. Ao passo que sua fundamentação confere ao Ser a sua consumação. Nesse ínterim, o Ser é constantemente Ser em um fluxo de renovação, ao passo que se consolida Ser em um ato de consumação. Temos, nesse ínterim, uma linha horizontal temporal consumada, na qual o Ser se encontra de forma definitiva consigo mesmo, realizando-se Ser fundamentado, ao passo que há uma linha vertical em que o Ser, consumado, é atualizante. Temos, portanto, que, na consumação, há concomitantemente a atualização. Ao imaginarmos uma linha temporal infinita, na qual ocorre a consumação simultaneamente à atualização, temos que o Ser se consuma e se atualiza em toda a sua consumação. Temos, portanto, uma ação que fundamenta, ao passo que há uma ação que atualiza.
+
+
+
 
 > O Ser é vida, vida em doação, não vida em pertencimento a si mesma. 
 
