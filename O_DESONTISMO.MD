@@ -4951,7 +4951,7 @@ O desontista busca por um falso messias, por um imitador como tentativa de segre
 Nova parte:
 
 
-
+---
 
 
 É necessário romper com a cultura de votar na direita. O direitismo, em sua dimensão política e econômica, tende a favorecer a concentração de riqueza e a manutenção dos privilégios das elites econômicas. Em contrapartida, a esquerda busca, em suas diferentes vertentes, fortalecer a indústria, estimular a circulação de dinheiro, ampliar o acesso à educação e à formação profissional e criar condições para que os pequenos empreendedores possam competir em um mercado frequentemente dominado por grandes empresas. A direita, por sua vez, quando orientada pela preservação das hierarquias sociais, contribui para perpetuar estruturas de opressão que dificultam a ascensão dos mais vulneráveis e impedem que estes alcancem condições de vida semelhantes às das elites.
@@ -4989,7 +4989,7 @@ O desontista tem em seu olhar uma tristeza que sempre está presente, um sentime
 
 
 
-
+---
 
 
 O desontista, seja ele um desontista ou alguém que ainda conserva em si alguma esperança e pratica boas ações, manifesta, no âmbito da vida política, uma disposição peculiar: já não deseja prosperar por reconhecer em sua própria prosperidade um bem, mas deseja que o outro tenha menos, encontrando satisfação na diminuição alheia. Assim, se lhe fosse dito que determinado candidato prejudicaria o país inteiro, o desontista poderia aceitar tal consequência, desde que o prejuízo imposto ao outro fosse ainda maior; desde que produzisse desigualdades sociais e submetesse o próximo ao sofrimento. Nesse sentido, ainda que seu próprio salário fosse reduzido e suas condições de vida piorassem, ele escolheria um mau candidato se acreditasse que, por meio dessa escolha, faria o outro sofrer.
@@ -5008,7 +5008,7 @@ Quando o desontista contempla um mundo de justiça e paz, essa realidade colide 
 
 
 
-
+---
 
 
 
@@ -5021,7 +5021,7 @@ O desontismo também pode se ocultar por trás de grupos religiosos que se fecha
 
 
 
-
+---
 
 
 O oligarca desontista não deseja apenas o acúmulo de riquezas, nem se limita a fazer da própria destruição política uma estratégia de negócio. Ele deseja a paralisia do povo; objetiva provocar um vazio de esperança no povo que de certa forma, pensa se igualar ao seu próprio vazio existencial. Busca impedir a manifestação da liberdade e expressar sua própria paralisia interior por meio do boicote à liberdade alheia.
@@ -5036,13 +5036,13 @@ A busca do desontista é, portanto, uma busca por sentido: nasce da rebeldia do 
 
 
 
-
+---
 
 
 O desontista possui um orgulho desmedido: julga que nada é suficiente para si e almeja chantagear Deus, exigindo, em última instância, a suspensão das leis naturais para que possa obter sempre mais. Não se contenta com os frutos do próprio trabalho, pois seu despropósito o impede de sentir gratidão e de encontrar satisfação naquilo que conquista. Há nele uma contrariedade interior diante da possibilidade de aceitar o que lhe é oferecido. Não abre mão de querer sempre mais, ainda que esse desejo o conduza à própria destruição. Sua ausência de gratidão é tão profunda que o torna orgulhoso a ponto de rejeitar até mesmo o paraíso, quando este lhe é oferecido, e de recusar a própria liberdade, preferindo aprisionar-se em troca de qualquer promessa de superioridade.
 
 
-
+---
 
 
 
@@ -5051,7 +5051,7 @@ O desontismo tem seus sintomas amortecidos na maioria dos indivíduos. Os mais s
 
 
 
-
+---
 
 
 ## Capítulo 3. Patologia Ontológica: O Niilismo, o Desontismo e a Negação do Bem na História
@@ -5091,11 +5091,8 @@ Agrada ao desontista contemplar o pobre que, privado de condições dignas de su
 
 
 
+---
 
+O desontista sente um grande desafeto, sente que não é sua melhor companhia, não sente o autoamor, não sente o autocompanheirismo, a autoconcordância com seu propósito corporal. O corpo, portanto, do desontista sente uma necessidade maior de amor. Quer ser acariciado, cuidado, apreciado. Quer reaver seu autovalor, aquele que não consegue obter de si mesmo, por meio de um supercuidado que pode ser evidenciado por meio de aquisições caras, posições de destaque e classes sociais de destaque. E até por meio de se sentir predileto socialmente ao ver a miséria alheia. Portanto, o vazio de autoafeto e de autocuidado do desontista é enorme.
 
-
-
-
-O desontista sente profunda aversão por si mesmo, como se não fosse a sua melhor companhia. Não experimenta o amor por si, o autocompanheirismo nem a concordância interior com seu próprio propósito corporal. Seu corpo, portanto, manifesta uma necessidade ainda maior de amor: deseja ser acariciado, cuidado e apreciado. Busca recuperar um valor próprio que não consegue reconhecer em si mesmo, recorrendo a formas excessivas de cuidado e compensação, que podem se manifestar na aquisição de bens caros, na busca por posições de destaque e na aspiração a pertencer a classes sociais privilegiadas. Essa necessidade de reafirmação pode chegar ao ponto de encontrar satisfação em sentir-se socialmente predileto diante da miséria alheia. Portanto, o vazio de autoafeto e de autocuidado do desontista é imenso.
-
-O desontista é aquele que tenta acariciar a si mesmo por meio da aquisição de posses que ultrapassam sua capacidade financeira. Está constantemente buscando proporcionar a si mesmo coisas que não deseja apenas pelo deleite que oferecem, mas pela expectativa de que produzam uma conversão interior, preenchendo o vazio afetivo que carrega consigo. Assim, aquilo que aparenta ser uma busca por satisfação material pode constituir, em sua essência, uma tentativa de recuperar o próprio valor por meio de elementos externos, uma vez que o indivíduo não consegue encontrá-lo na relação consigo mesmo.
+O desontista é aquele que tenta se acariciar adquirindo posses que ultrapassam sua capacidade financeira. Ou que está constantemente tentando se proporcionar coisas para que haja uma conversão interior, e não para mero deleite.
