@@ -5089,3 +5089,13 @@ Agrada ao desontista contemplar o pobre que, privado de condições dignas de su
 
 
 
+
+
+
+
+
+
+
+O desontista sente profunda aversão por si mesmo, como se não fosse a sua melhor companhia. Não experimenta o amor por si, o autocompanheirismo nem a concordância interior com seu próprio propósito corporal. Seu corpo, portanto, manifesta uma necessidade ainda maior de amor: deseja ser acariciado, cuidado e apreciado. Busca recuperar um valor próprio que não consegue reconhecer em si mesmo, recorrendo a formas excessivas de cuidado e compensação, que podem se manifestar na aquisição de bens caros, na busca por posições de destaque e na aspiração a pertencer a classes sociais privilegiadas. Essa necessidade de reafirmação pode chegar ao ponto de encontrar satisfação em sentir-se socialmente predileto diante da miséria alheia. Portanto, o vazio de autoafeto e de autocuidado do desontista é imenso.
+
+O desontista é aquele que tenta acariciar a si mesmo por meio da aquisição de posses que ultrapassam sua capacidade financeira. Está constantemente buscando proporcionar a si mesmo coisas que não deseja apenas pelo deleite que oferecem, mas pela expectativa de que produzam uma conversão interior, preenchendo o vazio afetivo que carrega consigo. Assim, aquilo que aparenta ser uma busca por satisfação material pode constituir, em sua essência, uma tentativa de recuperar o próprio valor por meio de elementos externos, uma vez que o indivíduo não consegue encontrá-lo na relação consigo mesmo.
