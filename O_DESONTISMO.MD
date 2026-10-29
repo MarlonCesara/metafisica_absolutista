@@ -5098,3 +5098,27 @@ O desontista sente um grande desafeto, sente que não é sua melhor companhia, n
 O desontista é aquele que tenta se acariciar adquirindo posses que ultrapassam sua capacidade financeira. Ou que está constantemente tentando se proporcionar coisas para que haja uma conversão interior, e não para mero deleite.
 
 O desejar pelas diferenças de classe, é o desejar do amor. Da visão da calmaria que deveria existir dentor dele, quando na verdade, o que exatamente o desontista enxerga é a auto rejeição.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+O desontista sente um grande desafeto por si mesmo; sente que não é sua melhor companhia. Não sente o autoamor, o autocompanheirismo nem a autoconcordância com seu propósito corporal. O corpo do desontista, portanto, sente uma necessidade maior de amor. Quer ser acariciado, cuidado e apreciado. Quer reaver seu autovalor, aquele que não consegue obter de si mesmo, por meio de um supercuidado que pode ser evidenciado em aquisições caras, posições de destaque e classes sociais de prestígio. Pode manifestar-se, inclusive, no desejo de sentir-se socialmente predileto ao contemplar a miséria alheia. Portanto, o vazio de autoafeto e autocuidado do desontista é enorme.
+
+O desontista é aquele que tenta acariciar a si mesmo por meio da aquisição de posses que ultrapassam sua capacidade financeira. É aquele que está constantemente tentando proporcionar coisas a si mesmo, não para o mero deleite, mas na esperança de que essas aquisições promovam uma conversão interior.
+
+O desejo pelas diferenças de classe é, em essência, o desejo por amor. É a busca pela visão da calmaria que deveria existir dentro de si, mas que não encontra. O desontista enxerga não enxerga a calmaria interior que procura, mas a própria autorrejeição.
+
+Em muitas das vezes, sua tentativa de se evidenciar, de crescer socialmente, de estar ascendido num patamar superior, é a pura necessidade de se amar, de tentar se converter interiormente. Por isso, nem sempre o pouco lhe sacia, não no sentido de que não sacia seus sonhos, mas no sentido de que não o converte. Portanto, o niilista está sempre soberbo, está sempre querendo mais do que pode ter, pois a necessidade de auto afeto, a necessidade de auto conversão o move para a procura do auto agrado de forma demasiada.
+
+Não digo que o desontista necessariamente tem gosto por coisas luxuosas, mas as busca não pelo gosto mas pela necessidade de auto afeto, pelo preecher afetivo do corpo que estranha sua postura e se sente desgostoso com tal visão. É um pedido de consolo e não uma busca por gostos pessoais.
