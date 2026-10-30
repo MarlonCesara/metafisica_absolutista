@@ -730,7 +730,7 @@ A infinitude instaurada que consolida o fundamento e totalmente atualizante, de 
 
 Temos portanto, uma circularidade viva, que dispensa começo e final, a qual se consuma, isto é, fundamenta-se. Ambas as coisas, a ação atualizante, e a fundamentação se fundem. Nesta circularidade o Ser se atualiza ao passo que se encontra definitivo consigo em uma pureza unanime, de forma que, o que se encontra é o mesmo que o encontrado. Temos, portanto, o Ser instaurado e o Ser atualizante.
 
-
+Em palavras mais claras, o Ser se constrói Ser em uma circularidade infinitamente retrógada e infinitamente sucessiva, de forma a estar consumada. O Ser, se constrói indo de encontro a si mesmo. E, neste encontro, o Ser que encontra é exatamente o Ser encontrado, havendo um momento de consumação. No entanto, o consumar-se não é o findar-se. Mas, o consumar-se é se expressar infinito. A consumação é a integralidade e não o findar do Ser. O Ser circula em si mesmo, e essa circularidade se fundamenta no encontro do Ser consigo mesmo. Sendo uma extensão infinita e atualizante em sua integralidade. 
 
 
 
