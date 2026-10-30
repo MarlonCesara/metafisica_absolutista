@@ -732,6 +732,25 @@ Temos portanto, uma circularidade viva, que dispensa começo e final, a qual se 
 
 Em palavras mais claras, o Ser se constrói Ser em uma circularidade infinitamente retrógada e infinitamente sucessiva, de forma a estar consumada. O Ser, se constrói indo de encontro a si mesmo. E, neste encontro, o Ser que encontra é exatamente o Ser encontrado, havendo um momento de consumação. No entanto, o consumar-se não é o findar-se. Mas, o consumar-se é se expressar infinito. A consumação é a integralidade e não o findar do Ser. O Ser circula em si mesmo, e essa circularidade se fundamenta no encontro do Ser consigo mesmo. Sendo uma extensão infinita e atualizante em sua integralidade. 
 
+Ao imaginarmos dois círculos que giram e que ao mesmo tempo se encontram em certa etapa do giro, temos uma visão mais clara do Ser, o Ser constrói ao si mesmo ao passo que o processo de construção é consumado em um ponto de encontro. O Ser produzido é ao mesmo tempo o Ser que produz, e ambos se encontram em um momento atemporal. Isto quer dizer que, o inicio do giro e o final do giro não existem de fato, o giro é uma infinitude manifesta. Temos, portanto, o giro infinito em temporalidade, essa temporalidade é consumada no sentido que é vista por inteira.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
