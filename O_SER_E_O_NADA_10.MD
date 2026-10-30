@@ -1,41 +1,3 @@
-## Arquitetura Geral do Tratado (Mapa de Organização)
-
-* **Livro I — Prolegômenos Lógicos, Causais e Epistemológicos:**
-* *Capítulo 1:* Lógica Diacrônica: A Contraparte Temporal da Identidade
-* *Capítulo 2:* A Dupla Fundamentação da Realidade Contingente
-* *Capítulo 3:* O Horizonte da Razão (Possível, Impossível, Incognoscível e Impossibilidades Não-Disruptivas)
-
-
-* **Livro II — A Ontologia do Absoluto: Indiferenciação e Autocausalidade:**
-* *Capítulo 1:* Os Princípios Fundamentais do Absoluto
-* *Capítulo 2:* O Determinado e o Indiferenciado
-* *Capítulo 3:* A Autocausalidade como Substância do Absoluto (*Ser* vs. *Autocausar*)
-* *Capítulo 4:* A Qualidade da Ação do Ser como Presença Operante
-* *Capítulo 5:* A Autocausalidade do Absoluto, a Falsa Dupla Exigência e o Paradoxo da Essência Indiferenciada
-
-
-* **Livro III — O Espírito Pessoal, a Autopresença e a Pureza Indiferenciada:**
-* *Capítulo 1:* A Natureza Pessoal do Autocausal
-* *Capítulo 2:* O Espírito como Autopresença
-* *Capítulo 3:* O Espírito Indiferenciado e a Positividade Transcendente
-
-
-* **Livro IV — A Liberdade Metafísica e a Estrutura Trinitária da Ação** *
-
-
-* **Livro V — A Temporalidade Não Linear do Espírito e a Gênese da Criação:**
-* *Capítulo 1:* A Autocausalidade Bifásica e a Temporalidade Não Linear do Espírito
-* *Capítulo 2:* A Dinâmica Temporal e Atemporal da Ação Trinitária e a Ativação da Alma
-* *Capítulo 3:* O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico
-
-
-* **Livro VI — Cosmologia e Ética Metafísica (O Absoluto e o Mundo):**
-* *Capítulo 1:* A Criação *Ex Nihilo* e a Soberania Originária
-* *Capítulo 2:* A Convivência do Absoluto com o Mundo Determinado
-
----
-
-# LIVRO I: PROLEGÔMENOS LÓGICOS, CAUSAIS E EPISTEMOLÓGICOS
 
 ## Capítulo 1. Lógica Diacrônica: A Contraparte Temporal da Identidade
 
@@ -419,9 +381,7 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
-# LIVRO II: A ONTOLOGIA DO ABSOLUTO: INDIFERENCIAÇÃO E AUTOCAUSALIDADE
-
-## Capítulo 1. Os Princípios Fundamentais do Absoluto
+## Capítulo 4. Os Princípios Fundamentais do Absoluto
 
 ### 1. A Necessidade Lógica de um Fundamento Absoluto
 
@@ -512,7 +472,7 @@ Por fim, vale ressaltar que uma realidade completamente pura é categoricamente 
 
 
 
-## Capítulo 2. O Determinado e o Indiferenciado
+## Capítulo 5. O Determinado e o Indiferenciado
 
 ### 1. A Natureza da Determinação e da Negação
 
@@ -593,7 +553,7 @@ Em palavras ainda mais simples, para fins de entendimento, podemos usar o seguin
 
 
 
-## Capítulo 3. A Autocausalidade como Substância do Absoluto
+## Capítulo 6. A Autocausalidade como Substância do Absoluto
 
 ### 1. A Convergência entre a Causa e o Ser
 
@@ -764,6 +724,11 @@ Ao perguntarmos o que o autocausar produz, temos que ele é um ato que se fundam
 
 O Ser é Ser em ato, no sentido de que sua autodeterminação, que é uma determinação diluída na fundamentação, lhe confere uma ação, uma constante atualização de si, no sentido de que é Ser sem cessar. Ao passo que sua fundamentação confere ao Ser a sua consumação. Nesse ínterim, o Ser é constantemente Ser em um fluxo de renovação, ao passo que se consolida Ser em um ato de consumação. Temos, nesse ínterim, uma linha horizontal temporal consumada, na qual o Ser se encontra de forma definitiva consigo mesmo, realizando-se Ser fundamentado, ao passo que há uma linha vertical em que o Ser, consumado, é atualizante. Temos, portanto, que, na consumação, há concomitantemente a atualização. Ao imaginarmos uma linha temporal infinita, na qual ocorre a consumação simultaneamente à atualização, temos que o Ser se consuma e se atualiza em toda a sua consumação. Temos, portanto, uma ação que fundamenta, ao passo que há uma ação que atualiza.
 
+O ato deterministico, portando, atualiza o Ser em uma linha temporal sem fim ou começo. Ao passo que o ato fundamentador, é a própria extensão infinita desta linha atualizante. Temos, portanto, o Ser, como um mar instaurado de Espírito, ao passo que todo este mar é atualizante, no sentido de que é consumado em uma extensão infinita e ativo em toda essa extensão. 
+
+A infinitude instaurada que consolida o fundamento e totalmente atualizante, de forma que haja um fluxo incessante de Ser, um fluxo incessante de auto domínio, auto conhecimento e auto presença, ao passo que estes mesmos dons estão consumados dentro de uma consumação atemporal, que definiremos atemporalidade.
+
+Temos portanto, uma circularidade viva, que dispensa começo e final, a qual se consuma, isto é, fundamenta-se. Ambas as coisas, a ação atualizante, e a fundamentação se fundem. Nesta circularidade o Ser se atualiza ao passo que se encontra definitivo consigo em uma pureza unanime, de forma que, o que se encontra é o mesmo que o encontrado. Temos, portanto, o Ser instaurado e o Ser atualizante.
 
 
 
@@ -781,7 +746,13 @@ O Ser é Ser em ato, no sentido de que sua autodeterminação, que é uma determ
 
 
 
-## Capítulo 4. A Qualidade da Ação do Ser como Presença Operante
+
+
+
+
+
+
+## Capítulo 7. A Qualidade da Ação do Ser como Presença Operante
 
 > O Ser é vida, vida em doação, não vida em pertencimento egoico a si mesma. O Ser é vida. Não o vivente, mas a vida do vivente.
 
@@ -867,7 +838,7 @@ O bem é a própria manifestação do Ser (Vida), não uma atividade extrínseca
 
 
 
-## Capítulo 5. A Autocausalidade do Absoluto, a Falsa Dupla Exigência e o Paradoxo da Essência Indiferenciada
+## Capítulo 8. A Autocausalidade do Absoluto, a Falsa Dupla Exigência e o Paradoxo da Essência Indiferenciada
 
 As proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua própria causalidade?
 
@@ -1070,10 +1041,7 @@ A palavra Ser, portanto, também denota o existente tendo como forma o próprio 
 
 
 
-
-# LIVRO III: O ESPÍRITO PESSOAL, A AUTOPRESENÇA E A PUREZA INDIFERENCIADA
-
-## Capítulo 1. A Natureza Pessoal do Autocausal
+## Capítulo 9. A Natureza Pessoal do Autocausal
 
 ### 1. A Necessidade de Autoconsciência, Liberdade e Intencionalidade
 
@@ -1226,7 +1194,7 @@ Portanto, a autocausalidade nos conduz necessariamente à concepção do Absolut
 
 
 
-## Capítulo 2. O Espírito como Autopresença
+## Capítulo 10. O Espírito como Autopresença
 
 ### 1. A Necessidade de um Conceito de Espírito
 
@@ -1330,7 +1298,7 @@ A questão da escolha reaparece aqui de forma crucial e inadiável. Se o Absolut
 
 
 
-## Capítulo 3. O Espírito Indiferenciado e a Positividade Transcendente
+## Capítulo 11. O Espírito Indiferenciado e a Positividade Transcendente
 
 ### 1. A Necessidade de um Espírito Puro
 
@@ -1508,9 +1476,7 @@ O Absoluto não se limita à dicotomia entre ser e não-ser da positividade dete
 
 
 
-# LIVRO IV: A LIBERDADE METAFÍSICA E A ESTRUTURA TRINITÁRIA DA AÇÃO
-
-## Capítulo 1. A Liberdade e a Intencionalidade do Absoluto
+## Capítulo 12. A Liberdade e a Intencionalidade do Absoluto
 
 ### 1. Introdução: Da Natureza à Ação
 
@@ -1566,7 +1532,7 @@ A não contingência não é um fator que sistematize o absoluto de forma a lhe 
 
 
 
-## Capítulo 2. A Estrutura da Autocausalidade e as Três Dimensões da Ação do Espírito
+## Capítulo 13. A Estrutura da Autocausalidade e as Três Dimensões da Ação do Espírito
 
 ### 1. Primeira Formulação: As Três Dimensões da Ação do Espírito
 
@@ -1706,6 +1672,15 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 
 ---
 
+### 4. As ações libertárias do Ser
+
+1. O Ser afirma-se existente por sua própria condição ontológica. Sua existência não lhe é imposta por uma causalidade exterior, mas constitui sua própria afirmação, isto é, o Ser é aquilo que se põe e se sustenta em si mesmo.
+
+2. O Ser afirma-se existente em plenitude. Entre Ser e não Ser, sua afirmação é sempre pelo Ser, pois o Ser, ao afirmar sua existência, afirma a si mesmo. Trata-se de uma escolha ontológica pela própria existência, na qual o Ser não apenas existe, mas consente plenamente em Ser.
+
+3. O Ser afirma-se livre para Ser, livre para permanecer na indiferenciação. Entretanto, ao usufruir de sua liberdade de Ser e de sua plenitude, usufrui também da liberdade criadora: a liberdade de abandonar sua condição de soberania indiferenciada e inaugurar a determinação. Assim, o Ser, sem deixar de ser o fundamento de si, abre-se à possibilidade de determinar-se. E, uma vez que toda determinação implica uma escolha entre possibilidades, o Ser afirma-se também livre para personalizar-se, conferindo a si mesmo uma expressão determinada.
+
+4. O Ser afirma-se em sua necessidade de Ser, mas não como imposição exterior ou privação de liberdade. Sua necessidade é a expressão de sua própria perfeição. É livre para a perfeição, livre para consumar sua própria existência e, por isso, livre para Ser irrevogavelmente. Uma distinção filosófica importante: o ponto central dessa construção está em apresentar a necessidade do Ser não como oposição à liberdade, mas como sua consumação. Ou seja, o Ser não é livre apesar de sua necessidade de Ser; é livre porque sua necessidade de Ser decorre de sua própria natureza e não de uma determinação exterior.
 
 
 
@@ -1736,9 +1711,7 @@ Esta tríplice dimensão da ação do Espírito não representa uma divisão, ma
 
 
 
-
-
-## Capítulo 3. As Três Pessoas do Espírito Absoluto e a Interseção da Plenitude
+## Capítulo 14. As Três Pessoas do Espírito Absoluto e a Interseção da Plenitude
 
 ### 1. As Três Pessoas do Espírito Absoluto (Primeira Exposição)
 
@@ -1876,9 +1849,7 @@ A forma de ação do Espírito plenificador está sempre ligada à perfeição; 
 
 
 
-# LIVRO V: A TEMPORALIDADE NÃO LINEAR DO ESPÍRITO E A GÊNESE DA CRIAÇÃO
-
-## Capítulo 1. A Autocausalidade Bifásica e a Temporalidade Não Linear do Espírito
+## Capítulo 15. A Autocausalidade Bifásica e a Temporalidade Não Linear do Espírito
 
 ### 1. A Dinâmica Bifásica da Autocausalidade
 
@@ -2135,7 +2106,7 @@ O Ser está presente em tudo (onipresença), tudo conhece (onisciência) e tudo 
 
 
 
-## Capítulo 2. A Dinâmica Temporal e Atemporal da Ação Trinitária e a Ativação da Alma
+## Capítulo 16. A Dinâmica Temporal e Atemporal da Ação Trinitária e a Ativação da Alma
 
 ### 1. A Dinâmica Temporal e Atemporal da Ação Trinitária
 
@@ -2207,7 +2178,7 @@ Portanto, é possível indagar: então o mundo também sempre poderia ter existi
 
 
 
-## Capítulo 3. O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico
+## Capítulo 17. O Primeiro Ato do Espírito Plenificador: A Gênese do Tempo Fenomênico
 
 ### 1. A Gênese do *Start* Criador
 
@@ -2316,9 +2287,7 @@ A autocausalidade a nível Absoluto revela uma estrutura dinâmica única: **uma
 
 
 
-# LIVRO VI: COSMOLOGIA E ÉTICA METAFÍSICA (O ABSOLUTO E O MUNDO)
-
-## Capítulo 1. A Criação *Ex Nihilo* e a Soberania Originária
+## Capítulo 18. A Criação *Ex Nihilo* e a Soberania Originária
 
 O nada não existe para que algo seja criado a partir dele. A expressão *creatio ex nihilo*, portanto, não deve ser compreendida como se o nada fosse uma espécie de matéria ou substrato do qual o ente viesse a emergir. O *ex nihilo* significa precisamente a ausência de qualquer matéria, causa ou realidade anterior à criação. A criação não é uma transformação do nada em algo, mas a posição do ser sem pressupor um ser anterior.
 
@@ -2379,7 +2348,7 @@ A criação *ex nihilo*, portanto, não significa que o nada seja convertido em 
 
 
 
-## Capítulo 2. A Convivência do Absoluto com o Mundo Determinado
+## Capítulo 19. A Convivência do Absoluto com o Mundo Determinado
 
 O Absoluto é puro no sentido de poder portar o mundo determinado sem que a determinação corrompa ou limite sua pureza. Sua pureza não consiste em estar separado de toda determinação, mas precisamente em poder relacionar-se com qualquer determinação sem tornar-se determinado por ela. Aquilo que é puro não precisa excluir o impuro para permanecer puro; sua pureza consiste em não depender daquilo com que se relaciona para constituir aquilo que é.
 
