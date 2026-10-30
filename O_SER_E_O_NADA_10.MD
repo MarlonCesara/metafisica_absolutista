@@ -734,13 +734,21 @@ Em palavras mais claras, o Ser se constrói Ser em uma circularidade infinitamen
 
 Ao imaginarmos dois círculos que giram e que ao mesmo tempo se encontram em certa etapa do giro, temos uma visão mais clara do Ser, o Ser constrói ao si mesmo ao passo que o processo de construção é consumado em um ponto de encontro. O Ser produzido é ao mesmo tempo o Ser que produz, e ambos se encontram em um momento atemporal. Isto quer dizer que, o inicio do giro e o final do giro não existem de fato, o giro é uma infinitude manifesta. Temos, portanto, o giro infinito em temporalidade, essa temporalidade é consumada no sentido que é vista por inteira. E temos o ponto de encontro do fundamento, que corresponde a visão inteira desta temporalidade. Isto é, temos uma linha atualizante infinita, ao passo que temos o Ser consumado que é o ponto de encontro do Ser consigo mesmo.
 
-### 9. A libertação do Ser e a autocausalidade
+### 10. A atualização e a infinitude temporal
 
 Há, desta forma, uma atualização continua, infinita, consumada em seu inicio meio e fim. Há a consumação e a atualiza no mesmo Ser. E o mesmo Ser que se reverbera e se consuma numa linha temporal. Também é o Ser que é construção de si, e o produto dessa construção. Não há o Ser que vai de encontro ao Ser, há um só Ser em processo de atualização e consumação.
 
+O Ser que vai de encontro a si mesmo é o mesmo Ser, no entanto, é o Ser que explica a atualização. O encontro do Ser com o Ser, ambos sendo o mesmo Ser, não produz uma linha causal anterior, mas é o mesmo Ser que se atualiza em si mesmo, que é autor de seu processo continuo de construção, processo tal que se consolida em uma linha temporal infinita.
 
+Está linha temporal se consuma, no entanto, conserva sua atualização em toda a sua extensão. Portanto, temos o Ser que se afirma consumado, e o Ser que se afirma atualizante, ambos sendo o mesmo Ser.
 
+O Ser que se encontra consigo, prova a atualização, concomitantemente a sua consumação. Isto é, o Ser de encontro a si mesmo prova que o Ser se atualiza a todo instante e que essa atualização se sucedeu numa linha horizontal infinita. Temos, então, a temporalidade do Espírito nesta linha infinita. Ao passo que temos a temporalidade da atualização.
 
+### 11. As pessoas do Ser
+
+O Ser se afirma, na extensão infinita que já percorreu toda a atualidade, uma consumação. Isto é, uma consumação indiferenciada, sem acidentes, sem determinações. Ao passo que em sua atualização, isto é, em seu dom atualizador, o Ser se afirma livre para determinar, no sentido de que, é livre para provocar acidentes no que antes era apenas a indeterminação total instituída do Ser. Portanto, a atualização é criadora, enquanto a fundamentação é apenas existente e plena. Temos, portanto, que a afirmação da consumação apenas se afirma como existente e plena em si. Enquanto a afirmação da atualização se afirma criativa, afirma-se portadora de tendencias pessoas.
+
+Enquanto a consumação afirma uma liberdade direcionada ao seu estado de existente, negando o não existir de si, isto é, afirmando sua necessariedade. A atualidade afirma-se existente da mesma forma, porém, livre para criar. Essa divergência de afirmações no contexto temporal distinguem o Ser em três pessoas distintas e isto exploraremos melhor em outro capitulo.
 
 
 
