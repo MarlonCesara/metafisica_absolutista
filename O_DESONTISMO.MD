@@ -241,28 +241,27 @@ Ao introduzirmos um corpo nessa terceira alma, se ela for desontista, será movi
 
 Disso resulta uma alma prisioneira da própria liberdade, marcada pela ausência de si e por uma apatia que se manifesta como um querer genuíno de autoanulação. O não movimento, o não renascer para si, faz com que o indivíduo permaneça, necessariamente, consentido à anulação. O ato de não reviver a si mesmo é, na verdade, indistinguível do ato de anular-se.
 
-revisar
-O ato de não auto causar-se, isto é, de não recriar-se, de não realizar-se num sentido individual e deliberado é um ódio latente, uma ausência que denota a escassez de plenitude, a escassez do amor. Até mesmo para se direcionar a uma atitude maldosa é necessario o movimento, mas o desontista não se move, deixa-se guiar pelo corpo no sentido de que, sua ação não é intencionada, mas é uma sintomatica, é um deixar-se levar que induz o corpo ao desesspero e desproposito.
+O ato de não auto causar-se, isto é, de não recriar-se, de não realizar-se num sentido individual e deliberado é um ódio latente, uma ausência que denota a escassez de plenitude, a escassez do amor. Até mesmo para se direcionar a uma atitude maldosa é necessario o movimento, mas o desontista não se move, deixa-se guiar pelo corpo no sentido de que, sua ação não é intencionada, mas é uma sintomatica, é um deixar-se levar que induz o corpo ao desespero e desproposito.
 
-que se encerra no sentido da ausência da autodeterminação. A autodeterminação em si carrega um ódio vivo. O ápice do ódio autocausado é a estaticidade. O ódio, portanto, não se torna um objetivo, mas uma paralisia. O ódio consumado não é a alma se guiando a um patamar, mas é deixando-se sucumbir pela ausência do sentido. O ódio em seu ápice não é um acúmulo de paixões, mas é a ausência de amor, a ausência até mesmo do ódio.
+O desontismo é uma ausência do auto causar em si. O ápice do ausencia do auto causar, é um ódio que se equipara a total imobilidade. O ódio, portanto, não se torna um objetivo, mas uma paralisia. O ódio consumado não é a alma se guiando a um patamar, mas é deixando-se sucumbir pela ausência do sentido. O ódio em seu ápice não é um acúmulo de paixões, mas é a ausência de amor, a ausência do movimentar-se por si mesmo.
 
-A alma, portanto, não se lança no inferno por ódio, mas se realiza em seu não sentido. O ato de danação é uma extensão da imobilidade, é a realização do sentido instintivo no corpo, no qual o indivíduo só segue tendências momentâneas. Essas tendências são vivas, mas não totalmente vivas, no sentido de que a estaticidade e o ódio inequívoco são, em si, a mesma coisa.
+A alma, portanto, não se lança no inferno, no sentido de causar um movimento, mas se deixa levar em razão de seu não sentido. O ato de danação é uma extensão da imobilidade, se equipara a realização do sentido instintivo no corpo, no qual o indivíduo só segue tendências momentâneas. Essas tendências são vivas, mas não totalmente vivas, no sentido de que a estaticidade e o ódio inequívoco são, em si, a mesma coisa.
 
 O coração totalmente endurecido, imóvel, é a extensão máxima do ódio, um ente que nem mesmo se movimenta em rejeição a si mesmo e à própria liberdade. A rejeição à vida não é uma ação ou direcionamento, pois toda ação é conduzida à vida, mas é uma estaticidade. Por isso, o não renascer pode ser considerado uma opção deliberada.
 
 ### 3. A Inação como Ação Viva
 
-A inação é uma ação viva, que se configura como uma vida morta. É um abismo que tem olhos. Que se fez abismo não porque é morto, mas porque tem um intuito estático. Não odiou algo em vida, mas rejeitou a própria liberdade. A rejeição de si começa na rejeição da própria liberdade, não no próprio suicídio. Isto é, antes de rejeitar o corpo com uma ação suicida, o corpo agiu, corroborou com a liberdade para se anular; porém, a alma que se fada ao inferno simplesmente queima pela inação, simplesmente se deixa cair. Rejeita até mesmo a própria liberdade; é um ato passivo, e não ativo, pois o ato ativo vai em direção à morte. Porém, o passivo somente se deixa cair, sem movimentar-se. Portanto, o cúmulo do ódio é o ódio não esboçado, um corpo levado pelos seus instintos, e que se lança na anulação como um movimento deliberado e vivo, mas em função de uma estaticidade, de uma rejeição à liberdade, antes mesmo da rejeição de um corpo ou de sua identidade.
+A inação é uma ação viva, que se configura como uma vida morta. O desontista descreve o olhar sobre seu próprio intuito como visualizar um abismo que tem olhos. Que se fez abismo não porque é morto, mas porque tem um intuito estático. Não perseguiu algo em vida, mas rejeitou a própria liberdade. A rejeição de si começa na rejeição da própria liberdade, não da propria vida. Isto é, antes de rejeitar a vida através de uma ação, a alma agiu, corroborou com a liberdade para se anular; porém, a alma que se fada a anulação simplesmente se anula pela inação, simplesmente se deixa cair. Rejeita até mesmo a própria liberdade; é um ato passivo, e não ativo, pois o ato ativo vai em direção a algo. Porém, o passivo somente se deixa cair, sem movimentar-se. Portanto, o cúmulo do ódio é o ódio não esboçado, um corpo levado pelos seus instintos, e que se lança na anulação como um movimento deliberado e vivo, mas em função de uma estaticidade, de uma rejeição à liberdade, antes mesmo da rejeição de um corpo ou de sua identidade. A sensação do desontista é que ele pode não dizer sim e nem dizer não a vida, simplesmente seu agir é morto para ser considerado fruto da verdadeira liberdade. O desontista diz não a vida, não porque disse sim para escolher essa opção de forma atuante, mas porque o não é um deixar-se cair, é um recusar da liberdade. 
 
 ### 4. A Miséria como Construção Ideológica
 
-A miséria é uma construção ideológica de um grupo minoritário, com vantagem financeira histórica, que visa aplacar o naufrágio e o desespero existencial por meio de um mundo construído de forma que lhe pareça empático, ou que projete nesse mundo sua dor, de forma a pensar-se livre de seu ateísmo implícito, de seu ódio. A miséria é uma tentativa de aplacar o desespero de um grupo minoritário que descobre diante de si uma vantagem histórica e se apossa dela para representar o desontismo e espelhar de forma mundial o seu conflito.
+A miséria material é uma construção ideológica de um grupo minoritário, com vantagem financeira histórica, que visa aplacar o naufrágio e o desespero existencial por meio de um mundo construído de forma que lhe pareça empático, ou que projete nesse mundo sua dor, de forma a pensar-se livre de seu ateísmo implícito, de seu ódio. A miséria material é uma tentativa de aplacar o desespero de um grupo minoritário que descobre diante de si uma vantagem histórica e se apossa dela para representar o desontismo e espelhar de forma social o seu conflito.
 
 A miséria é o manifesto do conflito. É um desejo obsessivo, louco, ressignificado e materializado na humanidade de forma a lhe causar o sofrer. É uma desnaturalização do propósito humano, pela vida, beleza e bem-estar geral, em prol de uma solução inviável para um conflito corporal. A miséria e a guerra são a solução de um grupo de elite para o impasse dentro de si; é um motivo interior e particular.
 
 ### 5. O Paradoxo de "Escolher Não Escolher"
 
-Não é possível escolher não escolher, uma vez sendo livre. Porém, não renascer pelo Espírito — ou seja, pela intenção reta à vida, que está em primazia à decisão horizontal — ainda é ser livre, porém é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento à vida, ou do próprio movimento em função do Espírito. O indivíduo simplesmente se deixa guiar de forma instintiva. Seu ódio não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher acontece em um nível em que há vida, mas não a vida plena. O indivíduo recusa existir por si, ao passo que existe, mas não tem autodomínio sobre si. É um motor imóvel, ao passo que é vivo.
+Não é possível escolher não escolher, uma vez sendo livre. Porém, não renascer pelo Espírito — ou seja, pela intenção reta à vida, que está em primazia à decisão vertical — ainda é ser livre, porém é uma imobilidade. A recusa da vida não começa em uma ação de ódio, ou sentimento de ódio, mas na recusa da própria ação. Do próprio direcionamento à vida, ou do próprio movimento em função do Espírito. O indivíduo simplesmente se deixa guiar de forma instintiva. Seu ódio não é mais uma paixão, mas uma passividade. Um assombro diante da própria prisão. Escolher não escolher acontece em um nível em que há vida, mas não a vida plena. O indivíduo recusa existir por si, ao passo que existe, mas não tem autodomínio sobre si. É um motor imóvel, ao passo que é vivo.
 
 ### 6. A Dupla Tipologia Sintomática
 
@@ -271,60 +270,25 @@ Não é possível escolher não escolher, uma vez sendo livre. Porém, não rena
 | **Sintomática Não Intencional** | O indivíduo em estado de semivida, que escolhe não escolher. Tem uma vida ainda não ativa, não operante pelo Espírito. Simplesmente *é*, sem que opere nesse ser. Existe como vida, mas ainda não renasceu, não aprovou a própria vida, não despertou plenamente. |
 | **Sintomática Intencional** | Refere-se à percepção do indivíduo de sua intenção, da sua escolha como uma não escolha. O indivíduo percebe sua intencionalidade, ao passo que percebe sua estaticidade, sua passividade. |
 
-Há, portanto, um cenário em que o indivíduo se deixa levar pelos instintos, ao passo que percebe-se intencionalmente deixado à deriva de si como instintos. Então são dois tipos de sintomas: os dolorosos, pela intenção do indivíduo, e os assombrosos, pelo estado de mortidão, de semivida, de semioperância, de estaticidade. De uma vida em que não age, mas se deixa levar por ela.
+Há, portanto, um cenário em que o indivíduo se deixa levar pelos instintos, ao passo que percebe-se intencionalmente deixado à deriva de si como animal instintivo. Então são dois tipos de sintomas: os intencionais, pela intenção do indivíduo, e os passivos, pelo estado de mortidão, de semivida, de semioperância, de estaticidade. De uma vida em que não age, mas se deixa levar por ela. O indivíduo, portanto, se sente preso em si mesmo, refém de uma realidade que teima em não escolher; é uma vida vitrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo. O desontista tem uma sensação de angústia, aprisionamento interior, impressão de sonolência interior, impressão de irrealidade da vida, como se fosse produto de uma consciência produzida para si e não de si. O desontista acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age pelo próprio domínio. 
 
-O indivíduo, portanto, se sente preso em si mesmo, refém de uma realidade que teima em não escolher; é uma vida vitrificada em si. Ao passo que é viva, não deu seu primeiro movimento. Movimenta-se pelo corpo.
-
-**Sintomas de assombro:** Sensação de angústia, aprisionamento interior, impressão de sonolência interior, impressão de irrealidade da vida, como se fosse produto de uma consciência e não de si.
-
-
-### A Ilusão da Liberdade
-
-O desontista acredita ser livre porque faz o que deseja, guiado por seus instintos. No entanto, essa "liberdade" é ilusória, pois ele não age com consciência ou autodeterminação. Ele depende do acaso, da sorte ou da "misericórdia divina", sem assumir o controle de sua própria vida.
-
-> **Referência:** Søren Kierkegaard, em *O Conceito de Angústia*, fala sobre a angústia como um sinal da liberdade humana, que o desontista tenta negar ao se entregar aos instintos.
-
-
-### A Liberdade e o Suicídio
-
-O desontista foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o desontista só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
-
-> **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
-
-### O Hedonismo e a Ação do Espírito
-
-O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O desontista, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
-
-> **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
-
-
-### A Liberdade e o Suicídio
-
-O desontista foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o suicídio, mas o desontista só se suicidaria não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
-
-> **Referência:** Friedrich Nietzsche, em *Assim Falou Zaratustra*, convida o homem a superar sua condição atual e a se tornar o Übermensch, que cria seu próprio sentido.
-
-### O Hedonismo e a Ação do Espírito
-
-O hedonismo racional exige uma forte ação do espírito, pois o corpo pode simular um agir hedonista, enganando-se para desfrutar do prazer imediato. O desontista, no entanto, não é um ser espiritual incorporado em um animal, mas um animal dotado de qualidades espirituais. Seu comportamento é previsível, como o de uma fera assombrada pela consciência de si.
-
-> **Referência:** Arthur Schopenhauer, em *O Mundo como Vontade e Representação*, descreve a vontade como uma força cega que governa o comportamento humano.
-
+O desontista foi arremessado contra a liberdade sem poder se opor. A verdadeira oposição à liberdade seria o ato da auto anulação, mas o desontista só se anularia não intencionalmente, pois ele não usa sua liberdade de forma proposital. Ele vive em um estado de energia mínima, sem realizar nenhuma imperação sobre sua vontade.
 
 ### O EU MAL RESOLVIDO E A HISTERIA SOCIAL
 
 ### 1. O Eu Mal Resolvido
 
-O desontista, como imposto ao existir, e não autodeterminado, ou revivido de si, é um produto da determinação, ainda que ausente de comando ou maestria de seu determinador. O sopro de vida que Deus fez no homem é o impor ao corpo a alma, e esta é a ação única que Deus teria feito sem consentimento do homem. Após essa ação ser terminada, o barro ser desfeito, o homem é livre em si, mas não necessariamente vivo, autor das próprias escolhas.
+O desontista, como imposto ao existir, e desprovido do auto causar em si, isto é, não revivido de si, é criado, ainda que ausente de auto comando. O desontista não reinvindica a si mesmo, obedece cegamente o comando de existir por existeir, e não existir por aceitação, isto é, recusa a existencia em Espírito. Recusa sua ação espíritual vertical. 
 
-O desontista não é uma alma livre, e nem mesmo presa, pois toda intuição da realidade exige um eu que a interpreta. O desontista é simplesmente uma alma criada em mal-estar existencial. É o resultado que se define realizado pela vontade divina e unicamente obediente a esta, sendo em sua existência, mas não coagente e nem não coagente com essa vontade, simplesmente imóvel ao todo.
-
-Toda alma é livre como ação criadora livre de Deus; é Deus livremente se reconfigurando como uma nova determinação e escolhida por Ele, é uma nova vida de Deus, mas não significa que é uma nova vida em si, considerando que foi livre como ação de Deus, mas opta por ser livre como ação em si.
+O desontista é simplesmente uma alma em mal-estar existencial. É o resultado que se define realizado pela vontade divina, sendo uma existência, mas não coagente com essa existência, simplesmente imóvel ao todo. Toda alma é livre, dada livre pela ação criadora de Deus. É uma nova vida, mas não significa que é uma nova vida em si, considerando que foi livre como ação de Deus, mas não necessariamente opta por ser livre como ação em si.
 
 **Dinâmica Comportamental do Eu Mal Resolvido:**
 
-* Agressividade querendo mostrar que ele simula liberdade. Gosta de mandar porque se sente mandado. Determinado preso. Seguidor de regras. Não consegue conversar de eu pra eu. Precisa assumir uma personalidade. Precisa fingir um eu. Linguagem processual, de funcionamento ou incorporando personagem.
-* Não consegue interagir sem expressar seu desconforto. Não tolera pessoas alegres, se sentindo bem perto de si.
+O desontista tem certa agressividade querendo mostrar auto comando, simulando o pleno uso da liberdade pelo renascimento do Espírito, sua autoritarismo é uma copia da verdadeira liberdade, do verdadeiro auto domínio. O desontista tem prazer em ser autoritário porque se sente coagido. Determinado preso em seu amago. Sente-se um seguidor de regras. Tem dificuldade em conversar com o outro de eu para outro eu. Precisa assumir uma personalidade em substituição a sua verdadeira auto consciência. Precisa fingir um eu. Usa trejeitos processuais, de funcionamento ou incorpora personagens. Não esboça seu eu vivo, sua alegria natural, esboça uma persona fictícia de si mesmo. Ao falar, não fala de si, fala de um personagem de si. Não revela sua verdade pelos olhos.
+
+O desontista não consegue interagir sem expressar seu desconforto. Não tolera pessoas alegres, que se sentem bem mediante a auto presença.
+revisar
+
 * Sente que estão lhe fazendo passar vontade. Tenta aprisionar o outro de alguma forma, e exibir-se livre, pois sente que o outro está exibindo sua alegria e liberdade.
 * Tenta coibir a alegria geral.
 * Quando conversa, não tem tranquilidade, pois a conversa subentende um eu, com pessoalidade, sentimentos, opiniões; o desontista necessita criar um eu subjetivo, incorporar um personagem na fala. E essa personagem sempre tem traços de crueldade, pois é reflexo da situação dura na qual se enquadrou.
