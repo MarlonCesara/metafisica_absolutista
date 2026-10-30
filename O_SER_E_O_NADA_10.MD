@@ -750,12 +750,19 @@ O Ser se afirma, na extensão infinita que já percorreu toda a atualidade, uma 
 
 Enquanto a consumação afirma uma liberdade direcionada ao seu estado de existente, negando o não existir de si, isto é, afirmando sua necessariedade. A atualidade afirma-se existente da mesma forma, porém, livre para criar. Essa divergência de afirmações no contexto temporal distinguem o Ser em três pessoas distintas e isto exploraremos melhor em outro capitulo.
 
+O Ser portanto, em uma linha circular, é simples pois o Ser que se encontra no ato de construir-se Ser, é o mesmo Ser que constrói. Isto é, a circularidade termina no próprio Ser preservando sua simplicidade. O mesmo ser que constrói é o Ser que é construído. No entanto, isto provoca uma linha temporal infinita. Uma linha que é consumada, ao mesmo tempo que é atualizada a todo instante. 
 
+Após termos afirmarmos a temporalidade, agora afirmaremos a liberdade. O Ser é livre para Ser o que é. É livre para ser irrevogavelmente o que é. É livre para Ser o que é em plenitude. E é livre para determinar, isto é, se é livre para ser a si mesmo, sua liberdade é livre para criar. O próprio ato de Ser livre o permite criar a nível Absoluto, e está propriedade é explorada no livro ''O caminho apofático''.
 
+Portanto, a afirmação de sua liberdade de Ser indiferenciado, é também a afirmação de sua liberdade de criar. No entanto, a afirmação destes tres niveis de liberdade unidos a afirmação da temporalidade, resulta em um discernimento de três pessoas a nível absoluto.
 
+No ato volitivo da consumação, não pode ter havido determinações. A vontade que estabelece a consumação, está voltada somente para a consumação e não para a determinação. Isto é, a vontade da extensão consumada não é criativa. Existe em plenitude, isto é, é livre para existir consumada e para que esta consumação seja plena em si. Mas não é livre para a acidentação, no sentido de que sua escolha é refere ao Ser, sem oposição para a escolha do Não ser. No entanto, o ato atualizante é livre para a determinação, não possui um ato consumado, mas recebera podendo se fazer novo a todo instante.
 
+Temos portanto, a plenitude como a afirmação de Ser, em detrimento da afirmação de não Ser, que no caso do absoluto, não é possível, pois não é contingente. Portanto, a afirmação de Ser está tanto na consumação quanto na atualização, pois não é possível determinar sob o não ser, e nem mesmo existir consumado não se existindo para a consumação. Portanto, considerando que o não ser, não possibilitaria a atualização que determina e nem a consumação, temos que a plenitude está tanto com o consumador quanto com o personalizador. Portanto, temos uma pessoa que chamaremos de Espírito da plenitude que participa da pessoa fundamentadora e da pessoa personalizadora. 
 
+A plenitude é uma escolha por si mesmo em completude, é uma concordancia do que é consigo mesmo. Existir em plenitude é percorrer um caminho vertical que rege entre o Ser e não ser, porém, sempre em direção ao Ser, a não plenitude seria Ser, e não percorrer em direção ao Ser. Ser em plenitude é existir em concordância, existir em liberdade com a própria existência, isto é, é afirmar a própria liberdade em cima do que é, é Ser sendo livre para Ser e exercendo o ato de Ser pela própria vontade.
 
+Já a personalização é determinar entre escolhas que envolvam uma horizontalidadade, na condição de Ser, a personalização é determinar uma escolha a partir do ato indeterminado do Ser. A personalização é criar uma realidade optativa. 
 
 
 
