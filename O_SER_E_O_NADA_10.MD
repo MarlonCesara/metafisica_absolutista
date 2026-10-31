@@ -598,6 +598,8 @@ Neste mesmo sentido, o Ser é aquele que é e se identifica pelo seu próprio fu
 
 "Autocausar" e "Ser" não carregam diferenças conceituais. No entanto, o termo "autocausar" traz um sentido explicativo: deixa explícito que o termo veio da inferência de uma propriedade para o Absoluto, enquanto o termo "Ser" não deixa imediatamente claro que foi inferido devido a uma propriedade do Absoluto.
 
+Ao se inferir que o incausado é necessariamente puro, se chega a conclusão que somente o existente fundido a sua identidade, seria realmente, puro. Pois somente se identificaria com o existente sem colisões, a identidade do próprio existir. Porém, ao inferirmos o incausado através da propriedade Absoluta da auto causalidade, chegamos no auto causar. E do auto causar deduzimos uma existencia que é identica a si mesma.
+
 ### 5. A Resolução do Problema da Relação na *Causa Sui*
 
 Se o Absoluto é o fundamento de tudo, ele não pode depender de nada. No entanto, a própria noção de "fundamento" ou "causa de si" (*causa sui*) parece introduzir uma relação — uma dualidade entre o que causa e o que é causado. Se o Absoluto é *causa sui*, então parece haver nele uma distinção: de um lado, ele como causa; de outro, ele como efeito. Isso comprometeria sua não-dualidade. Essa distinção, contudo, é apenas aparente. A autocausalidade não é uma relação dual, mas a afirmação de que o Absoluto não precisa de nada exterior para ser. No entanto, o problema persiste na linguagem: se a causa é algo "nele", ainda assim parece haver uma dualidade.
@@ -731,7 +733,9 @@ Está linha temporal se consuma, no entanto, conserva sua atualização em toda 
 
 O Ser que se encontra consigo, prova a atualização, concomitantemente a sua consumação. Isto é, o Ser de encontro a si mesmo prova que o Ser se atualiza a todo instante e que essa atualização se sucedeu numa linha horizontal infinita. Temos, então, a temporalidade do Espírito nesta linha infinita. Ao passo que temos a temporalidade da atualização.
 
-Não há um primeiro momento para o primeiro ciculo atualizador, nem um ultimo momento. O Ser simplesmente se entrega como um todo atualizado, neste sentido, interpretamos que este todo porta a propriedade da infinitude; pois se entrega sem estabelecer sua dimensão. Toda dimensão, de fato, é limitante, no sentido de que é escolhida. Portanto, se existisse um tempo de inicio e final para o ato atualizador, ou um numero de vezes para a atualização, isto determinaria o Ser.
+Não há um primeiro momento para o primeiro ciclo atualizador, nem um ultimo momento. O Ser simplesmente se entrega como um todo atualizado, neste sentido, interpretamos que este todo porta a propriedade da infinitude; pois se entrega sem estabelecer sua dimensão. Toda dimensão, de fato, é limitante, no sentido de que é escolhida. Portanto, se existisse um tempo de inicio e final para o ato atualizador, ou um numero de vezes para a atualização, isto determinaria o Ser. Também não há como definir uma velocidade para a atualização, simplesmente o atualizador se diz verbo, se diz ato, em atividade de si mesmo.
+
+E essa atividade se afirma plena de si, isto é, já foi percorrida em seu ato integral. Ao passo que é não determinada. Deduzimos, portanto, que a atualidade não pode ter fronteiras, ao passo que se entrega totalmente, dito isto, inferimos a infinitude para o ato. O ato, isto é, o verbo, é infinito. 
 
 ### 11. As pessoas do Ser
 
