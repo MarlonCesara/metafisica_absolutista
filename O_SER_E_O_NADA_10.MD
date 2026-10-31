@@ -1,3 +1,48 @@
+# A SUMA METAFÍSICA
+
+## Prefácio
+
+Este livro foi escrito com o propósito de preencher as lacunas existentes no campo da metafísica no que diz respeito à investigação do Ser. Minha maior motivação foi imaginar os efeitos que essa compreensão poderia produzir na sociedade. Uma vez compreendido o Ser, renova-se a esperança da humanidade e abrem-se as portas para uma compreensão mais profunda da alma humana, uma vez que é ela que fundamenta e constrói as relações sociais.
+
+Mazelas sociais como a miséria e a guerra, quando examinadas à luz de uma compreensão fundamental, podem ser mais bem trabalhadas e compreendidas. Portanto, promover a abertura da metafísica por meio da compreensão integral do Ser, sob uma perspectiva propriamente metafísica, representa também a abertura para um mundo construído e fundamentado sobre os alicerces de uma compreensão clara de sua própria base: o humano.
+
+É o humano que produz, que constrói, mas também é o humano que destrói e causa a escassez. Portanto, o princípio da compreensão do humano está em compreender o Ser, para, então, compreender aquilo que dele foi criado. 
+
+
+
+
+
+
+
+
+
+
+
+
+## Introdução
+
+O tema central deste livro é a investigação do auto causar e do Absoluto. Se o Absoluto é auto causal, quais propriedades emergem de sua própria auto causalidade? De que maneira podemos interpretar o próprio Ser a partir de seu auto causar? E, se auto causar significa Ser, como extrair do Ser propriedades como temporalidade, intencionalidade, poder, presença e conhecimento?
+
+O problema filosófico que se pretende enfrentar consiste em extrair do conceito de Ser todas as propriedades necessárias para fundamentá-lo como primeira causa e criador da realidade contingente. Partindo de uma definição clara do Ser como indeterminado, serão derivados conceitos como atualidade, consumação e ações libertárias, bem como sua capacidade de afirmar-se existente, pleno e personalizante.
+
+Portanto, o objetivo central desta obra é explorar e dissecar o conceito de Ser de tal maneira que se esgotem os recursos conceituais e as vias interpretativas pelas quais podemos compreendê-lo. Sob o amparo do pensamento de filósofos antigos, este livro propõe-se a abrir novos caminhos para a compreensão do Ser, investigando-o sob uma perspectiva ainda não vislumbrada.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## Capítulo 1. Lógica Diacrônica: A Contraparte Temporal da Identidade
 
