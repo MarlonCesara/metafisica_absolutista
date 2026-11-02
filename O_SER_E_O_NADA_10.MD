@@ -768,6 +768,14 @@ Em palavras mais claras, o Ser se constrói Ser em uma circularidade infinitamen
 
 Ao imaginarmos dois círculos que giram e que ao mesmo tempo se encontram em certa etapa do giro, temos uma visão mais clara do Ser, o Ser constrói ao si mesmo ao passo que o processo de construção é consumado em um ponto de encontro. O Ser produzido é ao mesmo tempo o Ser que produz, e ambos se encontram em um momento atemporal. Isto quer dizer que, o inicio do giro e o final do giro não existem de fato, o giro é uma infinitude manifesta. Temos, portanto, o giro infinito em temporalidade, essa temporalidade é consumada no sentido que é vista por inteira. E temos o ponto de encontro do fundamento, que corresponde a visão inteira desta temporalidade. Isto é, temos uma linha atualizante infinita, ao passo que temos o Ser consumado que é o ponto de encontro do Ser consigo mesmo.
 
+====
+O ato de identificar-se consigo mesmo, é em si, um ato de escolha de si fundido ao fundamento de si. Ou seja, ao eleger uma escolha entre outras na esfera da determinação, se estabelece um ato optativo e então após este ato se dá o escolhido. Por assim dizer, se o Ser se auto escolhe, há um ato envolvido em seu fundamento. Um ato que renova o fundamento, que elege o fundamento, e que é uma eterna eleição, no sentido de que, o ato de eleição não é um ou mais atos, mas é uma infinitude eletiva manifesta. Não é um ato dimensional, mas um ato de escolha de si mesmo que se dá como operante e consumado, pois o ato da escolha resulta necessariamente no Ser que é. O que quer dizer que o ato da escolha é inerente ao fundamento, de forma que o Ser, seja atualizado, seja um novo Ser ao passo que é ainda Ser; ao mesmo tempo, esta renovação está consumada. Temos então a renovação concomitantemente a renovação consumada. Desta forma, temos o Ser que é Ser cristalizado, ao passo que temos o Ser que é Ser operante de si.
+
+Porém não devemos confundir o momento do encontro do Ser consigo mesmo com a consumação. A capacidade de atualização se dá quando o Ser é a si mesmo e obtém a renovação de si. Sem que seja a si mesmo no ato da renovação, não teríamos a renovação, pois no ato da renovação o Ser seria outro. Então o mesmo Ser que se renova Ser, não é o momento da consumação. A consumação se dá quando o processo de renovação se apresenta como sem limites, sem fronteiras, sem início e final. Portanto, temos a consumação no processo de renovação. 
+
+
+===
+
 ### 10. A atualização e a infinitude temporal
 
 Há, desta forma, uma atualização continua, infinita, consumada em seu inicio meio e fim. Há a consumação e a atualiza no mesmo Ser. E o mesmo Ser que se reverbera e se consuma numa linha temporal. Também é o Ser que é construção de si, e o produto dessa construção. Não há o Ser que vai de encontro ao Ser, há um só Ser em processo de atualização e consumação.
