@@ -810,6 +810,9 @@ A plenitude é uma escolha por si mesmo em completude, é uma concordancia do qu
 
 Já a personalização é determinar entre escolhas que envolvam uma horizontalidadade, na condição de Ser, a personalização é determinar uma escolha a partir do ato indeterminado do Ser. A personalização é criar uma realidade optativa. 
 
+O fundamentador, que age na consumação, não poderia ter causado diferenças, a consumação se dá como ato completo. 
+
+Se a plenitude está tanto com o personalizador, e o fundamentador, então, define-se como uma interconexão entre ambas as pessoas. Pois, ambas carregam a tendencia para a plenitude, no entanto, ambas se divergem. Portanto, temos que, a mesma plenitude que está no fundamentador, está no personalizador. Sendo em si, uma terceira pessoa de interconexão.
 
 
 
