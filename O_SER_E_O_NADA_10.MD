@@ -773,6 +773,7 @@ O ato de identificar-se consigo mesmo, é em si, um ato de escolha de si fundido
 
 Porém não devemos confundir o momento do encontro do Ser consigo mesmo com a consumação. A capacidade de atualização se dá quando o Ser é a si mesmo e obtém a renovação de si. Sem que seja a si mesmo no ato da renovação, não teríamos a renovação, pois no ato da renovação o Ser seria outro. Então o mesmo Ser que se renova Ser, não é o momento da consumação. A consumação se dá quando o processo de renovação se apresenta como sem limites, sem fronteiras, sem início e final. Portanto, temos a consumação no processo de renovação. 
 
+Caso o Ser determine outro ente, o tempo do ato de construção é anterior ao ente, no sentido de que, quando o processo de construção é finalizado o ente se entrega a si em um tempo que é posterior ao tempo de sua determinação. Porém, o Ser contém em si o próprio tempo de sua auto determinação fundido a sua fundamentação. Isto, dá ao Ser a temporalidade atualizante, ao passo que a temporalidade de sua consumação como Ser.
 
 ===
 
