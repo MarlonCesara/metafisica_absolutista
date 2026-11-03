@@ -758,6 +758,11 @@ O ato de determinação fundido ao ato de fundamentação, já pressupõe uma re
 
 Porém, ao considerarmos uma realidade totalmente ausente de acidentes, temos que, o Ser sendo considerado de tal forma, já se pressupõe Absoluto, em vista de que não há diferenças em sua composição. Portanto, através da pureza, podemos considera-lo auto causal sem que antes o comparemos com o auto causar propriamente dito.
 
+Uma realidade pura é necessariamente auto causal. Pois dispensa barreiras em si, diferenças ou determinações. Portanto, pela pureza do Ser é possível deduzi-lo como auto causar. No entanto, o entendimento da origem do Ser enquanto causador de si mesmo é melhor esclarecido pelo conceito de auto causar. Pois neste conceito se esboça de forma mais clara que o auto causar do Ser é dado um auto causar absoluto.
+
+Apesar de deduzirmos que o Ser, por Ser puro é absoluto e auto causal, o significado da palavra auto causar representa de forma ainda mais clara esse sentido.
+
+
 ### 9. O ato da identidade e a consumação fundamentada
 
 O Ser é Ser em ato, no sentido de que sua autodeterminação, que é uma determinação diluída na fundamentação, lhe confere uma ação, uma constante atualização de si, no sentido de que é Ser sem cessar. Ao passo que sua fundamentação confere ao Ser a sua consumação. Nesse ínterim, o Ser é constantemente Ser em um fluxo de renovação, ao passo que se consolida Ser em um ato de consumação. Temos, nesse ínterim, uma linha horizontal temporal consumada, na qual o Ser se encontra de forma definitiva consigo mesmo, realizando-se Ser fundamentado, ao passo que há uma linha vertical em que o Ser, consumado, é atualizante. Temos, portanto, que, na consumação, há concomitantemente a atualização. Ao imaginarmos uma linha temporal infinita, na qual ocorre a consumação simultaneamente à atualização, temos que o Ser se consuma e se atualiza em toda a sua consumação. Temos, portanto, uma ação que fundamenta, ao passo que há uma ação que atualiza.
