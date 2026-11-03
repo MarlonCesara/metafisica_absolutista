@@ -830,6 +830,13 @@ O fundamentador, que age na consumação, não poderia ter causado diferenças, 
 
 Se a plenitude está tanto com o personalizador, e o fundamentador, então, define-se como uma interconexão entre ambas as pessoas. Pois, ambas carregam a tendencia para a plenitude, no entanto, ambas se divergem. Portanto, temos que, a mesma plenitude que está no fundamentador, está no personalizador. Sendo em si, uma terceira pessoa de interconexão.
 
+O processo de auto determinação fundido a fundamentação produz uma pessoa que é consequência da consumação, isto é, do ato auto criador. Ao passo que a pessoa que é atualizada e que é livre para determinar, se faz uma segunda pessoa distinta das tendencias da primeira pessoa que é consequência da consumação.
+
+
+
+
+
+
 
 
 
