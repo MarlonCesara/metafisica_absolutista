@@ -790,6 +790,12 @@ Não há um primeiro momento para o primeiro ciclo atualizador, nem um ultimo mo
 
 E essa atividade se afirma plena de si, isto é, já foi percorrida em seu ato integral. Ao passo que é não determinada. Deduzimos, portanto, que a atualidade não pode ter fronteiras, ao passo que se entrega totalmente, dito isto, inferimos a infinitude para o ato. O ato, isto é, o verbo, é infinito. 
 
+Se o Ser não fosse autor de sua auto escolha, o ato de construir-se não estaria em si mesmo, mas estaria voltado para uma determinação externa. Isto quer dizer que, o ente que identifica-se consigo mesmo, tem o tempo de instauração em si, tal como o tempo de vivencia dessa instauração.
+
+Caso o Ser determina um ente que presente, tal como o Ser, porém, que não sofra de seu próprio processo de construção, este segundo ente teria um tempo simples, no sentido que nao teria o tempo de construção inerente em sua própria fundamentação.
+
+Este tempo de construção, que é ato consumado, não quantificado ou dimensionado, dizemos infinito; no sentido de que, existe, mas não pode ser contato, medido e dimensionado, mas é que dado ato consumado.
+
 ### 11. As pessoas do Ser
 
 O Ser se afirma, na extensão infinita que já percorreu toda a atualidade, uma consumação. Isto é, uma consumação indiferenciada, sem acidentes, sem determinações. Ao passo que em sua atualização, isto é, em seu dom atualizador, o Ser se afirma livre para determinar, no sentido de que, é livre para provocar acidentes no que antes era apenas a indeterminação total instituída do Ser. Portanto, a atualização é criadora, enquanto a fundamentação é apenas existente e plena. Temos, portanto, que a afirmação da consumação apenas se afirma como existente e plena em si. Enquanto a afirmação da atualização se afirma criativa, afirma-se portadora de tendencias pessoas.
