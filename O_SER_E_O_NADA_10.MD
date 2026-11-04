@@ -834,7 +834,9 @@ O processo de auto determinação fundido a fundamentação produz uma pessoa qu
 
 
 
+A partir do momento em que se tem um traço da personalidade como o fundamentador, temos que a personalidade se distingue e entao o espirito da plenitude também se distingue. Teriamos entao um espirito da plenitude para o fundamentador e um para o personalizador. Porem, em ambos o espirito da plenitude se faz uma pessoa diferente. Ao passo que é o mesmo espirito da plenitude.
 
+Portanto, se a plenitude é personalidade do Fundamentador. Ao passo que plenitude é personalidade do personalizador. E, se a plenitude é uma escolha que é um traço particular, que é incorporado em cada uma das pessoas. Temos uma pessoa que integra as outras duas, ou seja, o fundamentador e o personalizador. A plenitude é uma pessoa instaurada em cada uma das pessoas, ao passo que as conecta.
 
 
 
