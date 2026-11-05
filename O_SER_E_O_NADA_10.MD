@@ -842,7 +842,7 @@ Portanto, se a plenitude é personalidade do Fundamentador. Ao passo que plenitu
 
 Temos, por síntese, um ato instaurador. Que necessariamente se dá despersonalizado. E este ato instaurador, se entrega como uma bivalência, ao passo que o construir-se é adimensional e atemporal. Isto é, que porte infinitude. O ato instaurador também porta atualização. Ao passo que, há o Ser finalizado como Ser, e o Ser em constante ato instaurador. O instaurar é inequívoco e imparável, ao passo que a consumação deste instaurar formaliza o Ser despersonalizado dentro de seu ato infinito.
 
-
+E este ato instaurador consumado e operante é benéfico, pois é direcionado a vida do que vive. Isto é, o bem, é a manutenção, o direcionamento a vida, a própria luz da existência. E não um sentimento desenvolvido ou evanescente no Ser, mas é a própria operação do Ser enquanto Ser. O Ser é a vida em doação, a vida pura que se doa ao vivente, que é transparente a tudo àquilo que se define contingente.
 
 
 
