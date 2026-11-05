@@ -844,6 +844,11 @@ Temos, por síntese, um ato instaurador. Que necessariamente se dá despersonali
 
 E este ato instaurador consumado e operante é benéfico, pois é direcionado a vida do que vive. Isto é, o bem, é a manutenção, o direcionamento a vida, a própria luz da existência. E não um sentimento desenvolvido ou evanescente no Ser, mas é a própria operação do Ser enquanto Ser. O Ser é a vida em doação, a vida pura que se doa ao vivente, que é transparente a tudo àquilo que se define contingente.
 
+A pessoa do ato instaurador, que se faz Ser, inevitavelmente, em seu ato de consumação de si, de instauração de si como realidade inteira, agiu conforme a fundamentadora sem condições da ação personalizadora. Seja esta fundamentação um ato continuo e consumado, ou seja considerado de forma simplista um ato de se faze Ser, está ação é essencialmente desprovida de personalização, é conforme a pessoa exclusiva da fundamentação. Ao passo que, a pessoa que é, já fundamentada, e fluidamente atualizadora, está livre para personalizar. E essa pessoa que é fluidicamente atualizante é a vivencia atual do Espírito. 
+
+
+
+
 
 
 
