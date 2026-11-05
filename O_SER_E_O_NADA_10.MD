@@ -714,6 +714,8 @@ Se definíssemos o "autocausado" como realidade estática, essa seria determinad
 
 Para aproximar a mentalização desta assertiva, podemos montar o seguinte cenário: o nada não existe, mas imagine que existisse. Este nada seria autocausal. Porém, como o nada é nada, não haveria o "causado", pois o causado seria o nada. Não havendo o causado, haveria apenas o causar. E o causar substituiria o causado, sendo para si mesmo seu próprio produto construído. Temos, portanto, a imagem formalizada do autocausar, usando como aparato mental somente para visualização a realidade impossível de um nada existente. O autocausar impera sobre si mesmo, e não sobre uma realidade externa a si mesmo ou sobre o nada. O autocausar realiza-se em seu próprio sentido.
 
+O Ser é uma realidade puríssima, naturalmente, é auto causal. O nada não pode ser auto causal, pois não existe, porém, o que é inefável necessariamente dispensa uma causa. Se o Ser é inefável, é auto causal e absoluto, pois dispensa barreiras, acidentes e causa.
+
 ---
 
 ### 8. A libertação do Ser e a autocausalidade
