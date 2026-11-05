@@ -836,17 +836,11 @@ Se a plenitude está tanto com o personalizador, e o fundamentador, então, defi
 
 O processo de auto determinação fundido a fundamentação produz uma pessoa que é consequência da consumação, isto é, do ato auto criador. Ao passo que a pessoa que é atualizada e que é livre para determinar, se faz uma segunda pessoa distinta das tendencias da primeira pessoa que é consequência da consumação.
 
-
-
 A partir do momento em que se tem um traço da personalidade como o fundamentador, temos que a personalidade se distingue e entao o espirito da plenitude também se distingue. Teriamos entao um espirito da plenitude para o fundamentador e um para o personalizador. Porem, em ambos o espirito da plenitude se faz uma pessoa diferente. Ao passo que é o mesmo espirito da plenitude.
 
 Portanto, se a plenitude é personalidade do Fundamentador. Ao passo que plenitude é personalidade do personalizador. E, se a plenitude é uma escolha que é um traço particular, que é incorporado em cada uma das pessoas. Temos uma pessoa que integra as outras duas, ou seja, o fundamentador e o personalizador. A plenitude é uma pessoa instaurada em cada uma das pessoas, ao passo que as conecta.
 
-
-
-
-
-
+Temos, por síntese, um ato instaurador. Que necessariamente se dá despersonalizado. E este ato instaurador, se entrega como uma bivalência, ao passo que o construir-se é adimensional e atemporal. Isto é, que porte infinitude. O ato instaurador também porta atualização. Ao passo que, há o Ser finalizado como Ser, e o Ser em constante ato instaurador. O instaurar é inequívoco e imparável, ao passo que a consumação deste instaurar formaliza o Ser despersonalizado dentro de seu ato infinito.
 
 
 
