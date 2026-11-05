@@ -788,6 +788,8 @@ Caso o Ser determine outro ente, o tempo do ato de construção é anterior ao e
 
 ===
 
+O ato auto determinista, faz com que o Ser não tenha sofrido o processo de auto construção, pois este processo seria anterior a si mesmo, mas faz com que ele seja o processo de auto construção. E se é um processo, este processo é consumado. Portanto, ao passo que o Ser se auto constrói, essa auto construção é completa. 
+
 ### 10. A atualização e a infinitude temporal
 
 Há, desta forma, uma atualização continua, infinita, consumada em seu inicio meio e fim. Há a consumação e a atualiza no mesmo Ser. E o mesmo Ser que se reverbera e se consuma numa linha temporal. Também é o Ser que é construção de si, e o produto dessa construção. Não há o Ser que vai de encontro ao Ser, há um só Ser em processo de atualização e consumação.
