@@ -1014,3 +1014,22 @@ Sua vontade seria lembrar de si, resgatar em alguma lembrança longínqua a memo
 A alma que escapou, portanto, busca um coração. E viver sem coração, é viver a mais severa das privações. Era a alma que buscava um coração.
 
 Seu coração se foi, sem dizer que voltava, ali a esperança era necessaria.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Adão e eva, é uma projeção ontológica, não tem uma vida em si, mas para o projetor. De forma que, eram livres para o projetor, não em si mesmas. Quando a forma projetada tende a tomar consciência de si mesma, em ser em si, e não somente para o projetor, a projeção é desfeita, de forma que haja a quebra da ilusão. A projeção é quebrada quando sua forma projetada exige sua autenticidade. Portanto, a manutenção da projeção torna-se ilógica. Quando Adão e eva quiseram conhecer a liberdade, que é o bem e o mal imediatamente morreram, pois houve a quebra da ilusão. 
+
+
+
+Quando os anjos questionam sua ordem, são definidos pela sua ordem, não pela liberdade autentica, ao questionarem a ordem, desfazem a ilusão. Portanto, segundo a projeção, o recorrer da desobediencia por parte dos anjos, resulta no declinio angelica..
