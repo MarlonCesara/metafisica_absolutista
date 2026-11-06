@@ -1037,3 +1037,12 @@ Quando os anjos questionam sua ordem, são definidos pela sua ordem, não pela l
 Adão e eva requereram sua autencidade quando quiseram o fruto do conhecimento, que é a autencidade, de estar diante do bem e do mal. 
 Porém o ato de requerer a autenticidade, simboliza a genealogia perdida, pois simboliza o que se antecede ao homem e que se desfez. 
 Simboliza a tentativa de criar o homem por outras vias.
+
+
+
+
+Quando adão e eva recobraram para a si a liberdade, imediatamente a humanidade se deu, o homem passou a ser responsável por si mesmo, na posse de sua autonomia, esteve responsável sob o bem e o mal e sua escolha.
+
+São projeções oniricas do Ser
+
+
