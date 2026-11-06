@@ -209,14 +209,31 @@ Isso leva a alma ao completo estado de mortidão e apatia, ao completo estado de
 
 A alma desontista se lança num apagão de si, numa completa anestesia que se iguala a morte eterna por sua eterna inoperância. É equivalente ao apagar das luzes da alma, a completa frieza, ao constante apagão de si dada a inatividade. A tendencia ao apagão, parece uma ação, no entanto, é a ação que se faz inação. No sentimento sentimental, isto quer dizer que o direcionamento a total apatia é o mesmo que a imobilidade desvelada em ato.
 
-
-
 Há, porém, uma camada intermediária, que é a alma que se faz indiferente, mas tem o tempo do ânimo, no sentido de que, em sua totalidade, pretende se reanimar. Encerra-se, quando desencarna (ou desincorpora), em um estado de esperança da saída de sua apatia. Um estado sujeito à temporalidade do seu espírito. No sentido de que a alma se lança num estado de potencialidade de si.
 
 
+O inferno em si não é a incidência de uma auto anulação no sentido de provocar um ente que no exercício de sua liberdade decide não mais a ter. Isto é, a incidência do fogo eterno sobre si mesmo não é um desgaste da própria liberdade, pois eternamente é decidido a permanência do fogo.
+
+Mas o inferno é uma consciência imóvel que não se move em razão de seu ódio infinito, de sua escolha infinita pela permanência que é indistinguível da total imobilidade.
+
+A alma, ao se desprender do corpo, que antes a movia, pois a defendia da imobilidade, e moralmente estabelecia uma defesa da auto supressão, no sentido de que, oferecia um instinto auto preservativo. Em antemão, desprendida do corpo, continua sua imobilidade em vida, porém, sem a defesa da auto preservação e sem os instintos que movem do corpo. Portanto, a alma desprendida permanece em uma apatia, em uma mortidão. Em uma escassez de desejo. Seu estado é continuado daquele que estava em vida, porém, sem a obrigatoriedade dos sentidos, do intencionar corporal, do desejo corporal. 
+
+A alma, entra num estado de alto esquecimento, ocasionado por um desejo infinito a isto. Realiza-se em sua forma mais precisa o ato de auto anulação. Como um apagão, uma incidencia sobre todos os dons da alma que a configuração como ente presente, dominante, 
 
 
 
+
+
+
+
+
+
+### O que são os anjos?
+
+
+Os anjos são projeções do humano que continuam operantes. Ainda que realizadas.
+
+Adão e Eva é uma projeção anterior do homem que realiza o sentido do homem de forma projetiva.
 
 
 ### **19. A Escolha Morta, a Indiferença e a Alma "Desontista"**
