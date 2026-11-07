@@ -5103,6 +5103,13 @@ Não digo que o desontista necessariamente tem gosto por coisas luxuosas, mas as
 
 
 
+## A consciencia virtualiza desontista
+
+Uma vez que o desontista não se apropria de si, tem sua consciencia presa a uma fonte a qual não assumiu o pertencimento, sente-se estatico, preso numa realidade virtual, não virtual no sentido maquinário, mas virtual no sentido de que é autentica como existente, mas não autentica o quanto existir para si. O desontista tem uma semi visão de si, um semi despertar. Sua transgressão ao Ser, envolve a transgressão de ser em plenitude em todos os sentidos, tanto no seu auto dominio, auto presença e auto conhecimento. O niilista, se conhece, mas não consente com o conhecimento, não tem a verdadeira experiencia do renascer.
+
+O niilista tem a impressão de ser uma vida denominada vida por vontade de outrem, e a expressão melhor deste conflito é ter o corpo preso a aparalhos que simulam uma realidade, porem uma realidade que não pertence ao individuo, uma realidade ocasionada, uma consciencia produzida e distante de si como autentica.
+
+O não se apropiar da consicencia a faz prisioneira. É uma sensação de aprisionamento, da total ausencia da liberdade. De um carcere desesperador e esattico, no qual o individuo se moviemnta sem ter propriedade de seus movimetos, enxerga, sem ter propriedade de sua visão, é presente, sem estar presente neste ato de presença. 
 
 
 
@@ -5198,3 +5205,6 @@ Portanto, o esquerdismo não é uma solução definitiva, mas uma barreira mais 
 Por enquanto o igualitarismo desperta o no homem o senso de igualdade, o sentido de que se deve obter dos bilionários, e o governo de esquerda viu na manutenção da vontade dos super ricos em manter os juros altos para fraturar a indústria brasileira, uma vantagem. Portanto, o governo usou a intenção dos bilionários como estratégia de governo, e ambas as partes se fizeram de acordo. Porém, isto deve ter um limite, pois chegará a um ponto em que não haverá nenhuma vantagem sequer na alta dos juros.
 
 Quando a indústria começar a enfraquecer completamente, outro partido deverá se apresentar com o intento de diminuir os juros, porém, neste estado se não houver outro partido com tal proposta, e se a direita é catastrófica, a única saída será pressionar os grandes poderios, manifestos no mundo todo, pois não haveria mais representantes políticos para salvar a economia, em vista de que, já não há. E, a única maneira de haver é enfraquecendo o poderio dos super ricos. Pressiona-los enquanto há tempo. É necessário desde já faze-lo. Pois, ainda que haja um presidente com bom intento, é facilmente morto ou aterrorizado pela força das grandes fortunas, que, como armas, dão o imperio do mundo a uma minoria.
+
+
+
