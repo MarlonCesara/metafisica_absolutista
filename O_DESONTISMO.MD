@@ -5150,6 +5150,25 @@ A expressão do desontismo se dá de diversas formas, através da escravidão, d
 
 O desontista enxerga-se, mas não enxerga-se dono de si, tem consciência, mas não se vê como possuidor de sua consciência, não assume o Ser para si, é, portanto, uma consciência que não é livre para si. Então não se descarta, nem mesmo a hipótese de experiencias cruéis submetendo o humano a estímulos sensoriais falsos produzidos por maquinas.
 
-O desontista sente que sua consciência é produzida por uma força exterior e que não lhe pertence de fato, ao passo que intenta a própria recusa de sua consciência. Sua intenção se realiza em seu próprio intento.
+O desontista sente que sua consciência é produzida por uma força exterior e que não lhe pertence de fato, ao passo que intenta a própria recusa de sua consciência. Sua intenção se realiza em seu próprio intento. Portanto, são diversificadas as formas de expressão do desontismo, existem expressões desde as mais fracas até as mais infames, isto é relativo a como o corpo do individuo ou do grupo de ínvidos interpreta, sente e entende sua postura interior. É relativo ao nível de sensibilidade de cada individuo desontista, seu tipo de inteligência e sua trajetória de vida.
+
+
+Portanto, é necessário que os bilionários sejam esvaziados de suas riquezas, que sejam pressionados a isto. E o povo, se desconhece os sintomas desontistas para ter ciência da urgência de tal pressão, é necessário que o povo chegue a consciência de erradicar bilionários de outras formas.
+
+O individuo de classe media, por vezes, está satisfeito com sua condição, e não deseja ou sente a necessidade de despojar de privilégios as grandes empresas, os fundos financeiros, e nem fazer com que seu pais pague por uma divida infringida de forma ilegal ao próprio pais. Portanto, o individuo só começa a requerer o dinheiro dos biolionários para si de forma a querer que ele seja destinado a politicas publicas, quando seu poder aquisitivo se iguala a pessoas que mais sofrem com a pobreza. Isto é, um achatamento da economia rápido, seria interessante para que o povo como um todo desperte o desejo de destituir os bilionários. Se não pelo medo de sua sintomática desontista, seria somente por necessidade de um povo.
+
+Pois o individuo comum, ao ter já o que lhe é conveniente, aparentemente abandona a questão dos bilionários como se não fossem preocupação, como se fossem somente pessoas abonadas que estão inocentemente aproveitando suas riquezas em seus luxos, quando isto não é verdade, os bilionários, acumuladores desenfreados, são indivíduos que não estão contentes com todo o seu poder, e que tendem a buscar a destruição, a expressão de seu conflito, pois o dinheiro não lhes é o objetivo real, o sincero deleite da vida, de novas experiencias é dado aos individuos que estão de acordo com o existir, que tem em si seu porto seguro. 
+
+O desfrutar, a riqueza, o deleite, são atos de deleite, de gratidão a vida em si, de proveito ao que existe e não atos de rejeição ontológica. Portanto, o bilionário, que alcançou essa fortuna por usurpação de força de mão de obra alheia, já demonstra seu desontismo no próprio ato da obtenção da riqueza, e se herdado tal riqueza, já demonstra o desontismo claro e nítido no próprio ato de conservação dessa riqueza. Pois o individuo orientado pela plenitude, sente um grande estranhamento, uma grande aversão a ver uma riqueza gigantesca acumulada para si ao passo que ve a miseria no mundo.
+
+O desontista cria desculpas para não dividir suas riquezas dizendo que isto nada adiantaria, pois é culpa da mentalidade do pobre sua escassez. Quando na verdade a escassez nasce de sua pressão sobre o mais fraco, de sua índole dominadora. De sua insensibilidade social dada pelo conflito em si que parece maior que qualquer alerta que venha de um senso de humanidade em si mesmo.
+
+Portanto, se o individuo é bilionário, necessariamente é desontista. A probabilidade de não ser é ridiculamente pequena, tal como afirma o próprio Mestre: É mais fácil um rico...". O individuo que retem riquezas e não é desontista, necessariamente tem um uso social para está riqueza. Vamos considerar um exemplo de um artista que é criticado, atacado até seu corpo sucumbir a uma depressão, portanto, conservando determinada quantia, isto lhe ajuda a recorrer a meios para suportar ou converter a energia das massas em positividade. Portanto, está é uma riqueza de manutenção de estima, de manutenção do ato de ser artista, do ato social de contribuir para o animo coletivo, e está riqueza é justificava mesmo mediante a pobreza, considerando que, o mundo sem alegria, seria ainda mais pobre.
+
+Acontece o mesmo com empresários que promovem ideias novas e tem contato com a midia ou com grande numero de pessoas. Portanto, há o acumulo de estima que visa a manutenção daquele que absorve grande carga social negativa e necessita dissipar a negatividade usufruindo de diversos recursos. Este dinheiro não é desontista pois o individuo está gerando riqueza para a sociedade e colocado seu dinheiro em serventia a sociedade.
+
+
+
+
 
 
