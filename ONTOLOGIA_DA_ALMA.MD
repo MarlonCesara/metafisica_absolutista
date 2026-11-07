@@ -239,6 +239,22 @@ Adão e Eva é uma projeção anterior do homem que realiza o sentido do homem d
 ### **19. A Escolha Morta, a Indiferença e a Alma "Desontista"**
 
 
+O desontista tem Sua intenção se realiza em seu próprio intento. Isto é, seu intentar pela auto anulação já o é. E em vida, o corpo impede que a alma realize seu intento. Apesar de que, com a falencia corporea a alma continue com a mesma postura se desontista em vida corporea, desprovida do sentido do corpo direcionado a auto preservação, a alma realiza seu intento, não somente de forma a se direcionar a sua nulidade, não somente a sua postura imovel, mas direciona-se a realização maxima de sua imobilidade.
+
+Seu intento pela anulação, que já é uma imobilidade, se realiza sem as barreiras do corpo, se a natureza do corpo que se movimenta e se preserva. Portanto, a alma desontista, desprovida do corpo, incide sobre si mesma a ultima possibilidade para sua intenção, isto é, a alma usa dos últimos recursos libertários para provocar sua anulação.
+
+Se o agente que provoca deve estar ativo, para haver anulação, caso contrário, nem mesmo a anulação se teria, mas se teria o nada. Para todo ente anulante, se pergunta qual o agente da anulação. Temos, que, o máximo ato da anulação não é a aniquilação.
+
+Mas, é a tentativa da aniquilação, protegida pelo intento. Isto quer dizer que, o nada não se realiza em si, através da vontade, pois a vontade ao nada ainda conserva a vontade. E não é possível ser nada, ao passo que, o nada, nada é. 
+
+Desta forma, a alma, inoperante, lança sobre si um ato de fuga constante, sem realização total. Desta forma, há o ato auto destrutivo, auto aniquilante, sem que seja realizado de fato. O ato aniquilante, é um intento pela máxima recusa de si. 
+
+A recusa já se realiza pelo querer da recusa, que é uma imobilidade, é um Ser sem consentimento. Um ser não renascido. Porém, está recusa não se resuma no intento pela auto destruição que é o mesmo que a imobilidade. Mas, o intento se realiza não somente no querer, mas no buscar máximo pela auto destruição.
+
+E não é uma busca pela dor, mas a busca até mesmo da ausência do ser que se faz sentir doer. Portanto, a alma incide um apagão sobre si. Um sono, um afastamento de si mesma, uma ausencia de luz, uma completa cegueira. Um esquecer-se de si que se faz sem fim pelo querer. Este apagão acompanha, não somente a mortização da auto consciencia e auto presença, e auto dominio, mas na destruição do ente que contem essas propriedades. Temos que, há um apagão sobre o ser como consciente de si, ao passo que uma destruição incessante deste ser. Há as propriedades sendo apagadas de seu uso, ao passo que há tentativa de destruição destas propriedades. Compara-se a alguem que dorme e que se queima em seu sono.
+
+Caso seja possível para a alma descer ainda num nível maior de auto anulação e auto rejeição, a alma intentará a este meio. Se é possível para alma destruir ainda mais um dom lhe dado, como sugere a tradição da glorificação. Se lhe foi dado um corpo glorioso como dom, a alma, nega não somente a si, mas também seus dons. Então, a auto destruição atentaria contra este dom também em conjunto com as tres propriedaeds da alma e contra a alma em si.
+
 
 
 
