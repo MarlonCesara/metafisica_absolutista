@@ -5086,3 +5086,67 @@ O desejo pelas diferenças de classe é, em essência, o desejo por amor. É a b
 Em muitas das vezes, sua tentativa de se evidenciar, de crescer socialmente, de estar ascendido num patamar superior, é a pura necessidade de se amar, de tentar se converter interiormente. Por isso, nem sempre o pouco lhe sacia, não no sentido de que não sacia seus sonhos, mas no sentido de que não o converte. Portanto, o niilista está sempre soberbo, está sempre querendo mais do que pode ter, pois a necessidade de auto afeto, a necessidade de auto conversão o move para a procura do auto agrado de forma demasiada.
 
 Não digo que o desontista necessariamente tem gosto por coisas luxuosas, mas as busca não pelo gosto mas pela necessidade de auto afeto, pelo preecher afetivo do corpo que estranha sua postura e se sente desgostoso com tal visão. É um pedido de consolo e não uma busca por gostos pessoais.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+## Projeções politicas
+
+
+O desontista reconhece lideres politicos que estão a favor do ódio, sua consciencia secreta pela auto anulação, é compartilhada entre aqueles que a possuem. O desontista tem horror ao esclarecimento das verdades metafisicas, pois, uma vez desmantela-lo seu modo de pensar, suas ações e senetimentos, suas ações se tornam mais previsiveis.
+
+Portanto, o desontista sabe escolher o lider que melhor corresponde a seu desejo possessor, a sua obsessão por respostas.
+
+Uma vez que bilionário destrói as próprias riquezas naturais, a própria possibilidade de subsistência no mundo através de abalo ao clima do mundo, uma vez que o bilionário provoca guerra, seu interesse pela riqueza transparece ume mentira, uma vez que não se contenta com o acumulo e parte para a destruição massiva do mundo. De forma a destruir aquilo que mentirosamente ele pretendia aproveitar. Sua motivação se prova pelo sentido, e não pelo deleite dos bens naturais e possibilidades. 
+
+O desontista mata a cultura que quer aproveitar, mata os indivíduos com os quais se relacionaria, mata a natureza a qual faria proveito, e destrói ate mesmo sua chance de subsistência. Portanto, seu interesse se prova contrário ao que inicialmente parece seu objetivo. O, desontista super rico, na verdade, quer expressar-se, quer a solução do que lhe assombra, da posição interior que lhe causa estranheza e desespero.
+
+Nada é mais precioso que o dom da vida eterna, que conter a plenitude em si, que desejar a si mesmo. Portanto, o valor que quer o desontista rico transcende as riquezas materiais, e transpassa para a opressão do outro como medida desesperada de obter a tranquilidade ainda que possuindo o conflito interior. O corpo quer um apaziguameto, um consolo, o corpo quer o auto valor e sucumbe através da opressão.
+
+Nos tempos hodiernos, se ve que super ricos aumentam sua fortuna. Se vê movimentos em direção a desafortunação em diversos países aumentam. E, enquanto este movimeto é lento, um tanto sem animo, as fortunas aumentam. O povo pobre, quando levado a um igualitarismo, compreende a necessidade de se retirar fundos do que alimenta os bilionários. Quando a classe media que se julgava satisfeita é desfeita, o povo tende a se fazer uma unidade contra os super ricos. Pois o que os super ricos tiram da humanidade começa a fazer diferença para a classe media.
+
+Se tem assim, uma potencia manifestante maior contra os super ricos, e é o que está acontecendo nos tempos atuais, porém, este movimento cresce timido, e necessita ser acelerado através do real conhecimento da mentalidade dos super ricos. Que, neste momento, desenvolvem estratégias de dominação, tendo como base grandes fortunas para tal.
+
+Com uma grande fortuna é possível desenvolver maquinários com inteligência artificial, robôs que tem um poder de letalidade e dominação maior que o de uma bomba atômica, pois a i.a combinada a armas nucleares de curta destruição, fomentada por um altíssimo investimento tecnológico, pode, se sobrepor e se antecipar mediante a tecnologia do governo. Além disso, o poderio pode fomentar armas biológicas, vírus de destruição em massa os quais somente uma elite teria a cura ou estariam imunes, pois se criara a tecnologia em atemão para esses.
+
+Portanto, há modos menos agressivos de dominação por parte dos super ricos, há formas de interromper a democracia sem que necessite ter infiltrados nos governos, sem que se necessita pagar manipulações em massa através de redes socias e mídias. 
+
+Portatanto, o ultimo mecanismo é a tecnologia, e parece que ja está sendo fomentado, pois recentemente se trocou o nome da i.a para super i.a, há materiai dando a entender que a inteligencia artificial pode entrar em descontrole, ou seja, estão tentando criar o pretexto, em antemão que as armas que usam i.a ficarão desgoveradas, e não controladas por seres humanos desontistas.
+
+Já está sendo criada a narrativa de que as armas que tentarão tomar a democracia, estarão em desgoverno, quando na verdade, já em antemão estão tentando mascarar os verdadeiros causadores da desordem das maquinas, que são os super ricos, que fomentam novas tecnologias em segredo. Uma bomba nuclear não é uma arma de dominação ao passo que vários países possuem e ao passo que destrói o que se visava dominar. O niilista não intenta o suicido de forma breve, pois a sintomática do niilista não necessariamente o leva ao ato suicida em vista de que, o desontista não busca a dor corporal, mas se intenta a anulação, e este intento é uma paralisia por si só. Este intento paralitico não exige o suicídio.
+
+Portanto, a tomada da democracia para um sistema de governo ultra opressor tentará ser feita pela tecnologia, uma vez que os movimentos nacionalistas tendem a se intensificar e coibir a ação empresarial dentro das instituições politicas.
+
+Portanto, é urgente que os movimentos anti bilionários se intensifiquem ao passo que a i.a evolui em níveis absurdos. É necessário desarmar os bilionários do poder de financiar pesquisas tecnológicas e de se antecipar na criação de armas tecnologias antes mesmo dos governos.
+
+Se uma empresa pode se adiantar em criar a primeira i.a, uma empresa também pode se adiantar em criar a primeira arma de dominação massiva, aquela que é indestrutível por qualquer arma desenvolvida ate hoje. 
+
+Podemos fazer uma alegoria. Imagine que um exercito de drones, com um poder de fogo sem igual, uma inteligência de organização sem igual, um grau de letalidade inigualavel, avance em direção a um país. Ao lançar misseis em direção a estes, estes se desviam. Ao lançar redes, estes estão em milhares, tanto em terra como em mar. Portanto, há ferramentas mais letais que armas de destruição em massa.
+
+E essas ferramentas podem ser construídas por grupos privados antes mesmo de que todos façam usufruto delas. E isto, é de fato, o maior perigo moderno. E para, que se evite isto urgentemente, é necessário conhecer a fundo a mentalidade desontista, conhecer o anseio, a pressa com que tais indivíduos procuram saídas, é necessário conhecer que não buscam exatamente a riqueza, mas querem mais que isto. Querem a expressão, a dominação, querem que a humanidade experimente o mesmo absurdo que experimentam, querem a cura.
+
+A humanidade necessita conhecer o verdadeiro intuito da guerra, dos holocaustos, necessita conhecer índole de quem fez coisas aconteceram no passado, para passar a prever o que pode acontecer no futuro. Precisa reconhecer no humano, o que lhe desperta a tendencia pela abominação. Quando a humanidade entender a seriedade do conflito, o que se passa na cabeça de um super rico que tenta abolir a democracia dos países, a humanidade entenderá que é urgente que se desarme os super ricos, pois existem armas nas mãos de desontistas, e estás armas se chamam grandes fortunas. Se usadas da forma certa, podem conduzir a humanidade a abominações piores do que todas as que já ocorreram até os dias de hoje.
+
+O desontista não quer só dinheiro, não quer somente a opressão, quer o horror, quer o sentido a qualquer custo, quer dominar até os pensamentos humanos, quer encarcerar, torturar, extrair o que ele denomina como elixir da vida, fazer experimentos funestos com humanos. Expressar toda magoa e assombro interior, tal como ocorreu diversas vezes na história humana.
+
+
+
+
+
