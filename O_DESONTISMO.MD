@@ -5170,5 +5170,13 @@ Acontece o mesmo com empresários que promovem ideias novas e tem contato com a 
 
 
 
+A politica atual mantem os juros altos impedindo novos empregos, novos investimentos. Porém, isto muda o comportamento social, no sentido de que cria novos habitos de economia. Ao passo que também torna retilinio, elima privilégios. Porém, estes fatores sao possíveis aplicar de forma fitoterapica, a longo prazo, com o incentivo ao empreendedorismo, facilidade de abrir empresas, menos burocracia, inventivo ao empreendendor e pequeno produtor. 
+
+
+
+É possível diminuir o preço dos produtos pela competividade natural, ao se incentivar a competição, se tem a diminuição ainda mais acelerada dos preços. Portanto, ao se diminuir os juros, se economiza dinheiro do governo e esse mesmo dinheiro é investido para amenizar os preços dando ao pequeno agricultor, ao feirante, ao iniciante no empresarismo a chance de criar empregos e oferecer produtos mais competitivos. Ou seja, há uma forma menos agressiva de se diminuir a inflação, de mudar comportamentos sociais, de tirar privilégios dentro de empresas de indivíduos que ganham mais por predileção e não por mérito. O simples aumento da competição empresarial, a simples geração de abundantes empregos, a oferta abundante de produtos e serviços, por si só diminui o preço. Por si só já muda os hábitos dos indivíduos que tendem a conhecer novas formas de compra não porque lhe foi tirado o dinheiro, mas porque lhe foi oferecida novas formas de compra, novas oportunidades.
+
+O próprio ato de tornar competitivo o mercado empregador e o mercado de venda de produtos e serviços, já faz o humano mais econômico, mais consciente do que gasta, a economia se torna achatada ao longo prazo. Não sendo necessário os efeitos agressivos do aumento de juros.
+
 
 
