@@ -5179,3 +5179,14 @@ Então, a politica atual, tende a provocar esta consciência de forma rápida e 
 A pergunta é: porque uma medida tão rapida e não saudavel para o país? Seria pela urgencia em combater os bilionários? Uma urgencia que deveria ser despertada pela metafísica, mas não o é, porque a metafísica ainda não foi trabalhada por completo. Então, se usa meios menos saudaveis, que demandam mais energia para extrair os bilionários.
 
 No fundo, nossas mentes politicas, são geniais, conhecem melhor a história do que ninguém, e sabe que muito dinheiro na mão de poucos é sinônimo de destruição melhor do que o povo não erudito. Conhecem que a existencia de bilionários é o mesmo que um perigo eminente. Mas o povo não é despertado apenas pela intuição dos politicos, o povo quer argumentos, e essa metafisica é esse argumento que faltava.
+
+No entanto, a alta dos juros, pode ter dois ambitos, uma é a aceitação por parte da esquerda por enxergar algum beneficio, como o de despertar o instinto politico no povo pela igualdade, para reter o quanto antes as grandes fortunas e toda a manipulação, a qual o povo não imagina a intensidade. E outra vertente é o proveito do achatamento economico para enfraquecer os comercios, as medias empresas, e isso fomenta a manutenção absoluta dos grandes monopolios, uma vez que um país se torna comunista e outros não, há o enfraquecimento da industria, e comercio local perante o capital estrangeiro, uma vez que o cidadão comum se limita a ser um artesão.
+
+Isto é, a alta dos juros visa também a destruição, tal como congelar as dividas como proposto pela direita. Ambos são caminhos para fortalecer a dominação do imperio desontista, porem, o caminho da esquerda é, na verdade, um ganho de tempo, um pedido minimo de dignidade enquanto se encontra a soluçao para acabar com os bilionários.
+
+Isto é, os politicos de esquerda são mediadores que exploram o limite dos grandes monarcas modernos, conseguindo ao menos o minimo de dignidade para o povo, e tempo para que o povo reflita e desenvolva mecanismos de defesa contra o desontismo.
+
+
+
+
+O desontista debocha do pobre, se alimenta da expressão da pobreza, se expressa pela pobreza e debocha do mais pobre. Se enraivece quando contempla o estado de festa e de alegria quando ocorrem bons acontecimentos na humanidade, quando o povo se enche de esperança e otimismo.
