@@ -5146,7 +5146,9 @@ A humanidade necessita conhecer o verdadeiro intuito da guerra, dos holocaustos,
 
 O desontista não quer só dinheiro, não quer somente a opressão, quer o horror, quer o sentido a qualquer custo, quer dominar até os pensamentos humanos, quer encarcerar, torturar, extrair o que ele denomina como elixir da vida, fazer experimentos funestos com humanos. Expressar toda magoa e assombro interior, tal como ocorreu diversas vezes na história humana.
 
+A expressão do desontismo se dá de diversas formas, através da escravidão, do assombro, da degradação do mundo, e até mesmo da tentativa de virtualizar a consciência humana, de forma a, representar a inoperância do desontista, de forma que o desontista transmita ser refém de uma vida da qual não consente, e da qual se fez prisioneiro como numa visão virtual de si.
 
+O desontista enxerga-se, mas não enxerga-se dono de si, tem consciência, mas não se vê como possuidor de sua consciência, não assume o Ser para si, é, portanto, uma consciência que não é livre para si. Então não se descarta, nem mesmo a hipótese de experiencias cruéis submetendo o humano a estímulos sensoriais falsos produzidos por maquinas.
 
 
 
