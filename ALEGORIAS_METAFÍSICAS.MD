@@ -1046,3 +1046,6 @@ Quando adão e eva recobraram para a si a liberdade, imediatamente a humanidade 
 São projeções oniricas do Ser
 
 
+
+O homem, sem um sentido anterior, sem ser o resultado da união de duas almas, pois houve o romper da ilusão, adão e eva recobraram sua autenticidade, portanto, a alma humana se tornou sem sentido anterior, sentido atribuio posteriormente pelo sacrifico de Deus, que conferiu uma genealogia divina ao homem.
+
