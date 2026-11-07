@@ -3150,6 +3150,9 @@ A alegria e a felicidade não podem cessar, mesmo diante da ação desontista. A
 
 A poluição da natureza, do ar, a devastação das belezas naturais – nada disso é um ato de sobrevivência ou resultado de uma tecnologia ainda rudimentar que impossibilite o ser humano de ser autossustentável. Toda descaracterização da natureza que transmite a sensação de despropósito, todo cenário humanamente modificado e poluído ao ponto de provocar um vazio em quem o contempla, vem de um pensamento desontista. O desontista não permite a contemplação; o sentido da criação, para o desontista, deve ser extinto. A harmonia da biologia, as belezas naturais, tudo isso ofusca seu objetivo central, que é acreditar no ateísmo e no desontismo como forma de pensamento. Ao contemplar a beleza dos pássaros, das flores, o desontista retorce-se em dor e agonia e tenta se mascarar num cenário de mundo pós-apocalíptico. O ser humano tem sido levado, induzido pelo pensamento desontista, e até hoje não o conhece com exatidão. Porém, a partir da produção e divulgação deste pensamento, tudo mudará. O mundo mudará.
 
+### **A expressão do desontismo na mulher**
+
+O desontista rico opta por uma mulher confeccionada em fábrica, no sentido de ser corporalmente modificada para seu proveito e de ter sua mentalidade esvaziada de pensamentos e reflexões, servindo-lhe como uma boneca sem vida. Essa aceitação do desontista de uma mulher como tal é também a expressão de seu interior, de sua realidade não apropriada, de sua mentira interior. É a expressão de um estado fictício de consciência: uma consciência não desperta, mas ativa. O desontista opta por uma mulher completamente formatada como uma boneca, com falas programadas e partes do corpo modificadas, ao ponto de desfigurar seu sentido original de corpo.
 
 ### **O existencialismo e a droga vendida pelos bancos e grandes instituições**
 
@@ -5186,7 +5189,8 @@ Isto é, a alta dos juros visa também a destruição, tal como congelar as divi
 
 Isto é, os politicos de esquerda são mediadores que exploram o limite dos grandes monarcas modernos, conseguindo ao menos o minimo de dignidade para o povo, e tempo para que o povo reflita e desenvolva mecanismos de defesa contra o desontismo.
 
+O desontista debocha do pobre, se alimenta da expressão da pobreza, se expressa pela pobreza e debocha do mais pobre. Se enraivece quando contempla o estado de festa e de alegria quando ocorrem bons acontecimentos na humanidade, quando o povo se enche de esperança e otimismo. Quando a politica promove uma melhoria, o desontista rico momentaneamente se contenta com seu plano, aquele que lhe garante que a alegria do povo será passageira, isto aplaca sua furia momentaneamente.
 
+Portanto, o enfraquecimento da economia está ocorrendo neste momento neste país, até que chegue a um ponto que destrua a ponto de não produzir nenhuma melhoria. A ponto de não reduzir mais a inflação, não promover mais o sentimento de igualdade, mas se direcionar exclusivamente a destruição, neste momento o partido de esquerda presente, terá seu sentido invertido, terá exposto a sua ineficiência contra os bilionários, será exposto como uma tentativa de intermediar um bem, através de um deixar-se manipular de forma menos entregue do que o partido de esquerda.
 
-
-O desontista debocha do pobre, se alimenta da expressão da pobreza, se expressa pela pobreza e debocha do mais pobre. Se enraivece quando contempla o estado de festa e de alegria quando ocorrem bons acontecimentos na humanidade, quando o povo se enche de esperança e otimismo.
+Portanto, o esquerdismo não é uma solução definitiva, mas uma barreira mais lenta contra o fascismo, contra os monarcas. Porém, esta barreira exige constantes jogos de cintura, o politico de esquerda é alguém que tenta manter o equilíbrio que permeia entre a total catástrofe e o limite suportável da miséria. 
