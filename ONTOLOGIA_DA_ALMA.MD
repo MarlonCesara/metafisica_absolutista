@@ -255,7 +255,9 @@ E não é uma busca pela dor, mas a busca até mesmo da ausência do ser que se 
 
 Caso seja possível para a alma descer ainda num nível maior de auto anulação e auto rejeição, a alma intentará a este meio. Se é possível para alma destruir ainda mais um dom lhe dado, como sugere a tradição da glorificação. Se lhe foi dado um corpo glorioso como dom, a alma, nega não somente a si, mas também seus dons. Então, a auto destruição atentaria contra este dom também em conjunto com as tres propriedaeds da alma e contra a alma em si.
 
+Portanto, o inferno, seria algo pior do que o proprio sentir da dor, seria a propria ausencia do sentir, unido a uma tentativa constante de auto aniquilação, somado a tentativa de destruir qualquer dom. Seria um ataque a todas as propriedades que formalizam o ente, desde sua auto presença, auto dominio, auto conhecimento, até sua integralidade.
 
+Ao considerar a glorificação da tradição católica, seria um corpo que queima sem cessar, sem a identificação de um eu. Pois no contexto do corpo glorioso a alma tem um dominio maior, e poderia incidir sobre si mesma a completa anestesia.
 
 
 
