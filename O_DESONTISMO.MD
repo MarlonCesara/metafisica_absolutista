@@ -5150,5 +5150,6 @@ A expressão do desontismo se dá de diversas formas, através da escravidão, d
 
 O desontista enxerga-se, mas não enxerga-se dono de si, tem consciência, mas não se vê como possuidor de sua consciência, não assume o Ser para si, é, portanto, uma consciência que não é livre para si. Então não se descarta, nem mesmo a hipótese de experiencias cruéis submetendo o humano a estímulos sensoriais falsos produzidos por maquinas.
 
+O desontista sente que sua consciência é produzida por uma força exterior e que não lhe pertence de fato, ao passo que intenta a própria recusa de sua consciência. Sua intenção se realiza em seu próprio intento.
 
 
