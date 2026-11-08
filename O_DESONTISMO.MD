@@ -5210,4 +5210,15 @@ O governo não sofre somente pressão dos monarcas bilionários, mas do próprio
 
 Portanto a alta de juros pode estar relacionada a uma tendencia do povo a se elevar como empresário, uma obrigação a si mesmo, um auto desafio, pois na escassez de empregos técnicos se faz necessário empreender para não se submeter a um sub emprego. Diversos hábitos são mudados, os preços se reduzem, e os hábitos de compra se voltam para as novidades de mercado, as inovações, as pessoas que barateiam as ideias. É mais provável que a alta dos juros esteja associado ao desejo do próprio povo. Que, faz com que a esquerda pareça um pouco agressiva, por consentir com o desejo da maioria. E não exatamente com o desejo de fundos financeiros.
 
+Desde que seja controlada, e tenha prazo de termino estabelecido, a alta dos juros nao serve exatamente com o fim unico de diminuir a inflação, mas de mudar os habitos que foram fomentados por decadas que se fazem mecanismos das diferenças sociais.
+
+Então, desde que controlado, é util sim, a alta dos juros e desde que não chega ao ponto de perpetuar sem cessar ou de começar a uma quebra generalizada de industrias.
+
+Vamos citar o exemplo de uma empresa que paga super salarios para sem funcionarios, e para os outros cinco mil, paga um valor misero. Com a baixa dos juros este habito continua, pois a empresa é alimentada, e as competidoras, tendo o mesmo habito, se tem uma estabilização de um habito. Porém, forçando a empresa a economizar, se tem a destruição do velho habito de priorizar sem funcionarios. E, o salario destes, pode ser distribuido entre os demais, há, portanto, espaço para priorizar os demais.
+
+Outro habito ruim é a escassez de empreendimentos, com o excesso de empresas ocasionadas pela baixa dos juros o cidadão comum não é levado a fazer seu próprio negocio, criando abundantes trabalhadores e poucos negocios, dificultado a competição empresarial que leva a queda dos produtos.
+
+Portanto, a alta dos juros tem um valor estrutural, e se faz necessario sim quando é necessario mudar os habitos de consumo, a cultura empresaria. E neste momento, parece ainda ser necessario. Uma vez que é possível ainda identificar fucionarios privilegiados com super salarios, pequenos empresaros comprando altas posses, isto denota falta de competitividade, uma gordura social que pode ser diminuida com a alta dos juros.
+
+Então, é um mecanismo de crescimento interno, as relações trabalhistas se igualam, as relações de consumo se modificam dando prioridade as empresas emergentes, os empregos tem seus salarios diluidos, as empresas param de girar em torno da predileção, e começam contratar com base na necessidade.
 
