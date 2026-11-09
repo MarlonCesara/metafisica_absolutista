@@ -5094,7 +5094,7 @@ Não digo que o desontista necessariamente tem gosto por coisas luxuosas, mas as
 
 
 
-## Dasontista e o pecado
+## Dasontismo e o corpo humano
 
 
 O pecado é um ato que atenta contra o bem, sendo o bem a inclinação, o consentimento ao Ser. Consideremos que o pecado seria um ato que tem como base a intenção direcionada a transgressão do Ser. Por si só, um ato fisco, não é considerado pecado, desagregado da intenção, portanto, não é considerado o ato físico pecado, mas o movimento ocasionado pela alma na intenção de transgredir seu próprio Ser. Portanto, a melhor definição de pecado, é um movimento da alma, e não um movimento físico.
@@ -5120,11 +5120,15 @@ Uma vez que o desontista não se apropria de si, tem sua consciencia presa a uma
 
 O niilista tem a impressão de ser uma vida denominada vida por vontade de outrem, e a expressão melhor deste conflito é ter o corpo preso a aparalhos que simulam uma realidade, porem uma realidade que não pertence ao individuo, uma realidade ocasionada, uma consciencia produzida e distante de si como autentica.
 
-O não se apropiar da consicencia a faz prisioneira. É uma sensação de aprisionamento, da total ausencia da liberdade. De um carcere desesperador e esattico, no qual o individuo se moviemnta sem ter propriedade de seus movimetos, enxerga, sem ter propriedade de sua visão, é presente, sem estar presente neste ato de presença. 
+O não se apropiar da consicencia a faz prisioneira. É uma sensação de aprisionamento, da total ausencia da liberdade. De um carcere desesperador e estatico, no qual o individuo se moviemnta sem ter propriedade de seus movimetos, enxerga, sem ter propriedade de sua visão, é presente, sem estar presente neste ato de presença. 
 
+O intento da alma desincorporada é uma total apatia, um total não movimento, um total não despertar. Este não despertar é intencional. O não movimento da alma se faz uma ação pois lhe é atribuído vida. Portanto, a imobilidade torna-se uma intenção, uma intenção cheia de ódio, sem propósito, vazia.
 
+Uma intenção que tende a não sustentação, que tende ao sumiço, que tende a auto supressão. A imobilidade tende a seu ápice, e o ápice da imobilidade é a auto aniquilação. Então, a alma intenta contra si, colapsa em si mesma até o limite de seu ato de colapso. Explora ate o limite de sua liberdade.
 
+Da mesma forma, o corpo, não se move no sentido de se orientar pelo espírito, mas é solto, é dado a própria biologia que se guia livre animalesca e ainda é influenciada pela percepção da alma desontista. E isto agrava o comportamento puramente animalesco, sem nenhuma clareza de juízo em momento algum.
 
+Portanto, o corpo não se direciona exatamente a auto sabotagem, mas, ao se auto sabotar, o faz porque foi lançado a mercê dos próprios instintos em toda a ocasião. E porque está sob o ímpeto de uma percepção desonstista. 
 
 
 
