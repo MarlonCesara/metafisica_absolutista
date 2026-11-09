@@ -5112,7 +5112,7 @@ O corpo, portanto, não zela pelo seu futuro, não possui um proposito de auto c
 
 E, ao misturarmos os sintomas desontistas narrados em todo este livro com essa postura de soltura, temos, portanto, os sintomas ainda piorados. Pois o corpo se rende a sua própria sintomática sem a ação da alma para frear estas expressões que por um breve momento parecem aliviar o desontista de sua auto constatação. De sua percepção da alma sem proposito, da alma que intenta a queda e a imobilidade. 
 
-
+Poderíamos argumentar, se o corpo está em direção a danação, porque não se sabota e se destrói? Porque a busca por prazeres imediatos ainda acontece? O desejo pela anulação, do ponto de vista almático, não é uma ação em direção a anulação, pois a ação envolve escolha e movimento. E movimento envolve o ente em autenticidade. O declínio da alma desontista não é dado pela ação, mas pelo permitir da inação que em si é uma ação. Portanto, a ação morta, que é o permitir da inação. No corpo, se mostra como uma entrega aos instintos, uma inação da alma que é uma ação. E não exatamente o ação do corpo. Mas é o corpo entregue a si mesmo, aparentemente sem ação do espírito que o habita, de forma que, esteja entregue aos seus instintos.
 
 ## A consciencia virtualiza desontista
 
