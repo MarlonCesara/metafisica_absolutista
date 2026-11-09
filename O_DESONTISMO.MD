@@ -5094,12 +5094,23 @@ Não digo que o desontista necessariamente tem gosto por coisas luxuosas, mas as
 
 
 
+## Dasontista e o pecado
 
 
+O pecado é um ato que atenta contra o bem, sendo o bem a inclinação, o consentimento ao Ser. Consideremos que o pecado seria um ato que tem como base a intenção direcionada a transgressão do Ser. Por si só, um ato fisco, não é considerado pecado, desagregado da intenção, portanto, não é considerado o ato físico pecado, mas o movimento ocasionado pela alma na intenção de transgredir seu próprio Ser. Portanto, a melhor definição de pecado, é um movimento da alma, e não um movimento físico.
 
+Portanto, o movimento da alma que intenciona a alto danação de forma que se manifeste imóvel. Esta intenção, no corpo, é manifesta de duas formas. A ação da alma é permitir que o animal humano atue sem uma orientação em direção ao bem, isto é, sem o juízo que filtra se as ações tem intenção a plenitude do individuo ou não.
+E essa permissão é ao mesmo tempo uma inoperancia. Isto é, ao passo que se permite o corpo se comportar de forma totalmente animalesca, se deixa o corpo a deriva de seu instinto.
 
+Desta forma, o corpo, a deriva, age conforme o intuito de seu mundo fisiológico. Isto quer dizer que, entre um impulso maior que lhe auto destruiria, e um menor que preservaria, o corpo opta pelo impulso maior. Sua consciência lhe permite desfrutar daquilo que parece melhor no momento e que não causa tanto temor. Um exemplo, não vou perdoar certa pessoa, isso a longo prazo é ruim, mas a curto prazo é prazeroso conservar ressentimento.
 
+Essa postura, de total soltura do corpo aos prazeres imediatos, é uma atividade intencional. Ao passo que parece uma soltura, um abandono do alto juízo da liberdade, é uma soltura intencional. Este movimento do corpo acompanha alma que, ao passo que intenciona a auto anulação, se solta a mercê de força alguma se não àquela que lhe mantem existente, num declínio eminente. Da mesma forma o corpo, a mando da alma, se solta de forma a se sustentar pela força da propria biologia. 
 
+O pecado, portanto, não é um ato que conscientemente é ajuizado em direção a realmente o prazer, mas é um ato de soltura do corpo aos seus instintos impensados. É o corpo sem proposito, no qual não se predomina o ato da alma de consentimento com o Ser, o corpo se torna desprovido do proposito de existência e assume uma postura totalmente animal. 
+
+O corpo, portanto, não zela pelo seu futuro, não possui um proposito de auto construção, de edificação seja nesta vida ou em outra, mas age segundo sua própria natureza biológica.
+
+E, ao misturarmos os sintomas desontistas narrados em todo este livro com essa postura de soltura, temos, portanto, os sintomas ainda piorados. Pois o corpo se rende a sua própria sintomática sem a ação da alma para frear estas expressões que por um breve momento parecem aliviar o desontista de sua auto constatação. De sua percepção da alma sem proposito, da alma que intenta a queda e a imobilidade. 
 
 
 
