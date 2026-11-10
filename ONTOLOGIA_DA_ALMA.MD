@@ -283,7 +283,10 @@ Sentimento são passageiros, não definem exatamente a alma. A alma é uma vida 
 
 
 
+## O estado desontista a alma
 
+Podemos citar como exemplo a atribuição de vida a um objeto inanimado. Se este objeto continua imovel como antes, porém, a vida nele operando, esta imobilidade não é mais imobilidade, é ódio. No sentido que se torna uma intenção pela imobilidade, pois é impossível escolher não escolher. Quando atribuido de vida, a imobilidade, no ente inanimado, torna-se uma escolha.
+Uma escolha que é indistinguível da total mortidão, da total ausência de proposito. O proposito se dá com o primeiro movimento voluntario do ente, tudo o que move, se move em razão de estar vivo. 
 
 
 
