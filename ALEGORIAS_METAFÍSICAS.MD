@@ -1059,4 +1059,8 @@ O homem, sem um sentido anterior, sem ser o resultado da união de duas almas, p
 
 
 Há a alma predonimante e a predominada. De forma que se façam um só corpo. Portanto, independente do genero humano, há alma feminina que é a predominada e a masculina que é a que predomina.
+As tendencias femininas um corpo masculino, em nada se relacionam com o desontismo.
 
+
+
+A desforia de genero nada mais é do que uma exaustão da critica popular, que tenta se escarnecer, zombar, diminuir, ou ridicularizar o corpo masculino com trejeitos mais feminimos no intento de diminuir sua sensibilidade, alegria e proposito.
