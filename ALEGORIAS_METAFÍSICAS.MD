@@ -1049,3 +1049,14 @@ São projeções oniricas do Ser
 
 O homem, sem um sentido anterior, sem ser o resultado da união de duas almas, pois houve o romper da ilusão, adão e eva recobraram sua autenticidade, portanto, a alma humana se tornou sem sentido anterior, sentido atribuio posteriormente pelo sacrifico de Deus, que conferiu uma genealogia divina ao homem.
 
+
+
+
+
+
+
+## O gênero das almas
+
+
+Há a alma predonimante e a predominada. De forma que se façam um só corpo. Portanto, independente do genero humano, há alma feminina que é a predominada e a masculina que é a que predomina.
+
