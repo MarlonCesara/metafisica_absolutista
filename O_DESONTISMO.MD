@@ -5237,3 +5237,24 @@ Portanto, a alta dos juros tem um valor estrutural, e se faz necessario sim quan
 
 Então, é um mecanismo de crescimento interno, as relações trabalhistas se igualam, as relações de consumo se modificam dando prioridade as empresas emergentes, os empregos tem seus salarios diluidos, as empresas param de girar em torno da predileção, e começam contratar com base na necessidade.
 
+
+Com a alta dos juros, indivíduos com potencial de ser empresários se acomodam com largos salários em empresas, ao passo que os indivíduos desontistas que sobem e dominam a empresa com base em pressão e perseguições internas, podem permanecer em altos salarios, formando uma elite de expressão desontista dentro da empresa.
+
+As técnicas de crescimento dentro da empresa do desonstista é: perseguição ao outro, boicote de novas contratações, exaustão de concorrentes com potencial de crescimento, controle da empresa conhecendo processos e demitindo pessoas que exercem grande influencia no processos da empresa, provocações para levar a discussões e atitudes ante éticas, armações, fofocas, calunias, etc.
+
+
+Trabalhar é pensar, e não um movimento fisico, exceto no esporte. Portanto, individuos pensamentes denntro de empresas, que não estão produzindo novas ideias para a sociedade, são exortados a sair em vista da diminuição natural dos salarios dentro da empresa.
+
+
+
+
+
+
+
+
+
+
+
+
+
+A descrição do desontista, é ''isso é insuportável'', não quero sacrificar minha criança interior como se uma bruxa a desse uma maça e ela adormecesse para sempre. O desontista, em lagrimas, narra sua situação ser insuportável. Por vezes incorpora trejeitos do que julga ser seu algoz interior, como tatuagens que denotam morte, trejeitos de viloes, etc.
