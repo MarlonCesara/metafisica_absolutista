@@ -1050,7 +1050,11 @@ São projeções oniricas do Ser
 O homem, sem um sentido anterior, sem ser o resultado da união de duas almas, pois houve o romper da ilusão, adão e eva recobraram sua autenticidade, portanto, a alma humana se tornou sem sentido anterior, sentido atribuio posteriormente pelo sacrifico de Deus, que conferiu uma genealogia divina ao homem.
 
 
+1- O Ser precisa imaginar, idealizar o que será criado
+2- O Ser imaginou o homem e a mulher antes de cria-los
+3- Adão e eva são projeções ontológicas
 
+Da mesma forma acontece com os anjos. Porém, adão e eva foi uma projeção da natureza do homem, e não somente do homem como os anjos. Primeiro Deus imaginou infinitos homens, depois imaginou como se comportariam em vida. E então existiram os anjos e adão e eva.
 
 
 
