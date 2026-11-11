@@ -1056,7 +1056,7 @@ O homem, sem um sentido anterior, sem ser o resultado da união de duas almas, p
 
 Da mesma forma acontece com os anjos. Porém, adão e eva foi uma projeção da natureza do homem, e não somente do homem como os anjos. Primeiro Deus imaginou infinitos homens, depois imaginou como se comportariam em vida. E então existiram os anjos e adão e eva.
 
-
+Quando adão e eva quiseram despertar da ilusão, criaram o homem sem sentido anterior, e nisso se deu o pecado original.
 
 
 ## O gênero das almas
