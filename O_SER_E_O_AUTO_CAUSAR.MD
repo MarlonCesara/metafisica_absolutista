@@ -349,17 +349,7 @@ Enquanto o ser contingente pode ser negado em favor de outro, o Absoluto não po
 
 Portanto, não há como produzir uma realidade por meio da negação do Absoluto. Nesse sentido, ele não pode ser reduzido, negado ou acrescido.
 
-### 4. A Dinâmica Interna: Autocausalidade vs. Autodeterminação
-
-Sendo a única condição absoluta e não havendo qualquer alternativa além de si mesmo, é imperativo distinguir a natureza de sua causa.
-
-O Absoluto não é autodeterminado, mas necessariamente autocausal. Ele não pode possuir diferenciações internas, pois toda determinação de uma condição ou realidade em detrimento de outras (uma escolha) implica a negação de possibilidades distintas e a pressuposição de que haveria outras realidades possíveis a serem consideradas. Sendo absoluto, ele só pode ser a única condição, não havendo nele qualquer multiplicidade entre a qual escolher, nem um ato de escolha propriamente dito.
-
-Se houvesse autodeterminação, o Absoluto teria de escolher a si mesmo para ser aquilo que é. Nesse caso, o próprio ato de escolha constituiria uma determinação anterior à sua condição de Absoluto, introduzindo uma causa ou fundamento prévio e exterior a si mesmo. Isso seria ontologicamente contraditório. Conclui-se, em definitivo, que ele não é causado por escolha externa ou ação antecedente, sendo puramente autocausado.
-
-Esta autocausalidade é puramente interna. Ela não é anterior a si mesma (de modo que o Absoluto se causasse antes de existir). A autocausalidade atua como liberdade absoluta. Afirmar que o Absoluto é causa de si mesmo não significa postular um segundo absoluto criador, mas reconhecer que o próprio Absoluto é autor de si, operando como uma natureza que impõe a sua própria existência e age a partir de seu puro existir. Autocausar-se não significa proceder de uma fonte anterior, mas constituir-se no próprio ato de ser: fazer-se ser, consentir com a própria existência e ser, substancialmente, esse mesmo ato de consentimento. A natureza dessa autocausalidade será examinada com maior precisão no curso desta investigação. Por ora, concentremo-nos nos princípios fundamentais do Absoluto.
-
-### 5. A Indiferenciação do Ser
+### 4. A Indiferenciação do Ser
 
 Essa ausência de divisões e escolhas internas conduz à perfeita indiferenciação do Absoluto. Sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem de forma irrevogável. Não há em seu interior qualquer distinção, dualidade ou fragmentação que rompa sua pureza fundamental.
 
@@ -381,16 +371,27 @@ O inefável, por definição, dispensa propriedades e transcende qualquer predic
 
 Por fim, vale ressaltar que uma realidade completamente pura é categoricamente diferente de uma realidade não-existente (o nada). O nada não pode possuir teor de pureza, uma vez que sequer existe. É essa pureza absoluta que justifica o fato de o Absoluto ser o que é: sem causa externa ou anterior, subsistindo por si mesmo e a partir de si, sem recorrer a qualquer fonte exterior para constituir a substância da qual é feito.
 
+### 5. A Dinâmica Interna: Autocausalidade é Autodeterminação e Auto Fundamentação
+
+Sendo a única condição absoluta e não havendo qualquer alternativa além de si mesmo, é imperativo distinguir a natureza de sua causa.
+
+O Absoluto não é isoladamente autodeterminado, mas necessariamente autocausal, na condição de que possui a auto determinação homogênea à auto fundamentação. Ele não pode possuir diferenciações internas, pois toda determinação de uma condição ou realidade em detrimento de outras (uma escolha) implica a negação de possibilidades distintas e a pressuposição de que haveria outras realidades possíveis a serem consideradas. Sendo absoluto, ele só pode ser a única condição, não havendo nele qualquer multiplicidade entre a qual escolher, nem um ato de escolha propriamente dito.
+
+Se houvesse uma auto determinação isolada da auto fundamentação, o Absoluto teria de escolher a si mesmo para ser aquilo que é. Nesse caso, o próprio ato de escolha constituiria uma determinação anterior à sua condição de Absoluto, introduzindo uma causa ou fundamento prévio e exterior a si mesmo. Isso seria ontologicamente contraditório. Conclui-se, em definitivo, que ele não é causado por escolha externa ou ação antecedente, sendo puramente auto causal.
+
+Esta autocausalidade é puramente interna. Ela não é anterior a si mesma (de modo que o Absoluto se causasse antes de existir). A autocausalidade atua como liberdade absoluta. Afirmar que o Absoluto é causa de si mesmo não significa postular um segundo absoluto criador, mas reconhecer que o próprio Absoluto é autor de si, operando como uma natureza que impõe a sua própria existência e age a partir de seu puro existir. Autocausar-se não significa proceder de uma fonte anterior, mas constituir-se no próprio ato de ser: fazer-se ser, consentir com a própria existência e ser, substancialmente, esse mesmo ato de consentimento.
 
 
 
 
+Sendo o Absoluto razão de si mesmo, é, definitivamente, auto causal.
+Porém, sendo auto fundamentado e auto determinado em uma homogeneidade fundamental, o absoluto é autor de si.
+
+Porém, se dando como completo e não como opçõa futura de si mesmo o Absoluto é ao mesmo tempo consumado, fundamentador consumado de si.
 
 
+revisar
 
-
-
-O absoluto é definido como tal pois não há nada anterior, exterior ou motivo pelo qual deva ser como tal se não em si mesmo. Não havendo causa anterior, exterior e nem mesmo causa para sua natureza, se define realidade absoluta. Absoluto, portanto, é sinonimo do incausado.
 
 
 
@@ -2403,3 +2404,14 @@ Assim, aquilo que é determinado pode participar da pureza sem esgotá-la, e aqu
 ---
 
 
+
+
+
+#### rascunhos
+
+
+
+
+
+
+O absoluto é definido como tal pois não há nada anterior, exterior ou motivo pelo qual deva ser como tal se não em si mesmo. Não havendo causa anterior, exterior e nem mesmo causa para sua natureza, se define realidade absoluta. Absoluto, portanto, é sinonimo do incausado.
