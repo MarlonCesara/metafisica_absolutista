@@ -24,6 +24,14 @@ Mais do que uma investigação óbvia, repetitiva ou dependente de referências 
 
 
 
+
+
+
+
+
+
+
+
 ## Capítulo 1. Lógica Diacrônica: A Contraparte Temporal da Identidade
 
 **1. A Gênese da Lógica Formal**
@@ -119,6 +127,19 @@ Esta estrutura revela uma simetria lógica profunda e completa, integrando tempo
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Capítulo 2. A Dupla Fundamentação da Realidade Contingente
 
 ### 1. A Questão Existencial e a Questão Identitária
@@ -171,6 +192,21 @@ Da estrutura simétrica dos princípios lógicos decorre necessariamente uma est
 Esta proposição estabelece as bases para investigar a natureza deste Fundamento, tarefa que será empreendida nas proposições seguintes. O sistema resultante é mais completo e rigoroso que qualquer um de seus precedentes isoladamente, pois demonstra como os quatro princípios causais derivam necessariamente dos quatro princípios lógicos, fechando o círculo entre pensamento e ser, entre lógica e metafísica.
 
 A pergunta "Por que há algo em vez de nada?" revela-se incompleta. A pergunta completa é: *"Por que há estas coisas específicas em vez de outras, ou em vez de nada?"* A resposta exige referência a um Fundamento que seja tanto Causa Existencial quanto Causa Identitária de tudo o que é contingente.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -323,6 +359,11 @@ Reconhecer o incognoscível não invalida a investigação filosófica do Absolu
 
 
 
+
+
+
+
+
 ## Capítulo 4. Os Princípios Fundamentais do Absoluto
 
 ### 1. A Necessidade Lógica de um Fundamento Absoluto
@@ -370,7 +411,9 @@ O inefável, por definição, dispensa propriedades e transcende qualquer predic
 
 Por fim, vale ressaltar que uma realidade completamente pura é categoricamente diferente de uma realidade não-existente (o nada). O nada não pode possuir teor de pureza, uma vez que sequer existe. É essa pureza absoluta que justifica o fato de o Absoluto ser o que é: sem causa externa ou anterior, subsistindo por si mesmo e a partir de si, sem recorrer a qualquer fonte exterior para constituir a substância da qual é feito.
 
-### 4. A Indiferenciação do Ser
+### 5. Determinação e indiferenciação
+
+#### A Indiferenciação do Ser
 
 Essa ausência de divisões e escolhas internas conduz à perfeita indiferenciação do Absoluto. Sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem de forma irrevogável. Não há em seu interior qualquer distinção, dualidade ou fragmentação que rompa sua pureza fundamental.
 
@@ -379,8 +422,6 @@ O conceito de "Ser" designa essa realidade marcada pela total indiferenciação 
 **Exemplo:** Consideremos um ente determinado que possui existência e forma (existe como "A", e não como "B"). Se esse ente sobrevivesse a uma destituição de sua forma, ou seja, ao retirarmos a forma de "A", restaria apenas o existir de "A" — que não seria mais "A", mas apenas o existir. A identidade de "A" tornar-se-ia, então, o seu próprio e puro ato de existir.
 
 Isso define o Ser: uma indiferenciação fundamental entre a determinação e a forma. Se não houvesse essa fusão íntima entre a existência e a essência, não haveria o Absoluto, pois toda realidade determinada é, por si, uma negação de todas as outras realidades possíveis. Como o Absoluto é a única realidade vigente, não faria sentido haver o que negar.
-
-### 5. Determinação e indiferenciação
 
 #### A Natureza da Determinação e da Negação
 
@@ -434,7 +475,7 @@ Ao se conceber o incausado como determinado, incorre-se em uma contradição ont
 
 #### O Caminho Apofático e a Fusão entre Identidade e Existir
 
-Para compreender melhor o conceito de Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
+Para compreender melhor a visão errônea do Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
 
 Em palavras mais simples, podemos definir o determinado como realidade dependente de escolha, e não somente de si mesma. Já o indeterminado não depende de uma escolha para que seja realidade; é uma realidade cuja identidade já é o próprio fundamento. O indeterminado não está entre mais opções possíveis, pois sua identidade é unida ao seu ato de ser; portanto, o indeterminado é seu próprio Ser. Numa realidade absoluta, não há uma escolha entre opções, mas há o próprio determinar fundido ao fundamento. Portanto, a ação determinadora é dispensada, e a realidade que é seu próprio existir — que tem a ação determinística em seu próprio fundamento — torna-se soberana. A realidade indeterminada dispensa, portanto, uma ação exterior ou anterior de determinação; não depende de fator externo ou anterior para existir, pois realiza-se independentemente de determinação. Seu existir é idêntico a si mesmo, ou seja, quando o existir é a própria identidade do que existe, temos o indeterminado.
 
@@ -457,7 +498,7 @@ Em palavras ainda mais simples, para fins de entendimento, podemos usar o seguin
 
 
 
-## Capítulo 7. A Autocausalidade como Substância do Absoluto
+## Capítulo 5. A Autocausalidade como Substância do Absoluto
 
 ### 1. A auto causalidade pura
 
@@ -787,7 +828,7 @@ A pessoa do ato instaurador, que se faz Ser, inevitavelmente, em seu ato de cons
 
 
 
-## Capítulo 7. A Qualidade da Ação do Ser como Presença Operante
+## Capítulo 6. A Qualidade da Ação do Ser como Presença Operante
 
 > O Ser é vida, vida em doação, não vida em pertencimento egoico a si mesma. O Ser é vida. Não o vivente, mas a vida do vivente.
 
@@ -873,7 +914,7 @@ O bem é a própria manifestação do Ser (Vida), não uma atividade extrínseca
 
 
 
-## Capítulo 8. A Autocausalidade do Absoluto, a Falsa Dupla Exigência e o Paradoxo da Essência Indiferenciada
+## Capítulo 7. A Autocausalidade do Absoluto, a Falsa Dupla Exigência e o Paradoxo da Essência Indiferenciada
 
 As proposições anteriores estabeleceram o Absoluto como horizonte metafísico total que contém os domínios do possível, impossível e incognoscível. Esta arquitetura ontológica, porém, permaneceria estática e incompleta sem uma investigação sobre o modo como o Absoluto se relaciona causalmente consigo mesmo e com o que dele emana. Se o Absoluto é o fundamento último de toda causalidade contingente, qual é a natureza de sua própria causalidade?
 
@@ -1076,7 +1117,7 @@ A palavra Ser, portanto, também denota o existente tendo como forma o próprio 
 
 
 
-## Capítulo 9. A Natureza Pessoal do Autocausal
+## Capítulo 8. A Natureza Pessoal do Autocausal
 
 ### 1. A Necessidade de Autoconsciência, Liberdade e Intencionalidade
 
