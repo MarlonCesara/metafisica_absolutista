@@ -371,34 +371,58 @@ O inefável, por definição, dispensa propriedades e transcende qualquer predic
 
 Por fim, vale ressaltar que uma realidade completamente pura é categoricamente diferente de uma realidade não-existente (o nada). O nada não pode possuir teor de pureza, uma vez que sequer existe. É essa pureza absoluta que justifica o fato de o Absoluto ser o que é: sem causa externa ou anterior, subsistindo por si mesmo e a partir de si, sem recorrer a qualquer fonte exterior para constituir a substância da qual é feito.
 
-### 5. A Dinâmica Interna: Autocausalidade é Autodeterminação e Auto Fundamentação
+### 5. Autocausalidade é Autodeterminação e Auto Fundamentação
 
 Sendo a única condição absoluta e não havendo qualquer alternativa além de si mesmo, é imperativo distinguir a natureza de sua causa.
 
-O Absoluto não é isoladamente autodeterminado, mas necessariamente autocausal, na condição de que possui a auto determinação homogênea à auto fundamentação. Ele não pode possuir diferenciações internas, pois toda determinação de uma condição ou realidade em detrimento de outras (uma escolha) implica a negação de possibilidades distintas e a pressuposição de que haveria outras realidades possíveis a serem consideradas. Sendo absoluto, ele só pode ser a única condição, não havendo nele qualquer multiplicidade entre a qual escolher, nem um ato de escolha propriamente dito.
+O Absoluto não é isoladamente autodeterminado, mas necessariamente autocausal - na condição de que possui a auto determinação homogênea à auto fundamentação. O Absoluto não pode possuir diferenciações internas, pois toda determinação de uma condição ou realidade em detrimento de outras (uma escolha) implica a negação de possibilidades distintas e a pressuposição de que haveria outras realidades possíveis a serem consideradas. Sendo absoluto, ele só pode ser a única condição, não havendo nele qualquer multiplicidade entre a qual escolher, nem um ato de escolha propriamente dito.
 
 Se houvesse uma auto determinação isolada da auto fundamentação, o Absoluto teria de escolher a si mesmo para ser aquilo que é. Nesse caso, o próprio ato de escolha constituiria uma determinação anterior à sua condição de Absoluto, introduzindo uma causa ou fundamento prévio e exterior a si mesmo. Isso seria ontologicamente contraditório. Conclui-se, em definitivo, que ele não é causado por escolha externa ou ação antecedente, sendo puramente auto causal.
 
 Esta autocausalidade é puramente interna. Ela não é anterior a si mesma (de modo que o Absoluto se causasse antes de existir). A autocausalidade atua como liberdade absoluta. Afirmar que o Absoluto é causa de si mesmo não significa postular um segundo absoluto criador, mas reconhecer que o próprio Absoluto é autor de si, operando como uma natureza que impõe a sua própria existência e age a partir de seu puro existir. Autocausar-se não significa proceder de uma fonte anterior, mas constituir-se no próprio ato de ser: fazer-se ser, consentir com a própria existência e ser, substancialmente, esse mesmo ato de consentimento.
 
+Portanto, sendo o Absoluto dado como tal pela própria razão, há de fato a auto determinação e a auto fundamentação, porém, ambas, tem a atuação fundidas. O Ser se auto causa como Ser, e não como uma realidade determinada. Portanto, a auto causalidade do Ser é pura, o Ser se auto realiza puro.
 
+Portanto, temos duas afirmações distintas:
 
+1- O Ser é auto causal, no sentido de que o sentido de sua existência e realização como Ser está em si mesmo.
 
-Sendo o Absoluto razão de si mesmo, é, definitivamente, auto causal.
-Porém, sendo auto fundamentado e auto determinado em uma homogeneidade fundamental, o absoluto é autor de si.
+2- O Ser tem sua auto determinação fundida a sua auto fundamentação. Seu ato de Ser, é puro. Tal como sua própria natureza indiferenciada.
 
-Porém, se dando como completo e não como opçõa futura de si mesmo o Absoluto é ao mesmo tempo consumado, fundamentador consumado de si.
+Das duas afirmações acima, concluímos que o Ser se auto realiza Ser.
+
+Porém, ao levarmos em consideração que este ato de auto realização é consumado, pois o Ser se apresenta como inteiro, como instaurado e não como uma promessa futura de si mesmo ou como um ato de auto construção inacabado.
+
+Então podemos afirmar também que:
+
+1- O Ser se dá como realizado, pois não é consequência de uma ato anterior a si mesmo nem de um ato anterior de si mesmo, também nem de uma causa externa ou sentido externo para sua própria natureza.
+
+2- Temos portanto, o ato de realização do Ser em compasso indistinto do ato de sua fundamentação. Isto é, temos o Ser como fundamentado, isto é, o Ser final. Ao passo que temos o Ser auto realizado. Temos portanto, a ação auto instauradora ao passo que temos a ação completa. O Ser é como tal em razão de si, e é como tal de forma consumada.
+
+O ato de Ser está em conjunto com o Ser final em ato. Passamos, portanto, a entender, a partir de agora, o Ser, como uma realidade bifásica. Temos o Ser que é uma realidade em ato de auto realização, ao passo que é uma realidade consumada em seu ato.
+
+Sendo o Absoluto razão de si mesmo, é, definitivamente, auto causal. Porém, sendo auto fundamentado e auto determinado em uma homogeneidade fundamental, o absoluto é autor de si. Porém, se dando como completo e não como opção futura de si mesmo o Absoluto é ao mesmo tempo consumado, fundamentador consumado de si.
+
+Desta forma, podemos sintetizar:
+
+O auto determinar-se seria um ato de auto escolha, que no contexto absoluto, não é uma possibilidade. Pois o absoluto não existe antes de si mesmo para se escolher. Temos, portanto, o auto causal de forma que este exista em razão de si mesmo, sem que tenha se escolhido entre mais escolhas, pois, sendo indiferenciado, não tem como escolha outra natureza se não a si mesmo. Sendo puro, não há diferenças na pureza para exercer sua escolha.
+
+Portanto, se o Ser realiza a si mesmo, e se é fundamentalmente o ato dessa realização como Ser consumado.
+
+Temos portanto, um movimento perpetuo, que está consumado em si mesmo. Uma dualidade em que, há a refrescancia, isto é, o eterno ato auto causal em operação, ao passo que há este ato consumado.
+
+Ao mesmo tempo, temos o ato de Ser como consumado, e o ato de Ser como operação constante. Portanto, temos uma extensão temporal, dada como ato consumado, isto é, em um tempo consumado que é inicio meio e fim de si. Ao passo que essa extensão é refrescada, isto é, atualizada, pois é ato de Ser. 
+
+Temos, enfim, uma bidimensão. Onde:
+
+1- O Ser é em ato constante, e pura atualização.
+2- O Ser é pura consumação, no sentido de que seu ato é refrescado e ao mesmo tempo, consumado.
+
+Entendemos o ato como uma temporalidade progressiva, porém, o ato do Ser, é uma temporalidade progressiva, ao passo que se consumou em seu progresso. Temos, desta forma a infinitude de um ato, que se consuma e que é refrescada em extensão total.
+
 
 
 revisar
-
-
-
-
-
-
-
-
 
 
 
