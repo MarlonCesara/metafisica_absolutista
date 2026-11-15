@@ -358,17 +358,7 @@ Enquanto o ser contingente pode ser negado em favor de outro, o Absoluto não po
 
 Portanto, não há como produzir uma realidade por meio da negação do Absoluto. Nesse sentido, ele não pode ser reduzido, negado ou acrescido.
 
-### 4. A Indiferenciação do Ser
-
-Essa ausência de divisões e escolhas internas conduz à perfeita indiferenciação do Absoluto. Sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem de forma irrevogável. Não há em seu interior qualquer distinção, dualidade ou fragmentação que rompa sua pureza fundamental.
-
-O conceito de "Ser" designa essa realidade marcada pela total indiferenciação entre fundamento e essência. O Ser representa a fusão da fundamentação com a identidade numa unidade ontológica em que o fundamento é a própria determinação. O Absoluto não é um ente determinado "A" ou "B"; ele é o próprio ato puro de existir.
-
-**Exemplo:** Consideremos um ente determinado que possui existência e forma (existe como "A", e não como "B"). Se esse ente sobrevivesse a uma destituição de sua forma, ou seja, ao retirarmos a forma de "A", restaria apenas o existir de "A" — que não seria mais "A", mas apenas o existir. A identidade de "A" tornar-se-ia, então, o seu próprio e puro ato de existir.
-
-Isso define o Ser: uma indiferenciação fundamental entre a determinação e a forma. Se não houvesse essa fusão íntima entre a existência e a essência, não haveria o Absoluto, pois toda realidade determinada é, por si, uma negação de todas as outras realidades possíveis. Como o Absoluto é a única realidade vigente, não faria sentido haver o que negar.
-
-### 5. A Pureza absoluta
+### 3. A Pureza absoluta
 
 A tradição teológica frequentemente concebe a substância de uma realidade incausada em termos de uma pureza originária ou, de maneira ainda mais rigorosa, por meio da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causas.
 
@@ -380,33 +370,19 @@ O inefável, por definição, dispensa propriedades e transcende qualquer predic
 
 Por fim, vale ressaltar que uma realidade completamente pura é categoricamente diferente de uma realidade não-existente (o nada). O nada não pode possuir teor de pureza, uma vez que sequer existe. É essa pureza absoluta que justifica o fato de o Absoluto ser o que é: sem causa externa ou anterior, subsistindo por si mesmo e a partir de si, sem recorrer a qualquer fonte exterior para constituir a substância da qual é feito.
 
+### 4. A Indiferenciação do Ser
 
+Essa ausência de divisões e escolhas internas conduz à perfeita indiferenciação do Absoluto. Sua identidade não se contrapõe ao seu próprio fundamento; ambos coincidem de forma irrevogável. Não há em seu interior qualquer distinção, dualidade ou fragmentação que rompa sua pureza fundamental.
 
+O conceito de "Ser" designa essa realidade marcada pela total indiferenciação entre fundamento e essência. O Ser representa a fusão da fundamentação com a identidade numa unidade ontológica em que o fundamento é a própria determinação. O Absoluto não é um ente determinado "A" ou "B"; ele é o próprio ato puro de existir.
 
+**Exemplo:** Consideremos um ente determinado que possui existência e forma (existe como "A", e não como "B"). Se esse ente sobrevivesse a uma destituição de sua forma, ou seja, ao retirarmos a forma de "A", restaria apenas o existir de "A" — que não seria mais "A", mas apenas o existir. A identidade de "A" tornar-se-ia, então, o seu próprio e puro ato de existir.
 
+Isso define o Ser: uma indiferenciação fundamental entre a determinação e a forma. Se não houvesse essa fusão íntima entre a existência e a essência, não haveria o Absoluto, pois toda realidade determinada é, por si, uma negação de todas as outras realidades possíveis. Como o Absoluto é a única realidade vigente, não faria sentido haver o que negar.
 
+### 5. Determinação e indiferenciação
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-## Capítulo 5. O Determinado e o Indiferenciado
-
-### 1. A Natureza da Determinação e da Negação
+#### A Natureza da Determinação e da Negação
 
 Há uma diferença fundamental entre aquilo que é determinado e aquilo que é indiferenciado. O determinado é aquilo que se apresenta por meio de uma diferença: é isto e não aquilo, possui uma identidade que o distingue de outras possibilidades. Determinar algo é, portanto, estabelecer uma diferença no campo da realidade.
 
@@ -416,13 +392,13 @@ A negação opera de maneira semelhante. Negar um ente determinado não signific
 
 Podemos levar esse processo adiante. Se negarmos sucessivamente todos os dez entes, chegaremos ao conjunto vazio. Entretanto, mesmo nesse caso, ainda permanece afirmado o próprio conjunto enquanto estrutura lógica na qual a ausência dos elementos é concebida. A negação dos entes não eliminou necessariamente o campo no qual eles eram considerados; ela apenas retirou seus conteúdos determinados.
 
-### 2. A Contradição na Negação do Fundamento Absoluto
+#### A Contradição na Negação do Fundamento Absoluto
 
 O problema surge quando tentamos aplicar essa mesma operação ao próprio fundamento absoluto do conjunto. Se o Absoluto é aquilo que fundamenta a própria realidade e não depende de algo exterior a si, então negá-lo não produz simplesmente uma realidade alternativa chamada “nada absoluto”. Isso porque um nada absoluto, se fosse tomado como uma realidade efetiva e absoluta, já possuiria uma positividade ontológica: seria algo que é absolutamente. A própria tentativa de transformar o nada em uma realidade absoluta acaba, portanto, convertendo-o novamente em algum tipo de ente.
 
 Desse modo, a negação do Absoluto não conduz propriamente a um “nada absoluto”. Ela conduz a uma contradição conceitual: tenta-se negar justamente aquilo que não é um ente determinado entre outros entes, mas o fundamento pelo qual qualquer ente determinado pode existir.
 
-### 3. A Distinção Ontológica entre o Determinado e o Indiferenciado
+#### A Distinção Ontológica entre o Determinado e o Indiferenciado
 
 É nesse ponto que se torna necessário distinguir o determinado do indiferenciado. O ente determinado possui uma identidade que o diferencia de outros entes. Ele é algo precisamente porque não é outras coisas. Sua determinação envolve, portanto, uma diferença.
 
@@ -436,7 +412,7 @@ A determinação é, portanto, uma forma de afirmação mediante diferença: afi
 
 Assim, enquanto o ente determinado possui uma identidade pela qual se distingue, o Absoluto possui sua realidade sem depender de distinção. O determinado é aquilo que é por meio de uma diferença; o indiferenciado é aquilo que é sem que sua realidade necessite ser estabelecida contra outra realidade.
 
-### 4. A Impossibilidade de Escolha no Incausado
+#### A Impossibilidade de Escolha no Incausado
 
 Em um nível absoluto, algo determinado necessariamente implica uma escolha. Ora, se no Absoluto deve haver uma realidade absoluta e introduzimos nela uma realidade determinada, essa realidade necessariamente exige que se responda não apenas à pergunta “por que é?”, mas também à pergunta: “por que é isto em detrimento daquilo?”.
 
@@ -456,7 +432,7 @@ O determinado necessita, como o próprio nome sugere, de ser determinado, isto �
 
 Ao se conceber o incausado como determinado, incorre-se em uma contradição ontológica: a determinação pressupõe uma escolha, pois determinar significa estabelecer uma realidade em detrimento de outras possibilidades. Nesse sentido, toda determinação exige um princípio que justifique a eleição de uma possibilidade específica entre as demais. Se, porém, o incausado necessita justificar a própria determinação, deve-se admitir que ele antecede a si mesmo enquanto princípio determinante, como se precisasse ser anterior à própria existência para fundamentar a escolha que o define. Isso implica uma anterioridade causal do incausado em relação a si mesmo, o que contradiz a própria noção de incausado. Portanto, atribuir determinação ao incausado significa submetê-lo à exigência de um fundamento anterior, negando, assim, a sua condição de princípio incondicionado.
 
-### 5. O Caminho Apofático e a Fusão entre Identidade e Existir
+#### O Caminho Apofático e a Fusão entre Identidade e Existir
 
 Para compreender melhor o conceito de Absoluto determinado, é necessário percorrer o *Caminho Apofático*, no qual se examinam as vias lógicas que se desvelam diante das tentativas de estabelecer um Absoluto determinado. Por meio dessa investigação, torna-se possível reconhecer as contradições e os limites conceituais implicados nessa tentativa, aprofundando a compreensão da natureza do Absoluto e de sua relação com a determinação.
 
@@ -464,7 +440,7 @@ Em palavras mais simples, podemos definir o determinado como realidade dependent
 
 Em palavras ainda mais simples, para fins de entendimento, podemos usar o seguinte exemplo: imagine que determinado ente se chame "ente X". Ao ser nomeado como X, não se identifica simplesmente como ente, mas se identifica como X; portanto, sua identidade está em um nível de escolha, pois, se é X, negou a possibilidade de ser Y. Porém, se o ente se chama "ente", ou seja, se sua identidade é seu próprio ser, então não houve nível de escolha: sua identidade só poderia estar fundida ao que ele mesmo é. Agora, imagine que há o existente cujo nome é X; desta forma, teria a identidade X que nega todas as outras possíveis identidades. Porém, ao chamarmos o existente de "existir", isto é, ao unirmos seu fundamento à sua identidade, temos o Ser. Portanto, o Ser dispensa qualquer escolha para se fazer Ser, pois identifica-se consigo mesmo.
 
----
+
 
 
 
