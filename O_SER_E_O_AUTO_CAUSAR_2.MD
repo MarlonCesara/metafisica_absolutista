@@ -828,6 +828,9 @@ A pessoa do ato instaurador, que se faz Ser, inevitavelmente, em seu ato de cons
 
 
 
+
+
+
 ## Capítulo 6. A Qualidade da Ação do Ser como Presença Operante
 
 > O Ser é vida, vida em doação, não vida em pertencimento egoico a si mesma. O Ser é vida. Não o vivente, mas a vida do vivente.
