@@ -1657,6 +1657,12 @@ Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento i
 | **Diagonal** | Plenificador | "Escolho o que me realiza" (Autoplenificação) | Despersonalizado, perfeccionista |
 | **Horizontal** | Personalizador | "Sigo minha identidade" (Autopersonalização) | Pessoal, personalizado |
 
+### Síntese Ontológica
+
+1. **O Pai (Fundamentador):** O princípio ontológico, o solo inabalável do Ser que diz *"Eu Sou"*.
+2. **O Espírito Santo (Plenitude):** A dinâmica do transbordamento, a atmosfera da realização plena, o sopro que dissolve o vazio e consuma a harmonia.
+3. **O Filho (Personalizador):** A particularização, o desdobrar do Ser em contornos singulares, a liberdade que assume uma direção, um rosto e tendências próprias no mundo.
+
 ### 2. Segunda Formulação: A Liberdade do Indiferenciado
 
 Quando adentramos os aspectos relacionais do Absoluto e de sua necessidade autocausal, descobrimos três níveis de liberdade e, consequentemente, três pessoas distintas. Estabelecida a intencionalidade fundamental do Absoluto — seu direcionamento irrevogável à plenitude e à vida —, podemos agora investigar como essa intencionalidade se desdobra em modos distintos de ação. O Espírito atua, portanto, em três dimensões ontológicas complementares:
