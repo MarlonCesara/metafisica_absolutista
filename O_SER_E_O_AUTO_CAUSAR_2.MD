@@ -496,7 +496,9 @@ Em palavras ainda mais simples, para fins de entendimento, podemos usar o seguin
 
 
 
+organização:
 
+1- O auto causar não pode ser o auto causado. Mas se consuma em seu próprio principio.
 
 ## Capítulo 5. A Autocausalidade como Substância do Absoluto
 
