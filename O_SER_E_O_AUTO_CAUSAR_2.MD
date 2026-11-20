@@ -387,19 +387,7 @@ Inicialmente, o Absoluto é inferido a partir dos princípios causais clássicos
 
 Trata-se daquilo que não pode derivar de uma causa anterior, não possui causa externa e, fundamentalmente, não carece de um motivo ou de uma razão de ser que resida fora de si mesmo. Essa autossuficiência radical garante que, na instância primordial, não exista absolutamente nada além do próprio Absoluto que o determine ou origine.
 
-### 3. Os Preceitos Ontológicos do Absoluto: Inegabilidade e Insubstituibilidade
-
-A aplicação regressiva dos princípios causais conduz à postulação irrefutável de um Fundamento Absoluto, cujos preceitos ontológicos basilares incluem, de imediato, a sua inegabilidade e insubstituibilidade.
-
-O Absoluto não pode ser negado, diminuído ou acrescido, dada a sua soberania e autossuficiência plena. A afirmação de um ente determinado implica, naturalmente, a negação de todas as possibilidades que lhe são incompatíveis. No entanto, a negação do Absoluto não abre espaço para uma possibilidade alternativa. Qualquer "alternativa" concebível ao Absoluto já constituiria, em si mesma, alguma determinação do real, reivindicando para si a condição de absoluto.
-
-Enquanto o ser contingente pode ser negado em favor de outro, o Absoluto não pode ser substituído. O "não-absoluto" jamais constitui uma alternativa viável. A negação de um ente determinado não destrói o Absoluto; porém, a negação do próprio Absoluto não se sustenta como uma possibilidade lógica.
-
-**Exemplo:** Suponhamos os entes contingentes A, B e C, situados no contexto absoluto. Ao negarmos A, estamos afirmando B e C. Ao negarmos A, B e C, continuamos a afirmar o Absoluto. Porém, ao tentarmos negar o Absoluto, não estamos afirmando rigorosamente nada.
-
-Portanto, não há como produzir uma realidade por meio da negação do Absoluto. Nesse sentido, ele não pode ser reduzido, negado ou acrescido.
-
-### 3. A Pureza absoluta
+### 4. A Pureza absoluta
 
 A tradição teológica frequentemente concebe a substância de uma realidade incausada em termos de uma pureza originária ou, de maneira ainda mais rigorosa, por meio da categoria do inefável. À primeira vista, o inefável apresenta-se como o horizonte ontológico mais adequado para se inferir uma existência radicalmente isenta de causas.
 
@@ -472,6 +460,18 @@ O Incausado, portanto, não se determina por escolha, pois não necessita eleger
 O determinado necessita, como o próprio nome sugere, de ser determinado, isto é, de ser escolhido entre as demais opções. Portanto, necessita de uma causa, de um ente que o escolha e que seja anterior àquilo que foi escolhido. Nesse sentido, dispensa-se a qualidade de determinado no incausado, pois, como o próprio termo indica, o incausado não pode ter uma causa anterior, isto é, não pode ser escolhido, sob pena de deixar de ser absoluto.
 
 Ao se conceber o incausado como determinado, incorre-se em uma contradição ontológica: a determinação pressupõe uma escolha, pois determinar significa estabelecer uma realidade em detrimento de outras possibilidades. Nesse sentido, toda determinação exige um princípio que justifique a eleição de uma possibilidade específica entre as demais. Se, porém, o incausado necessita justificar a própria determinação, deve-se admitir que ele antecede a si mesmo enquanto princípio determinante, como se precisasse ser anterior à própria existência para fundamentar a escolha que o define. Isso implica uma anterioridade causal do incausado em relação a si mesmo, o que contradiz a própria noção de incausado. Portanto, atribuir determinação ao incausado significa submetê-lo à exigência de um fundamento anterior, negando, assim, a sua condição de princípio incondicionado.
+
+#### Os Preceitos Ontológicos do Absoluto: Inegabilidade e Insubstituibilidade
+
+A aplicação regressiva dos princípios causais conduz à postulação irrefutável de um Fundamento Absoluto, cujos preceitos ontológicos basilares incluem, de imediato, a sua inegabilidade e insubstituibilidade.
+
+O Absoluto não pode ser negado, diminuído ou acrescido, dada a sua soberania e autossuficiência plena. A afirmação de um ente determinado implica, naturalmente, a negação de todas as possibilidades que lhe são incompatíveis. No entanto, a negação do Absoluto não abre espaço para uma possibilidade alternativa. Qualquer "alternativa" concebível ao Absoluto já constituiria, em si mesma, alguma determinação do real, reivindicando para si a condição de absoluto.
+
+Enquanto o ser contingente pode ser negado em favor de outro, o Absoluto não pode ser substituído. O "não-absoluto" jamais constitui uma alternativa viável. A negação de um ente determinado não destrói o Absoluto; porém, a negação do próprio Absoluto não se sustenta como uma possibilidade lógica.
+
+**Exemplo:** Suponhamos os entes contingentes A, B e C, situados no contexto absoluto. Ao negarmos A, estamos afirmando B e C. Ao negarmos A, B e C, continuamos a afirmar o Absoluto. Porém, ao tentarmos negar o Absoluto, não estamos afirmando rigorosamente nada.
+
+Portanto, não há como produzir uma realidade por meio da negação do Absoluto. Nesse sentido, ele não pode ser reduzido, negado ou acrescido.
 
 #### O Caminho Apofático e a Fusão entre Identidade e Existir
 
